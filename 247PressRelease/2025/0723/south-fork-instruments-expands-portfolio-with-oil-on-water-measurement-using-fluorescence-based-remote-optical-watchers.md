@@ -1,0 +1,20 @@
+# South Fork Instruments Expands Portfolio with Oil on Water Measurement Using Fluorescence-Based Remote Optical Watchers
+
+AUBURN, CA, July 23, 2025 /24-7PressRelease/ -- South Fork Instruments today announced the addition of Remote Optical Watchers (ROW) for oil on water detection to its growing portfolio of advanced measurement solutions. Developed by Laser Diagnostic Instruments (LDI), ROW sensors use ultraviolet-induced fluorescence to detect oil films on water in real time, without physical contact. The addition enhances South Fork's ability to support customers in refining, marine, aviation, and utility sectors with localized, continuous monitoring tools that help reduce the risk of environmental releases.  The ROW is engineered for autonomous deployment in demanding field conditions. Housed in an IP68-rated enclosure, the sensor detects hydrocarbon films as thin as 1 micron at ranges up to 10 meters. Unlike LIDAR reflectance- or IR-based systems, fluorescence detection is not affected by surface turbulence or variable lighting, making it well suited for open water and open-channel applications, bund walls, stormwater outfalls, and effluent discharge points.  Key features of the ROW include:  -UV fluorescence detection for high sensitivity and low false alarm rate -Stainless steel 316L enclosure option for durability in marine and corrosive environments -Autonomous operation with low power draw (2 W) and support for solar/battery systems -Detection range up to 10 meters from water surface -Multiple output options, including 4–20 mA, RS-485 (Modbus), and GSM, Wi-Fi, or Ethernet -Software tools for configuration (ROW Configurator) and network monitoring (ROW Manager) -IP68 rating for continuous use in harsh outdoor or submerged installations  "Adding ROW strengthens our support for clients facing increasing compliance burdens and environmental risk exposure," said John Daly, Technical Director, at South Fork Instruments. "Its optical design and flexible telemetry make it an effective solution for early-stage hydrocarbon detection in both facilities and remote, infrastructure-limited environments."  ROW units are in use globally at airports, oil refineries, port terminals, and desalination plants. By enabling immediate detection of oil on water, the system supports rapid response, reduces remediation volumes, and minimizes the risk of offsite migration.  For more information about Remote Optical Watchers and other oil in water measurement solutions, visit https://www.southforkinst.com or contact South Fork Instruments directly.  About South Fork Instruments: South Fork Instruments, based in Auburn, Calif., is an established supplier of measurement instrumentation, analyzers, and control products serving the Americas. The company's cross-industry experience translates into a unique ability to identify, develop, and implement innovative measurement solutions. The state-of-the-art instrumentation products provide reliable, low maintenance, high-value results for plant control and quality improvement for a wide range of industry segments, including chemical plants, breweries, refineries, mining, power generation, food processing, offshore/onshore oil production, and pipelines. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525083/south-fork-instruments-expands-portfolio-with-oil-on-water-measurement-using-fluorescence-based-remote-optical-watchers)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-fork-instruments-launches-advanced-oil-detection-technology/c34a424dc698e36ae17ca3672cc672cf) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1m7hy3q/south_fork_instruments_launches_advanced_oil/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/23/tintQG5C.webp)

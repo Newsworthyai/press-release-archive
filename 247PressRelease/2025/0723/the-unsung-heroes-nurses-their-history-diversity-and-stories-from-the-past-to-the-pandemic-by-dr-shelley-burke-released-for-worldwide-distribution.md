@@ -1,0 +1,20 @@
+# The Unsung Heroes: Nurses: Their History, Diversity, and Stories from the Past to the Pandemic by Dr. Shelley Burke Released For Worldwide Distribution
+
+SAN DIEGO, CA, July 23, 2025 /24-7PressRelease/ -- he Unsung Heroes: Nurses: Their History, Diversity, and Stories from the Past to the Pandemic (13:979-8281471299, White Coats Publishing, 2025) by Dr. Shelley Burke, DNP, RN has been released for worldwide distribution. From the healers of ancient villages to the brave frontline warriors of the COVID-19 pandemic, nurses have always stood at the heart of healthcare, yet they often go overlooked and underappreciated. This is particularly the case for diverse, multicultural, and immigrant nurses in the American healthcare system. Punctuated by gripping stories of real-life nurses and interviews with living legends, The Unsung Heroes: Nurses honors nurses who fought against racism, sexism, and classism to achieve recognition in their careers. These powerful stories reveal the hard truths of inequality still operating in the world's most trusted profession. Historically, Unsung Heroes goes beyond Florence Nightingale to discover nursing pioneers such as Harriet Tubman, Mary Seacole, Anastacia Giron-Tupas, Susie Walking Bear Yellowtail and more. The book is available in hardback, paperback, and Kindle editions.   "Many of the nurses like me are immigrants who pursued their careers in the United States," says Dr. Burke. "Each one made their mark in caring for their patients and providing both comfort and care. The stories that I highlight, like the nurses in the book, are a diverse group just like the nursing profession in the United States is."  "Nurses are not just doctor's assistants or 'bedpan pushers,'" Dr. Burke continues. "They are scientific innovators, advocates for social justice, and global ambassadors of care. This book is both a celebration and a call to recognize the true value of nursing."  In Unsung Heroes, readers will embark on an epic journey through time and humanity discovering:  The powerful history of nursing — from ancient caregiving practices to modern medical breakthroughs. Diverse pioneers of the profession — honoring African American, Native American, Asian American, Hispanic, Latin American, Indian American, White American, immigrant, disabled, and male nurses. Stories of courage and defiance — highlighting nurses who challenged racism, sexism, and classism while healing the sick. Firsthand frontline testimonies — gripping stories from nurses who faced the unprecedented challenges of the COVID-19 pandemic. An inspiring personal narrative — Dr. Burke's own journey from Guyana to the United States to fulfill her childhood dream of becoming a nurse.  Dr. Burke's warm voice seamlessly weaves together rich storytelling and heartfelt testimonies, shining a light on the indispensable role of nurses in shaping healthcare and advancing humanity throughout history. She shows how nurses truly embody compassion, resilience, and innovation — and she gives these unsung heroes their flowers.  About the Author  Dr. Shelley Burke, DNP, RN is a Clinical Assistant Professor and Global Ambassador at the University of California, Irvine. With decades of experience in healthcare, she brings a unique blend of academic expertise and personal passion to her work. Her story — from her roots in Guyana to becoming a respected leader in U.S. healthcare — adds a deeply personal dimension to this book. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525104/the-unsung-heroes-nurses-their-history-diversity-and-stories-from-the-past-to-the-pandemic-by-dr-shelley-burke-released-for-worldwide-distribution)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-shelley-burke-honors-nurses-legacy-in-new-book-the-unsung-heroes/8a7d91bb0c5598d4a1facded0c5bafc6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1m7hxw3/dr_shelley_burke_honors_nurses_legacy_in_new_book/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/23/rain3WGt.webp)
