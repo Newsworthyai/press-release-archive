@@ -1,0 +1,20 @@
+# Advancing Affordable Housing Throughout the Southeast: CAHEC Closes Three Properties in the Second Quarter of 2025
+
+RALEIGH, NC, July 24, 2025 /24-7PressRelease/ -- CAHEC is proud to announce the closing of three affordable housing properties throughout the second quarter that will help ensure everyone has access to a home they can afford. The three properties, located throughout the Southeast, have a combined total of 146 units, and propel CAHEC forward in its mission of strengthening communities by providing affordable housing. These developments combine new construction with acquisition and rehabilitation, where existing affordable housing communities are preserved and enhanced. The communities closed in the second quarter of 2025 include:  • Lily Gardens – Staunton, VA  Lily Gardens Apartments will create 50 affordable units for families earning up to 30%, 50%, 60%, and 80% of the Area Median Income ("AMI") in Staunton, Virginia. The units will feature vinyl flooring, P-Lam countertops and backsplashes, and will be equipped with a refrigerator, dishwasher, disposal, range, range hood, and washer and dryer hookups. Bathroom features will include tempered glass shower enclosures and medicine cabinets. The property will include a leasing office and a fitness center within the building.  • Gateway Double Creek – Florence, AL  The acquisition and rehabilitation of Gateway Double Creek will update 48 units of much-needed housing for families earning up to 60% of Area Median Income ("AMI") in Lauderdale County, Alabama. The market exhibits a strong occupancy history for this property as well as the four comparable properties in the surrounding market, all of which have existing waiting lists.   • Renaissance Commons – Elizabeth City, NC  Renaissance Commons is an existing development that underwent upgrades to provide 48 units of essential housing for seniors earning up to 50% and 60% of Area Median Income ("AMI") in Pasquotank County, North Carolina. The market shows continued demand for Renaissance Commons Apartments in Elizabeth City. Comparable LIHTC properties have a combined occupancy rate of 100% and all but one maintain a waiting list for their next available unit.   "The developments completed last quarter are powerful examples of our dedication to both creating new affordable housing opportunities and preserving the character of existing communities. As the need for affordable housing grows, CAHEC is proud to play a key role in collaborative partnerships that build and sustain affordable rental communities throughout the Southeast," stated Greg Mayo, CAHEC's Vice President, Acquisitions & Risk.  CAHEC is a community investment organization based in Raleigh, NC, and Columbia, SC, that offers housing and life-changing opportunities to residents throughout its Southeast and Mid-Atlantic footprint. CAHEC's product areas include investing in low-income housing tax credits, historic tax credits, new markets tax credits, and renewable energy credits. CAHEC also provides loan programs, wellness and education initiatives for residents, affordable housing development, and property management services. To learn more about their contributions to affordable housing and surrounding communities, visit CAHEC's website. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525124/advancing-affordable-housing-throughout-the-southeast-cahec-closes-three-properties-in-the-second-quarter-of-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cahec-advances-affordable-housing-with-146-new-units-across-southeast/16d1811581f96d97026fe8d8e1b62e26) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1m7xt40/cahec_advances_affordable_housing_with_146_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/24/zeropwk6.webp)

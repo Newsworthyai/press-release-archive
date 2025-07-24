@@ -1,0 +1,20 @@
+# Dream Planet Launches on the App Store and Google Play
+
+LOS ANGELES, CA, July 24, 2025 /24-7PressRelease/ -- Dream Planet, the revolutionary entertainment-tech platform, is proud to announce its official launch on both the Apple App Store and Google Play Store. Designed to empower creators, engage fans, and offer new opportunities for investors. Dream Planet is redefining the future of creative collaboration and digital entertainment.  A New Stage for Creators Dream Planet is a public stage and global creative hub where musicians, filmmakers, writers, visual artists, and performers can: • Showcase their work in beautiful, portfolio-style profiles • Collaborate across disciplines in real time • Connect with a supportive, worldwide audience  By removing traditional industry gatekeepers, Dream Planet gives artists the freedom to build careers on their terms—supported by technology, community, and direct access to capital.  For Fans: From Spectators to Stakeholders Fans are no longer just observers. Dream Planet gives them front-row access to exclusive content, behind-the-scenes footage, and direct support tools to back the creators they believe in. Whether by investing in a favorite artist or voting on creative challenge, fans play an active role in shaping the culture they love.  For Investors: A Creative Economy You Can Believe In Dream Planet introduces a groundbreaking opportunity for angel investors, venture partners, and cultural backers to identify rising talent and support scalable creative ventures. With built-in analytics, campaign tracking, and traction metrics, investors can make smart, values-driven contributions to the next generation of global entertainment.  Key Features • User-friendly design for creators to manage and present their work • Built-in collaboration tools across artistic disciplines • A thriving community of creators, fans, and funders • Exclusive content and interactive experiences for supporters • Scalable infrastructure for growing global audiences • Transparent investor dashboards with creative impact insights  Available Now on the App Store and Google Play Dream Planet is now live on the Apple App Store and Google Play Store. Creators are invited to claim their profiles and begin publishing. Fans can discover tomorrow's legends today. And investors are welcome to explore opportunities in the world's first open record label.  Media Contact Dr. Elizabeth Wisniewski President, Dream Planet elizabeth@dreamplanet.org  Kingsley Moses CEO & Founder, Dream Planet ceo@dreamplanet.org  5101 Santa Monica Blvd, Ste 8 #226, Los Angeles, CA 90029 +1 (626) 618-8966  About Dream Planet Dream Planet is where creativity meets opportunity. Our mission is to revolutionize the entertainment industry by creating a global digital stage where creators, investors, and fans connect, collaborate, and thrive — breaking barriers between talent and success.  Dream Planet is a social media platform for creators, fans, and investors. It serves as a creator-investor marketplace and a public stage for talent discovery.  Artists can showcase their work Investors can fund creative dreams Fans can support, interact, and even earn  Key features include open-access talent showcases, direct investor funding, built-in monetization tools, and personalized data integration — all accessible via premium or public tiers. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525119/dream-planet-launches-on-the-app-store-and-google-play)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dream-planet-launches-a-new-era-for-creators-fans-and-investors/f413cddebae9b2c0b272275b4128139f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1m7xt60/dream_planet_launches_a_new_era_for_creators_fans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/24/quitLY3U.webp)

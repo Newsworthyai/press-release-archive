@@ -1,0 +1,20 @@
+# BWRCI Launches QSAFP Open-Core on GitHub, Extends Founding Partnership Invitation to Secure the Future of AI
+
+CHICAGO, IL, July 24, 2025 /24-7PressRelease/ -- The Better World Regulatory Coalition Inc. (BWRCI) has officially launched the open-source repository for the Quantum-Secured AI Fail-Safe Protocol (QSAFP) at https://github.com/QSAFP-Core/qsafp-open-core. This milestone marks a pivotal moment in the global movement toward provable AI safety, grounded in quantum boundaries and controlled runtimes.  QSAFP establishes a fail-safe operating framework for advanced AI systems, enforcing runtime expiration, command authorization limits, and quantum-sealed checkpoints to ensure irreversible misuse becomes structurally impossible. It is designed to preserve meaningful human oversight—no matter how powerful AI becomes.  "QSAFP is the seatbelt for AGI," said Max Davis, founder of BWRCI and principal co-author. "It's time we build foundational infrastructure that protects humanity without slowing innovation. This open-core launch is a public invitation to help us get it right."  Open-Core Now Live on GitHub Developers, researchers, and security architects can now contribute to the public layers of QSAFP, including:  Protocol specifications for quantum-boundary enforcement  SDK tools for integration testing  API documentation, commit standards, and Sage-AI crediting structure  The GitHub repo clearly outlines what's open for contribution and what remains restricted to invited partners, especially in high-security domains such as tamper detection, quantum key generation, and cross-jurisdictional compliance.  GitHub Repo: github.com/QSAFP-Core/qsafp-open-core  Founding Partner Invitation: Meta, DARPA, and Beyond BWRCI is actively seeking founding implementation partners to co-pilot the next phase of QSAFP. This includes collaboration on:  Commercial SDK integrations (through trusted intermediaries)  Runtime oversight for frontier models  Quantum-secured fail-safe chipsets and air-gapped enforcement nodes  Recent outreach to Meta's AI leadership, alongside an active submission to DARPA under Subpart 15.6 (unsolicited proposals), signals BWRCI's serious commitment to aligning with both industry titans and national security bodies. The goal: secure AI before it secures us.  A Global Standard in the Making Built from years of cross-domain R&D and grounded in a legally pending international patent, QSAFP is designed to function alongside national security frameworks and AI governance efforts worldwide.  "This protocol is our best shot at a universal standard," said Max. "It's lightweight, provable, and compatible with open and closed systems alike."  Contact & Collaboration Organizations interested in collaboration or pilot implementation can contact the BWRCI QSAFP team at: qsafp@bwrci.org  Visit the GitHub repo and contribute at: github.com/QSAFP-Core/qsafp-open-core  About BWRCI Better World Regulatory Coalition Inc. is an international not-for-profit self-regulatory organization (SRO) that develops inclusive, secure frameworks for autonomous economies and frontier technologies. Current mandates include the Quantum-Secured AI Fail-Safe Protocol (QSAFP) and the People's Autonomous Economy (PAE). https://bwrci.org 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525158/bwrci-launches-qsafp-open-core-on-github-extends-founding-partnership-invitation-to-secure-the-future-of-ai)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bwrci-launches-open-source-qsafp-for-quantum-secured-ai-safety/8bba467adacc7961bf77bcd72826ad35) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1m7xsy3/bwrci_launches_opensource_qsafp_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/24/finefZmX.webp)
