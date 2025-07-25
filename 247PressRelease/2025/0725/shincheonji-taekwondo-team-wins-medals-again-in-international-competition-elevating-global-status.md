@@ -1,0 +1,20 @@
+# Shincheonji Taekwondo Team Wins Medals Again in International Competition, Elevating Global Status
+
+CANBERRA, AUSTRALIA, July 25, 2025 /24-7PressRelease/ -- The Taekwondo team of Shincheonji Church of Jesus, the Temple of the Tabernacle of the Testimony (Chairman Lee Man-hee), once again proved their skills on the international stage by having all team members win medals at the '2025 Park Jung-hee Cup International Open Taekwondo Championships.'  The '2025 Park Jung-hee Cup International Open Taekwondo Championships' was hosted by the Park Jung-hee Cup Organizing Committee and co-organized by the Gyeongbuk Taekwondo Association and Sangju City Taekwondo Association. The event featured more than 4,200 athletes from 18 countries, including South Korea, the United States, and France. It was held from July 18 to 21 at the Sangju Indoor Gymnasium, where intense competitions took place. The tournament included various categories such as team demonstrations, breaking, poomsae (forms), kicking, and sparring, allowing a comprehensive evaluation of participants' abilities.  On July 19, 25 athletes from Shincheonji's Taekwondo team competed in the individual recognized poomsae category. Despite a short preparation period, they demonstrated outstanding skills through focused training and persistent effort, winning an impressive total of 4 gold medals, 7 silver medals, and 14 bronze medals—achieving the remarkable feat of having every team member place.  This tournament was also recognized as an event that elevated Korea's status in cultural diplomacy. The outstanding performance in an international competition hosted in Korea, the birthplace of Taekwondo, left a strong impression on both domestic and international participants.  Gold medalist Lee Jun-wi said, "Although the training time was not sufficient, I tried to stay as focused as possible within the given time, and I'm thankful that the effort led to such great results."  Head coach Kim Deok-hoon stated, "As this was an international-level competition, many top athletes from Korea and abroad participated, creating a highly competitive environment. I'm proud that our athletes showcased their skills without wavering. Based on this experience, we will systematically prepare training programs and strategies so that we can participate with more athletes and improved performance next year."  In addition to this achievement at the Park Jung-hee Cup, the Shincheonji Taekwondo team also had all members win medals earlier this month at the '2025 Kim Un-yong Cup International Open Taekwondo Championships' held in Busan. At that event, 12 athletes participated, securing 2 first-place finishes, 4 second-place finishes, and 5 third-place finishes, continuing their record of consecutive wins in international competitions.  Furthermore, at last year's '2024 Mungyeong World Taekwondo Hanmadang,' 5 out of 18 participating athletes from the team earned awards. The team continues to achieve excellent results in domestic and international competitions every year and has established itself as a representative team combining skill and stable management.  Shincheonji Church of Jesus actively fosters talent and promotes healthy community activities not only in faith but also in sports, culture, and arts. Moving forward, the church plans to continue contributing to society and encouraging healthy lifestyles through sports. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525211/shincheonji-taekwondo-team-wins-medals-again-in-international-competition-elevating-global-status)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-taekwondo-team-dominates-international-championships/836678d6e92a917f41de35874d38df7d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1m8subj/shincheonji_taekwondo_team_dominates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/25/jinxQGKX.webp)

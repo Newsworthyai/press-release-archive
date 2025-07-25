@@ -1,0 +1,20 @@
+# Shincheonji Taekwondo Team, All Members Win Prizes Again at International Competitions… Shining Presence on the World Stage
+
+SANGJU, KOREA, July 25, 2025 /24-7PressRelease/ -- The Shincheonji Church of Jesus, the Temple of the Tabernacle of the Testimony (Chairman Man-hee Lee, hereinafter referred to as Shincheonji Church of Jesus) Taekwondo Team once again proved their skills on the international stage by winning prizes at the '2025 Park Chung-hee Cup International Open Taekwondo Competition'.  The '2025 Park Chung-hee Cup International Open Taekwondo Competition' was hosted by the Park Chung-hee Cup Organizing Committee and co-hosted by the Gyeongbuk Taekwondo Association and the Sangju City Taekwondo Association. Approximately 4,200 athletes from 18 countries around the world, including Korea, the United States, and France, participated in a heated competition at the Sangju Indoor Gymnasium from the 18th to the 21st. The competition consisted of various events such as comprehensive competition, breaking, poomsae, kicking, and actual sparring, and evaluated the participants' skills in a three-dimensional manner.  The Shincheonji Taekwondo team had a total of 25 athletes participate in the official poomsae individual competition held on the 19th, and despite the short preparation period, they displayed dazzling skills through focused training and persistent effort. As a result, they achieved the feat of winning 4 gold medals, 7 silver medals, and 14 bronze medals, with all of them winning awards.  In particular, this competition was also notable as an opportunity to enhance the cultural and diplomatic status of the Republic of Korea. The performance in the international competition held in Korea, the home of Taekwondo, is evaluated to have left a strong impression on domestic and international participants.  Lee Jun-wi, who won the gold medal, said, "Although we did not have enough training time, we tried to focus as much as possible within the given time," and added, "I am grateful that our efforts led to good results."  Coach Kim Deok-hoon of the national team said, "As this is an international competition, many excellent domestic and foreign players participated and competed at a high level," and added, "I am proud that the players demonstrated their skills without wavering. Based on this competition, we will systematically prepare a training system and strategy so that we can participate with more people and improved skills next year."  In addition to this Park Chung-hee Cup, the Shincheonji Taekwondo national team also achieved outstanding results in which all participants won awards at the '2025 Kim Un-yong Cup International Open Taekwondo Competition' held in Busan earlier this month. At that time, 12 people participated and 2 won 1st place, 4 won 2nd place, 5 won 3rd place, etc., and the entire team won medals, continuing the record of winning consecutive awards in international competitions.  In addition, at the '2024 Mungyeong World Taekwondo Festival' held last year, 5 out of 18 participants won medals, and the team has been achieving excellent results in domestic and international competitions every year, establishing itself as a national team with both skills and stable team management.  Shincheonji Church of Jesus actively carries out talent development and healthy community activities in various fields such as sports, culture, and arts as well as faith, and plans to continue to realize healthy lives and social contributions through sports in the future. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525193/shincheonji-taekwondo-team-all-members-win-prizes-again-at-international-competitions-shining-presence-on-the-world-stage)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-taekwondo-team-triumphs-at-2025-park-chung-hee-cup/26c8c81deda3ac3893ac8b4a9df60ce0) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1m8svig/shincheonji_taekwondo_team_triumphs_at_2025_park/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/25/quipX2MW.webp)
