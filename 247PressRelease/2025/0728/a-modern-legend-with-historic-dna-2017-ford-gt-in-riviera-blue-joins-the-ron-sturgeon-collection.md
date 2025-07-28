@@ -1,0 +1,20 @@
+# A Modern Legend with Historic DNA: 2017 Ford GT in Riviera Blue Joins the Ron Sturgeon Collection
+
+FORT WORTH, TX, July 28, 2025 /24-7PressRelease/ -- With Ferrari once in its crosshairs, Ford's original GT40 was born out of rivalry and raced its way into history with four straight wins at Le Mans from 1966 to 1969. Decades later, Ford reignited that legacy with the stunning revival of the Ford GT—culminating in a modern marvel now proudly showcased at the DFW Car & Toy Museum.  Finished in a rare, brilliant Riviera Blue from Ford's $30,000 Extended Color Palette 2 option, this 2017 Ford GT is believed to be the only example in existence with this color for the model year. It also carries a striking gloss carbon-fiber exterior package, valued at $15,000, adding even more aggression and elegance to an already breathtaking silhouette.  Under the hood lies a 647-horsepower, 3.5-liter twin-turbocharged EcoBoost V6—a technological leap from its V8 predecessors—capable of pushing the GT to 60 mph in under three seconds, with a top speed of 216 mph. Paired with a seven-speed Getrag dual-clutch transmission, the GT is a triumph of design and engineering, reflecting the insight of motorsport icon Carroll Shelby and the innovation of Ford's Performance division.  This GT is more than just fast. Inside, the Dark Energy-themed cockpit features a race-ready F1-style steering wheel, fixed Sparco carbon-fiber seats, and Ford's SYNC 3 infotainment system. Perhaps most notably, it is believed to be the only factory-delivered GT without the NVH (noise, vibration, harshness) panel over the rear bulkhead—revealing a stunning raw carbon-fiber finish and marking it as truly one-of-a-kind.  Assigned serial number H040 in homage to the legendary GT40, this car honors Ford's racing heritage while rewriting what a modern supercar can be.  This exceptional Ford GT is now on display at the DFW Car & Toy Museum as part of the Ron Sturgeon Collection—a museum where automotive passion and rare history meet.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523637/a-modern-legend-with-historic-dna-2017-ford-gt-in-riviera-blue-joins-the-ron-sturgeon-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-2017-ford-gt-in-riviera-blue-showcases-ford-s-racing-legacy/ee9e81190930b18b671d1eec6f00b252) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mb9qrh/rare_2017_ford_gt_in_riviera_blue_showcases_fords/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/28/maskUSyp.webp)

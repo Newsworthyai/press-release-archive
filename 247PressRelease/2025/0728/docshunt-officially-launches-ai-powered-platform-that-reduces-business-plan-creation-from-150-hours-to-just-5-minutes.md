@@ -1,0 +1,20 @@
+# DocsHunt Officially Launches AI-Powered Platform That Reduces Business Plan Creation from 150 Hours to Just 5 Minutes
+
+SAN FRANCISCO, CA, July 28, 2025 /24-7PressRelease/  • No More "Endless Hours of Ctrl+C/V"! DocsHunt, the AI-powered workspace for business and strategy documents, launches in Korea on August 1, followed by a global launch on September 1. • Unique technology supporting all document formats—including DOCX and HWP—puts an end to "format hell." • Proven value with over 10,000 entrepreneurs, collaboration with Shinhan Card, and support from Microsoft—all achieved without VC funding.   An AI-powered solution is putting an end to the "format hell" long endured by entrepreneurs and professionals—where producing a single business plan meant tens of thousands of copy-pastes and sleepless nights. Sapere Aude Inc., an AI technology startup led by CEO Kim Sung-woo, today announced the upcoming launch of DocsHunt, a next-generation workspace for business and strategy documents. The service will officially launch in Korea on August 1, followed by a global rollout on September 1.  The core challenge behind this inefficiency lies in the way content has long been constrained by rigid document formats. Each new use case—whether for investor proposals, government filings, or internal planning—required users to repeatedly rewrite the same information to fit different templates.  DocsHunt addresses this challenge with a fundamentally new paradigm. Instead of relying on traditional word processors and cumbersome templates, users simply input the core of their content—business ideas and data—into DocsHunt's centralized "Core Plan" system. From there, the platform's proprietary AI engine automatically generates fully formatted documents in the desired format, including Microsoft Word (.docx) and even Hangeul (.hwp), which remains widely used across Korea's public and financial sectors.  Prior to its official launch, DocsHunt operated a Minimum Viable Product (MVP) to validate market demand—successfully attracting over 10,000 entrepreneurial users and generating more than $90,000 USD in revenue, all without external investment. Building on this early traction, the company is now conducting a Proof of Concept (PoC) with Shinhan Card, one of the top three credit card issuers in South Korea, and has been selected for a joint support program led by the Korean government and Microsoft, recognizing its potential for global scalability.  "Our goal isn't merely to build a time-saving tool," said Kim Sung-woo, CEO of Sapere Aude. "It's to empower users to focus on what truly matters—strategy and growth—rather than getting bogged down by the technical constraints of traditional tools. At the heart of DocsHunt is a simple philosophy: the tool should adapt to the user's thinking, not the other way around."  DocsHunt will offer two pricing tiers: a Pro Plan at $99 per month (VAT included), and a Starter Plan that provides free access to core features. In celebration of its launch, the company is offering a one-month free trial of the Pro Plan to all users who pre-register.  About Sapere Aude Inc.   Sapere Aude Inc. is a B2B SaaS company founded with the mission to eliminate corporate inefficiencies and unlock creativity through AI-driven solutions. Its flagship product, DocsHunt, reimagines the way strategic documents are created—empowering entrepreneurs and professionals to effortlessly produce expert-level materials and fostering a more efficient, innovation-friendly business environment. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525255/docshunt-officially-launches-ai-powered-platform-that-reduces-business-plan-creation-from-150-hours-to-just-5-minutes)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/docshunt-launches-to-end-document-format-hell-with-ai/27515ab5fa6f500d3e58f4d12a626f87) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1mb9qgn/docshunt_launches_to_end_document_format_hell/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/28/roamgY_H.webp)
