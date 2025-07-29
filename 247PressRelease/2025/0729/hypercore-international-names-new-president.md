@@ -1,0 +1,20 @@
+# hyperCORE International Names New President
+
+LAKE MARY, FL, July 29, 2025 /24-7PressRelease/ -- hyperCORE International, a partner site network of clinical trial sites across North America, today announced the appointment of Nicholas Focil as its new president. Bringing nearly two decades of experience in clinical operations leadership, strategic partnerships, and expansion into emerging markets, Focil is poised to enhance hyperCORE's impact in the global clinical research space.  Focil is the founder and CEO of FOMAT Medical Research, headquartered in Oxnard, California. Under his leadership, FOMAT has grown over the past ten years, conducting Phase I–IV trials across more than 70 therapeutic areas in the U.S. and Latin America (California, Florida, Ecuador, Colombia, and Peru), with a core focus on ethical, high-quality, and diverse clinical data. FOMAT is also a charter member of hyperCORE International and has been a committed network partner for over six years. Focil's early career included investigator‑ initiated lab work with a Nobel laureate, followed by pioneering roles in pre‑pivotal diabetes device trials at Medtronic MiniMed and leadership at Diverse Research Solutions before founding FOMAT. Focil has built a reputation for promoting trial diversity and community engagement.  Outgoing president Carlos Orantes laid a strong foundation that continues to guide hyperCORE's growth.  "Passing on the baton to Nicholas Focil as the next president is an exciting milestone and evolution for the network's leadership to continue its path of excellence," Orantes shared. "I'm looking forward to working with Nicholas in his new capacity."  "I'd like to extend my heartfelt gratitude to Carlos Orantes for his dedicated service as hyperCORE's President," shared Focil. "His leadership and unwavering commitment to fostering a high-performing, inclusive network have established a robust foundation for our future endeavors. Additionally, I would like to express my appreciation to all previous presidents who have contributed to our journey; their efforts have been instrumental in shaping the organization we are today. Our partner site networks exemplify the pinnacle of operational excellence, innovation, and patient-centered care."  "Looking ahead," Focil added, "I am invigorated by the opportunity to continue building the pioneering legacy of hyperCORE. I am enthusiastic about collaborating with our partner site networks to enhance site capabilities, broaden the reach of our trials, and deliver even more diverse, high-quality research that benefits both patients and sponsors. It is a privilege to step into this role during such a dynamic period of growth and momentum for hyperCORE and clinical research as a whole."  About hyperCORE International  Founded in 2019, hyperCORE International is a partner site network of leading clinical research site organizations. Boasting over 80 active trial sites across five countries and two continents, hyperCORE's partners have jointly completed 7,000+ studies involving over 140,000 randomized participants. Each partner member operates independently but integrates harmonized operational frameworks to optimize efficiency, standardization, and excellence.  hyperCORE remains committed to advancing clinical research through safe, ethical, timely studies; efficient enrollment; and superior retention—empowered by its members' top-tier awards for performance, quality, and innovation. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525329/hypercore-international-names-new-president)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nicholas-focil-appointed-president-of-hypercore-international/15a16c37aefc70f7a2181123f80ff8fe) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1mc521t/nicholas_focil_appointed_president_of_hypercore/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/29/taroO2yy.webp)
