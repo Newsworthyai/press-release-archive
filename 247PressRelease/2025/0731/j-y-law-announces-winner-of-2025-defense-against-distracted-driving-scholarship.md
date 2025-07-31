@@ -1,0 +1,20 @@
+# J&amp;Y Law Announces Winner of 2025 Defense Against Distracted Driving Scholarship
+
+LOS ANGELES, CA, July 31, 2025 /24-7PressRelease/ -- J&Y Law and its team of Los Angeles personal injury lawyers created the Defense Against Distracted Driving Scholarship in hopes of encouraging incoming and current college students to think critically about the dangers of inattention behind the wheel.   This year, the team applauds Abby Samuelson for her work creating a moving essay describing how she, as a victim of a distracted driving accident, might discourage her peers from putting their fellow drivers at risk.   Samuelson is a student at the University of Southern California. In her essay, she describes the terror of getting into an accident with a couple who were too busy arguing to pay attention to the road in front of them. "That realization hit me hard," she says. "What could have been an innocent disagreement led to a catastrophic event."  Samuelson walked away from her accident but came to realize that there were dozens of types of distractions that might make drivers more vulnerable to serious accidents. When discussing how she might move to prevent distracted driving accidents in the future, she noted that she'd highlight the cognitive, physical, and verbal distractions that might take someone's attention away from the road.  She also recommends taking a multi-prong approach to increase awareness about the dangers of distracted driving. She wants to challenge younger drivers' feelings of invincibility by providing them with a firsthand example of the risks of inattentive driving, specifically a firsthand account of her own near-miss.  Samuelson also wants to take advantage of social media's wide reach. Gamifying safe driving through a "No Distraction Challenge" on YouTube, Instagram, and TikTok may make it easier for drivers to keep their attention on the road, even if there are tempting distractions in their cars with them.  J&Y Law's personal injury lawyers commend Samuelson for her insights into the dangers of distracted driving and her recommendations for improving anti-distraction outreach. Samuelson's university will receive $1,000 from the firm to dedicate toward her continued education.  Students interested in applying for next year's Defense Against Distracted Driving Scholarship can follow in Samuelson's footsteps. Please visit the scholarship's terms and conditions page for more information about its qualifying criteria.  About J&Y Law  Clients seeking trusted legal guidance can rely on founding partners Yosi Yahoudai and Jason Javaheri, who built J&Y Law with one clear mission: to provide highly personalized, results-driven representation to Californians navigating the civil justice system. Backed by 80 years of combined legal experience and more than 10,000 successful case outcomes, the firm has earned a 98% success rate and over 600 five-star reviews, reflecting the trust it has built across communities throughout the state.  From a dedicated Client Concierge Team to 24/7 access via phone, text, or chat, J&Y Law is structured to support clients at every stage of their recovery. Proudly local and deeply rooted, the firm invests in its communities not only through legal advocacy, but also through outreach, nonprofit partnerships, and scholarship programs that promote education, safety, and long-term impact.  To explore your options with a trusted legal team, contact J&Y Law to schedule a free personal injury case consultation today. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525230/jy-law-announces-winner-of-2025-defense-against-distracted-driving-scholarship)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/j-y-law-champions-road-safety-with-distracted-driving-scholarship/6a5593969b551163026f5655d29301bf) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mdv1x7/jy_law_champions_road_safety_with_distracted/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/31/pearKRjT.webp)
