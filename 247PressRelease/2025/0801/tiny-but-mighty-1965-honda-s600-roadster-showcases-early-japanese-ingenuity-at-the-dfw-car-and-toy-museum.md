@@ -1,0 +1,20 @@
+# Tiny but Mighty: 1965 Honda S600 Roadster Showcases Early Japanese Ingenuity at the DFW Car and Toy Museum
+
+FORT WORTH, TX, August 01, 2025 /24-7PressRelease/ -- Long before Honda became a household name in performance and reliability, it introduced the world to a daring little roadster with big ambition—the 1965 Honda S600. This exquisite red example, now part of the Ron Sturgeon Collection at the DFW Car & Toy Museum, offers a glimpse into the brand's earliest sports car efforts.  Originally sold in France and imported to the United States in the 1970s, this left-hand drive S600 is a rare and charming survivor from Honda's first foray into four-wheeled transportation. Powered by a remarkably advanced 606cc DOHC inline-four, the engine breathes through quadruple side-draft carburetors and revs to an astonishing 11,000 rpm, a true testament to Honda's engineering bravado.  Paired with a four-speed manual transmission and dual outboard chain-drive assemblies—a unique setup that hints at Honda's motorcycle roots—the S600 offers a distinct and engaging driving experience unlike anything else from its era.  The interior features fixed-back black vinyl bucket seats, a color-matched dashboard, brushed metal trim, and a wood-rimmed steering wheel. The dash-mounted instrumentation includes a 120-mph speedometer, 11k-rpm tachometer, and gauges for coolant temperature, amperage, and fuel level. Additional equipment includes a heater/defroster, rounding out its well-appointed yet minimalist cabin.  With its blend of quirky innovation, high-revving excitement, and head-turning style, the 1965 S600 represents the spirit of early Honda—fearless, inventive, and determined to break into the sports car market.  Now proudly displayed in the Ron Sturgeon Collection, this vintage Honda roadster continues to capture hearts and spark curiosity in a new generation of collectors and enthusiasts.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523645/tiny-but-mighty-1965-honda-s600-roadster-showcases-early-japanese-ingenuity-at-the-dfw-car-and-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1965-honda-s600-roadster-joins-dfw-car-toy-museum-s-ron-sturgeon-collection/26250a9e2eb926d82618149efbd9c71d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1meq2mj/1965_honda_s600_roadster_joins_dfw_car_toy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/1/hinttLe8.webp)

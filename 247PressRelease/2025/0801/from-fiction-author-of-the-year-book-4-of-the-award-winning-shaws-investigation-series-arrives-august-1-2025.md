@@ -1,0 +1,20 @@
+# From Fiction Author of the Year, Book 4 of the Award-Winning Shaws Investigation Series Arrives August 1, 2025
+
+LOS ANGELES, CA, August 01, 2025 /24-7PressRelease/ -- The clock is ticking, the bodies are stacking up, and the truth is darker than anyone imagined. Mystery readers, get ready—Book 4 of the award-winning Shaws Investigation Series, Dark, Cold Eyes, by celebrated author Kay A. Oliver, releases on August 1, 2025, and is now available for pre-order on Amazon.  Pre-Order Now  From the mind behind Sisters in Cold Blood and Five Pounds of Pressure comes a bone-chilling new mystery that digs deep into the secrets small towns try to bury.  In Dark, Cold Eyes, crime-solving duo Jade and Keri Shaw are thrust into their most dangerous case yet. Called in by Lieutenant Valencia to solve a string of active murders, the sisters quickly realize this isn't just another file for the archives. Six victims. A vanishing cop. A town on edge. As they follow the clues into the past, a disturbing truth emerges—someone will kill to keep secrets buried.  The Shaws Investigation Series has been hailed for its heart-pounding suspense, emotional depth, and unforgettable characters—earning over 20 literary awards across the first three installments:  Book 1: Sisters in Cold Blood  Book 2: Five Pounds of Pressure  Book 3: Before the Next Kill  "I enjoy writing these characters and bringing them to life with their faults, and charming attitudes," states Author Kay A. Oliver. "Keri and Jade feel like kin."   Now, in this high-stakes fourth installment, Kay A. Oliver once again proves why she is a powerhouse in the cozy mystery and crime thriller world. With themes of female empowerment, justice, and small-town deception, Dark, Cold Eyes is a must-read for fans of crime fiction, cold-case investigations, and twist-filled thrillers.  Join the growing fanbase who can't get enough of Jade and Keri Shaw. Whether you're new to the series or a devoted reader, now is the perfect time to binge the first three books and get ready for the ultimate mystery in Dark, Cold Eyes.  Pre-order Now: https://www.amazon.com/dp/B0FGVRMS31  Kay A. Oliver is an award-winning author and celebrated voice in both literature and entertainment. Known for her gripping, easy-to-read novels packed with unexpected twists, Kay captivates readers with every page. Named Fiction Author of the Year 2025 by the International Association of Top Professionals, she has earned over 30 literary awards and accolades from Who's Who in America, The Wall Street Journal, and Vogue Magazine.  With over 3 decades in Hollywood, Kay brings insider storytelling expertise from Emmy- and Oscar-winning productions to her fiction. Her popular Shaws Investigation series and heartwarming novel Road to Elysium showcase her range, from chilling mysteries to stories of hope and resilience. Road to Elysium is currently being considered for development on screen.   A frequent guest on more than 25 podcasts, Kay is passionate about sharing writing tips and inspiring the next generation of authors. She holds degrees in Radio/TV/Film and an MBA, blending creative artistry with business savvy.  Discover her world of unforgettable characters and masterful storytelling at KayAOliver.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525239/from-fiction-author-of-the-year-book-4-of-the-award-winning-shaws-investigation-series-arrives-august-1-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-s-dark-cold-eyes-unveils-a-chilling-new-mystery/57e9c7c899794d305eaae129df8b5e7e) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1meq2zu/kay_a_olivers_dark_cold_eyes_unveils_a_chilling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/1/lark5H8O.webp)
