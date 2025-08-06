@@ -1,0 +1,20 @@
+# Twin Engines. One Vision. The Legendary 1984 Honda CR-X² Arrives in Fort Worth
+
+FORT WORTH, TX, August 06, 2025 /24-7PressRelease/ -- It's not every day that a car breaks the mold—and then shatters expectations. Meet the 1984 Honda CR-X², an audacious twin-engine experiment born from a visionary collaboration between Car and Driver, American Honda, Racing Beat, and Mugen. Now, this legendary one-off lives in Fort Worth as part of the Ron Sturgeon Collection, where it stands as a symbol of what happens when bold ideas meet performance engineering.  Originally built in the mid-1980s, the CR-X² began as a stock CRX until Car and Driver—with Honda's blessing—installed a second powertrain in the rear, transforming it into a twin-engine, four-wheel-drive marvel. Later upgraded with dual 1.8L inline-fours from the Honda Accord, the car features dual automatic transaxles, four-wheel disc brakes, electronic fuel injection, and a striking Mugen body kit.  Inside, you'll find a custom console with dual tachometers, an Accord-sourced shifter, and auxiliary gauges, while Koni shocks, torsion bars, and a custom rear MacPherson strut suspension ensure performance to match the vision. During Car and Driver's rigorous testing, the car clocked a 0–60 mph time as fast as 6.2 seconds, with a quarter-mile pass in just 14.5 seconds—numbers that blew minds in the mid-'80s.  The CR-X² made waves when it graced the May 1985 cover of Car and Driver under the headline "Synchronicity," and again when it reappeared on the magazine's site and on Jay Leno's Garage in December 2024.  More than a collector's dream, this car is a historic artifact of innovation, pushing the limits of what a subcompact coupe could be and capturing the imaginations of enthusiasts, engineers, and editors alike.  Now on display at the DFW Car & Toy Museum, the CR-X² invites guests to see, up close, a machine that dared to double everything—power, creativity, and ambition.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523662/twin-engines-one-vision-the-legendary-1984-honda-cr-x%C2%B2-arrives-in-fort-worth)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1984-honda-cr-x2-a-twin-engine-marvel-joins-dfw-car-toy-museum/fdd28be3713e2de54f452885f2879ac0) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1miy8bi/1984_honda_crx²_a_twinengine_marvel_joins_dfw_car/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/6/tintLKmr.webp)
