@@ -1,0 +1,20 @@
+# Impact Networking Taps Cynthia Bennett as First-Ever Chief People Officer
+
+LAKE FOREST, IL, August 05, 2025 /24-7PressRelease/ -- Impact Networking, LLC (@impactmybiz.com), a leading business transformation organization, is proud to announce the promotion of Cynthia Bennett to Chief People Officer (CPO). This newly established executive role underscores the company's unwavering commitment to its people-first philosophy.   The milestone appointment reflects Impact's core belief that people—not products—are the foundation of exceptional customer experiences.   "At Impact, our purpose is people. We empower them to innovate, grow, and succeed. That's how we change the world—one person, one company, one community at a time. Cynthia has played a pivotal role in shaping Impact's culture and building the talent engine that fuels our success," said Anthony Cucco, Chief Operating Officer. "She understands that putting people first—our employees and our customers alike—is how we build long-term value and a brand people trust. I have complete confidence in her ability to lead us into this next phase with the heart, grit, and strategic vision she's always brought to the table."   Cynthia's journey at Impact began 13 years ago when she joined as a receptionist in the company's small Waukegan office. Over the past decade, Cynthia built Impact's recruitment division from the ground up, developing scalable hiring processes and forming a high-performing talent acquisition team. Her efforts have helped attract thousands of employees to the company—many of whom have grown into leadership roles themselves. She is additionally pursuing ongoing education at Cornell. Her progression from Receptionist to Recruiter, Recruiter to Director, Director to VP, VP to Partner, and now to Chief People Officer is a living example of what's possible when someone leads with heart, resilience, and relentless dedication.   As CPO, Cynthia will oversee all aspects of Impact's People Operations department, including talent strategy, human resources, DEI, and employee experience. Her mission is to ensure that Impact continues to be a place where people are empowered to grow—and where every employee can see a path forward.   This new role will be instrumental as Impact continues to scale nationally and evolve its brand as the go-to partner for holistic business management solutions. By doubling down on internal culture, Impact is reinforcing its commitment to exceptional service, innovation, and customer success—all fueled by a workforce that is inspired, valued, and aligned.   To learn more about Impact Networking's people-first philosophy and national expansion strategy, visit:   https://www.impactmybiz.com/company/about https://www.impactmybiz.com/careers  Impact Networking is a national managed service provider specializing in managed IT, cybersecurity, AI consulting, marketing, and print services. Founded in 1999, Impact helps businesses compete at the highest level by delivering integrated technology solutions and the expertise to bring big ideas to life. With over 800 professionals across 20+ US locations, Impact is redefining how companies achieve operational excellence. Learn more at www.impactmybiz.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525605/impact-networking-taps-cynthia-bennett-as-first-ever-chief-people-officer)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cynthia-bennett-rises-to-chief-people-officer-at-impact-networking/676369d6d563426a77a07d3e67446f77) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1mim9q8/cynthia_bennett_rises_to_chief_people_officer_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/5/chipd5M8.webp)
