@@ -1,0 +1,20 @@
+# 2001 Isuzu VehiCROSS Roars Into DFW Car &amp; Toy Museum Collection
+
+FORT WORTH, TX, August 08, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is thrilled to announce the addition of a truly distinctive and bold vehicle to its growing collection: the 2001 Isuzu VehiCROSS. Known for its futuristic styling and rugged off-road capabilities, the VehiCROSS is a cult favorite among automotive enthusiasts — and visitors can now get up close to one of these rare machines at the museum.  Powered by a 3.5-liter DOHC V6 engine producing 215 horsepower and 230 lb-ft of torque, this 2001 VehiCROSS channels its power through a four-speed automatic transmission and an advanced Torque on Demand all-wheel-drive system with a dual-range transfer case. Originally engineered to conquer both urban streets and rugged trails, this SUV remains a testament to innovative Japanese automotive design of the early 2000s.  The vehicle, part of the Ron Sturgeon Collection, is loaded with amenities: automatic climate control, cruise control, and a factory cassette stereo with an in-dash CD changer — perfect for transporting visitors back to the era when this SUV first turned heads. The unique instrumentation includes a 125-mph speedometer, tachometer, and a visual display for the Borg-Warner Torque on Demand system.  This particular example shows 157,000 miles on the odometer — a testament to the durability and adventure-ready spirit of the VehiCROSS.  "The Isuzu VehiCROSS is one of those rare vehicles that makes a statement the moment you see it," says Brian Sturgeon, Director of the DFW Car & Toy Museum. "Its combination of aggressive styling, off-road prowess, and limited production numbers make it a perfect addition to our collection — and an absolute must-see for SUV fans and design lovers alike."  Produced in limited numbers, the Isuzu VehiCROSS has gained legendary status among collectors and off-road communities. Its unmistakable exterior, with muscular fender flares and cladding, contrasts with a surprisingly refined driving experience.  The DFW Car & Toy Museum invites visitors to explore this exciting addition, alongside more than 200 cars and thousands of toys and collectibles — making it one of the most unique free attractions in Texas.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523663/2001-isuzu-vehicross-roars-into-dfw-car-toy-museum-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-isuzu-vehicross-joins-dfw-car-toy-museum-s-collection/a868b3fe1f922525998b24aa141e8cd2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1mkook5/rare_isuzu_vehicross_joins_dfw_car_toy_museums/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/8/tintBifY.webp)
