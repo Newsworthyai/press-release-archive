@@ -2,9 +2,9 @@
 
 Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy of www.aaubreybodine.com
 
- Annapolis: Main Street (1965) Cornhill Street, one of the capital’s loveliest, is an example of the quiet and flavor of earlier days that the city seeks to preserve.
+ Annapolis: Main Street (1965) The drawing illustrates a proposal for remodeling the section of Main Street. The aim is to retain the present buildings but bring them into conformity with the city’s distinctive atmosphere.
 
- This image may be ordered by typing in the 5 digit image ID# 48-180 in the box below Bodine’s portrait on the Home Page.
+ This image may be ordered by typing in the 5 digit image ID# 48-181 in the box below Bodine’s portrait on the Home Page.
 
  A. Aubrey Bodine (1906-1970) In photographic circles around the world, A. Aubrey Bodine was regarded as one of the finest pictorialists of the twentieth century. His pictures were exhibited in hundreds of prestigious shows, in scores of museums, and he won awards against top competition.
 
@@ -27,14 +27,14 @@ Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy 
 [Original/Source Press Release](https://www.citybiz.co/article/annapolis-main-street-1965-a-aubrey-bodine/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrating-a-aubrey-bodine-s-timeless-photography-legacy/7f85f874b3c9352f287aa91980e806b0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrating-a-aubrey-bodine-a-pictorialist-pioneer/77324010319da7a4eacbafead92b4cd8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mn2x9s/celebrating_a_aubrey_bodines_timeless_photography/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mnei34/celebrating_a_aubrey_bodine_a_pictorialist_pioneer/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/258/11/neonkODT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/258/11/navyQcjc.webp)
