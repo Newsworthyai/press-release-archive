@@ -1,0 +1,20 @@
+# Public Health Groups Raise Alarm About Fake HIV Medicines In New York
+
+WASHINGTON, DC, August 12, 2025 /24-7PressRelease/ -- The Partnership for Safe Medicines and ADAP Advocacy Association have filed an official complaint with the State of New York regarding allegations that City Plus Care Pharmacy Inc. (dba Heal The World Pharmacy) dispensed counterfeit HIV medication to a patient in Queens, New York.  The complaint, supported by documentation from a civil lawsuit, details allegations that the pharmacy sold counterfeit bottles of the HIV medication Biktarvy. The product challenged in the lawsuit" included professional-quality packaging, indicating the potential for broader distribution and a larger public health threat, which could cause irreversible harm and disease progression for patients and their partners.   "If these allegations are substantiated, this is not just a one-off mistake – it's a breakdown in the drug supply chain that puts many lives at risk," said Shabbir Safdar, Executive Director of the Partnership for Safe Medicines. "Dispensers must verify the legitimacy of their suppliers and products. The Drug Supply Chain Security Act exists to prevent exactly this type of breach. Every link in the chain matters."  When taken as directed under a physician's supervision, modern HIV medicines render the virus undetectable and untransmissible (U=U). Counterfeit HIV medicine could instead allow the virus to become actively infectious, lead to viral resistance, and undermine years of progress in HIV treatment and prevention.  "Counterfeit HIV medications are a terrifying betrayal of trust for the HIV community," said Brandon M. Macsata, CEO of ADAP Advocacy Association. "For people living with HIV, the difference between authentic and counterfeit medicine is the difference between viral suppression and life-threatening complications. Counterfeit treatment can reverse years of viral control and put patients and partners at risk of lifelong infection."  The complaint urges immediate regulatory action – including inspections of all storage and dispensing areas used by Heal The World Pharmacy, verification of the legitimacy of its pharmaceutical wholesalers, and review of its purchasing records. It also calls for the New York State Board of Pharmacy to determine whether federal and state laws governing recordkeeping, product authentication, and traceability were violated.  Advocates are calling for any adverse findings to be referred to the New York Attorney General's Office, the FDA Office of Drug Security, and the FDA Office of Criminal Investigations.  All media inquiries can be directed to editors@safemedicines.org.  About the Partnership for Safe Medicines: The Partnership for Safe Medicines is a public health group committed to ensuring the safety of prescription drugs and protecting consumers from counterfeit, substandard or otherwise unsafe medicines. Comprised of more than 40 non-profit organizations, PSM studies counterfeit drug crime, threats to American patients, and educates the public, policymakers, and health care professionals about threats to the safety of the U.S. drug supply.  About ADAP Advocacy: ADAP Advocacy's mission is to promote and enhance the AIDS Drug Assistance Programs (ADAPs) and improves access to care for persons living with HIV/AIDS. ADAP Advocacy works with advocates, community, health care, government, patients, pharmaceutical companies, and other stakeholders to raise awareness, offer patient educational programs, and foster greater community collaboration. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525766/public-health-groups-raise-alarm-about-fake-hiv-medicines-in-new-york)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/counterfeit-hiv-medication-scandal-threatens-public-health-in-new-york/92c4c8d47c964711dcd38647a91ddb9c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1mo24b5/counterfeit_hiv_medication_scandal_threatens/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/12/blurLdNN.webp)
