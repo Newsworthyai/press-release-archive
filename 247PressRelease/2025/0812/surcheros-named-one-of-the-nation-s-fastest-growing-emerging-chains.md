@@ -1,0 +1,20 @@
+# Surcheros Named One of the Nation's Fastest Growing Emerging Chains
+
+ALPHARETTA, GA, August 12, 2025 /24-7PressRelease/ -- Surcheros, a community favorite rooted in bold flavors with Southern hospitality, continues to gain momentum, earning a spot on Nation's Restaurant News' 100 Under 100 list. The annual ranking highlights restaurant brands with fewer than 100 units that posted the highest percentage of unit growth from 2023 to 2024. Surcheros ended the year with 35 locations across six states, achieving a 34.6% year-over-year unit growth.   This recognition marks another milestone for Surcheros, which has grown its footprint across the Southeast through consistent investment in franchisee support, operational innovation, and guest-focused upgrades. Backed by a loyal customer base and a franchise model built for long-term success, the brand continues to attract strong interest from both guests and operators, with six new openings so far this year. Surcheros is on track for a total of 12 new units by the end of 2025, including a second location in Tennessee.   "Our growth comes from staying true to our roots," said Luke Christian, Founder and CEO of Surcheros. "We built this brand on community and connection, and we continue to grow because we show up for our guests and franchise partners in every market."   Over the past year, Surcheros opened new locations throughout Georgia, Florida, South Carolina and neighboring states, fueling double-digit unit growth. Along the way, the brand launched a redesigned mobile app to streamline ordering and strengthened community partnerships in both new and existing markets. In addition to the Nation's Restaurant News spotlight, Surcheros also earned a place on Fast Casual's 2025 Top 100 Movers & Shakers list, reinforcing its momentum as one of the fastest-rising brands in the category.  "Our team and franchisees keep raising the bar," said Jake Philpotts, Vice President of Business Development & Franchise Relations. "This recognition reflects the energy, alignment, and belief we all share in where the brand is headed."   The 100 Under 100 spotlight signals national attention for Surcheros as it continues to gain ground and attract both loyal guests and new franchise partners. With expansion plans already underway for the remainder of 2025 and beyond, the brand continues to build on a strong foundation of bold flavor and meaningful service.  About Surcheros®  Luke Christian launched Surcheros in 2007 with a simple formula in mind: combine bold Tex-Mex flavors with the Southern hospitality of his youth.   Each meal is custom made to order. Guests can build burritos, tacos, quesadillas, salads, and more by choosing from freshly grilled meats and a wide selection of toppings and signature sauces. The family-friendly menu also offers meals for the Lil' Ones with their kids menu and catering options for groups of 10 or more.   Surcheros is pleased to serve guests throughout the southeast and looks forward to continued expansion. In 2025, Surcheros earned a spot on Fast Casual's Top 100 Movers & Shakers list and Nation's Restaurant News' 100 Under 100 ranking, further validating its growing momentum and commitment to excellence.   Interested in joining the Surcheros family? Learn more at www.surcheros.com/franchising. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525798/surcheros-named-one-of-the-nations-fastest-growing-emerging-chains)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surcheros-earns-spot-on-nation-s-restaurant-news-100-under-100-list/b8ffabda832fe49e1d0734080b6b49b9) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mog9gs/surcheros_earns_spot_on_nations_restaurant_news/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/12/pineJTir.webp)
