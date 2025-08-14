@@ -1,0 +1,20 @@
+# Marc Whitehead &amp; Associates 2025 Scholarship Winners
+
+HOUSTON, TX, August 14, 2025 /24-7PressRelease/ -- Marc Whitehead & Associates is proud to announce the winners of its 2025 Frances & Earl Perry Memorial Veterans Scholarship and Flora Marie Jenkins Memorial Disability Scholarship. Both scholarships are valued at $5,000 and strive to make it easier for high-achieving students to pursue a college degree.  Marc Whitehead & Associates' 2025 Frances & Earl Perry Memorial Veterans Scholarship goes to Mah-Kayla Joseph, a pre-law track student at Louisiana State University. Mah-Kayla's scholarship essay goes into detail about how her experiences in a military family drove her to understand the importance of a strong community.  Mah-Kayla hopes to translate her experience working with military families and other communities in need into a career in law. She looks forward to one day making her legal services available to underserved communities and hopes to offer pro bono services to those in the most need of assistance.  Ava Deakin stands to receive Marc Whitehead & Associates' 2025 Flora Marie Jenkins Memorial Disability Scholarship. Deakin's PNPLA6 Ataxia diagnosis transformed her life, putting a name to the condition that made it difficult for her to retain motor control over her legs.   Deakin is passionate about disability advocacy. Her personal experiences challenging anti-disability architecture and mindsets have transformed her surrounding community and given her the chance to connect with wide-reaching activists to spread the word about disability outreach.   Deakin is currently a student at the University of Southern California, where she intends to pursue her degree in Political Science (Pre-Law Track) and Themed Entertainment.  Both of these young women will receive $5,000 to dedicate toward their tuition and other collegiate expenses. Marc Whitehead & Associates is proud to make it easier for these exceptional students to prioritize their studies, extracurricular activities, and long-term career goals.  Anyone interested in applying for the 2026 Frances & Earl Perry Memorial Veterans Scholarship and Flora Marie Jenkins Memorial Disability Scholarship can visit Marc Whitehead & Associates' scholarship page for more information on the scholarships' terms and conditions.  About Marc Whitehead  Marc Whitehead is the managing partner at Marc Whitehead & Associates, Attorneys at Law LLP, a National Disability Law Firm. Marc is committed to ensuring that anyone contending with a disabling condition deserves the opportunity to pursue the financial support they deserve.  His team of lawyers is dedicated to advocating on behalf of clients before the Social Security Administration, the Department of Veterans Affairs, or their private insurance company, so clients can more effectively:  - Prepare and submit strong initial applications for VA, LTD, or SSDI benefits - Build a compelling case that clearly demonstrates the full impact of their disability - Maximize their chances of securing the highest possible benefits - Navigate the appeals process when a claim is wrongfully denied  His team provides clients with dedicated legal support whenever they need to communicate with the appropriate agencies or gather critical evidence to strengthen their case. They hold insurance companies, the Social Security Administration, and the Department of Veterans Affairs accountable, ensuring that claims are handled fairly and that bad-faith tactics do not stand in the way of the benefits clients deserve. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525838/marc-whitehead-associates-2025-scholarship-winners)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marc-whitehead-associates-awards-5000-scholarships-to-two-deserving-students/b5fcd77cbfbbfca7e1d23da9efdd2781) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mptugf/marc_whitehead_associates_awards_5000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/14/milk7Ngu.webp)

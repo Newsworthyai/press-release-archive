@@ -1,0 +1,20 @@
+# New AI Platform Tackles Healthcare's $12.7B Workplace Violence Crisis with First-of-Its-Kind Risk Assessment, Compliance Tool
+
+PHOENIX, AZ, August 14, 2025 /24-7PressRelease/ -- OPTICS for Healthcare today announced the launch of the industry's first AI-driven workplace violence assessment and risk mitigation platform specifically designed for healthcare environments. The comprehensive software solution addresses a crisis costing the U.S. healthcare system at least $12.7 billion annually.  Healthcare workers face workplace violence at five times the rate of private industry employees, with more than 2,000 nurses and nursing assistants experiencing physical violence during their shifts every day. Each staff-involved incident requiring medical treatment costs an average of $32,000, while staff turnover costs can be up to $82,000 to recruit and onboard a new registered nurse. Legal settlements average $800,000 to $1.2 million per case.  "Healthcare workers dedicate their lives to healing others, yet they face unprecedented safety challenges that compromise both their wellbeing and patient care," said David Brake, Co-founder and CEO of OPTICS for Healthcare. "Our platform provides healthcare organizations with the systematic, evidence-based tools necessary to create safer work environments while maintaining regulatory compliance."  The OPTICS platform combines artificial intelligence with "humans in the loop" across five integrated components:   1. A comprehensive "current state" workplace assessment 2. A GAP analysis report that highlights current state vs. future state 3. A collaborative workflow management system that uses AI to generate facility-specific policies and playbooks 4. A peer-reviewed critical content library that also includes real-time regulatory updates 5. A management dashboard where organization leaders can access status updates and view detailed analytics  Product pilots will begin this fall and focus on client implementation, user experience, and the efficacy of OPTICS' integrated components.  "The goal of these pilots is to ensure that OPTICS is an easy-to-use platform that delivers on its promise to improve staff safety, reduce liability exposure, enhance regulatory compliance, and decrease turnover, while in turn, working to increase the quality of patient care," said Kim Urbanek, OPTICS Co-founder and Chief of Innovation & Practice. "We're excited to be able to impact the healthcare industry in such a meaningful way."  The nationwide release of the OPTICS platform is targeted for early 2026. The platform is designed to serve healthcare's entire ecosystem, including 6,100 U.S. hospitals, 30,600 assisted living facilities, 15,000 skilled nursing facilities, and 190,000 physician practice groups.   Healthcare organizations and others interested in learning more about OPTICS can contact the company at info@opticshc.com.  ABOUT THE COMPANY: OPTICS for Healthcare provides AI-driven workplace violence assessment and risk mitigation solutions for healthcare organizations. The company combines cutting-edge technology with deep domain expertise to address healthcare's workplace violence epidemic. The platform serves healthcare facilities nationwide with comprehensive risk assessment, policy development, and compliance management tools. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525846/new-ai-platform-tackles-healthcares-127b-workplace-violence-crisis-with-first-of-its-kind-risk-assessment-compliance-tool)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/optics-for-healthcare-launches-ai-platform-to-combat-workplace-violence/5b744ea1f1d1d6ce80d2416c06dd7958) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mptuer/optics_for_healthcare_launches_ai_platform_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/14/paleBk2v.webp)

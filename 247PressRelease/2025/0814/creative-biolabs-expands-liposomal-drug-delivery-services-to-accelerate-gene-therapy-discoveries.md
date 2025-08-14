@@ -1,0 +1,20 @@
+# Creative Biolabs Expands Liposomal Drug Delivery Services to Accelerate Gene Therapy Discoveries
+
+SHIRLEY, NY, August 14, 2025 /24-7PressRelease/ -- Liposomal drug delivery formulations have emerged as a cutting-edge technology in modern therapeutics, ensuring targeted delivery, enhanced bioavailability, and reduced toxicity. Having more than a decade of experience, Creative Biolabs applies personalized expertise to offer completely customized liposome formulations particular to the unique needs of global research institutes and pharmaceutical industries. With a focus on nucleic acid and prodrug loading, the company continues to enable scientific progress in gene therapy, oncology, and molecular medicine.  "Our aim is to provide scientists with the newest and most generalizable liposomal platforms available," said a spokesperson for Creative Biolabs. "Whether stabilizing labile nucleic acids or modulating prodrug release in tumor microenvironments, our products are designed to accelerate discovery."   Service Highlights: Liposomal Formulation Development: Creative Biolabs offers complete support services for encapsulating small molecules, peptides, proteins, and adjuvants. Each formulation is customized to ensure stability, release kinetics, and target specificity are optimized, with scalable manufacture from bench to production.  Nucleic Acid Encapsulation: The company's liposome-based technologies offer safe and effective delivery of plasmid DNA, siRNA, antisense oligonucleotides, and other genetic cargoes. The products are formulated to overcome some of the largest challenges, such as serum instability, short half-life, and off-targeting.  Prodrug Delivery Solutions: Creative Biolabs provides liposome-encapsulated prodrugs that are responsive to internal and external stimuli—e.g., pH, enzymes, or heat—such that release is regulated and efficacy is enhanced in cancer therapy. Customization can be achieved in the size, surface charge, and chemical modification of liposomes.  By its commitment to quality and innovation, Creative Biolabs integrates proprietary technologies and rigorous evaluation protocols to attain reproducibility and regulatory compliance. The company's LipoDrive™ platform supports advanced lipid synthesis, functionalization, and characterization, enabling researchers to design liposomes with well-defined pharmacokinetics and biodistribution.  Creative Biolabs' services are made available to research institutions, biotech organizations, and pharmaceutical corporations in North America, Europe, and globally. All of this is for research purposes only and not for clinical use.  To learn more about Creative Biolabs' liposomal drug delivery service or place an order for a customized development plan, visit https://www.creative-biolabs.com/lipid-based-delivery/.  About Creative Biolabs Creative Biolabs is a global expert in biotechnology services, with experience in drug delivery systems, antibody engineering, and cell therapy solutions. With a mature team of scientists and a robust portfolio of proprietary platforms, the company continues to advance the frontiers of biomedical research and contribute to the development of next-generation therapeutics. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525816/creative-biolabs-expands-liposomal-drug-delivery-services-to-accelerate-gene-therapy-discoveries)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-advances-drug-delivery-with-liposomal-technology/42c54cfa7fd9e8d7b5813a2b7ddbf89a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mptsdp/creative_biolabs_advances_drug_delivery_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/14/camcqE9m.webp)
