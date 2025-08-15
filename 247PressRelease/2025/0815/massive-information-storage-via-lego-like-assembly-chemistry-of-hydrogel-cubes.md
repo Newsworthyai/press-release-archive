@@ -1,0 +1,20 @@
+# Massive Information Storage via LEGO-like Assembly Chemistry of Hydrogel Cubes
+
+KNOXVILLE, TN, August 15, 2025 /24-7PressRelease/ -- A soft, LEGO-like hydrogel system enables reversible 3D information encoding through supramolecular assembly and orthogonal stimulus responses, allowing over 800 billion data configurations in a 5×5 array. This low-cost, reconfigurable platform supports dynamic data storage, masking, and rewriting.  Imagine if the pieces of a code could be rearranged like LEGO blocks—not digitally, but physically—and the information they store could change shape, format, or even disappear on demand? Tesearchers at Beijing University of Chemical Technology did just that—using soft, jelly-like materials.  The team, led by Professors Feng Shi and Mengjiao Cheng, developed a new kind of reconfigurable information code using macroscopic hydrogels that respond to external stimuli such as heat, salt, or light. When combined, these hydrogel cubes lock together through reversible chemical interactions. "But unlike fixed QR codes or barcodes, this system can store, erase, rewrite, and reshape information in three dimensions," shares Shi.  Each hydrogel unit responds independently to different environmental triggers. When assembled into a 5×5 grid, the structure can store over 800 billion distinct configurations—a dramatic leap from conventional static systems. "The result is a material platform where information is not just written once, but can be continually updated or transformed, opening up potential applications in smart labels, biomedical tags, environmental sensors, and secure data encoding," adds Shi.  "The key is not just the material, but the interface chemistry between each cube," says Cheng. "By programming how each surface responds to its environment, we create a system where both the flow and transformation of information become controllable. This is how we combine throughput with flexibility."  The concept draws inspiration from LEGO blocks—not in size or shape, but in logic. Each hydrogel unit behaves like a modular element that can be swapped or reoriented without damaging the whole. "The reversibility is made possible by reversible supramolecular chemistry, where the forces holding the cubes together are strong enough to stay in place, but weak enough to come apart when needed," explains Shi.  This approach doesn't rely on electronics or batteries. Instead, it works with soft materials, making it cheap, energy-efficient, and scalable. "We're building information systems out of matter itself—where materials don't just carry information, they become it," says Cheng.  References DOI 10.1016/j.supmat.2025.100099  Original Source URL https://doi.org/10.1016/j.supmat.2025.100099  Funding Information This work was supported by the National Science Foundation for Distinguished Young Scholars (51925301), the National Natural Science Foundation of China (52122315, 52303292), the Fundamental Research Funds for the Central Universities (QNTD20), Beijing Nova Program (20230484440, 20240484541), Wanren Plan (wrjh201903), Open Project of State Key Laboratory (sklssm2025).  About Journal Supramolecular Materials  Chuanlink Innovations, where revolutionary ideas meet their true potential. Our name, rooted in the essence of transmission and connection, reflects our commitment to fostering innovation and facilitating the journey of ideas from inception to realization.  Related Link: http://chuanlink-innovations.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525870/massive-information-storage-via-lego-like-assembly-chemistry-of-hydrogel-cubes)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-lego-like-hydrogel-system-enables-dynamic-3d-data-encoding/beb7369e858f0d5a29540d7ca91f22db) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mqqsil/revolutionary_legolike_hydrogel_system_enables/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/15/arch4I3p.webp)
