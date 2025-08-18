@@ -1,0 +1,20 @@
+# "EVIL'S EDEN: Only Murders in Los Angeles" True Crime Acquired by Publisher Books Illuminated
+
+LOS ANGELES, CA, August 18, 2025 /24-7PressRelease/ -- Books Illuminated, LLC, publisher of independent literature and nonfiction, announces its acquisition, in a nice deal, of the world publishing rights to the Guillermo X. Márquez book, EVIL'S EDEN: Only Murders in Los Angeles. A nimble blend of chilling L.A. true crimes and a fictional telling of the birth of a sinister enterprise, EVIL'S EDEN makes for a scintillating novella-length book that dives into the sordid history of murder in Los Angeles.  The publisher's focus is working with authors and entertainment partners on literary properties that can be monetized globally via a variety of revenue streams.  EVIL'S EDEN transcends common true-crime voyeurism with a curated collection of mayhem featuring only murders in Los Angeles. The author turns noir myths on their heads, connecting the dots on the evidence board to reveal new angles on "whodunit" and why.  A life taken. A body desecrated. Authorities scouring for leads. A hunt for the perpetrator. With luck, justice. The aftermath of murder is bluntly obvious; but what is the root of these horrific acts? And is the City of Angels evil's Eden?  Infamous cases of homicidal madness in sunny paradise haunt Tinseltown's history:  • Chinese Massacre of 1871 • Brutal slaying of matinee idol Ramon Novarro • The Black Dahlia • Little Marion Parker • Creepy cults and creepier followers • Manson Family killing spree • The Night Stalker • Greystone Mansion murder-suicide • High-profile homicide trial of Phil Spector  Shivved between the ribs of these real-world horrors is the fictional fable of one particular evil spanning continents and generations. A dynasty in the land of infinite promise began in the usual manner: with a theft and a lie. In 1842, the first Fitzhampton rose from fabricated origins at an Irish port, bound for America, escaping a bevy of misdeeds. His American-born son moved ever westward to Southern California where, fueled by unfettered greed and carnal appetites, he built an empire upon the bones of the swindled and murdered. The Fitzhamptons became a vaunted early Los Angeles founding family, leaving a legacy of perfected wickedness that lives on.  A diabolical brew of L.A. true crimes and a torqued tale of one particular malevolence, these stories explore cults, drugs, graphic crime scenes, homophobia, kidnapping, mutilation, mass deaths, mental illness, racial conflict, rape, robbery, bad parenting, substance abuse, suicide, victim blaming, and all things murder and mayhem. Readers sensitive to these elements, please take note as you prepare to enter Evil's Eden.  See BooksIlluminated.com for more information.  Publisher Books Illuminated, LLC specializes in acquiring fully edited and proofed manuscripts for rapid turnaround to market. All acquisitions are selected for quality, as well as ancillary market potential: motion pictures, streaming series, animated series, music, fine art, comics, graphic novels, audiobooks, toys, games, and fashions. (BooksIlluminated.com)  Author Guillermo X. Marquez, known to his crew as "GX," spins tales that explore the human condition in all its flavors. When he's not burrowing into the rot of Los Angeles, he can be spotted on his eternal quest for the perfect veggie taco. Márquez is mapping out a TV series based on EVIL'S EDEN, and is polishing his supernatural comedy novel, DISPOSSESSED: A Very L.A. Ghost Story. (GXMarquez.com) 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525958/evils-eden-only-murders-in-los-angeles-true-crime-acquired-by-publisher-books-illuminated)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/books-illuminated-acquires-guillermo-x-marquez-s-dark-tale-of-la-crimes/9813289fbc1c147f08a1c3ebccdd577b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mtf71d/books_illuminated_acquires_guillermo_x_márquezs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/18/vibeufxK.webp)

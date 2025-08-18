@@ -1,0 +1,20 @@
+# Faculty Fellow for Disability Inclusion Continues an Era of Disability Inclusion Awareness and Action at California State University San Bernardino
+
+SAN BERNARDINO, CA, August 18, 2025 /24-7PressRelease/ -- Returning for a second time, Dr. Jess Block Nerren becomes Faculty Fellow for Disability Inclusion for California State University San Bernardino on August 18, 2025.  Now in its third year, the disability inclusion fellow role was a first-of-its-kind initiative across the California State University system, when San Bernardino established the first fellow in 2023. The California State University System is the largest and most diverse university system in the United States, with over 461,000 students.   The Faculty Fellow for Disability Inclusion provides faculty-to-faculty mentoring, group learning opportunities, individual peer coaching, complex case management, and tailored multimedia resources. Nerren's contributions in this role raise faculty awareness of effective methods to accommodate students with disabilities at California State University San Bernardino and in collaborations and partnerships across the state.   One element that makes this position so unique is the facilitation of a seamless collaboration between Faculty Affairs and Student Affairs, assisting in the full participation of many critical units across the university including Services to Students with Disabilities, the accommodations office for the university serving over 2,000 disabled students.  Nerren assumes this role from the outgoing 2024-2025 fellow, the proudly autistic professor of English and Creative Writing, Dr. J. Chad Sweeney. Says Nerren, "Dr. Sweeney made incredible contributions to this effort and I'm so thankful for the ways he has elevated disability inclusion topics. His vision made it possible for the future expansion of our neurodiversity space, and we are thankful he will continue to play a meaningful role in coordinating this innovative space this coming year."  About Dr. Jess Block Nerren: Dr. Jess Block Nerren, Ed.D. is Faculty Fellow for Disability Inclusion at California State University, San Bernardino. Nerren previously served in the fellow role in 2023-2024 following her time as Interim Faculty Director of the university's accommodations office and she holds a full time faculty appointment in the Department of Communication and Media at CSUSB. She is editor and contributing author to a 2022 scholarly book on disability inclusion Rethinking Perception and Centering the Voices of Unique Individuals: Reframing Autism Inclusion in Praxis along with numerous scholarly articles on disability inclusion. Nerren is a neurodivergent parent advocate of a neurodivergent college-age son. https://www.csusb.edu/profile/jessica.nerren  About Services to Students with Disabilities: Services to Students with Disabilities empowers students with disabilities by fostering skills of self-advocacy, resourcefulness and independence. The office works collaboratively with the campus community to remove barriers and promote an enriched learning environment where students with disabilities can utilize their skills and pursue their academic and personal development goals. https://www.csusb.edu/ssd  Media Contact: Jess Block Nerren – Jessica.nerren@csusb.edu – 909-706-8525 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525953/faculty-fellow-for-disability-inclusion-continues-an-era-of-disability-inclusion-awareness-and-action-at-california-state-university-san-bernardino)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-jess-block-nerren-reappointed-to-lead-disability-inclusion-at-csusb/469dde8964326203dadf9af2ce86f967) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mtf738/dr_jess_block_nerren_reappointed_to_lead/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/18/kissH7Qi.webp)
