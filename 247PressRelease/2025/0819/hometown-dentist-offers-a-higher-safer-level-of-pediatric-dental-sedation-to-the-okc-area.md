@@ -1,0 +1,20 @@
+# Hometown dentist offers a higher, safer level of pediatric dental sedation to the OKC area
+
+OKLAHOMA CITY, OK, August 19, 2025 /24-7PressRelease/ -- Home-grown dental practitioner and former Westmoore High School basketball standout Tripp Fuller has returned to the community that raised him to provide a higher level of comprehensive dental care, including pediatric oral conscious sedation. He is practicing at OKC Smiles Dentistry, a Oklahoma City dental provider since 1986.   Dr. Fuller is proud to be certified in Pediatric Oral Conscious Sedation, allowing him to safely and gently treat younger patients who might be anxious or require more complex procedures. As one of the few general dentists in the area with this capability, he offers families a convenient alternative to pediatric-only specialty clinics. His PALS (Pediatric Advanced Life Support) certification ensures that every child receives the highest standard of monitored care in a familiar, supportive environment.  "In my practice, I am most passionate about patient care, and I am excited to be serving my hometown in this capacity," Dr. Fuller said. "I understand the concerns and anxieties children often have about dentists and dental procedures, which is why I have been dedicated to achieving this high level of training and certification. I look forward to helping our young patients relax and get the care they need for healthy smiles now and in the future."  Providing safe and effective sedation dentistry options has long been a focus at OKC Smiles Dentistry. With the addition of Dr. Fuller, the practice can now provide dental sedation options for all ages, all under one roof, something that few general dental practices can offer. Whether a patient has anxieties about dental visits or wants to get several treatments done in one visit, OKC Smiles offers a range of dental sedation options and works with patients to find the best options for them.  ABOUT TRIPP FULLER, DDS Dr. Tripp Fuller was born and raised in south Oklahoma City, graduating from Westmoore High School in 2014. He earned his Bachelor of Science in Biology from Oklahoma Christian University, where he was a member of the men's basketball team for three seasons. He then went on to graduate from the University of Oklahoma College of Dentistry. While in dental school, Dr. Fuller was involved with many organizations, including the American Student Dental Association, Oklahoma Academy of General Dentistry, and the Albert F. Staples Society. He is currently a member of the American Dental Association and the Oklahoma Dental Association, as he strives to stay current with dental research and trends.  ABOUT OKC Smiles Dentistry Established in 1986, OKC Smiles Dentistry makes dental health a priority. Led by the exceptional Dr. Kevin Murray, our practice provides comprehensive dentistry all under one roof. We offer an extensive range of services from regular cleanings to implants and their restorations, and even sedation dentistry. This means patients don't have to bounce around to multiple specialists for their dental needs. Our all-inclusive approach doesn't just respect our patients' valuable time; it ensures continuity of care, with dedicated dentists who knows your dental history and personal preferences inside out. Beyond this, our friendly team always prioritizes your comfort and satisfaction, creating a supportive environment that eases any dental anxieties. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/525995/hometown-dentist-offers-a-higher-safer-level-of-pediatric-dental-sedation-to-the-okc-area)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-tripp-fuller-brings-pediatric-sedation-dentistry-to-okc-smiles/f27870605771b3085192a44aa002464d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1mubr9r/dr_tripp_fuller_brings_pediatric_sedation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/19/plumCnVI.webp)
