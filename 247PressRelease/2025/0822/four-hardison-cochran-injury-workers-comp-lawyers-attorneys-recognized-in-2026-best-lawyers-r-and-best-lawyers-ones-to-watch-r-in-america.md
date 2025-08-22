@@ -1,0 +1,20 @@
+# Four Hardison &amp; Cochran | Injury &amp; Workers Comp Lawyers Attorneys Recognized in 2026 Best Lawyers® and Best Lawyers: Ones to Watch® in America
+
+RALEIGH, NC, August 22, 2025 /24-7PressRelease/ -- Hardison & Cochran | Injury & Workers Comp Lawyers is proud to announce that four of its attorneys have been recognized in the 2026 editions of The Best Lawyers in America® and Best Lawyers: Ones to Watch® in America.  The firm congratulates the following attorneys for their accomplishments:  - Benjamin T. Cochran – Workers' Compensation Law – Claimants 13th consecutive year recognized on The Best Lawyers in America list - Jack Hardison – Workers' Compensation Law – Claimants 1st year recognized on The Best Lawyers in America list - Rick W. Scott – Criminal Defense: General Practice 4th consecutive year recognized on The Best Lawyers in America list - Carter Whittington – Workers' Compensation Law – Claimants 6th consecutive year recognized on the Best Lawyers: Ones to Watch list  These honors reflect the firm's continued commitment to client service and legal excellence in North Carolina.  About Best Lawyers  Best Lawyers is the oldest and most respected lawyer ranking service in the world. For 40 years, Best Lawyers has helped those in need of legal services identify the lawyers most qualified to represent them in distant jurisdictions or unfamiliar specialties. Best Lawyers awards are published in leading local, regional, and national publications across the globe.  About Best Lawyers: Ones to Watch  This category recognizes attorneys in the earlier stages of their careers who have demonstrated outstanding professional excellence. Typically, recipients of this honor have been practicing for five to nine years.  Best Lawyers Methodology  Best Lawyers awards and recognitions are based entirely on peer review. Lawyers who are nominated for consideration are voted on by currently recognized Best Lawyers within the same geographic and legal practice area. This process captures the consensus opinion of leading lawyers about the professional abilities of their colleagues.  About Hardison & Cochran | Injury & Workers Comp Lawyers  Hardison & Cochran | Injury & Workers Comp Lawyers is a respected North Carolina law firm with a long-standing record of advocating for injured individuals and their families. Headquartered in Raleigh with additional offices in Fayetteville, Greensboro, Wilmington, Greenville, and Dunn, their experienced attorneys have proudly served clients across the entire state of North Carolina for over 40 years.  The firm concentrates its practice in workers' compensation, personal injury, auto accident injury, Social Security Disability, and VA Disability law. Their team has earned a reputation for skillful representation and trusted guidance in life's most challenging moments.  Hardison & Cochran | Injury & Workers Comp Lawyers has multiple attorneys listed on The Best Lawyers in America and Best Lawyers: Ones to Watch lists and has also been recognized by Best Law Firms for multiple consecutive years. These awards demonstrate the firm's ongoing dedication to providing exceptional service and client advocacy.   Hardison & Cochran | Injury & Workers Comp Lawyers welcomes North Carolina residents who have been injured or are seeking disability benefits to contact the firm for a free consultation. To learn more, visit www.lawyernc.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526090/four-hardison-cochran-injury-workers-comp-lawyers-attorneys-recognized-in-2026-best-lawyers-and-best-lawyers-ones-to-watch-in-america)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nc-law-firm-s-four-attorneys-honored-by-prestigious-best-lawyers-recognition/117cc151b985581c34d4bfb19f79eed3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1mx0038/nc_law_firms_four_attorneys_honored_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/22/ellaGTik.webp)

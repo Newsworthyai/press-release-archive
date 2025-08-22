@@ -1,0 +1,20 @@
+# Creative Biolabs Launches Integrated Cell Therapy Platforms to Support Cancer Immunotherapy
+
+SHIRLEY, NY, August 22, 2025 /24-7PressRelease/ -- In a landmark development for cancer research, Creative Biolabs today announced the full integration of its one-stop-shop CAR-T and TIL therapy development platforms, offering researchers and biotech startups a seamless, end-to-end service for the development of next-generation cellular immunotherapies.   Recent regulatory approvals—such as the FDA approval of lifileucel (Amtagvi), the first tumor-infiltrating lymphocyte (TIL) therapy for advanced melanoma—have showcased the therapeutic potential of cell-based therapies. Meanwhile, innovations in off-the-shelf CAR-NKT and armored CAR-T technologies are pushing the boundaries of what can be achieved with engineered immune cells. Creative Biolabs is at the forefront, offering platforms that combine scientific rigor, technological innovation, and clinical scalability.  Smarter, Safer CAR-T Therapy Development The Smart™ CAR platform is designed to push the boundaries through offering construction services for next-generation CAR designs. Included in these are novel constructs such as Dual CARs, TriCARs, Modular CAR, and Logic-gated CAR.  "Our goal is not just to build potent CARs—we're building smart CARs," said a principal scientist at Creative Biolabs. The platform supports first- through fourth-generation CARs, along with armored variants that secrete immune modulators like IL-12. Each construct is tailored to the tumor biology and immune microenvironment for optimal efficacy and minimal toxicity.  The CAR-T platform targeting solid tumors overcomes one of the most challenging obstacles in the discipline: penetrating the immunosuppressive defenses of solid tumors. Creative Biolabs employs bispecific CARs, checkpoint-resistant designs, and optimized delivery systems for improved infiltration and persistence.   TIL Platform: Precision Cell Profiling and Expansion Tumor-infiltrating lymphocyte (TIL) therapy represents a breakthrough innovation in treating solid tumors. The one-stop TIL therapy development platform at Creative Biolabs provides comprehensive and integrated services to meet the field's refined needs.  "TIL therapy is exceptionally well-positioned to identify heterogeneous neoantigens," remarked a company representative. Creative Biolabs also leads the way in TIL-based antibody discovery, by which patient-derived B cells are utilized to develop fully human antibodies with high specificity and therapeutic value.  Creative Biolabs integrates cutting-edge technologies for facilitating accelerated and stable translation from bench to bedside. They utilize the latest in genetic and cellular engineering to ensure TILs are highly potent and specifically targeted against cancer cells  Learn more, please visit https://www.creative-biolabs.com/car-t/.  About Creative Biolabs With over 20 years of experience in cell and gene therapy, Creative Biolabs has been a trustworthy partner for biotech companies, research organizations, and clinical researchers worldwide. Its one-stop CAR-T and TIL therapy development platforms offer second-to-none flexibility, customization, and scientific expertise. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526086/creative-biolabs-launches-integrated-cell-therapy-platforms-to-support-cancer-immunotherapy)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-integrates-car-t-and-til-platforms-for-advanced-cancer-immunotherapy/213f009b937b13b023537dc347fa33be) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1mwzx26/creative_biolabs_integrates_cart_and_til/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/22/swimWvCQ.webp)
