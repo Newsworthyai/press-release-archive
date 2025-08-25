@@ -2,9 +2,9 @@
 
 Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy of www.aaubreybodine.com
 
- The Railroad that Stuck to Steam (1959) A 50-ton Porter saddle tank steam locomotive still moves coal cars over a line less than a mile long on the grounds of St. Elizabeth’s Hospital in Washington DC. The present engine, the line’s fourth, was built 10 years ago. It cost $45,000.
+ The Railroad that Stuck to Steam (1959) Engineer Otis Nevitt is at the throttle. Locomotive used on the grounds of St. Elizabeth’s Hospital in Washington, DC.
 
- This image may be ordered by typing in the 5 digit image ID# 48-263 in the box below Bodine’s portrait on the Home Page.
+ This image may be ordered by typing in the 5 digit image ID# 48-266 in the box below Bodine’s portrait on the Home Page.
 
  A. Aubrey Bodine (1906-1970) In photographic circles around the world, A. Aubrey Bodine was regarded as one of the finest pictorialists of the twentieth century. His pictures were exhibited in hundreds of prestigious shows, in scores of museums, and he won awards against top competition.
 
@@ -27,14 +27,14 @@ Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy 
 [Original/Source Press Release](https://www.citybiz.co/article/the-railroad-that-stuck-to-steam-1959-a-aubrey-bodine/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a-aubrey-bodine-master-pictorialist-who-made-pictures-not-took-them/f66c9e8b73347c17c958f73cad086d52) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/a-aubrey-bodine-master-photographer-who-made-pictures-not-took-them/7c4e52d91e1b5dfb9d47f2baa327b619) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mzczzc/a_aubrey_bodine_master_pictorialist_who_made/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mzrsv3/a_aubrey_bodine_master_photographer_who_made/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/258/25/mailVDQq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/258/25/harpEWqs.webp)
