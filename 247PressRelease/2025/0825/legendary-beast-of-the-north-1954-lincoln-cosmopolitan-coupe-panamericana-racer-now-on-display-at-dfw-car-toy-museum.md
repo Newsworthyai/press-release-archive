@@ -1,0 +1,20 @@
+# Legendary "Beast of the North": 1954 Lincoln Cosmopolitan Coupe Panamericana Racer Now on Display at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, August 25, 2025 /24-7PressRelease/ -- A true motorsport legend — the 1954 Lincoln Cosmopolitan Coupe known as "La Bestia del Norte" (The Beast of the North) — is now on display at the DFW Car & Toy Museum as part of the Ron Sturgeon Collection. This storied racer has participated in La Carrera Panamericana rally 11 times and remains an enduring symbol of determination, engineering, and racing spirit.  The original Carrera Panamericana was launched in 1950 to commemorate the opening of the Pan-American Highway in Mexico. Known for its treacherous terrain and grueling pace, the event quickly became one of the most challenging races in the world. Lincolns of the era were dominant in the stock car division, capturing the top four positions in 1952 and 1953.  The Carrera was revived in 1988 as a modern rally, honoring the legacy of the original event. This 1954 Lincoln Cosmopolitan Coupe was originally used as a race car in the 1970s and underwent a full conversion to modern rally specification around 2005, purpose-built to endure the extreme demands of today's La Carrera Panamericana.  Affectionately nicknamed "La Bestia del Norte," this Lincoln has been extensively upgraded with modern rally enhancements, including drivetrain, braking, electrical, safety, and suspension improvements — all designed to handle the punishing roads and intense competition of the rally.  "This car represents everything that makes La Carrera Panamericana so thrilling — power, endurance, and a rich history," said Ron Sturgeon, owner of the DFW Car & Toy Museum. "We're proud to showcase La Bestia del Norte here in Fort Worth, where visitors can get up close to a machine that has battled mile after mile through Mexico's toughest rally stages."  Visitors to the DFW Car & Toy Museum can now view this iconic Lincoln alongside more than 200 classic and rare vehicles, plus over 3,000 collectible toys. The museum's collection continues to grow and rotate, offering fresh experiences throughout the year.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523711/legendary-beast-of-the-north-1954-lincoln-cosmopolitan-coupe-panamericana-racer-now-on-display-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legendary-la-bestia-del-norte-racer-joins-dfw-car-toy-museum-collection/53452fb419f819f95f24e3ece80173e5) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1mzjx3l/legendary_la_bestia_del_norte_racer_joins_dfw_car/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/25/bake1Nfg.webp)
