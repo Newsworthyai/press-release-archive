@@ -1,0 +1,58 @@
+# Sola Salon Studios Joins Lineup at 1200 White Street
+
+Sola Salon Studios, a leading salon studio franchise with more than 700 locations nationwide, is bringing its health and beauty concept to 1200 White Street, an adaptive reuse mixed-use development in Atlanta’s West End. The salon studio has leased 7,952 square feet in the development, owned by Atlanta-based Ackerman & Co. and Belgium-based Baltisse, and is targeting an early 2026 opening.
+
+ Ackerman Retail’s Kelly Wilson, Suzanne Shank and Patrick Green represented ownership in the lease signing, and Sarah Williams of COUNCIL Real Estate represented Sola Salon Studios.
+
+ 1200 White Street, a 211,585-square-foot warehouse building, is undergoing an adaptive reuse transformation, offering a variety of space options for retail, restaurants, creative office, experiential concepts and high value-add industrial.
+
+ “We truly appreciate the vision behind this project and are excited to be part of an adaptive reuse development. We’re especially thrilled to provide health and beauty professionals in the Atlanta area not only with a space to operate their businesses, but also with an opportunity to benefit from the transformation happening in their own neighborhood. Another major advantage is the convenient access to the Atlanta Westside BeltLine,” said Kelley Morrissey, the franchise owner of the Sola Salon location at 1200 White Street.
+
+ Also located on White Street, Lee + White, co-owned by Ackerman with MDH Partners, is a 442,000-square-foot redevelopment of the West End’s former “Warehouse Row” that has become an entertainment and business hub.
+
+ Sola Salon Studios provides health and beauty professionals fully-equipped, private studios along with business support, educational resources and cutting-edge technology solutions to help their businesses thrive. The location at 1200 White Street will feature 41 salon suites customized for varying health and beauty specialties.
+
+ “We’re pleased to welcome Sola Salon Studios to 1200 White Street as we continue building a dynamic, mixed-use destination that brings together a diverse mix of businesses and retailers,” said Leo Wiener, President of Ackerman Retail, a division of Ackerman & Co. “This strong addition to our ongoing redevelopment will also create opportunity for beauty professionals to grow their careers.”
+
+ Sola Salon’s lease follows the recent opening of Dill Dinkers, an 11-court, 35,891-square-foot pickleball facility that marked the growing franchise’s entry into the Atlanta market.
+
+ Teaming up to lease the remaining spaces at 1200 White Street are Hunter Henritze, Michael Howell and Maia Perri of Lincoln Property Group (office and flex opportunities) and Marisa Roy and Patrick Green of Ackerman Retail (retail spaces).
+
+ For information on suite rental opportunities at the 1200 White Street Sola Salon Studios location, contact Sola South Atlanta at 770-766-0355 or visit their website at linktr.ee/solasouthatl
+
+ About Sola Salon Studios
+
+ Sola Salon Studios provides health and beauty professionals with high-end, fully equipped private studios alongside the support and tools needed to launch their businesses quickly and easily by alleviating the risks and hassle associated with traditional salon ownership. We take pride in being the largest, fastest-growing salon studio business with a thriving community of over 20,000 industry-leading beauty professionals and 700+ locations nationwide. We provide a safe, inclusive space with unmatched support so our Sola pros can thrive by creating the business (and life) they love.
+
+ About Ackerman & Co.
+
+ Headquartered in Atlanta, Ackerman & Co. is a privately held, full-service commercial real estate firm focused on providing quality investment, brokerage, management and development services in the Southeast. The company, founded in 1967, retains an expert team of 100 real estate professionals. To date, Ackerman & Co. has developed and acquired 44 million square feet of office, medical, industrial, retail and mixed-use space, has 4.5 million square feet under management, and maintains an investment portfolio valued at $1 billion.
+
+ Ackerman Retail, a division of Ackerman & Co., offers a best-in-class services platform, delivering solid results for local and multi-market clients across the Southeast. To date, Ackerman Retail has completed more than 10 million square feet of transactions valued at $1.7 billion. For more information, visit www.ackermanco.com
+
+ The post Sola Salon Studios Joins Lineup at 1200 White Street appeared first on citybiz. 
+
+---
+
+[Original/Source Press Release](https://www.citybiz.co/article/736742/sola-salon-studios-joins-lineup-at-1200-white-street/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sola-salon-studios-expands-to-atlanta-s-west-end-in-major-mixed-use-development/e61dc8f88a1cadf66320e3c0b244b105) 
+
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202508/181710-sola-salon-studios-to-open-new-location-in-atlanta-s-west-end-adaptive-reuse-development)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202508/181713-sola-salon-studios-se-une-al-desarrollo-mixto-de-1200-white-street-en-atlanta)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202508/181838-sola-salon-studios-s-installe-au-1200-white-street-dans-le-cadre-d-un-projet-de-reamenagement-a-atlanta)
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202508/181763-faq-sola-salon-studios-opening-at-1200-white-street-in-atlanta)
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1n0u6ty/sola_salon_studios_expands_to_atlantas_west_end/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/258/26/loftYbHt.webp)
