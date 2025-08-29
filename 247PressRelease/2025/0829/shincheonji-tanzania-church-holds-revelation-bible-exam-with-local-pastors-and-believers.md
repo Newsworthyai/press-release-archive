@@ -1,0 +1,20 @@
+# Shincheonji Tanzania Church Holds Revelation Bible Exam with Local Pastors and Believers
+
+TANZANIA, SOUTH AFRICA, August 29, 2025 /24-7PressRelease/ -- On the 18th, Shincheonji Church of Jesus, the Temple of the Tabernacle of the Testimony, Peter Tribe, Tanzania Church (led by Head Instructor Yoon Hyun-chul, hereafter referred to as Shincheonji Tanzania Church) conducted an open Revelation Bible exam with local Protestant pastors and Shincheonji members in major cities, including Dar es Salaam, Tanzania.  The purpose of this exam was to evaluate whether believers who hope for heaven have kept the words of Revelation (Rev 22:18-19) and to encourage each person to stand rightly before God. The exam consisted of 10 main questions and 33 sub-questions, all centered on Revelation. Participants reflected not just on knowledge, but on whether they truly believed and practiced according to the Word.  A total of 138 participants took the exam, including 98 local Protestant pastors and 40 Shincheonji members. Unlike last year's exam in Korea, where only one pastor from a traditional denomination participated, this marked the first time a large number of pastors overseas took part.  The results showed a notable difference between groups (Shincheonji members scored an average of 95 points, while Protestant pastors scored an average of 7 points). However, the primary goal was not to rank participants, but to create an opportunity for self-reflection through Revelation and to draw closer to God.  One participating pastor said: "Seeing Shincheonji members write their answers so confidently today made me reflect on my faith and calling as a pastor. I will study Revelation through the Shincheonji Zion Christian Mission Center, lead my congregation on God's path, and teach them correctly so they can enter heaven."  Chairman Lee Man-hee of Shincheonji Church of Jesus has consistently emphasized Revelation 22:18–19, saying, "To enter heaven, one must not add to or subtract from the words of Revelation, but fully understand and keep them."  He has also stated, "The standard for discerning truth and falsehood, orthodoxy and heresy, is not human tradition or doctrine, but the Word of God alone," highlighting the necessity of testing faith by the Bible.  Previously, Shincheonji Church of Jesus held a similar Bible exam in Korea with pastors from traditional churches, drawing attention at the time. Among 313 participants, only one pastor from an established denomination joined. This Tanzanian event, therefore, is significant as the first instance of large-scale pastor participation overseas.  A Shincheonji Church representative commented: "The Bible exam is not just a test of knowledge, but a way to confirm whether one's standard of faith is truly the Word of God. We are grateful that more pastors are gradually joining both domestically and internationally. We hope more churches and believers will unite and interact based on Scripture."  Meanwhile, since its establishment in 2018, Shincheonji Tanzania Church has grown steadily, with about 2,440 members as of August this year. The church continues to work toward spreading Scripture-centered faith through active exchanges with local pastors. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526311/shincheonji-tanzania-church-holds-revelation-bible-exam-with-local-pastors-and-believers)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-s-revelation-exam-reveals-dramatic-score-gap-in-tanzania/fe90be2eaecee6df31732229e56f6ab7) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1n30st1/shincheonjis_revelation_exam_reveals_dramatic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/29/hikex8IJ.webp)
