@@ -1,0 +1,20 @@
+# MAKE LLC Welcomes Acclaimed Animator Adam Musa Othman to Lead Animation on Distinguished Studio Productions
+
+MINNEAPOLIS, MN, August 30, 2025 /24-7PressRelease/ -- MAKE LLC, the renowned creative studio known for its innovative and elevated animated storytelling, proudly announces the addition of animator Adam Musa Othman to its core team. Recognized for his distinctive visual storytelling and command of animation craft, Othman joins MAKE LLC to lead animation across several of its most ambitious and celebrated productions.  A Creative Partnership Rooted in Vision  Adam Musa Othman brings with him a wealth of creative experience and technical expertise that perfectly aligns with MAKE LLC's commitment to design-forward, character-driven storytelling. As Lead Animator, Othman will contribute across the full spectrum of pre-production through post-production, working in artistic collaboration with MAKE's writers, directors, and designers.  Spearheading Key Productions  Othman's first projects at MAKE reflect a wide range of genre and tone, each underscoring MAKE's editorial creativity and production excellence:  MAKE x LightBox Expo: In collaboration with the prestigious LightBox Expo, a major international gathering of animation and game industry professionals, MAKE is producing a series of marketing and social videos that capture the spirit of creativity the expo inspires. Othman leads the animation effort on this campaign, guiding visual development, creating storyboards and animatics, and shaping the project's movement and tone from conception to final delivery across digital platforms like YouTube and Instagram.  Sunny Side Down: An original science fiction parody series from MAKE Originals, Sunny Side Down takes viewers to a surreal diner orbiting a black hole, with hilariously doomed sci-fi characters in each episode. Othman serves as Lead Animator across all six episodes, integrating storyboarding, animatic development, character acting and timing, and clean-up animation. Collaborating closely with MAKE's acclaimed 2D team, he ensures the episodes maintain their sharp comedic timing and visual clarity.  An Incident at the Dancing Badger: This 2D animated short film is an adaptation of a first-prize winning story from a contest hosted by Flash Fiction Magazine. Othman's role involves transforming the literary work into a compelling visual narrative by overseeing storyboarding, visual design, and character animation. His contribution helps elevate the short into an emotionally resonant and graphically polished cinematic piece.  A Studio with a Proven Identity  MAKE LLC's reputation has been built on creating design-centric, original content for notable clients and cultural tastemakers. With prior work for brands including Xbox, Adidas, and Crunchyroll—and through its signature MAKE Originals like "BraveHurts" and "Dead Moon Walking"—the studio has carved out a unique voice within the animation community. Its partnership with events such as LightBox Expo underscores its leadership in the field.  As MAKE continues its trajectory of artistic growth, the addition of Adam Musa Othman represents a bold step forward in sustaining animation quality and creative innovation across its expanding slate of projects.  Media Contact  Danny Robashkin Creative Director & Owner, MAKE LLC Email: danny@makevisual.com Website: makevisual.com  For production inquiries or media requests, please contact MAKE LLC via the information above. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526342/make-llc-welcomes-acclaimed-animator-adam-musa-othman-to-lead-animation-on-distinguished-studio-productions)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/make-llc-hires-award-winning-animator-adam-musa-othman-to-lead-key-projects/08f1d34d29289a486824d58a9ae53873) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1n3vegi/make_llc_hires_awardwinning_animator_adam_musa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/258/30/echoNp1v.webp)
