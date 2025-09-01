@@ -2,9 +2,9 @@
 
 Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy of www.aaubreybodine.com
 
- Mountain Club of Maryland (1946) Sitting on top of Big Schloss Mountain looking into West Virginia. With their backs to the valleys of West Virginia, members of the Maryland Mountain Club eat lunch on top of Big Schloss Mountain during a three day walking expedition. This trip was organized for those who liked mild forms of climbing.
+ Mountain Club of Maryland (1946) After climbing Big Schloss, some members continued to explore the surrounding rock formations. Climbers went up and down in one day.
 
- This image may be ordered by typing in the 5 digit image ID# 48-315 in the box below Bodine’s portrait on the Home Page.
+ This image may be ordered by typing in the 5 digit image ID# 48-316 in the box below Bodine’s portrait on the Home Page.
 
  A. Aubrey Bodine (1906-1970) In photographic circles around the world, A. Aubrey Bodine was regarded as one of the finest pictorialists of the twentieth century. His pictures were exhibited in hundreds of prestigious shows, in scores of museums, and he won awards against top competition.
 
@@ -27,14 +27,14 @@ Photograph by A. Aubrey Bodine • © Copyright Jennifer B. Bodine • Courtesy 
 [Original/Source Press Release](https://www.citybiz.co/article/mountain-club-of-maryland-1946-a-aubrey-bodine/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a-aubrey-bodine-s-1946-mountain-club-photo-captures-history/05a5bf76763fe0d01b4d47b693156592) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/a-aubrey-bodine-s-mountain-club-photography-captures-1946-climbing-adventure/b900529be7e60164b1ba1dc2cd8c97e3) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1n5cndt/a_aubrey_bodines_1946_mountain_club_photo/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1n5pt5q/a_aubrey_bodines_mountain_club_photography/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/1/warpSOmg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/1/boldLuoF.webp)
