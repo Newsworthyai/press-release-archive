@@ -24,17 +24,29 @@ G Mining Ventures Corp. (TSX: GMIN) (OTCQX: GMINF) announced it received the Env
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-g-mining-ventures-corp-tsx-gmin-otcqx-gminf-secures-environmental-permit-for-oko-west-gold-project-in-guyana/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-g-mining-ventures-corp-tsx-gmin-otcqx-gminf-secures-environmental-permit-for-oko-west-gold-project-in-guyana-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/g-mining-ventures-secures-key-environmental-permit-for-guyana-gold-project/00df89ab7b936298dab0ce4516ef9f09) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/g-mining-ventures-secures-key-environmental-permit-for-guyana-gold-project/26a264fef6d0a91b7eea18d5ef4f67eb) 
 
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202509/191837-g-mining-ventures-secures-environmental-permit-for-oko-west-gold-project-in-guyana)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202509/191842-g-mining-ventures-corp-obtiene-permiso-ambiental-para-proyecto-de-oro-oko-west-en-guyana)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202509/191937-g-mining-ventures-obtient-le-permis-environnemental-pour-le-projet-aurifere-oko-west-en-guyane)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202509/192000-g-mining-ventures-erhalt-umweltgenehmigung-fur-oko-west-goldprojekt-in-guyana)
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202509/192220-faq-g-mining-ventures-secures-environmental-permit-for-oko-west-gold-project-in-guyana)
+
+Pickup - [https://goinvest.com/ibn-faqstaq](https://goinvest.com/ibn-faqstaq/202509/192275-faq-g-mining-ventures-secures-environmental-permit-for-oko-west-gold-project-in-guyana)
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1n6n6g1/g_mining_ventures_secures_key_environmental/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1n6npu3/g_mining_ventures_secures_key_environmental/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/2/lunaVYVq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/2/veilJGJg.webp)
