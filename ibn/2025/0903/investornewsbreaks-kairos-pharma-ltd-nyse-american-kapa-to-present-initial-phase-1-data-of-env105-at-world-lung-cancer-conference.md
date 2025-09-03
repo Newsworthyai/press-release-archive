@@ -1,0 +1,52 @@
+# InvestorNewsBreaks – Kairos Pharma Ltd. (NYSE American: KAPA) to Present Initial Phase 1 Data of ENV105 at World Lung Cancer Conference
+
+Kairos Pharma (NYSE American: KAPA), a clinical-stage biopharmaceutical company focused on innovative cancer therapeutics, announced participation and presentation of initial Phase 1 data of ENV105 in non-small cell lung cancer by Principal Investigator Dr. Karen Reckamp at the World Lung Cancer Conference, taking place Sept. 6–9, 2025, at the Fira de Barcelona Gran Via in Barcelona, Spain. Dr. Reckamp’s presentation, titled “Combination of Osimertinib and Carotuximab for Advanced, EFGR-Mutated Non-Small Cell Lung Cancer Patients,” highlights the combination therapy of ENV105 with osimertinib, with the open-label trial’s primary objective being to evaluate safety and tolerability.
+
+ To view the full press release, visit https://ibn.fm/5JjZJ
+
+ About Kairos Pharma, Ltd.
+
+ Based in Los Angeles, California, Kairos Pharma Ltd. (NYSE American: KAPA) aims to work at the forefront of oncology therapeutics, utilizing structural biology to overcome drug resistance and immune suppression in cancer. Our lead candidate, ENV105, is an antibody that targets CD105 – a protein identified as a key driver of resistance to various cancer treatments. Elevation of CD105 in response to standard therapy results in resistance and disease relapse. ENV105 aims to reverse drug resistance by targeting CD105 and restore the effectiveness of standard therapies across multiple cancer types. Currently, ENV105 is in a Phase 2 clinical trial for castrate-resistant prostate cancer and a Phase 1 trial for lung cancer aimed at addressing significant unmet medical needs.
+
+ NOTE TO INVESTORS: The latest news and updates relating to KAPA are available in the company’s newsroom at https://ibn.fm/KAPA
+
+ About InvestorWire
+
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+
+ For more information, please visit https://www.InvestorWire.com
+
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+
+ InvestorWire is powered by IBN 
+
+---
+
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-kairos-pharma-ltd-nyse-american-kapa-to-present-initial-phase-1-data-of-env105-at-world-lung-cancer-conference/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-presents-breakthrough-lung-cancer-therapy-data-at-world-conference/ac529b767736ab246404cde9f3fa8156) 
+
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202509/193832-kairos-pharma-to-present-initial-phase-1-data-for-env105-lung-cancer-treatment-at-world-conference)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202509/193836-kairos-pharma-presentara-datos-iniciales-de-fase-1-de-env105-en-cancer-de-pulmon-en-conferencia-mundial)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202509/193955-kairos-pharma-prasentiert-erste-phase-1-daten-von-env105-auf-welt-lungenkrebs-konferenz)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202509/193910-kairos-pharma-presentera-les-donnees-initiales-de-phase-1-de-l-env105-pour-le-cancer-du-poumon-lors-de-la-conference-mondiale)
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202509/193901-faq-kairos-pharma-s-env105-phase-1-data-presentation-at-world-lung-cancer-conference)
+
+Pickup - [https://goinvest.com/ibn-faqstaq](https://goinvest.com/ibn-faqstaq/202509/193972-faq-kairos-pharma-s-env105-phase-1-data-presentation-at-world-lung-cancer-conference)
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1n7k4ip/kairos_pharma_presents_breakthrough_lung_cancer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/3/jokejs1K.webp)
