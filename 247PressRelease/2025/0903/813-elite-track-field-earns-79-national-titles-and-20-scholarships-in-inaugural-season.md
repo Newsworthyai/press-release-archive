@@ -1,0 +1,20 @@
+# 813 Elite Track &amp; Field Earns 79 National Titles and 20 Scholarships in Inaugural Season
+
+TAMPA, FL, September 03, 2025 /24-7PressRelease/ -- In its very first year, 813 Elite Track & Field has redefined what a youth sports program can achieve, closing its inaugural season with national honors, collegiate scholarships for its athletes, and a growing reputation as a program that develops champions both on and off the track.  Founded to prioritize athletes and families above all else, 813 Elite was built on a mission to strengthen athletes mentally, physically, and emotionally. The club's philosophy centers on the "total athlete," ensuring that growth in sport is matched by growth in character, academics, and life.  That commitment has already yielded remarkable results:  4 AAU National Champion titles 1 New Balance National Champion title 64 AAU All-American titles 2 USATF All-American titles 2 Nike All-American titles 1 Adidas Nationals All-American title  2025 AAU Zone B Club of the Year (out of more than 1,000 teams across the country) 2025 AAU Club Championship National Runner-Up (out of more than 250 teams) 20 athletes awarded collegiate scholarships   "These milestones are about more than medals," said Steven "Coach G" Gamble, co-founder and head coach of 813 Elite. "They reflect the heart, grit, and unity of our athletes and families. From day one, our mission has been clear: to open doors, instill confidence, and prepare young people for success in every arena of life."  A Mission Bigger Than Sport While championships are celebrated, 813 Elite measures success by a broader standard: building resilience, discipline, and lifelong wellness in its athletes. Coaches and parents work hand in hand to create a support system where every rep, every practice, and every competition contributes to long-term growth.  "At 813 Elite, track and field is the training ground, but the real goal is shaping confident, capable human beings," added LaKeisha "Coach K" Gamble, co-founder and head coach. "Every athlete's journey matters, and every family is part of this movement. That's why we proudly say, One Team, One Fight."  Looking Ahead As the program prepares for its second season, the vision remains unchanged: to elevate student-athletes, strengthen families, and inspire the next generation. With the foundation of its first-year success, 813 Elite is poised to continue making a national impact while staying true to its roots as a family-first club.  813 Elite Track & Field is a Tampa-based youth athletic club founded by husband-and-wife coaching team Steven "Coach G" Gamble and LaKeisha "Coach K" Gamble, both U.S. military veterans and USATF Certified Coaches. With decades of combined experience, they lead the program with a "total athlete" philosophy - focusing on developing young people mentally, physically, and emotionally while preparing them for success on and off the track. More than a sports club, 813 Elite is a family-first program dedicated to instilling resilience, discipline, and character in every athlete. In its inaugural year, the club has already produced collegiate scholarship athletes, national titles, and recognition as one of the nation's top youth track and field programs. For more information, please visit www.813elitetf.com. Engage with 813 Elite Track & Field on Facebook and Instagram.  Contact Rebecca Fulton for sponsorship opportunities or media inquiries 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526387/813-elite-track-field-earns-79-national-titles-and-20-scholarships-in-inaugural-season)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/813-elite-track-field-s-stunning-debut-national-titles-20-scholarships/7d4fefe2820e60f01a53e4a92ca0ea98) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1n78d6d/813_elite_track_fields_stunning_debut_national/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/3/quayOdfr.webp)
