@@ -1,0 +1,20 @@
+# Itchko Ezratti and GL Homes Support Philanthropic Efforts Across Florida
+
+SUNRISE, FL, September 04, 2025 /24-7PressRelease/ -- Itchko Ezratti, founder of GL Homes, continues to redefine the meaning of net worth through impactful philanthropy across Florida. Guided by the belief that true success is measured by the communities strengthened, GL Homes Philanthropy supports programs that fight hunger, provide housing assistance, expand educational opportunities and enhance public spaces.   From meal delivery initiatives to housing support and school-based programs, Itchko's efforts extend well beyond real estate to build a legacy of lasting community benefit.   Through its hunger relief programs, GL Homes Philanthropy partners with organizations across Florida to ensure that families have access to nutritious meals. The Meal Mobile program, built in collaboration with The Lord's Place and fully funded by GL Homes, delivers hot meals directly to underserved communities, reaching those who may not have reliable transportation to food pantries.   Additional initiatives provide funding and volunteer support to food banks and community kitchens, helping to combat food insecurity on a broader scale.  In addition to hunger relief, Itchko Ezratti and GL Homes Philanthropy are committed to helping families achieve safe and stable housing. Through its Make a House a Home initiative, surplus building materials, furnishings and household goods are donated to organizations such as Habitat for Humanity ReStore and Gulfstream Goodwill.  These resources help families transitioning from homelessness furnish their homes and create comfortable living environments, reflecting the company's belief that housing is the foundation for a better future.  GL Homes Philanthropy also invests in initiatives that support education and community enrichment across Florida. Programs such as Summer of Service engage employees and volunteers in hands-on projects that benefit local schools and neighborhoods, while Passion for Playgrounds creates safe, engaging spaces for children to play and connect.   Additional literacy and academic support programs help equip students with the tools they need to succeed, ensuring that the company's impact reaches future generations.  These efforts reflect Itchko Ezratti's belief that true net worth is measured not only by financial success but by the lives that are improved through philanthropic efforts. By aligning GL Homes' resources with meaningful causes, Ezratti has built a legacy that mirrors the company's commitment to quality and care.   From Florida's neighborhoods to its schools and community centers, the positive impact of these initiatives continues to grow, shaping a stronger future for the state.  About GL Homes  Founded by Itchko Ezratti, GL Homes is one of Florida's largest and most respected home builders, known for creating high-quality, lifestyle-driven communities across the state. Through GL Homes Philanthropy, the company invests in programs that break the cycle of homelessness, fight hunger, support education and strengthen local neighborhoods. With a commitment to integrity, quality and community care, GL Homes continues to build not just homes but lasting impact. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526413/itchko-ezratti-and-gl-homes-support-philanthropic-efforts-across-florida)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gl-homes-founder-redefines-net-worth-through-florida-philanthropy/d9a885d3b156f98f795511a0755f9ab4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1n83ofm/gl_homes_founder_redefines_net_worth_through/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/4/oxenb2U5.webp)

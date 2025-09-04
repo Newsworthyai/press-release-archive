@@ -1,0 +1,20 @@
+# Stella Marinas Acquires South River Marina &amp; Turkey Point Marina, Creating One of the Largest Marinas on the Chesapeake Bay
+
+EDGEWATER, MD, September 04, 2025 /24-7PressRelease/ -- A joint venture between Stella Marinas and Drake Real Estate Partners announced today its acquisition of South River Marina and Turkey Point Marina & Yacht Club, two adjacent properties on the South River in Edgewater, Maryland.   These well-established marinas, centrally located just 30 minutes from Washington, D.C. and Baltimore, and a mere five miles from Annapolis, are ideally situated in a protected cove with quick access to the Chesapeake Bay.  With over 500 wet slips and dry racks, the newly combined facility is now among the largest marinas on the Chesapeake. Boaters will enjoy a full-service experience, including lift slip and dry rack storage for powerboats up to 40 feet, a full spectrum of marine services from experienced technicians, fuel, dry winter storage, and a waterfront restaurant.   To further enhance offerings, Stella Marinas is announcing two new partnerships at this location:  -Five Star Hospitality, who will open the High Tide Grill, serving casual waterfront fare   -Rudy Marine, who will offer Jeanneau outboard-powered cruisers and Bentley pontoon boats for sale on site  "We're bringing together two exceptional properties to create a marina destination where boaters can dock, dine, refuel, and relax — all in one place," said Ryan Comisky, Owner of Stella Marinas. "Our current offerings, planned upgrades, and location on the South River make us the perfect home port for boaters who value a convenient and enjoyable boating lifestyle."  David Cotterman, Co-Founder & Chief Investment Officer of Drake Real Estate Partners, added: "Drake is thrilled to partner with Stella Marinas on the acquisition of Turkey Point and South River Marinas. These investments represent an opportunity to enhance the Edgewater boating community while advancing Drake's value-add strategy investing in high-quality real estate."  About Stella Marinas Stella Marinas is a privately-held marina investment platform focused on acquiring and enhancing high-quality waterfront assets throughout the Chesapeake Bay. Leveraging a long-term ownership approach, strategic partnerships, and targeted capital improvements, Stella Marinas seeks to create value through operational excellence and property enhancements while preserving the unique character of each location.   About Drake Real Estate Partners Founded in 2012, Drake Real Estate Partners is a New York-based real estate investment manager with a track record of identifying and executing on under-the-radar opportunities across the U.S. The firm focuses on value-add strategies in income-producing assets, generally acquired at a significant discount to replacement cost. Drake has completed over $3.0 billion in transactions, leveraging its flexible capital and long-term mindset to invest across sectors and geographies.  About Five Star Hospitality Five Star Hospitality operates restaurants and venues across the Mid-Atlantic, specializing in waterfront dining and event spaces.   About Rudy Marine Rudy Marine is a top-rated boat dealer in southern Delaware and Maryland. Since 1986, it has sold quality boats at fair prices. Rudy Marine is proud to be an authorized dealer for Jeanneau outboard cruisers. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526431/stella-marinas-acquires-south-river-marina-turkey-point-marina-creating-one-of-the-largest-marinas-on-the-chesapeake-bay)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stella-marinas-and-drake-partners-acquire-two-chesapeake-marinas/afd0fa85f2119ac22e0b0f4ec909c497) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1n83mtq/stella_marinas_and_drake_partners_acquire_two/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/4/frogk6zy.webp)
