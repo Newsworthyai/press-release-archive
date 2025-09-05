@@ -1,0 +1,44 @@
+# Golden Matrix Achieves Record Revenues in July and August; On Track to Post Strong Quarterly Revenues
+
+LAS VEGAS, NEVADA - September 5, 2025 (NEWMEDIAWIRE) - Golden Matrix Group Inc. (NASDAQ: GMGI), a developer, licenser and global operator of online gaming platforms and gaming content, today announced it had achieved an all-time record in revenues for August of $17.8 million, an 18% increase on revenues of $15.1 million in August of last year. July results were also very strong at $15.7 million in revenues, a 24% increase compared to $12.7 million in July of last year.
+
+ Golden Matrix CEO Brian Goodman commented, “We are pleased with the strong results from all our operating divisions, and particularly with Meridianbet’s sports betting operations and RKings’ tournament competitions. It has been an excellent start to the second half of the year, and we believe we are well ahead of our plan and on track to finish the third quarter with record results.”
+
+ Mr. Goodman noted that the company’s second quarter had been impacted adversely by a highly unusual customer-friendly sport outcome. “In this third quarter, we are seeing dramatically improved financial performance and strategic strength across all our B2B and B2C operations, and we expect this trend to continue for the rest of 2025 and beyond.”
+
+ About Golden Matrix
+
+ Golden Matrix Group, based in Las Vegas NV, is an established B2B and B2C gaming technology company operating across multiple international markets. The B2B division of Golden Matrix develops and licenses proprietary gaming platforms for its extensive list of clients and RKings, its B2C division, operates a high-volume eCommerce site enabling end users to enter paid-for competitions on its proprietary platform in authorized markets. The Company also owns and operates MEXPLAY, a regulated online casino in Mexico.
+
+ Meridianbet Group, founded in 2001 and acquired by Golden Matrix in 2024, is a well-established online sports betting and gaming group, licensed and currently operating in 15 jurisdictions across Europe, Africa and South America. Meridianbet Group's successful business model utilizes proprietary technology and scalable systems, thus allowing it to operate in multiple countries and currencies and with an omni-channel approach to markets, including retail, desktop online and mobile.
+
+ Forward-Looking Statements
+
+ The financial information presented in this update is not subject to the same closing procedures as our unaudited quarterly financial results and our audited annual financial results, and has not been reviewed or audited by our independent registered public accounting firm. The preliminary financial information included in this update does not represent a comprehensive statement of our financial results or financial position and should not be viewed as a substitute for unaudited financial statements prepared in accordance with US GAAP. Accordingly, you should not place undue reliance on the preliminary financial information included in this update.
+
+ Certain statements made in this press release contain forward-looking information within the meaning of applicable securities laws, including within the meaning of the Private Securities Litigation Reform Act of 1995 (“forward-looking statements”). Words such as “strategy,” “expects,” “continues,” “plans,” “anticipates,” “believes,” “would,” “will,” “estimates,” “intends,” “projects,” “goals,” “targets” and other words of similar meaning are intended to identify forward-looking statements but are not the exclusive means of identifying these statements.
+
+ Important factors that may cause actual results and outcomes to differ materially from those contained in such forward-looking statements include, without limitation, the ability of the Company to obtain the funding required to pay certain Meridianbet Group acquisition post-closing obligations, the terms of such funding, potential dilution caused thereby and/or covenants agreed to in connection therewith; potential lawsuits regarding the acquisition; dilution caused by the terms of the Note and Warrant, the Company’s ability to pay amounts due under the Note and covenants associated therewith and penalties which could be due under the Note and securities purchase agreement for failure to comply with the terms thereof; the business, economic and political conditions in the markets in which the Company operates; the effect on the Company and its operations of the ongoing Ukraine/Russia conflict and the conflict in Israel, changing interest rates and inflation, and risks of recessions; the need for additional financing, the terms of such financing and the availability of such financing; the ability of the Company and/or its subsidiaries to obtain additional gaming licenses; the ability of the Company to manage growth; the Company’s ability to complete acquisitions and the availability of funding for such acquisitions; disruptions caused by acquisitions; dilution caused by fund raising, the conversion of outstanding preferred stock, convertible securities and/or acquisitions; the Company’s ability to maintain the listing of its common stock on the Nasdaq Capital Market; the Company’s expectations for future growth, revenues, and profitability; the Company’s expectations regarding future plans and timing thereof; the Company’s reliance on its management; the fact that the sellers of the Meridianbet Group hold voting control over the Company; related party relationships; the potential effect of economic downturns, recessions, increases in interest rates and inflation, and market conditions, decreases in discretionary spending and therefore demand for our products and services, and increases in the cost of capital, related thereto, among other affects thereof, on the Company’s operations and prospects; the Company’s ability to protect proprietary information; the ability of the Company to compete in its market; the effect of current and future regulation, the Company’s ability to comply with regulations and potential penalties in the event it fails to comply with such regulations and changes in the enforcement and interpretation of existing laws and regulations and the adoption of new laws and regulations that may unfavorably impact our business; the risks associated with gaming fraud, user cheating and cyber-attacks; risks associated with systems failures and failures of technology and infrastructure on which the Company’s programs rely; foreign exchange and currency risks; the outcome of contingencies, including legal proceedings in the normal course of business; the ability to compete against existing and new competitors; the ability to manage expenses associated with sales and marketing and necessary general and administrative and technology investments; and general consumer sentiment and economic conditions that may affect levels of discretionary customer purchases of the Company’s products, including potential recessions and global economic slowdowns. Although we believe that our plans, intentions and expectations reflected in or suggested by the forward-looking statements we make in this press release are reasonable, we provide no assurance that these plans, intentions or expectations will be achieved.
+
+ Other important factors that may cause actual results and outcomes to differ materially from those contained in the forward-looking statements included in this communication are described in the Company’s publicly-filed reports, including, but not limited to, under the “Special Note Regarding Forward-Looking Statements,” “Risk Factors” and “Management’s Discussion and Analysis of Financial Condition and Results of Operations” sections of the Company’s periodic and current filings with the SEC, including the Form 10-Qs and Form 10-Ks, including, but not limited to, the Company’s Annual Report on Form 10-K for the year ended December 31, 2024 and its Quarterly Report on Form 10-Q for the quarter ended June 30, 2025, and future periodic reports on Form 10-K and Form 10‑Q. These reports are available at www.sec.gov.
+
+ Connect with us:X - https://X.com/GMGI_Officialwww.goldenmatrix.com
+
+ Investors & PressContact: Rich Christensenir@goldenmatrix.com 
+
+---
+
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-achieves-record-revenues-in-july-and-august-on-track-to-post-strong-quarterly-revenues-7082403)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-hits-record-17-8m-revenue-in-august-up-18-year-over-year/1cd26f0c1175cc8dfa403c320b10a471) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1n93we4/golden_matrix_hits_record_178m_revenue_in_august/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/259/5/keeprZeW.webp)
