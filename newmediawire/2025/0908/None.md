@@ -1,64 +1,43 @@
-# Metavesco Launches CEO Option Plan With 12 Growth Milestones
+# ProtoSpace Mfg. Unveils ProtoSpace Designer: Game-Changing Software for Aerospace Engineers
 
-CUMMING, GA - September 8, 2025 (NEWMEDIAWIRE) - Metavesco, Inc. (OTC: MVCO), a publicly traded diversified holding company, today announced a new stock option award for CEO Ryan Schadel designed to directly link leadership rewards with the Company’s growth and shareholder value creation.
+SYDNEY, NOVA SCOTIA - September 8, 2025 (NEWMEDIAWIRE) - ProtoSpace Mfg., the world’s fastest aerospace supplier, today announced the launch of ProtoSpace Designer, a breakthrough online software tool that enables engineers to design and order custom machined parts with unprecedented speed and simplicity.
 
- Under the plan, Mr. Schadel will only earn options when specific business achievements are met and the Company’s market capitalization holds steady at the next milestone level.
+ Developed for mechanical engineers in aerospace, defense, and other advanced industries, ProtoSpace Designer integrates directly with ProtoSpace Mfg.’s rapid machining processes. By embedding manufacturability constraints into the design environment, the software eliminates traditional barriers between design and production.
 
- The Roadmap: 12 Clear Milestones
+ With ProtoSpace Designer, users can:
 
- Each milestone unlocks roughly 41.7 million options at an exercise price of $0.0011 per share. To vest, two things must happen:
+ * Design parts with built-in manufacturability checks.
+* Get instant, accurate price quotes.
+* Place orders seamlessly online.
+* Receive finished parts in as little as 2-3 days.
 
- 1. The Company hits a growth goal, and
-2. Market cap sustains the matching level for 30 trading days.
+ “Traditional CAD platforms like SolidWorks give engineers total freedom, but that flexibility often introduces friction - designing from scratch, waiting on quotes, and discovering manufacturability issues late in the process,” said Dr. Doug Milburn, President of ProtoSpace Mfg. “ProtoSpace Designer removes those bottlenecks. It’s built to keep innovation flowing, from idea to iteration, without wasted time.”
 
- Here’s the progression:
+ Accessible Worldwide, Manufactured in North AmericaProtoSpace Designer is available immediately at protospacedesigner.com, accessible to engineers worldwide. Parts designed through the platform are manufactured at ProtoSpace Mfg.’s state-of-the-art facilities in Nova Scotia, Canada, and North Carolina, USA.
 
- 1. $10M Annual Revenue + $10M Market Cap
-2. $15M Revenue + $15M Market Cap
-3. $20M Revenue + $20M Market Cap
-4. $30M Revenue + $30M Market Cap
-5. $40M Revenue + $40M Market Cap
-6. $50M Revenue + $50M Market Cap
-7. Positive EBITDA for 4 consecutive quarters + $60M Market Cap
-8. 1,000 BTC/ETH held in treasury + $80M Market Cap
-9. 3 Strategic Acquisitions completed + $90M Market Cap
-10. 25 Epic Labor branches operating + $100M Market Cap
-11. 50 Epic Labor branches operating + $110M Market Cap
-12. 100 Epic Labor branches operating + $120M Market Cap
+ Accelerating Aerospace InnovationBy providing instant pricing, manufacturability assurance, and rapid turnaround, ProtoSpace Designer allows engineers to innovate faster with confidence that their parts are production-ready. The result: accelerated technology development cycles, reduced downtime, and fewer costly redesigns.
 
- “This plan makes it simple: I only win when shareholders win,” said Ryan Schadel, CEO of Metavesco. “My options are tied to concrete achievements; revenue growth, profitability, crypto treasury accumulation, acquisitions, and Epic Labor expansion. If we hit these targets and the market recognizes our progress, it creates durable value for everyone involved.”
+ A Unified Platform for Rapid DesignProtoSpace Designer shares the same underlying technology as Protocase Designer, which also supports machined part design. The only difference lies in the naming conventions tailored for aerospace engineers, ensuring clarity and ease-of-use in aerospace-specific workflows.
 
- About Metavesco, Inc.
+ About ProtoSpace
 
- Metavesco is a diversified holding company focused on acquiring and managing assets across multiple sectors, including consumer packaged goods and staffing services. The company is dedicated to long-term growth through organic expansion, strategic acquisitions and innovative market solutions.
+ ProtoSpace Mfg is the world’s fastest aerospace supplier, delivering custom machined parts for prototypes and technology development at unmatched speed and reliability. With facilities in Nova Scotia, Canada, and Wilmington, North Carolina, USA, ProtoSpace empowers engineers in aerospace, defense, and beyond to move from concept to creation with unprecedented efficiency.
 
- Safe Harbor Statement
-
- This press release contains statements that constitute forward-looking statements. These statements appear in a number of places in this press release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its officers with respect to, among other things: (i) financing plans; (ii) trends affecting its financial condition or results of operations; and (iii) growth strategy and operating strategy. The words "may", "would", "will", "expect", "estimate", "can", "believe", "potential", and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company's ability to control, and that actual results may differ materially from those projected in the forward-looking statements as a result of various factors. More information about the potential factors that could affect the business and financial results is included in the Company's filings on otcmarkets.com.
-
- MEDIA CONTACT: Ryan Schadel678-341-5898info@metavesco.com
-
- 
+ Contact:Jonathan PhillipsProtoSpace@phillcomm.global
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-launches-ceo-option-plan-with-12-growth-milestones-7082458)
+[Original/Source Press Release](https://www.newmediawire.com/news/protospace-mfg-unveils-protospace-designer-game-changing-software-for-aerospace-engineers-7082490)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-ties-ceo-options-to-12-growth-milestones-aligning-leadership-with-shareholders/d00d697184b1a173a2ffa22c0881a47e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/protospace-launches-game-changing-design-software-for-aerospace-engineers/171a5b4fb4cc7e329da26a38606210c7) 
 
-
-Pickup - [https://burstable.news/news](https://burstable.news/news/202509/199859-metavesco-ceo-compensation-tied-to-12-specific-growth-milestones)
-
-Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202509/199862-metavesco-implementa-plan-de-opciones-para-ceo-vinculado-a-12-hitos-de-crecimiento-empresarial)
-
-Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202509/199897-faq-metavesco-ceo-stock-option-plan-with-12-growth-milestones)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/259/8/vibeho6b.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/259/8/file1cNi.webp)
