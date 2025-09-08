@@ -1,58 +1,54 @@
-# Lantern Hill’s Popular Two-Bedroom Residence is Perfect for Hosting Family
+# State Roundup: Hershey Forms Exploratory Committee On Run For Governor; Memorial Unveiled At Crownsville Hospital Center; Olszewski’s Former Chief Of Staff Gets $100K In IG Lawsuit
 
-By Gregory J. Alexander
+HERSHEY FORMS EXPLORATORY COMMITTEE TO WEIGH RUN FOR GOVERNOR: Senate Minority Leader Stephen S. Hershey (R-Upper Shore) has formed an exploratory committee to weigh a 2026 bid for governor, citing the need for “balance” in a state that has gone “so far to the left” under Democratic control. Bryan P. Sears/Maryland Matters.
 
- When planning their move to Lantern Hill, the Erickson Senior Living community in New Providence, N.J., Bill and Betty Shapiro wanted to make sure the home they chose would work well for family gatherings and other get-togethers. The Garfield, a large two-bedroom, two-bath floor plan with a den and screened-in porch, fit the bill perfectly.
+ CROWNSVILLE HOSPITAL’S 1700 DEAD WERE JUST NUMBERS. NOW ARE NAMES: During a ceremony Thursday, Friends of the Crownsville Hospital Patient Cemetery and Anne Arundel County unveiled the Say My Name Memorial, which honors those who lived and died at the hospital from 1912 to 1965. Maggie Travato/The Baltimore Sun.
 
- Since they moved in, the couple have enjoyed hosting frequent visits with their children and grandchildren, as well as game nights and holiday dinners.
+ OLSZEWSKI’S FORMER CHIEF OF STAFF GETS $100k IN INSPECTOR GENERAL LAWSUIT: Baltimore County paid former chief of staff Patrick Murray $100,000 to settle a lawsuit that its inspector general filed against him long after he left county employment — then asked the court to seal the case and exempt it from related Maryland Public Information Act requests. Rona Kobell/The Baltimore Banner.
 
- “The Garfield has a large living room with lots of open space, which is perfect for the grandkids to play in. There are two bathrooms, and one has a bathtub. When we first visited and I saw the bathtub, I was so excited, as I knew it would be perfect for the children to enjoy bubble baths,” says Betty.
+ CALIFORNIA RULING COULD IMPACT TRUMP’S PLAN TO SEND TROOPS TO B’MORE: Maryland’s Attorney General Anthony Brown said he’s been watching the legal developments surrounding President Donald Trump’s use of the National Guard in U.S. cities and preparing in case Trump follows through on plans to send troops to Baltimore. Brenda Wintrode/The Baltimore Banner.
 
- “It’s a spacious floor plan, and I like how the two bedrooms are on opposite sides of the apartment, which is perfect when we have overnight guests,” notes Bill.
+ SOME B’MORE RESIDENTS DIVIDED ON NATIONAL GUARD INTERVENTION: President Donald Trump’s pledge to send federal troops to Baltimore to deal with crime drew rebukes this week from Maryland Gov. Wes Moore and Baltimore Mayor Brandon Scott. But what do the people the president says he wants to protect think of the idea? Baltimore Sun Staff/Baltimore Sun.
 
- The couple also enjoys the outdoor space that their balcony provides. “It’s such a beautiful view,” says Betty. “We both believe that it’s very important to be outside and see nature and green space.”
+ * Protesters gathered in front of Baltimore’s City Hall Wednesday evening to push back against President Donald Trump doubling down on his threats to send the National Guard into the city. Scott Maucione/WYPR-FM.
 
- Cooking in or dining out The Shapiros have found that the large, open kitchen is the perfect place for making meals.
+ ALSOBROOKS’ ANTI-RFK Jr. RESOLUTION GAINS SUPPORT: For months, Sen. Angela Alsobrooks stood alone as the only senator to call for the resignation of Robert F. Kennedy Jr. Not anymore. Ben Mause/The Baltimore Sun.
 
- “When we have family visiting, especially for Thanksgiving, we like to cook together here,” says Betty. “We are all part of a delightful dance of happy, moving culinary parts.”
+ TRUMP IS BACK, SO IS WATCHDOG BOARD; A PG CO SCHOOLS PROJECT OVERSIGHT REPORT; MORE NOTES: Look up the Maryland Health Insurance Coverage Protection Commission in the online version of the Maryland Manual, and it directs you to the defunct agencies page: The commission, formed during President Donald Trump’s first term, terminated in 2023. Now, Trump is back. And so is the commission charged with tracking federal impacts on Maryland’s health insurance market. Danielle J. Brown and William J. Ford/Maryland Matters.
 
- It also works well when it’s just the two of them. “We also like to prepare our own breakfast and lunch here in the apartment, which is convenient,” adds Bill. “I also like how the Garfield has a designated dining area. We were able to bring the dining room table from our home.”
+ HARFORD OFFICIALS NO LONGER HAVE ACCESS TO COUNTY COUNCIL’S EMAILS: Harford County officials will need written consent from County Council members to access members’ emails, according to a new agreement among the council, the county government, and the Department of Information and Communication Technology. Matt Hubbard/The Aegis.
 
- Array of options Betty notes that they also love the convenience and quality of Lantern Hill’s restaurants. “I’m totally spoiled,” she laughs. “It’s so nice to simply go downstairs in the elevator and have a great meal where I do not have to cook.”
+ COUNCILMAN PATOKA TO RUN FOR B’MORE CO EXECUTIVE: Izzy Patoka, currently serving his second term on the Baltimore County Council, will launch a campaign for Baltimore County Executive on Monday, according to a statement. Danny Tow/Fox 45 News.
 
- Bill agrees. “It was not hard to give up cooking every night. I like the food here and eating in the restaurants is also a great way to engage with friends. Everyone is so welcoming and friendly, and the community is filled with such wonderful people. Moving to Lantern Hill was such an easy experience for us.”
+ MO CO PREPARES FOR MORE FEDERAL JOB CUTS IN OCTOBER.: Montgomery County is bracing for the impact of more cuts to federal jobs come October as a new fiscal year begins–potentially as many as 20,000 to 40,000 workers when including those such as vendors and contractors who support the federal government. Ashlyn Campbell/Bethesda Today.
 
- An active, social lifestyle Bill and Betty also enjoy Lantern Hill’s numerous opportunities for social engagement. Betty volunteers on the dining committee, cochairs the writing group, and attends a variety of lectures and workshops. She also participates in boxing, Qigong, art classes, and table tennis.
+ EMPLOYEE ACCUSED OF IMPROPERLY INVITING ICE TO B’MORE COURTHOUSE NO LONGER AT JOB: A Maryland corrections department employee is no longer at her job following an internal investigation by the agency into whether she improperly invited federal immigration agents to a Baltimore courthouse to detain a defendant she suspected of being undocumented. Ben Conark/The Baltimore Banner.
 
- Bill volunteers his time on the Resident Advisory Council, chairs the Health, Safety, and Security Committee, and plays pickleball and bocce. Together, the couple enjoys line dancing and leading a healing service.
+ COALITION OF ENVIRONMENTAL ORGANIZATIONS FORM DATA CENTER ANALYSIS GROUP: Several organizations focused on conservation and other environmental issues are joining together to create the Maryland Data Centers Analysis Group. Ceoli Jacoby/Frederick News Post.
 
- “Both line dancing and pickleball are great exercise, as well as provide a social opportunity to make new friends,” says Bill. “Between all of the activities and eating in the restaurants, it’s easy to stay busy and have an active social life.”
-
- “However, when you want privacy or maybe just want to sit outside and read a good book, you can do that too,” adds Betty.
-
- Close to family Bill and Betty were living in suburban Philadelphia when they decided that they wanted to move to a retirement community.
-
- “My father-in-law lived in a continuing care retirement community for many years, and he was very happy,” Bill says. Initially, the couple looked at Ann’s Choice, an Erickson Senior Living community in Bucks County, Pa.
-
- “We liked Ann’s Choice very much, and it was located close to where we lived, where our friends were, and where we had established doctors,” says Bill. “We talked about it, and decided that we wanted to be closer to our family. We went to the Erickson website and saw that Lantern Hill was very close to our family. It seemed like the logical choice.”
-
- “Being close to our family ultimately was the most important factor,” concurs Betty. “Since moving to Lantern Hill in August 2022, our son and daughter-in-law have had a second child, and our younger son and his partner have moved to the area,” says Bill. Betty adds, “We are delighted. It’s great being close to family and be able to easily see one another.”
-
- To learn more about senior living at this vibrant community, request your free brochure to get the scoop on amenities, floor plans, and so much more.
-
- The post Lantern Hill’s Popular Two-Bedroom Residence is Perfect for Hosting Family appeared first on citybiz. 
+ The post State Roundup: Hershey Forms Exploratory Committee On Run For Governor; Memorial Unveiled At Crownsville Hospital Center; Olszewski’s Former Chief Of Staff Gets $100K In IG Lawsuit appeared first on citybiz. 
 
 ---
 
-[Original/Source Press Release](https://www.citybiz.co/article/741092/lantern-hills-popular-two-bedroom-residence-is-perfect-for-hosting-family/)
+[Original/Source Press Release](https://www.citybiz.co/article/741125/state-roundup-hershey-forms-exploratory-committee-on-run-for-governor-memorial-unveiled-at-crownsville-hospital-center-olszewskis-former-chief-of-staff-gets-100k-in-ig-lawsuit/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lantern-hill-retirement-community-perfect-for-active-seniors-and-family-hosting/3b6b96f7f1d610f68c96305fc4816172) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maryland-political-turmoil-hershey-eyes-governor-trump-troops-threaten-baltimore/b251a32f09a777a30ec59cbf036d6e4c) 
 
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202509/199817-maryland-political-and-policy-developments-signal-shifting-landscape)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202509/199819-analisis-de-noticias-de-maryland-desde-politica-hasta-medio-ambiente)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202509/199844-maryland-bereitet-sich-auf-mogliche-bundestruppen-einsatze-vor-wahrend-hershey-gouverneurskandidatur-pruft)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202509/199841-le-senateur-hershey-envisage-une-candidature-au-poste-de-gouverneur-du-maryland)
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202509/199900-maryland-political-and-community-updates-governor-race-memorial-lawsuits-and-national-guard-concerns)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/8/yawnRL55.webp)
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/8/numbxPvn.webp)
