@@ -1,82 +1,58 @@
-# Q&amp;A with Joanne DiGennaro, President of the Center for Excellence in Education
+# Sinclair Kennally, CNHP, CNC, of Detox Nation, Reveals the Root Cause of Chronic Fatigue and Brain Fog
 
-Joann DiGennaro co-founded the Center for Excellence in Education (CEE) in 1983 with Admiral H.G. Rickover, “Father of the Nuclear Navy” and a strong advocate for STEM. As president of CEE for more than four decades, she has helped thousands of students gain admission to top U.S. colleges and universities, such as Harvard, Princeton, MIT, and Cal-Tech. CEE alumni have gone on to become executives at top companies, such as BCG, CISCO, Citadel Securities. The Defense Department, Genentech, Google, Meta (Facebook), McKinsey & Company, Microsoft, NVIDIA, Open AI, Pinterest, SpaceX, and Tesla.
+By the time you take a sip of your morning coffee, your body has likely already been affected by dozens of hidden toxins. These toxins may include chemicals in your tap water or synthetic fragrances in your shampoo. Regulators now concede that at least 60% of Americans may be drinking water laced with these “forever chemicals,” a burden linked to fatigue, brain fog, and stubborn digestive issues.
 
- Few knew Admiral Rickover as I did. He is the hero of his own “Horatio Alger story.”
+ A Natural Health Practitioner, Sinclair Kennally, CNHP, CNC, argues that the solution to toxins isn’t just adding supplements, but focusing on eliminating the hidden stressors that prevent our bodies from fixing themselves in the first place. As a co-founder and CEO of Detox Nation, Kennally is shifting the meaning of ‘detox.’ She moves it beyond the idea of a fleeting cleanse and redefines it as a practical and robust strategy to get to the root cause of health issues.
 
- Joann has served on several university boards, including as chair of the U.S. Army War College Board of Visitors, to which she was appointed by President George W. Bush in 2005. She was also appointed to the State Council of Higher Education for Virginia, where she served a five-year term, and the Commission on Higher Education Reform, Innovation, and Investment. Joann received her Bachelor of Science at Purdue University and her Master of Science at the University of Maryland. She studied law at Oxford University and received her Juris Doctor at George Mason University.
+ Turning Years of Suffering Into a Science-Backed Solution for Others
 
- Tell us about CEE. What is the organization’s mission?
+ After years of stabbing joint pain and down to just a few foods, Sinclair was left without answers from conventional medicine. Doctors were baffled. Frustrated, she became her own health detective and uncovered the one thread connecting the distress: toxin overload. Through a careful process of detoxing, she finally silenced the pain and regained full control of her body.
 
- The Center for Excellence in Education (CEE) is a non-profit, 501(c)(3) organization that nurtures high school and university scholars to careers of excellence and leadership in science, technology, engineering, and mathematics (STEM), and encourages collaboration between and among scientific and technological leaders in the global community.
+ That recovery became the seed for Detox Nation, the community Sinclair now leads alongside her partner and Chief Science Officer, Michael Spandel. Michael was the driving force behind much of their healing. He researched relentlessly, gathered studies, attended summits, and trained under world-renowned experts until he identified and removed the toxic stressors affecting them both.
 
- Over the years, we have become a source of STEM talent for prestigious universities, such as Harvard, MIT, Cal-Tech, Princeton, Stanford, UCLA, and Yale, to name a few. Other alumni have gone on to shining careers at leading technology, financial services, and pharmaceutical and biotech corporations. CEE has proven itself to be a go-to source for STEM talent.
+ This methodology is founded on two integrated principles. The first is biochemical, involving the stimulation of bile secretion, the correction of mineral imbalances, and the regeneration of a healthy microbiome to enhance the body’s detoxification capacity. The second focuses on restoring autonomic nervous system equilibrium, which induces a parasympathetic dominant state to upregulate the critical repair, digestion, and detoxification pathways required for sustained recovery.
 
- How did you come to establish the Center for Excellence in Education (CEE) with Admiral H.G. Rickover? What was it like to work with him?
+ Identifying the Hidden Stressors in Your Home
 
- Admiral H.G. Rickover was the longest-serving officer in the history of the U.S. Navy. He graduated from the U.S. Naval Academy in 1922, served in World War II, and was known as the “Father of the Nuclear Navy” for developing the world’s first nuclear-powered submarine. He was a Presidential Medal of Freedom recipient, the first person honored with two Congressional Gold Medals, and he served under every U.S. president from Warren Harding to Ronald Reagan, including Jimmy Carter, whom Rickover had selected for the nuclear program.
+ Modern life bombards us with far more toxins than our bodies were designed to handle. In the U.S. alone, for instance, the Environmental Working Group’s database reveals hundreds of contaminants in municipal tap water, from heavy metals to radioactive elements. Beyond water, plastics, food packaging, and scented products add to the chemical burden our bodies must constantly work to clear. This often leads to an overworked detox network, where chronic issues like joint pain or autoimmune flares are not just signs of aging, but symptoms of an overwhelming toxic load.
 
- The admiral believed the American education system was failing current and future generations. He believed that nurturing careers of excellence and leadership in science and technology in young scholars was an essential investment for America and its future as a global leader. The admiral and I met with educators around the world to create a unique educational experience for high-achieving STEM students. The result was the Research Science Institute (RSI), a six-week research program collaboratively sponsored with MIT that launched in 1984. His legacy lives on at CEE today.
+ Sinclair Kennally’s method is about supporting your body’s natural detoxification, not forcing it through a harsh cleanse. The first step is to lighten your toxic burden by controlling your environment. This includes choosing well-washed produce, using fragrance-free products, and purifying your indoor air with regular dusting and a HEPA filter.
 
- Why is an organization like yours needed so much?
+ How Targeted Detox Protocols Help the Body Reset From the Inside Out
 
- * STEM education is considered crucial for the future of the United States. Educating more people in these disciplines also increases the probability of finding solutions to global challenges: disease, energy, environment, and technology issues.
-* STEM subjects emphasize inquiry, evidence, and logical reasoning. Students learn how to analyze complex problems, test solutions, and adapt—skills that transfer to any career or life challenge. Additionally, STEM fields fuel nearly every major innovation, from medical breakthroughs to artificial intelligence to climate solutions. Many of the fastest-growing and best-paying careers (software development, data science, fintech, clean energy engineering, biotech, cybersecurity, etc.) in today’s economy require strong STEM skills. Countries with a strong STEM workforce are more competitive in global markets and better equipped to drive innovation. That’s why our mission is so important.
-* STEM careers help underrepresented groups, including women, minorities, and first-generation students pursue high paying jobs that enable economic advancement. In short, STEM education equips individuals with the skills for modern jobs, boosts innovation, and prepares society to tackle urgent challenges while expanding opportunity.
+ Detox Nation converts cutting-edge theory into real-life transformation through two high-impact online immersions. Their four-week Rapid Liver Reset program offers three customizable intensity tracks—Gentle, Slow & Steady, and Deep—so participants can match the experience to their body’s readiness (e.g., ultra-sensitive systems, releasing years of stagnation, or advanced detox goals).
 
- What types of companies hire CEE graduates?
+ Rather than harsh cleanses or forced detoxes, the program offers a gentle, structured system that supports the liver, lymphatics, bowels, and kidneys in a safe, step-by-step sequence. This approach reframes detox as restoration, so everything begins to shift naturally and sustainably.
 
- CEE alumni have gone on to shining careers at companies like Apple, BCG, Cisco, Citadel Securities, Goldman Sachs, Google, Meta (Facebook), McKinsey & Co., Microsoft, NVIDIA, OpenAI, Oracle, Regeneron Pharmaceuticals, SpaceX, and the U.S. Department of Defense.
+ Its partner course, the six-week Rapid Gut Reset, is designed to rebuild gut health from mouth to colon, support the nervous system into a calm, healing state, and remove hidden stressors that block recovery. Participants choose from three tracks while learning how to reset microbiome function to restore gut motility, support liver and lymph flow, and address how oral health impacts digestion.
 
- Who are some of CEE’s most successful alumni?
+ Practical tools, such as mold nasal rinses, give participants hands-on ways to reduce ongoing exposures, and the program’s tailored approach avoids the crashes common in one-size-fits-all detox plans.
 
- We are particularly proud of our alumni of the RSI program at MIT. They include:
+ Working in tandem, the two programs create a closed-loop repair cycle that allows the liver to shed toxins while the gut seals leaks and expels waste. As a result, the immune system recalibrates and functions as it should.
 
- * Diane Tang (RSI ’90), a Google Fellow with expertise in large-scale data analysis and infrastructure;
-* Dr. Lauren Ancel Meyers (RSI 1990), a pioneer in the field of network epidemiology and the application of machine learning to improve outbreak detection, forecasting and control;
-* Aaron Kesselheim (RSI ’91), Professor of Medicine at Harvard Medical School who leads an academic research center that focuses on pharmaceutical policy and evidence-based use of medicines;
-* Ben Silbermann (RSI ’98), co-founder & CEO of Pinterest; and
-* Feng Zhang, PhD (RSI ’99), a pioneer of the revolutionary CRISPR gene-editing technology.
+ Empowering a Smarter, More Informed Generation of Wellness Seekers
 
- CEE recently hosted its annual Research Science Institute (RSI), the organization’s flagship program at MIT. What do the students take away from this program?
+ Detox Nation is a holistic wellness platform that offers individual support, groups, practitioner mentorship, and detox education led by experts. A free root-cause assessment points newcomers to their next best step, while Kennally’s podcast, Detox Nation, turns dense toxicology into kitchen-table choices.
 
- I am proud and realize how worthwhile our work is. CEE alumni remain very connected with us. Whenever they win an award, they give credit to their experience at our RSI program.
+ Detox Nation’s faculty, with 120 cumulative years of clinical experience, breaks down complex cases and curates practical product swaps that accelerate healing. Members gain the skills to interpret lab data and select evidence-based alternatives that reduce their chemical load. The curriculum provides a practical roadmap for creating safer home environments through better food storage, cleaner indoor air, and personal-care routines that swap endocrine disruptors for high-integrity, plant-derived products.
 
- Who supports your organization?
+ Weekly live Q&A sessions and a private forum reinforce these principles with techniques designed to ensure progress without extreme protocols. These consistent upgrades compound to lower cumulative exposure and eventually free metabolic energy for repair.
 
- Many firms in STEM-related fields support CEE, including pharmaceutical and biotechnology firms, technology companies, financial corporations, and foundations, including Akamai Technologies, Citadel Securities, Jane Street Capital, Lockheed Martin, Regeneron, and TC Energy Foundation, among others. We welcome other funders to support us, especially since CEE is a go-to place for corporations to find STEM talent.
+ As Detox Nation grows, it is expanding from digital programs into physical healing spaces with the opening of the Selah Center this fall in Carlsbad, California. This healing oasis is for individuals suffering from chronic fatigue, mold illness, post-viral syndromes, autoimmune diseases, Lyme, and other related conditions. Using therapies for sensitive systems and Sinclair Kennally’s root-cause method, the center will offer individualized care for deep and lasting recovery, making clean living an essential lifestyle rather than just a temporary wellness trend.
 
- Looking back at your life’s work, did you ever expect to still be part of the organization 43 years later? What are your proudest accomplishments as president of CEE?
-
- I did not plan a career in education. My goal was to own the property that Bergdorf sits on and to become a real estate giant! Admiral Rickover presented me with an opportunity that I could not refuse. CEE has had three U.S. presidents on the Board and a U.S. Navy hero who was so historically significant. There are challenges, but I’ve never thought about doing anything else. I love what I do, and the success that it brings to our students. And I love my country and know that we need these students to research, invent, and achieve.
-
- I understand that I have written a biography of Admiral Rickover. What motivated you to author this book? What can you tell us about it?
-
- Few knew Admiral Rickover as I did. He is the hero of his own “Horatio Alger story.” He had a lot of challenges but ultimately became one of this nation’s brilliant engineers. He helped make this country No. 1 in defense.
-
- People need to know the real Rickover. His critics said he was mean and not a true engineer. I thought the truth needed to be told, and that’s why I wrote the book. Admiral Rickover was among the most read people in the humanities. He loved poetry, history, and other subjects. There is no great scientist who is not well-versed in the humanities. He had a dry sense of humor that didn’t come across to everybody. He could be hilarious.
-
- I hope the book can inspire people to do more, to go beyond their little cocoons. The admiral is a splendid example of someone who did that.
-
- How can people learn more about CEE, and what do you want them to know most?
-
- There are so many opportunities. Our volunteers and those involved are our lifeblood. They are guest speakers, they mentor underrepresented students and teachers and enrich STEM development, and they help students with their trajectory to have a successful career in STEM. Of course, any donations are appreciated. Contact us by visiting CEE.org, by phone at (703) 448-9062, or by mail: Center for Excellence in Education, 7918 Jones Branch Drive, Suite 700, McLean, VA 22102.
-
- The post Q&A with Joanne DiGennaro, President of the Center for Excellence in Education appeared first on citybiz. 
+ The post Sinclair Kennally, CNHP, CNC, of Detox Nation, Reveals the Root Cause of Chronic Fatigue and Brain Fog appeared first on citybiz. 
 
 ---
 
-[Original/Source Press Release](https://www.citybiz.co/article/740933/qa-with-joanne-digennaro-president-of-the-center-for-excellence-in-education/)
+[Original/Source Press Release](https://www.citybiz.co/article/741659/sinclair-kennally-cnhp-cnc-of-detox-nation-reveals-the-root-cause-of-chronic-fatigue-and-brain-fog/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cee-s-40-year-legacy-transforming-stem-education-launching-tech-leaders/c88db4bac82ef0ffb8ebd4a74196e05e) 
-
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202509/200819-center-for-excellence-in-education-fordert-seit-40-jahren-stem-talente-fur-globale-herausforderungen)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/detox-nation-reveals-root-cause-of-chronic-fatigue-brain-fog/a810fbfd33ed4a106e28c26e41d9f5c7) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/8/oxenO53W.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/259/8/odorIX4b.webp)
