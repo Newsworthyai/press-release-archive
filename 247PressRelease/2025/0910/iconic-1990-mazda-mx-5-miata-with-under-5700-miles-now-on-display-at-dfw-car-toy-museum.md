@@ -1,0 +1,20 @@
+# Iconic 1990 Mazda MX-5 Miata with Under 5,700 Miles Now on Display at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, September 10, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is delighted to present a true automotive icon — a 1990 Mazda MX-5 Miata, now on display as part of the Ron Sturgeon Collection. With fewer than 5,700 original miles, this early-production NA Miata offers visitors a pristine example of one of the most beloved sports cars of all time.  Launched in 1989 for the 1990 model year, the original Miata rekindled the spirit of the classic British roadster with unmatched reliability and driving enjoyment. Lightweight, perfectly balanced, and endlessly engaging, the Miata quickly became a global phenomenon — and this meticulously preserved example highlights why.  Powered by a 1.6-liter DOHC inline-four, factory rated at 116 horsepower and 100 lb-ft of torque, the car sends power to the rear wheels via a five-speed manual transmission and an optional limited-slip differential — the ideal combination for spirited driving. Chrome exhaust tip, color-keyed bumpers and mirror caps, and signature pop-up headlights complete its classic profile.  Inside the cabin, period-correct features include a cassette stereo with headrest-integrated  speakers, and air conditioning upgraded to R134 refrigerant in 2021. A leather-wrapped steering wheel fronts a 140-mph speedometer, 8,000-rpm tachometer, and supporting gauges for fuel, oil pressure, and coolant temperature.  "The original Miata changed the sports car world forever — offering driving joy in its purest form," said Ron Sturgeon, owner of the DFW Car & Toy Museum. "Finding one with such remarkably low mileage and in this condition is extremely rare. We're proud to showcase this pristine example for our visitors to enjoy."  With over 200 collector cars and 3,000 vintage toys and artifacts, the DFW Car & Toy Museum invites enthusiasts of all ages to discover automotive history — from the rare and exotic to beloved favorites like the 1990 Mazda MX-5 Miata.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523756/iconic-1990-mazda-mx-5-miata-with-under-5700-miles-now-on-display-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pristine-1990-mazda-miata-with-under-5700-miles-displayed-at-dfw-museum/488374144aae0cb0a83e6ebcf156d181) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1nd8212/pristine_1990_mazda_miata_with_under_5700_miles/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/10/limeaMTC.webp)
