@@ -1,0 +1,20 @@
+# Calbee, a Global Leader in Snacks and Food Products, Acquires Majority Stake in Hodo, A Leading Tofu Producer in the U.S.
+
+OAKLAND, CA, September 11, 2025 /24-7PressRelease/ -- Hodo, Inc. ("Hodo"), a leading producer of organic tofu and sustainable plant proteins, announced today that Calbee, Inc. ("Calbee"), a global leader in snacks and food products, has acquired a majority stake in the company. The acquisition accelerates the growth of Calbee's international and Health and Food businesses.   As part of this venture, Sagamiya Foods Co., Ltd. ("Sagamiya"), a leading tofu manufacturer in Japan, has also acquired a minority stake in Hodo. Sagamiya will contribute technical support to further strengthen the venture's growth plans.  Headquartered in Oakland, California, Hodo has been at the forefront of tofu innovation, producing high-quality tofu and plant-powered proteins made with organic, non-GMO soybeans. Hodo's foods are protein-rich, packed with nutrients, and gluten-free. Hodo's commitment to exceptional taste and high-quality ingredients has earned the brand numerous accolades and widespread recognition among health-conscious consumers and Michelin-honored chefs across the U.S. Hodo supplies retail grocery outlets nationwide as well as food service partners like Chipotle.  The acquisition aligns with Calbee's strategic "Change 2025" transformation plan, focusing on expansion in the U.S. and strengthening its Health and Food business. "As demand for sustainable foods grows, tofu is increasingly valued by health-conscious consumers. With its high plant-based protein content and minimal processing, tofu is drawing particular attention in the U.S. market, where health and environmental concerns are driving growth. Our vision at Calbee is to build a global portfolio of foods that are enjoyable and meaningful. The addition of Hodo to the Calbee Group marks an important step in strengthening our Health and Food businesses as well as expanding our global presence," said Makoto Ehara, CEO, Calbee.  "Hodo's foods are protein-rich, packed with nutrients and made with high-quality ingredients. We blend tradition and innovation to create foods for consumers who are looking for healthier options but don't want to compromise on taste," shared Minh Tsai, Founder of Hodo. "We are excited for Calbee's vision and their commitment to offer better-for-you foods to consumers."  About Hodo, Inc. Hodo is an innovative, sustainable tofu and plant-based food company based in Oakland, California. Blending tradition and innovation, Hodo's protein-rich and nutrient dense foods are made with organic, non-GMO soybeans. Hodo is committed to crafting better-for-you foods that are always delicious. For more information, visit www.hodofoods.com.  About the Calbee Group Since 1949, Calbee has embraced its corporate philosophy of "harnessing nature's gifts, bringing taste and fun, and contributing to healthy lifestyles." As a company that provides essential goods, Calbee places sustainability at the core of its management approach, creating the future of food by solving social issues through its corporate activities. For more information, visit https://www.calbee.co.jp/en/.  Media Contact:  press@hodofoods.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526726/calbee-a-global-leader-in-snacks-and-food-products-acquires-majority-stake-in-hodo-a-leading-tofu-producer-in-the-us)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calbee-acquires-majority-stake-in-hodo-to-boost-plant-based-food-expansion/fb791cf03c0124f0bb9de45c91d72145) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1nenjz4/calbee_acquires_majority_stake_in_hodo_to_boost/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/11/oxenJ_mI.webp)
