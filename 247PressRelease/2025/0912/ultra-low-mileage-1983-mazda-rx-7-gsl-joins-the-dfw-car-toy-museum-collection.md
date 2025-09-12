@@ -1,0 +1,20 @@
+# Ultra-Low Mileage 1983 Mazda RX-7 GSL Joins the DFW Car &amp; Toy Museum Collection
+
+FORT WORTH, TX, September 12, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum proudly welcomes an exceptionally preserved 1983 Mazda RX-7 GSL to its growing lineup of iconic vehicles. Part of the Ron Sturgeon Collection, this stunning brown RX-7 GSL offers visitors a rare opportunity to view one of the finest examples of Mazda's celebrated rotary-powered sports car — with fewer than 4,000 original miles on the odometer.  Launched in 1978, the first-generation Mazda RX-7 captivated drivers with its lightweight chassis, timeless styling, and innovative rotary engine. The GSL trim, introduced in the early 1980s, further elevated the RX-7's appeal with premium equipment and enhanced performance.  At its heart is Mazda's legendary 1.1-liter 12A rotary engine, factory rated at 100 horsepower, paired with a five-speed manual transmission and limited-slip differential — delivering a thrilling and unique driving experience. Disc brakes at all four corners, included with the GSL package, provide confident stopping power.  This beautifully preserved example is equipped with signature pop-up headlights, a sunroof, electric windows, cruise control, air conditioning, and a factory cassette stereo complete with a graphic equalizer and balancer — state-of-the-art features for its time.  The driver-focused interior features a leather-wrapped steering wheel framing a central 7,000-rpm redline tachometer, a 130-mph speedometer, and auxiliary gauges. The five-digit odometer confirms its remarkable condition — showing just under 4,000 miles from new.  "The first-generation RX-7 captured the spirit of the true driver's car — light, agile, and endlessly fun," said Ron Sturgeon, owner of the DFW Car & Toy Museum. "Finding an original example with such incredibly low mileage is extraordinary. We are thrilled to share this gem with our visitors."  The 1983 Mazda RX-7 GSL is now on display among more than 200 collector vehicles and 3,000 vintage toys and memorabilia at the DFW Car & Toy Museum — a must-visit destination for automotive enthusiasts of all ages.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523760/ultra-low-mileage-1983-mazda-rx-7-gsl-joins-the-dfw-car-toy-museum-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/museum-acquires-rare-1983-mazda-rx-7-with-under-4000-miles/988f0d84670b0a466ae8f0be529874ab) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1newqxp/museum_acquires_rare_1983_mazda_rx7_with_under/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/12/ovalqgPo.webp)

@@ -1,0 +1,20 @@
+# eMAM's newest version release features a free on-prem AI Tool
+
+NEW YORK, NY, September 12, 2025 /24-7PressRelease/ -- EMAM will release the beta version of its eMAM™ newest version 6.0 at IBC 2025 held in the RAI Amsterdam Convention Centre, September 12-15, at stand 6.A20. eMAM Next is a new AI connector that will enrich untagged videos so that organizations can find the best media and moments without manual tagging. The new version will also have a new simple interface that will allow organizations to share media in the eMAM online media library with clients and stakeholders easily, without increasing licensing costs. The latest version also incorporates numerous improvements for workflows, new integrations, and new partners to create, manage, and share media from local, cloud, and hybrid environments.   David Miller, EMAM President, commented, "Facing security and cost concerns, organizations have been clamoring for fully on-premise AI options. We are so excited to roll out our first version of eMAM Next with a perpetual free license for all of our new customers for the rest of the year." The AI will leverage open-source LLMs and work on affordable HP Z2 workstations to provide speech-to-text, summarization, and title generation for organizations to use securely in their local infrastructure. Over time, EMAM will add new tools and features to eMAM Next.  The new "Client" web interface will provide a simplified way with WCAG 2.1 A and AA compliance for authorized non-technical users or external stakeholders to access the eMAM library without using the feature-rich "Director" interface. Users of the new Client interface will not need an EMAM user license, so eMAM customers will now have more flexibility and options for sharing their media.   eMAM offers a wide range of options and over 100 third-party integrated technology partners, enabling its customers to build and adapt powerful integrated workflows tailored to their particular needs. The new version also features: • Integration with Cutting Room for media creation and sharing • More integrations for media storage and archive • Tools for taking third-party information (metadata) to make the media easier to search and use • Orchestration options to allow third-party tools to unite processes between eMAM and any other tools and platforms • Editing improvements for raw camera media  • More options for sharing media on social media and other platforms.  • New channel partners to work with organizations in local markets worldwide.  About EMAM, Inc.  Since 2006, leading organizations have been using the eMAM platform to collaboratively create, share, and distribute media. The eMAM product line (eMAM Vault, eMAM Publish, eMAM Workgroup, eMAM Enterprise, eMAM Cloud Service, and eMAM Cloud Platform) meets the media asset management and workflow management needs of broadcast, media, government, and corporate organizations in local, hybrid, and cloud environments. With dozens of system integrators and over 100 technology partners, users can have automated, integrated workflows to work faster and wiser. EMAM, Inc. is a closely held Delaware C corporation headquartered in New York City.  Visit www.emamsolutions.com and www.emamcloud.com for more information. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526580/emams-newest-version-release-features-a-free-on-prem-ai-tool)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emam-launches-ai-powered-emam-6-0-with-free-on-premise-video-intelligence/605c4e8948373f2ff7bb2eb88529ed69) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1newtpi/emam_launches_aipowered_emam_60_with_free/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/12/even7DdT.webp)
