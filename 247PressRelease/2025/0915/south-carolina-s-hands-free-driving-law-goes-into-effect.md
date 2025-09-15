@@ -1,0 +1,20 @@
+# South Carolina's Hands-Free Driving Law Goes Into Effect
+
+CHARLESTON, SC, September 15, 2025 /24-7PressRelease/ -- Mount Pleasant, SC restaurant bar license lawyer Lauren Acquaviva keeps close tabs on changes the SC state legislature makes to vehicle operation laws, since these changes impact many of her clients. The state's changes to its texting-and-driving laws may lead to a crackdown on traffic stops.  South Carolina's new hands-free driving law went into effect September 1, 2025. The old law only prohibited texting while driving. Drivers were still permitted to hold a phone up to their ear to talk. The new law prohibits using mobile electronic devices while operating a motor vehicle in any situation, save an emergency.  Use of a phone, tablet, and other similar device is now limited in the following ways:  - Device cannot be held or supported in any manner, with any part of the body (earpieces and devices worn on the wrist and used for voice-based communications are exempt) - Watching motion, including videos and reels, games, movies, and video calls, is prohibited - Using a mobile device to compose, read, and transmit emails, texts, website information, or otherwise interact with an app is prohibited  Per South Carolina law, a mobile device is defined as "a cellular telephone, portable computer, GPS receiver, electronic game, or any substantially similar [device]." Radios, such as commercial two-way radios, functional equivalents, emergency communication devices, citizens' band or "ham" radios, and prescribed medical devices, are not considered mobile electronic devices in this context.  Drivers can initiate voice-based communication that is automatically converted to text by the device and sent as a text to a recipient, as long as they are not holding the device or otherwise supporting it with a part of their body.  South Carolina's new texting and driving law does not apply if the driver is legally stopped or parked.  Drivers are permitted to use the services or equipment installed in their vehicle by the original manufacturer (no after-market devices are listed as being permitted).  Drivers may use a mobile electronic device, as long as they are not holding or supporting it, or typing into it for:  - Navigation and obtaining traffic and road condition information - Listening to audio-based content - Initiating or ending a phone call  Drivers have 180 days to get used to the new law before penalties for violations will go into effect; for the first 180 days after the law takes effect, South Carolina police officers and highway patrol will only issue warnings. However, it's critical to take these warnings seriously, as violation of the law could result in heavy fines and points on your driver's license.  About Viva Beverage Law  Viva Beverage Law provides legal support and advocacy for businesses engaging in on-premise and off-premise consumption and sale of alcoholic beverages, as well as businesses engaged in the manufacture and distribution of alcoholic beverages in the state. Led by attorney and founder Lauren Acquaviva, the firm assists with all matters related to licensing and the South Carolina Department of Revenue (SCDOR) and Alcohol and Tobacco Tax and Trade Bureau (TTB). Our attorney also represents people who have had their license suspended or revoked. We are currently accepting new clients; you can contact us online using our secure online contact form. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526771/south-carolinas-hands-free-driving-law-goes-into-effect)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-carolina-enacts-strict-hands-free-driving-law-with-180-day-grace-period/d6ef9e31202732cec607580c6bdb2eb3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1nhfeu3/south_carolina_enacts_strict_handsfree_driving/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/15/gulfnnJJ.webp)

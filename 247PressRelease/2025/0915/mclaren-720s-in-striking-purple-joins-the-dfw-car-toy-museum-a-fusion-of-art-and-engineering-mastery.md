@@ -1,0 +1,20 @@
+# McLaren 720S in Striking Purple Joins the DFW Car &amp; Toy Museum — A Fusion of Art and Engineering Mastery
+
+FORT WORTH, TX, September 15, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to showcase one of the most innovative supercars of the modern era: the 2020 McLaren 720S, finished in a stunning shade of purple. Part of the renowned Ron Sturgeon Collection, this vehicle exemplifies McLaren's relentless pursuit of performance, beauty, and cutting-edge engineering.  The McLaren 720S is more than just a car — it is an experience designed to push the boundaries of what is possible in automotive design and performance. With a carbon-fiber Monocage II chassis replacing the traditional metal roof structure, the 720S achieves unparalleled strength and lightness, enhancing both its agility and its aerodynamic profile.  At its heart lies the M840T engine — a 4.0-liter twin-turbocharged V8 featuring twin-scroll turbochargers and 16 injectors — which delivers blistering acceleration and a dynamic driving experience that redefines expectations in the supercar segment.  Visually, the 720S strikes a perfect balance between sculptural beauty and raw power. Its sleek, aerodynamic lines represent the next evolution of McLaren's modern design philosophy while remaining true to the brand's commitment to functional simplicity.  "The McLaren 720S is a remarkable blend of technology and artistry," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's a car that not only performs at the highest level but also stirs the soul with its design and presence. We are thrilled to offer visitors the opportunity to experience this masterpiece up close."  The addition of the 2020 McLaren 720S enhances the museum's ever-growing collection of rare and historically significant vehicles. As always, admission to the museum is free, inviting car enthusiasts, collectors, and families to explore an extraordinary range of automotive excellence.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523789/mclaren-720s-in-striking-purple-joins-the-dfw-car-toy-museum-a-fusion-of-art-and-engineering-mastery)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-museum-unveils-stunning-purple-mclaren-720s-supercar/7ef2aa5263656b817eeac416e6c1b92d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1nhfey2/dfw_museum_unveils_stunning_purple_mclaren_720s/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/15/knotCp9C.webp)
