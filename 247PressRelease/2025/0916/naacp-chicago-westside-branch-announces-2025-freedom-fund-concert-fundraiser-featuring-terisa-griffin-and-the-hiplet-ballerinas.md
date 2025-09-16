@@ -1,0 +1,20 @@
+# NAACP–Chicago Westside Branch Announces 2025 Freedom Fund Concert Fundraiser Featuring Terisa Griffin and the Hiplet Ballerinas
+
+CHICAGO, IL, September 16, 2025 /24-7PressRelease/ -- The NAACP–Chicago Westside Branch is proud to announce its highly anticipated 2025 Freedom Fund Concert Fundraiser, taking place on Saturday, September 20, 2025, at the beautiful Kehrein Center for the Arts, located at 5628 West Washington Blvd, Chicago, IL 60644.  This year's event marks the Branch's first Freedom Fund celebration in seven years and promises to be an unforgettable evening of music, purpose, and unity—with a show-stopping headline performance by the incomparable Terisa Griffin and a special performance by the world-renowned Hiplet Ballerinas. Known for her powerful voice and soulful presence, Griffin will bring the house down as attendees gather in support of civil rights, economic justice, and the continued fight for equity on Chicago's West Side.  Under the theme "The Fierce Urgency of Now: Reignite! Rebuild! Recommit!" the 2025 Freedom Fund Concert serves as a powerful call to action. Funds raised will directly support the NAACP Chicago Westside Branch's year-round programs and advocacy efforts in housing, education, economic development, criminal justice reform, and more. We are witnessing unprecedented rollbacks in funding, civil rights, and policies that directly impact our communities—the need for strong advocacy and action has never been more urgent.  EVENT DETAILS • Date: Saturday, September 20, 2025 • VIP Reception: 5:30 PM – 6:30 PM • Doors Open: 6:30 PM • Concert Begins: 8:00 PM • Venue: Kehrein Center for the Arts (KCA), 5628 West Washington Blvd, Chicago, IL 60644 • Valet Parking: Available onsite for $15 • FREE Shuttle Service: Attendees may park at the CPD 15th District Parking Lot at 5701 W. Madison St., Chicago, IL 60644, and the shuttle will take guests directly to the front entrance of the Kehrein Center for the Arts before and after the concert.  TICKETS AVAILABLE • VIP Tickets: $125 – Includes access to the VIP Pre-Reception (5:30–6:30 PM), premium concert seating, and event recognition. • General Admission Tickets: $50 – Doors open at 6:30 PM with general concert seating. Tickets are available now at: www.cwbnaacp.org  HONOREES • Vera G. Davis — Recipient of the NAACP Chicago Westside Branch President's Award for her decades of exceptional leadership and unwavering commitment to civil rights and social justice. • Nathaniel Gaither — Restorative Justice Hub Director, Lawndale Christian Legal Center, honored for his outstanding contributions to youth empowerment and leadership development. • Angela Taylor — Wellness Director, Garfield Park Community Council, honored for her dedicated service and community advocacy. • Schanel "Princess" Shaw — Founder & President, Light Up Lawndale, honored for her inspiring community leadership and creative impact on the West Side.  "This concert is more than a fundraiser—it's a rallying cry for justice, unity, and Westside revitalization," said Sacella M. Smith, Co-Chair of the Freedom Fund Concert Committee. "We invite all Chicagoans to join us for an evening that uplifts the spirit and strengthens our collective voice." 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526828/naacpchicago-westside-branch-announces-2025-freedom-fund-concert-fundraiser-featuring-terisa-griffin-and-the-hiplet-ballerinas)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/naacp-chicago-westside-revives-freedom-fund-concert-after-7-years/f64f4380b31f26544bc3491c1285a450) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1niazfj/naacp_chicago_westside_revives_freedom_fund/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/16/lily6Dbx.webp)
