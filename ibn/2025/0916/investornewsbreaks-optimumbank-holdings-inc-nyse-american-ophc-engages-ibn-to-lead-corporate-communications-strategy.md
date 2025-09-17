@@ -26,17 +26,17 @@ OptimumBank Holdings (NYSE American: OPHC), the parent of OptimumBank, a Fort La
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-optimumbank-holdings-inc-nyse-american-ophc-engages-ibn-to-lead-corporate-communications-strategy/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-optimumbank-holdings-inc-nyse-american-ophc-engages-ibn-to-lead-corporate-communications-strategy-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/optimumbank-partners-with-ibn-to-boost-communications-and-growth/550471898b0fd10873bfdc2c30c49297) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/optimumbank-taps-ibn-for-strategic-communications-boost/329ee6f54623002e885af5b891ff80ca) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1niitpk/optimumbank_partners_with_ibn_to_boost/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1nis5ij/optimumbank_taps_ibn_for_strategic_communications/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/16/pinkCHhr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/16/icy3_r8.webp)
