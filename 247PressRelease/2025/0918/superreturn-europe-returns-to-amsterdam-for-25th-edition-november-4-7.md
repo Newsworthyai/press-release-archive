@@ -1,0 +1,20 @@
+# SuperReturn Europe Returns to Amsterdam for 25th Edition, November 4-7
+
+LONDON, ENGLAND, September 18, 2025 /24-7PressRelease/ -- SuperReturn, the world's leading series of private capital events, will host its annual SuperReturn Europe conference in Amsterdam. The event, which will take place at Hotel Okura in the heart of Amsterdam between 4-7 November 2025, is expected to attract over 1,500 attendees including 500 LPs from 50+ countries with a combined $10 trillion in assets under management.  Over the last 25 years, SuperReturn Europe has become the must-attend meeting place for LPs, GPs, and global investment leaders from the region and beyond looking to unlock insights, forge connections, and explore opportunities within European private markets. With Europe a growth destination for private markets, this year's event will cover some of the hottest topics shaping the continent's private capital ecosystem, including the mid-market, private wealth, emerging managers, AI, evergreen funds and independent deal sponsors.   Among the industry heavyweights and thought leaders speaking at this year's conference is world champion boxer, Anthony Joshua OBE, who will be giving a keynote address. In addition to a professional record of 28 wins, the two-time Heavyweight World Champion has built a business portfolio spanning athlete management, marketing, merchandise, property, investment and philanthropy.  Other leading industry voices scheduled to speak at SuperReturn Europe include: • Marie-Victoire Rozé, Deputy Co-Head Secondaries & Primaries, Senior Managing Director and Member of the ASF Management Committee, Ardian • Nik Morandi, Senior Managing Director & Head of Strategic Partners, Europe, Blackstone • Véronique Fournier, Head of EMEA, Global Wealth Management Solutions, Apollo • Kim Pochon, Global Head of Primary Investments, Unigestion • Cem Meric, Partner, LGT Capital Partners • Louise Boothby, Partner, CVC Secondary Partners • Nicola Falcinelli, Deputy Head of European Private Credit, Carlyle • Sjoerd Aarts, Managing Partner & Head of Benelux, Main Capital Partners • James Almond, Managing Partner, Duke Street  Dorothy Kelso, Managing Director of SuperReturn, said: "Now in its 25th year, SuperReturn Europe has never been more relevant. Europe is firmly established as a growth destination for private capital, driven by rising demand, relative stability, innovation, new deal structures, and a wealth of mid-market opportunities. This year's event is the definitive meeting point for anyone looking to exchange ideas, network, and raise or deploy capital in the market today."  Co-located with the main event, SuperReturn Family Office Europe will deliver an in-depth focus on the distinctive opportunities and challenges facing family office investors in European private markets.  For more information and to reserve your place visit the SuperReturn Europe website here.  About SuperReturn Europe SuperReturn Europe is the largest networking event for private capital leaders focused on Europe and part of the SuperReturn series of leading private equity events which take place across the world.   The four-day conference will bring together more than 1,500 of the industry's leading professionals from across the world to network and discuss current trends and the growing opportunities in Europe's private markets. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526891/superreturn-europe-returns-to-amsterdam-for-25th-edition-november-4-7)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-europe-2025-10t-private-capital-leaders-gather-in-amsterdam/ef26544b94e37c15d621495492d2701c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1nk1ug9/superreturn_europe_2025_10t_private_capital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/18/xenowHwa.webp)
