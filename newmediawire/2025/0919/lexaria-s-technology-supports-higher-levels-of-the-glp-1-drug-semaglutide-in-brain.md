@@ -1,0 +1,58 @@
+# Lexaria's Technology Supports Higher Levels of the GLP-1 Drug Semaglutide in Brain
+
+Enhanced Brain Biodistribution of GLP-1 Drugs May Be Related to Improvements in Safety and Efficacy
+
+ KELOWNA, BRITISH COLUMBIA - September 19, 2025 (NEWMEDIAWIRE) - Lexaria Bioscience Corp. (Nasdaq: LEXX, LEXXW) (the “Company” or “Lexaria”), a global innovator in drug delivery platforms, is pleased to announce successful results from its fluorescently tagged semaglutide (“FTS”) rodent biodistribution study (the “Study”).
+
+ The main goal of the Study was to determine whether the DehydraTECH processing of semaglutide improves its biodistribution in any significant way as compared to the conventional orally administered semaglutide formulation practice.
+
+ The most intriguing finding from the Study was that Lexaria’s DehydraTECH-FTS composition, across all doses tested (asterisked below), demonstrated a predominantly higher apparent trend in brain biodistribution (evidenced as fluorescent signal intensity upon whole brain imaging) than the Rybelsus® equivalent composition and all Study controls. In fact, the 5mg DehydraTECH-FTS composition achieved higher brain semaglutide fluorescent signal intensity than the 15mg Rybelsus® equivalent composition.
+
+ Following the whole-organ imaging, the brain was further sectioned via sagittal slices (2-3mm thickness) into two and then four pieces to better visualize the brain regions that semaglutide is known to interact with. These key regions of interest were the brainstem, known for direct semaglutide interaction; the paraventricular nucleus of the hypothalamus, involved in energy homeostasis; and the circumventricular organs, which lack a blood-brain barrier, such as the area postrema, subfornical organ, and median eminence. Upon doing so, it was noteworthy that all three DehydraTECH doses tested displayed fluorescence above that of the naïve and vehicle groups, while only the highest dosage (15mg/kg) of the Rybelsus equivalent composition surpassed the naïve and vehicle groups.
+
+ “Lexaria has repeatedly evidenced higher brain levels upon gross necropsy in rodent studies with other DehydraTECH-processed active ingredients in the past that demonstrated superior safety and efficacy over controls,” said John Docherty, Lexaria President and CSO. “We are delighted to now see early evidence of this through more detailed fluorescent imaging with DehydraTECH-semaglutide which may, in turn, help to explain the performance benefits in safety and efficacy we have witnessed in our related human clinical testing to-date.”
+
+ GLP-1 drug performance is increasingly understood to include or even depend upon involvement of brain neurochemistry, thus making brain biodistribution vital. Semaglutide has been shown to regulate body weight through direct and indirect activation of GLP-1 receptors (“GLP-1Rs”) on several independent brain nuclei, affecting the activity of neuronal pathways involved in food intake, reward, and energy expenditure. Furthermore, studies in rodents have suggested that GLP-1 analogs can act upon brain to suppress appetite without causing nausea, which is otherwise known to be among the most common side effects of today’s GLP-1 therapies. In this context, Lexaria’s discovery of an apparent trend toward enhanced semaglutide brain biodistribution using its DehydraTECH technology could be impactful on the both the safety and efficacy performance of current and next generation GLP-1 drugs.
+
+ Findings from the Study suggest that the Lexaria DehydraTECH-FTS composition – absent all of the Rybelsus® equivalent composition excipients – may enable unique delivery and distribution enhancements in brain tissue possibly supporting improved pharmacodynamic performance. In addition, and perhaps to be determined through future testing, it is conceivable that complementary biodistribution benefits might be derived through utilization of a similar DehydraTECH semaglutide composition combined with the Rybelsus® excipients, recognizing that marked safety and efficacy improvements were evidenced with DehydraTECH-processed Rybelsus® over Rybelsus® alone in Lexaria’s previous human pilot studies GLP-1-H24-1 and GLP-1-H24-2.
+
+ Lexaria considers these early-stage results to be highly encouraging and supportive of both additional research and of industry partnerships designed to produce the safest and most effective GLP-1 drugs on the market.
+
+ About the Study
+
+ This preclinical pilot Study was designed to evaluate the biodistribution of oral semaglutide, formulated using either DehydraTECH or a Rybelsus® equivalent composition in Sprague Dawley rats using non-invasive whole-body imaging and ex vivo organ analysis. The Rybelsus® equivalent composition was created by Lexaria strictly for these research purposes, with ingredients believed to be in the correct proportions used within the Rybelsus® orally-administered product sold by Novo Nordisk® today, without DehydraTECH processing. The Study involved single oral gavage dosing of the two formulations across multiple groups of rats, followed by a series of imaging time points across the different study procedures, up to 24 hours post-dosing.
+
+ The semaglutide utilized to create the FTS integrated into the test articles studied was tagged with a cyanine 7 fluorophore to enable visualization. Cyanine 7 was chosen for its excitation wavelength in the near-infrared region, allowing for deeper tissue penetration and minimal tissue autofluorescence, resulting in a lower background signal for emission measurements. Tissue collection for ex vivo imaging and further analysis, including histopathological evaluation and immunofluorescence assays, was performed to provide critical insights into the localization and distribution of semaglutide. Fluorescence signal was quantified in terms of total radiant efficiency, calculated by the in vivo imaging system imaging software, Living Image®.
+
+ FTS was tracked via fluorescent imaging detection to evidence how and where semaglutide distributed and localized following oral ingestion by the rats. Various key tissues known to express the GLP-1R were examined including the brain, pancreas, lung, kidney, liver, and heart. These tissues were subjected to detailed fluorescent imaging detection exams which showed more specific tissue localization patterns and concentrations.
+
+ A total of twenty-five (n=25) male Sprague Dawley rats were used in the Study, with 22 rats allocated for dosing in groups of 2-3 rats randomly assigned per formulated test article examined, and 3 additional animals designated as naïve (i.e., untreated) control. The test articles examined included vehicle formulations for both the DehydraTECH and Rybelsus® equivalent compositions, essentially serving as placebo compositions containing the respective inactive excipient ingredients but devoid of any semaglutide incorporation.
+
+ The Study was performed by an independent animal research facility specialized in pharmacokinetic evaluations. All conclusions regarding the ex vivo whole-organ imaging were made in a qualitative manner, based on visual comparisons of the images and graphs. Due to the limited size of this pilot Study, no statistical analyses or interpretations were performed.
+
+ About Lexaria Bioscience Corp. & DehydraTECH
+
+ DehydraTECH™ is Lexaria’s patented drug delivery formulation and processing platform technology which improves the way a wide variety of drugs enter the bloodstream, always through oral delivery. DehydraTECH has repeatedly evidenced the ability to increase bio-absorption, reduce side effects, and deliver some drugs more effectively across the blood brain barrier. Lexaria operates a licensed in-house research laboratory and holds a robust intellectual property portfolio with 50 patents granted and additional patents pending worldwide. For more information, please visit www.lexariabioscience.com.
+
+ CAUTION REGARDING FORWARD-LOOKING STATEMENTS
+
+ This press release includes forward-looking statements. Statements as such term is defined under applicable securities laws. These statements may be identified by words such as "anticipate," "if," "believe," "plan," "estimate," "expect," "intend," "may," "could," "should," "will," and other similar expressions. Such forward-looking statements in this press release include, but are not limited to, statements by the Company relating to the Company’s ability to carry out research initiatives, receive regulatory approvals or grants or experience positive effects or results from any research or study. Such forward-looking statements are estimates reflecting the Company's best judgment based upon current information and involve a number of risks and uncertainties, and there can be no assurance that the Company will actually achieve the plans, intentions, or expectations disclosed in these forward-looking statements. As such, you should not place undue reliance on these forward-looking statements. Factors which could cause actual results to differ materially from those estimated by the Company include, but are not limited to, government regulation and regulatory approvals, managing and maintaining growth, the effect of adverse publicity, litigation, competition, scientific discovery, the patent application and approval process, potential adverse effects arising from the testing or use of products utilizing the DehydraTECH technology, the Company’s ability to maintain existing collaborations and realize the benefits thereof, delays or cancellations of planned R&D that could occur related to pandemics or for other reasons, and other factors which may be identified from time to time in the Company's public announcements and periodic filings with the US Securities and Exchange Commission on EDGAR. The Company provides links to third-party websites only as a courtesy to readers and disclaims any responsibility for the thoroughness, accuracy or timeliness of information at third-party websites. There is no assurance that any of Lexaria’s postulated uses, benefits, or advantages for the patented and patent-pending technology will in fact be realized in any manner or in any part. No statement herein has been evaluated by the Food and Drug Administration (FDA). Lexaria-associated products are not intended to diagnose, treat, cure or prevent any disease. Any forward-looking statements contained in this release speak only as of the date hereof, and the Company expressly disclaims any obligation to update any forward-looking statements or links to third-party websites contained herein, whether as a result of any new information, future events, changed circumstances or otherwise, except as otherwise required by law.
+
+ INVESTOR CONTACT:George Jurcic - Head of Investor Relationsir@lexariabioscience.comPhone: 250-765-6424, ext 202 
+
+---
+
+[Original/Source Press Release](https://www.newmediawire.com/news/lexaria-s-technology-supports-higher-levels-of-the-glp-1-drug-semaglutide-in-brain-7082812)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-s-tech-boosts-brain-delivery-of-glp-1-drugs-enhancing-safety-efficacy/0757b71c2c92971209ac0230cb36d113) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1nl290a/lexarias_tech_boosts_brain_delivery_of_glp1_drugs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/259/19/gleeY6oa.webp)
