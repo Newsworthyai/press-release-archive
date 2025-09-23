@@ -1,0 +1,20 @@
+# Central California Blood Center, Cayenne Wellness Center and B Awesum Hosts Blood Drive in Honor of Sickle Cell Awareness Month
+
+FRESNO, CA, September 23, 2025 /24-7PressRelease/ -- Every two seconds, someone in the United States needs blood. For people living with sickle cell disease, the need is even more urgent—many rely on regular transfusions to manage complications and improve quality of life. Yet, less than 5% of eligible Americans donate blood each year, creating a constant shortage for patients who depend on it most. In recognition of Sickle Cell Awareness Month, the following partners are coming together to host a   Community Blood Drive: Central California Blood Center Cayenne Wellness Center  B Awesum  River Park – Art Groove Gallery Fresno Metro Black Chamber of Commerce  Event Details: Date: Thursday, September 25, 2025 Time: 4:00 p.m. – 7:00 p.m. Location: River Park's Art Groove Event Center 80 E. Via Del Oro, Fresno, CA 93720  This collaboration highlights a critical need: patients with sickle cell disease often require frequent transfusions, and the best matches typically come from African American donors. "Blood donation is a simple way to make a lifesaving difference," said Shanti Johnson-Harris, Community Health Worker for Cayenne Wellness Center in Central California. "For sickle cell warriors, a single donation can mean fewer hospital visits, better health outcomes, and the priceless gift of hope."   Melanie Glass, CEO and Founder of B Awesum stated, "From personal experience, I know the powerful impact that awareness can create. B AWESUM's participation in the BLOOD DRIVE for SICKLE CELL DISEASE is not only about giving back-it's about shining light on a cause that saves lives and strengthens our community"  Call to Action: We invite the Fresno community to roll up their sleeves and take part in this life-saving mission. Whether you donate blood or help spread the word, your contribution will directly support sickle cell warriors in need. Be a hero—join us on September 25 and stand with families impacted by sickle cell disease.  Social Media Toolkit: Help amplify the message! Use the sample posts from our Sickle Cell Awareness Toolkit below to encourage others to participate: Facebook/LinkedIn: "Join us Sept. 25 at River Park's Art Groove Event Center for a community blood drive in honor of Sickle Cell Awareness Month. Your donation could save a life. #SickleCellAwareness #DonateBlood #Fresno" Twitter/X: "Sept. 25 | Fresno: Donate blood at River Park's Art Groove Event Center. Every donation helps sickle cell warriors. #SickleCellAwareness #DonateBlood" Instagram: Share a photo of yourself giving blood or wearing red and caption it: "I'm donating blood to honor sickle cell warriors. Join me Sept. 25 at River Park. #DonateBlood #SickleCellAwareness"  Cayenne Wellness Center and Children's Foundation Cayenne Wellness Center is a 501(c)(3) nonprofit organization established in 2000 and dedicated to improving the quality of life for individuals living with sickle cell disease in California. The organization provides expert, unbiased, and comprehensive care while promoting education, advocacy, and awareness for healthcare providers, patients, and the wider community. With a strong grassroots network and a commitment to equity, Cayenne Wellness continues to be a trusted leader in advancing sickle cell support and resources. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526993/central-california-blood-center-cayenne-wellness-center-and-b-awesum-hosts-blood-drive-in-honor-of-sickle-cell-awareness-month)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fresno-partners-host-sickle-cell-blood-drive-to-address-critical-shortage/c67d66dd354d921a8c6652ebaf82d8bc) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1nob1bq/fresno_partners_host_sickle_cell_blood_drive_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/23/wamc9MCt.webp)

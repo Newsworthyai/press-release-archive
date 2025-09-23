@@ -1,0 +1,20 @@
+# NATIONAL BLUES MUSEUM PRESENTS TWO-TIME GRAMMY NOMINEE MARTHA WASH WITH LIFETIME ACHIEVEMENT AWARD
+
+NEW YORK, NY, September 23, 2025 /24-7PressRelease/ -- On Saturday, October 4, 2025, the National Blues Museum in St. Louis, Missouri, will present two-time Grammy nominee Martha Wash with the Lifetime Achievement Award. Wash will also perform live in the Museum's Legends Room at 3 PM.  Martha Wash is a two-time Grammy-nominated powerhouse whose voice has shaped pop, R&B, and dance music for over four decades. She first rose to prominence as half of the duo Two Tons O' Fun, providing unforgettable backing vocals for disco legend Sylvester before stepping into the spotlight themselves. Renamed The Weather Girls, they released the platinum-selling anthem "It's Raining Men" in 1982, which remains a cultural touchstone and global dancefloor staple.  Wash's voice quickly became one of the most in-demand in popular music. She powered the lead vocals on hits by Black Box ("Everybody Everybody" – Platinum) and C+C Music Factory ("Gonna Make You Sweat (Everybody Dance Now)" – 5× Platinum), both of which became international smashes.  In many music videos and live performances, other performers lip-synced to Wash's vocals without credit. Rather than letting this injustice go unnoticed, Wash fought tirelessly for recognition, setting an example for artists everywhere and helping to change the industry standard for proper crediting of vocalists and musicians alike.  Her determination and resilience not only solidified her place in music history but also made her a voice for fairness in the industry. Wash turned personal challenges into advocacy, reminding the world that behind every song are the artists whose voices create its power.  Beyond her iconic hits, Wash has remained a dynamic force in music and culture. Her solo work has produced beloved club anthems, while her collaborations span genres, from house to gospel.  Her influence continues into the present. Rolling Stone Magazine hailed her album Love & Conflict as a milestone in her career, spotlighting the single "Never Enough Money" as a "stomping, rough-around-the-edges blues-rocker anchored by a righteous vocal performance from Wash, who skewers reckless and unchecked thirst for wealth and attention." The outlet also noted the album marked a departure into a "fascinating hybrid of blues-rock and R&B/jazz." The album has been hailed as a milestone in her career, showcasing her continued relevance and creative evolution.  "I'm truly honored, darlin', to receive this recognition from the National Blues Museum for both my long career and my latest album, Love & Conflict," says Wash. "Music has always been about more than performance for me — it's about its power to bring people together, to heal, and to inspire. I'm proud to share in the legacy this award represents, and grateful to everyone who has supported me on this journey."  National Blues Museum Executive Director Robert Nelson says, "Martha Wash's voice is one of the most distinctive and electrifying in modern music. Her artistry transcends genres and generations, and we are proud to celebrate her lasting contributions with this award."  Cementing her legacy as one of the greatest voices in popular music, Wash continues to inspire with her artistry, resilience, and advocacy. Whether belting out a dance classic or delivering raw new material, her voice remains an instrument of truth, joy, and empowerment. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/526995/national-blues-museum-presents-two-time-grammy-nominee-martha-wash-with-lifetime-achievement-award)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martha-wash-receives-lifetime-achievement-award-from-national-blues-museum/f37579c1958292371b12378976223299) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1nob1ag/martha_wash_receives_lifetime_achievement_award/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/23/roamt42F.webp)
