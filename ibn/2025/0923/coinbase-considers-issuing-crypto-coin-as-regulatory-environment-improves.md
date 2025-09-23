@@ -6,33 +6,41 @@ Coinbase is considering issuing a token for Base, its Ethereum layer-2 network, 
 
  Read More>>
 
- About BillionDollarClub
+ About CryptoCurrencyWire
 
- BillionDollarClub (“BDC”) is a specialized communications platform with a focus on the biggest and brightest companies covered by IBN. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BDC is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, BDC brings its clients unparalleled recognition and brand awareness.
+ CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
 
- BDC is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from BillionDollarClub, text “Billion” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CryptoCurrencyWire.com
 
- For more information, please visit https://www.BillionDollarClub.com
+ Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the BillionDollarClub website applicable to all content provided by BDC, wherever published or re-published: https://www.BillionDollarClub.com/Disclaimer
+ CryptoCurrencyWireNew York, NYwww.CryptoCurrencyWire.com212.994.9818 OfficeEditor@CryptoCurrencyWire.com
 
- BillionDollarClubLos Angeles, CAwww.BillionDollarClub.com310.299.1717 OfficeEditor@BillionDollarClub.com 
+ CryptoCurrencyWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/coinbase-considers-issuing-crypto-coin-as-regulatory-environment-improves/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/coinbase-considers-issuing-crypto-coin-as-regulatory-environment-improves/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/coinbase-considers-base-token-after-earlier-rejection/68d63af5dabbb830c22197d03df66a0f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinbase-reverses-course-considers-launching-base-token/d5f24ed5f9e25eff840bd071e9fbfb93) 
 
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202509/218471-faq-coinbase-s-potential-base-token-issuance-and-regulatory-environment)
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202509/218537-coinbase-explores-base-network-token-issuance-as-regulatory-climate-shifts)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202509/218547-coinbase-evalua-emitir-token-para-base-en-medio-de-mejoras-regulatorias)
+
+Pickup - [https://goinvest.com/ibn-faqstaq](https://goinvest.com/ibn-faqstaq/202509/218498-faq-coinbase-s-potential-base-network-token-issuance)
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1nohi6z/coinbase_considers_base_token_after_earlier/) 
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1nonmnd/coinbase_reverses_course_considers_launching_base/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/23/taro0R9E.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/23/glowQ7pP.webp)
