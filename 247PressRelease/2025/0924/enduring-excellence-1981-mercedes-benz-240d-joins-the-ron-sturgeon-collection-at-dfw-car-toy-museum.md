@@ -1,0 +1,20 @@
+# Enduring Excellence: 1981 Mercedes-Benz 240D Joins the Ron Sturgeon Collection at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, September 24, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum proudly welcomes a true icon of automotive reliability to the Ron Sturgeon Collection: the 1981 Mercedes-Benz 240D. As part of the renowned W123 chassis series, the 240D built its reputation on unmatched longevity, engineering precision, and timeless Mercedes-Benz styling—earning its place as a global favorite among diesel sedans.  This well-preserved example is powered by a 2.4-liter OM616 diesel inline-four, factory rated at 67 horsepower and 97 lb-ft of torque. Paired with a four-speed automatic transmission, the 240D may not have been a speedster, but it became famous for outlasting just about everything else on the road. Stopping power comes from disc brakes on all four corners, rounding out a mechanical package engineered for endurance.  Inside, the cabin is appointed with durable Sienna MB-Tex upholstery, featuring front bucket seats, a rear bench, and minimalist 1980s comforts. Classic analog gauges include a 100-mph speedometer, coolant temperature, oil pressure, and fuel level indicators—alongside an analog clock and aftermarket stereo. True to its utilitarian luxury ethos, the model includes hand-crank windows, a heater, and a locking glove box.  According to documentation, the car's speedometer was replaced in 1996 at around 50,000 miles. The replacement odometer currently reads 61,000 miles, offering a glimpse into this vehicle's long, well-documented journey.  "The 240D may not scream luxury, but it defines it in terms of quality, dependability, and understated confidence," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's the kind of car you grow to admire not just for what it is—but for how long it lasts."  The 1981 Mercedes-Benz 240D is now on display as part of the museum's ever-growing collection of over 200 classic vehicles and 3,000 vintage toys and collectibles.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523890/enduring-excellence-1981-mercedes-benz-240d-joins-the-ron-sturgeon-collection-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-museum-adds-iconic-1981-mercedes-240d-to-ron-sturgeon-collection/f23f3c20fcfe719eeebc191313f7d7f6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1np66wv/dfw_museum_adds_iconic_1981_mercedes_240d_to_ron/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/24/tintXmQ6.webp)
