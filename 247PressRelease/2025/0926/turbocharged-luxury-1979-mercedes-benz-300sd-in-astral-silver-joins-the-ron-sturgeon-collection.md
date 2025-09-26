@@ -1,0 +1,20 @@
+# Turbocharged Luxury: 1979 Mercedes-Benz 300SD in Astral Silver Joins the Ron Sturgeon Collection
+
+FORT WORTH, TX, September 26, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is excited to announce the addition of a 1979 Mercedes-Benz 300SD to the Ron Sturgeon Collection. A trailblazer in its time, the 300SD was the world's first production turbocharged diesel sedan, delivering remarkable efficiency, engineering innovation, and executive-level comfort that redefined expectations for luxury cars.  Originally finished in Astral Silver Metallic, this example was repainted in the early 2000s and now sports subtle European-spec touches including quad headlights and streamlined bumpers. A sunroof, dual side mirrors, and a power antenna round out the refined exterior, while the pitting chrome on the right-front door handle tells a small part of this car's well-traveled story.  Under the hood lies the 3.0-liter OM617A turbo diesel inline-five engine, factory rated at 110 horsepower and 168 lb-ft of torque. Power is sent to the rear wheels through a four-speed automatic transmission. This powertrain—famed for its bulletproof durability—helped usher in an era where diesel engines were no longer just for trucks or taxis. This particular vehicle has over 212,000 miles on the odometer, a testament to the reliability of the 300SD's engineering.  The car's suspension has been upgraded with Bilstein shock absorbers, and stopping power is handled by power-assisted ventilated front and solid rear disc brakes. Inside, classic amenities include a Becker Grand Prix stereo, automatic climate control, cruise control, power locks and windows, and a tasteful mix of analog instrumentation and ergonomic German design.  "The 300SD was a luxury pioneer, proving that diesel could be both elegant and efficient," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's a car built to go the distance, and it represents an important chapter in Mercedes-Benz's legacy."  This 1979 Mercedes-Benz 300SD is now on display alongside over 200 rare and exotic cars and 3,000 vintage toys and collectibles within the museum's extensive collection.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523892/turbocharged-luxury-1979-mercedes-benz-300sd-in-astral-silver-joins-the-ron-sturgeon-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-museum-adds-historic-1979-mercedes-300sd-turbo-diesel-to-collection/80321e5289efca1e78b44010d3607c9c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1nqv4c3/dfw_museum_adds_historic_1979_mercedes_300sd/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/26/evenEssz.webp)

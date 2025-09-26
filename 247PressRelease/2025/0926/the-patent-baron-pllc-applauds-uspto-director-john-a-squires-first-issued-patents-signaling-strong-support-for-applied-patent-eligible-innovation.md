@@ -1,0 +1,20 @@
+# The Patent Baron PLLC Applauds USPTO Director John A. Squires' First Issued Patents, Signaling Strong Support for Applied, Patent‑Eligible Innovation
+
+HOWELL, MI, September 26, 2025 /24-7PressRelease/ -- The Patent Baron PLLC today welcomed the early actions of newly sworn‑in U.S. Patent and Trademark Office (USPTO) Director John A. Squires, who on his first full day in office signed the first patents of his tenure, including one in distributed‑ledger/crypto technologies and another in medical diagnostics. The dual issuances underscore a pro‑innovation posture toward applied, real‑world technologies that frequently face questions about patent eligibility.  "For our clients building in AI, blockchain/fintech, diagnostics, advanced manufacturing, and beyond, this is a clear green light: file, claim it correctly, and move," said J. Baron Lesperance, founder of The Patent Baron PLLC. "We read Director Squires' opening‑day actions as both symbolic and practical - a signal that the Office intends to back patent‑eligible, applied technologies - while pushing workflow modernization and speed."  Director Squires' first‑day ceremony also highlighted historic patent foundations and the enduring principle that applied technologies can be eligible for patent protection. For innovators, the message dovetails with the USPTO's 2025 modernization efforts to accelerate the time from Issue Notification to Issue Date - improving commercialization timelines and investor certainty.  What this means for innovators and companies  - Eligibility clarity for applied tech. Expect continued focus on patent‑eligible, practical applications across sectors like fintech, diagnostics, quantum, and AI. - Faster path from allowance to issuance. Recent USPTO operational changes now target a roughly two‑week window from Issue Notification to Issue Date, shaving time to market. - Stronger investor signaling. Early actions by the Director, coupled with pendency improvements, can de‑risk funding discussions for IP‑heavy startups and corporate R&D.  The Patent Baron PLLC: Next steps for clients  The firm is preparing tailored strategies for founders and corporate teams to:  1. Evaluate patent‑eligibility (e.g., subject‑matter positioning for software/AI, diagnostics, fintech). 2. Accelerate protection where speed matters (e.g., Track One, prioritized examination, fast‑allowance to issuance planning). 3. Strengthen portfolios via claim‑drafting tuned to current USPTO guidance and post‑grant defensibility.  "We put a lock on your ideas® is more than a tagline - it's our operating system," added Lesperance. "Our clients should expect us to move quickly to capitalize on this environment: sharpened eligibility strategy, faster execution, and clearer value stories for investors and acquirers."  About The Patent Baron PLLC  The Patent Baron PLLC is a Michigan-based intellectual-property law firm focused on patents, trademarks, copyrights, and IP-driven business strategy. Based in Howell, MI, patent lawyer J. Baron Lesperance and his team represent startups, established companies, and research institutions across the U.S., helping clients secure, defend, and monetize innovation. Tagline: We Put a Lock on Your Ideas®. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527157/the-patent-baron-pllc-applauds-uspto-director-john-a-squires-first-issued-patents-signaling-strong-support-for-applied-patenteligible-innovation)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-uspto-director-signals-pro-innovation-stance-with-key-patent-approvals/7db95af208f9323a6da8650e89972882) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1nqv4a7/new_uspto_director_signals_proinnovation_stance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/26/lushe7Wa.webp)
