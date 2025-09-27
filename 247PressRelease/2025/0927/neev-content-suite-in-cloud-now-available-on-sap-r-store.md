@@ -1,0 +1,18 @@
+# Neev Content Suite in Cloud Now Available on SAP® Store
+
+CHESTERBROOK, PA, September 27, 2025 /24-7PressRelease/ -- Neev Data Corp. today announced that its Content Suite in Cloud is now available on SAP® Store, the online marketplace for SAP and partner offerings. Content Suite in Cloud integrates with SAP S/4HANA® Cloud and delivers an API-led, AI-powered content management suite for both SAP and non-SAP applications.  "Neev Content Suite in Cloud brings unprecedented flexibility to enterprises managing legacy and modern systems together," said Vishal Awasthi, CEO of Neev Data Corp. "By combining serverless scalability with deep SAP integration, we give customers control over their data-eliminating vendor lock-in, ensuring compliance, and transforming long‑term archives from hidden cost centers into searchable, governed assets."  Key Capabilities of Neev Content Suite in Cloud Unified access across SAP and non-SAP landscapes with deep S/4HANA Cloud integration. Compliance-ready retention and audit controls for regulated industries and long-term data preservation. Serverless, auto-scaling architecture -performance without infrastructure overhead. Integration with AI-powered semantic search and intelligent assistants to accelerate discovery and workflows. Open, portable data using JSON and REST APIs to avoid lock‑in and simplify interoperability.  Content Suite in Cloud is available for purchase or for a free trial request on SAP Store. To learn more or to schedule a demo, visit store.sap.com or contact Neev Data.  SAP Store, found at store.sap.com, delivers a simplified and connected digital customer experience for finding, trying, buying and renewing more than 2,300 solutions from SAP and its partners. There, customers can find the SAP solutions and SAP-validated solutions they need to grow their business. And for each purchase made through SAP Store, SAP will plant a tree.  Neev Data Corp. is a partner in the SAP PartnerEdge® program. The SAP PartnerEdge program provides the enablement tools, benefits and support to facilitate building high-quality, disruptive applications focused on specific business needs – quickly and cost-effectively.  About Neev Data Corp. Neev Data Corp. is a Delaware C corporation headquartered in Chesterbrook, Pennsylvania. The company specializes in enterprise data and document management. With its flagship Neev Content Suite, Neev helps global enterprises implement application aware data and document archiving workflows for active enterprise application like S/4HANA, decommission legacy systems, reduce costs, and ensure compliance through modern, cloud-native as well as SAP-embedded solutions. Neev Data is ISO 27001 and SOC 2 certified and holds SAP S/4HANA Clean Core certifications.  SAP and other SAP products and services mentioned herein as well as their respective logos are trademarks or registered trademarks of SAP SE in Germany and other countries. Please see https://www.sap.com/copyright for additional trademark information and notices. All other product and service names mentioned are the trademarks of their respective companies.  For more information, press only: info@neevdata.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527177/neev-content-suite-in-cloud-now-available-on-sap-store)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neev-data-s-content-suite-now-available-on-sap-store/217869d0f0892fc5da49d050ecceb366) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/27/ricekvv6.webp)
