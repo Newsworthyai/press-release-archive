@@ -1,0 +1,18 @@
+# Happy Lemon USA Reaches 200,000 Loyalty Members in Just 2 Years with Preferred Patron's Enterprise-Scale Loyalty Platform
+
+NORTHFIELD, NJ, September 30, 2025 /24-7PressRelease/ -- Happy Lemon USA, a leading bubble tea franchise with 135 stores nationwide, has achieved a major milestone with its loyalty program, powered by Preferred Patron Loyalty, has surpassed 200,000 enrolled members in just two years. The program has generated millions in program-related revenue, processed more than 230,000 redemptions, and issued 65,000+ physical and virtual gift cards. Read the full case study.  By leveraging Preferred Patron's enterprise loyalty platform, Happy Lemon has cultivated a highly engaged customer base, with loyalty members visiting regularly and driving meaningful incremental revenue.  Campaigns such as Double Point Tuesdays, Lunar New Year Giveaways, product launch promotions like Strawberry Matcha Teappuccino, and holiday offers like Free Drink on July 4th have driven strong engagement across all markets.  "Preferred Patron provided control at every level, corporate, regional, and store. Happy lemon franchisees felt empowered, regional managers gained insights, and corporate had full visibility," said Brett Perlman, Managing Partner at Preferred Patron Loyalty.  Preferred Patron's platform provides multi-level marketing control, enabling campaigns at the corporate, regional, and franchisee levels while maintaining brand consistency. The system integrates seamlessly with Happy Lemon's mobile app and online ordering through an extensive REST API, supports virtual gift card delivery, and operates on a robust data center infrastructure, secured through Cloudflare's global edge network, providing DNS, DDoS mitigation, TLS encryption, application security, SSL termination, and load balancing to ensure speed, scalability, and protection across both web and API services.  With an observed gain in program related revenue, Preferred Patron has demonstrated the profitability and scalability enterprises require from a modern loyalty solution.  Why Preferred Patron? • Scalable to hundreds of thousands of members across 100+ stores. • Granular marketing controls for franchise, region, and ownership group levels. • White-label branding to ensure the loyalty program feels like Happy Lemon, not a third-party app. • Enterprise infrastructure with Cloudflare load balancing for zero downtime. • Industry-leading support, onboarding, and franchisee training.  About Happy Lemon USA Happy Lemon USA is a fast-growing bubble tea franchise with 135 stores nationwide, delivering fresh, innovative drinks to customers across the country.  About Preferred Patron Loyalty Preferred Patron Loyalty is a leading provider of enterprise loyalty marketing solutions, trusted by businesses across industries to power scalable, white-label loyalty programs. With advanced campaign management, data-driven analytics, mobile integration, and virtual gift card support, Preferred Patron enables brands to engage customers, increase revenue, and deliver measurable ROI.  For additional information, visit www.preferredpatron.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527121/happy-lemon-usa-reaches-200000-loyalty-members-in-just-2-years-with-preferred-patrons-enterprise-scale-loyalty-platform)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/happy-lemon-s-loyalty-program-hits-200k-members-in-2-years/77f40d66ceff77660e76f93163e60026) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/259/30/irisMT1h.webp)
