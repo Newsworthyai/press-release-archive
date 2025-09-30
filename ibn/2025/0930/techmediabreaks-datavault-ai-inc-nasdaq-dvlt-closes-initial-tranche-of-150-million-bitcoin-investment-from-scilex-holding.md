@@ -29,7 +29,7 @@ Datavault AI (NASDAQ: DVLT), a leader in AI-driven data visualization, valuation
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-datavault-ai-inc-nasdaq-dvlt-closes-initial-tranche-of-150-million-bitcoin-investment-from-scilex-holding/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-secures-150m-bitcoin-investment-from-scilex/fb2b2202b97ad320d39d6c52f0a0948e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-secures-150m-bitcoin-investment-from-scilex/016830be1f4b9fca5bc1ce4e5f8adc5b) 
 
  
 
@@ -37,4 +37,4 @@ Datavault AI (NASDAQ: DVLT), a leader in AI-driven data visualization, valuation
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/30/fernf3cX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/259/30/ablepvpD.webp)
