@@ -1,0 +1,18 @@
+# Jury Awards $7 Million in Lauderdale County Medical Negligence Case
+
+LAUDERDALE COUNTY, AL, October 01, 2025 /24-7PressRelease/ -- On September 24, 2025, a Lauderdale County jury returned a verdict in the amount of $ 7 million dollars in favor of Sunitha Madasu against Donald J. Bowling, M.D. and Lauderdale Radiology Group, L.L.P. ("Lauderdale Radiology"). The trial, which lasted 10 days, was tried by MARSH | RICKARD | BRYAN attorneys Ty Brown and J.D. Marsh. Local attorney, Kerrian Jaudon, was additional counsel and of great help at trial.   Sunitha Madasu is a local dentist who has lived and practiced in Lauderdale County for over two decades. She was 46 years old at the time of events.  She began experiencing a severe headache, nausea and vomiting and went to the Emergency Department at Eliza Coffee Memorial Hospital in Lauderdale County. After a physical examination, the ER doctor ordered a CT scan of her head.   Defendant Dr. Bowling, who the jury found was working as an agent of Lauderdale Radiology, reviewed the CT images of Sunitha's brain. Despite the presence of a bright spot the telltale sign of an acute blood clot seen in a blood vessel on twenty consecutive slices of the imaging, Dr. Bowling reported the study as "Normal" and did not describe or mention the area in question. Relying on Dr. Bowling's report, the ER doctor ultimately discharged Sunitha from the ER. Three days later, Sunitha developed a massive brain bleed resulting in lifelong, debilitating injuries.   At trial, the Defendants and their experts finally admitted that the bright spot in a blood vessel seen on Sunitha's head CT probably was a clot, and that if the finding had been reported a simple follow up test would have confirmed the diagnosis. Nonetheless, the Defendants denied any wrongdoing.   The evidence showed that a reasonably careful diagnostic radiologist would have seen the bright spot, communicated concern for an acute blood clot, and recommended a test to further evaluate the finding. Had those those things happened, it was undisputed that Sunitha would have received medication and would have made a full uneventful recovery.   Ty Brown said, "With their verdict, the jury enforced basic standards of safe medical care, defended Sunitha's dignity, and held the Defendants responsible for the independence, mobility, and professional career they took from her. We are truly grateful for their service."  JD added, "It was an honor and a privilege to be able to tell Sunitha's story. I am thankful for the 12 members of the jury who listened to the evidence, followed the law, and spoke the truth."  About the firm:  Marsh, Rickard & Bryan is a premier trial law firm based in Birmingham, Alabama, known for representing individuals and families in complex personal injury, medical malpractice, and wrongful death cases. With a reputation for courtroom excellence and a commitment to justice, the firm combines deep legal expertise with cutting-edge technology and investigative resources to build compelling cases. Their attorneys have secured numerous multi-million dollar verdicts and are consistently recognized among the top litigators in Alabama. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527312/jury-awards-7-million-in-lauderdale-county-medical-negligence-case)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/7m-verdict-for-dentist-in-medical-malpractice-case/e0feecc17c4441a680ea3bafcbbb316f) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/1/iconQb7G.webp)
