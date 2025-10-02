@@ -1,0 +1,30 @@
+# Newsworthy.ai Adds Premium Distribution and Major Platform Upgrades
+
+Boerne, TX (Newsworthy.ai) Thursday Oct 2, 2025 @ 7:00 AM Central — Newsworthy.ai, the AI-driven press release newswire built for today’s digital-first world, today announced three major platform enhancements designed to make news distribution even more effective, measurable, and organized. The updates—Multiple Brand Profiles & Newsrooms, Enhanced Reporting with eCPC, and a New Dashboard Experience—further cement Newsworthy.ai’s reputation as the most advanced and marketing-focused newswire available.
+
+Unlike traditional press release services that focus solely on media outreach, Newsworthy.ai is built for the realities of modern digital marketing: brand mentions, discoverability, and AI optimization. The platform still delivers on the basics—publishing across hundreds of websites and indexing by Google News—but also goes further, transforming every release into multiple unique formats (articles, blogs, FAQs, TLDRs, podcasts, Zero-Click assets, and more) and intelligently routing content to the right platforms. Every release is structured for EEAT alignment and LLM ingestion, increasing its visibility in AI-powered search and generative answers.
+
+With these new enhancements, Newsworthy.ai is making press releases even more powerful:* Multiple Brand Profiles & Newsrooms: Users can now create unlimited brand profiles to better organize news announcements. Each profile auto-populates datelines, logos, contacts, and images for faster publishing. Every brand also gets its own dedicated, SEO-optimized newsroom with a custom URL, centralizing all releases in one easily shareable hub. Newsrooms also showcase brand descriptions, social media links, media kits, and agency-of-record contacts for seamless media collaboration.
+* Enhanced Press Release Reports with eCPC: A redesigned reporting dashboard lists all releases with quick access to detailed clipping reports and shareable links for teams or clients. Reports showcase every pickup destination with live links, along with engagement metrics and charts showing reads and shares across Newsworthy’s network. New to the reports: effective cost per click (eCPC), giving marketers a clear, ROI-driven metric. With average eCPCs under $0.25—and declining toward zero as releases continue generating reads—press releases become one of the most cost-effective and enduring marketing tactics compared to ads or social boosts.
+* New Dashboard Experience: The redesigned dashboard provides a comprehensive snapshot of all activity: press release credits, total releases by brand profile (published, drafts, in-progress), and cumulative engagement. It also tracks lifetime eCPC across all press releases, helping marketers see at a glance just how cost-effective their campaigns are.
+
+Premium Distribution to Yahoo! News, AP, MarketWatch and MoreIn addition to these platform upgrades, Newsworthy.ai is now offering enhanced premium distribution options. For companies that want reach above and beyond Newsworthy.ai’s core distribution and NewsRamp’s unique amplification, users can now upgrade their press releases for pickup on Yahoo! News, AP News, MarketWatch, Business Insider, and more than 200 additional outlets. This new option gives brands the best of both worlds: AI-driven multi-format content creation and amplification through NewsRamp, combined with the credibility and visibility of placement on some of the world’s most recognized news sites.
+
+“These enhancements take our mission even further,” said [Mark M. Willaman](https://www.linkedin.com/in/markwillaman/), Co-founder of Newsworthy.ai. “We’re not just a newswire; we’re redefining press releases as a long-term, ROI-driven marketing channel. With features like eCPC tracking, branded newsrooms, and a smarter dashboard, marketers can clearly see how press releases outperform other channels on cost-per-click while driving lasting brand mentions and visibility in both search and AI-generated answers.”[David McInnis](https://www.linkedin.com/in/davidmcinnis/), founder of Newsworthy.ai and founder of PRWeb, added: “We’re unapologetically on the bleeding edge. No other newswire is using AI the way we are or understands how to optimize press releases for this new AI world. From tackling duplicate content penalties, to structuring for EEAT, to building zero-click content strategies—we’re solving challenges the rest of the industry hasn’t even recognized yet. I’m incredibly proud of what we’ve built and the pace at which we continue to launch new tools—nearly every week. The industry is in the middle of a monumental shift, and Newsworthy is leading the way.”Newsworthy.ai’s evolution is fueled by its proprietary amplification engine, NewsRamp.com, which not only extends each release’s reach into vertical and local news sites, podcasts across 38 categories, newsletters, forums, social feeds, and 12 language translations—but also creates unique, curated content from every press release, delivering unmatched discoverability and engagement.
+
+About [Newsworthy.ai](https://www.newsworthy.ai/)Newsworthy.ai is the first AI-driven newswire built for today’s digital-first, AI-powered world. Beyond traditional distribution, Newsworthy transforms press releases into multi-format, AI-optimized content designed for discovery, engagement, and ROI. Combined with its amplification partner Newsramp.com, the platform delivers press releases as one of the most cost-effective marketing tactics available, outperforming ads and social boosts on cost-per-click while driving lasting brand visibility. Learn more at newsworthy.ai and Newsramp.com. 
+
+---
+
+[Original/Source Press Release](https://newsworthy.ai/news/202510021754/newsworthy-ai-unveils-latest-features-including-company-newsrooms-for-multiple-brand-profiles)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newsworthy-ai-revolutionizes-press-releases-with-ai-driven-enhancements/9ccc1ff678983aaf22204fa9004753f5) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2510/2/meanBGqa.webp)
