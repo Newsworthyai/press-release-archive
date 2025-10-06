@@ -1,0 +1,42 @@
+# Cirque du Soleil Brings LUZIA to South Florida!
+
+LUZIA will be presented under the Big Top at Gulfstream Park from
+
+ February 19 to April 25, 2026
+
+ General on sale starts October 2, 2025
+
+ Cirque du Soleil returns to South Florida with its delightfully-imaginative and visually-stunning production LUZIA, a waking dream of Mexico. Opening on February 19, audiences are invited under the famed Big Top at 1/ST’s Gulfstream Park to escape to an imaginary Mexico – a sumptuous world suspended between dreams and reality. Join the waitlist via Fever here starting today to receive exclusive access to pre-sales. The pre-sale will take place on October 1st for one day only, giving waitlist members the opportunity to secure the best seats before anyone else. Tickets for the general public will be available beginning October 2nd.
+
+ In a series of grand visual surprises and breathtaking acrobatic performances, LUZIA takes audiences on a surrealistic journey through a vibrant world filled with wonders, playfulness and striking artistry. Smoothly passing from an old movie set to the ocean to a smoky dance hall or an arid desert, LUZIA cleverly brings to the stage multiple places, faces and sounds of Mexico taken from both tradition and modernity. Rich in awe- inspiring moments, LUZIA enchants by incorporating rain into acrobatic and artistic scenes – a first for a Cirque du Soleil touring production.
+
+ [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/matt_beard_05_adagio-0056/) [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/luzia-geneve-2022-anne-colliard/) [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/luzia-geneve-2022-anne-colliard-2/) [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/luzia-geneve-2022-anne-colliard-3/) [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/luzia-geneve-2022-anne-colliard-4/) [](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/luzia_geneve2022_annecolliard-4195/) “LUZIA is Cirque du Soleil at its peak.” The New York Times
+
+ With mesmerizing and refreshing acrobatic performances, LUZIA brings traditional and contemporary circus disciplines to a whole new level. Cyr Wheel artists perform the unprecedented feat of rolling and spinning under the rain, while an aerialist suspended from a Trapeze flies and twirls through pouring showers. Hoop Diving is taken onto gigantic treadmills, expanding exponentially the speed and amount of daring leaps executed. Jaw-dropping highlights include a male contortionist skillfully twisting his body in the world’s most unimaginable positions, a powerful Aerial Straps specialist defying the laws of gravity at the center of a cenote (natural sinkhole), a juggler tossing seven pins at breakneck speed, and two football (soccer) freestylers deftly mixing street dance with mind-blowing ball manipulation.   Ticket Information Tickets for the South Florida performances of LUZIA at Gulfstream Park will be available starting October 1st exclusively to those who joined the waitlist via the Fever Website or Fever App. The public on-sale begins October 2nd, so fans are encouraged to join the waitlist early for priority access.
+
+ More about LUZIA – A waking dream of Mexico Written and directed by Daniele Finzi Pasca, in association with Brigitte Poupart, LUZIA takes you to an imaginary Mexico, like in a waking dream, where light (“luz” in Spanish) quenches the spirit and rain (“lluvia”) soothes the soul.
+
+ For more information, visit www.cirquedusoleil.com/LUZIA To watch a preview video of LUZIA, visit www.cirk.me/LUZIA_Preview.   Follow #LUZIA and #cirquedusoleil on social media: Facebook | Twitter | Instagram | YouTube
+
+ Follow Gulfstream Park on social media: Facebook |Twitter/X | Instagram | YouTube   Partners Cirque du Soleil wishes to thank Stags’ Leap Winery and PATH water, its official partners.   Cirque du Soleil Entertainment Group Cirque du Soleil Entertainment Group is a world leader in live entertainment. In addition to producing world-renowned circus arts shows, the Company brings its creative approach to a large variety of entertainment forms, such as multimedia productions, immersive experiences, and special events. Going beyond its various creations, Cirque du Soleil Entertainment Group aims to positively impact people, communities and the planet with its most important tools: creativity and art. Since its creation in 1984, more than 378 million people have been inspired on 6 continents and 86 countries. The Canadian company now employs more than 4000 employees, including 1200 artists from 80 different nationalities. For more information about Cirque du Soleil Entertainment Group, visit www.cirquedusoleilentertainmentgroup.com.   About Cirque du Soleil in Florida Fans can enjoy Cirque du Soleil year-round with Drawn to Life, the first-ever creative collaboration between Cirque du Soleil and Disney, performing exclusively at Disney Springs in Lake Buena Vista, Fla., near Orlando. Set your imagination in motion with Drawn to Life—a love letter to the art of Disney Animation interpreted through the acrobatic mastery of Cirque du Soleil. The show tells the story of a determined girl who embarks on an inspiring quest filled with her childhood Disney memories, brought to life through Cirque du Soleil’s innovative design and dazzling performances. For more information, visit www.cirquedusoleil.com/drawn-to-life.
+
+ About The Stronach Group and 1/ST The Stronach Group is a world-class technology, entertainment and real estate development company with Thoroughbred racing and pari-mutuel wagering at the core. The Stronach Group’s 1/ST business (pronounced “First”) is North America’s preeminent Thoroughbred racing and pari-mutuel wagering company and includes the 1/ST RACING & GAMING, 1/ST CONTENT, 1/ST TECHNOLOGY and 1/ST EXPERIENCE businesses, while advocating for and driving the 1/ST HORSE CARE mission. 1/ST represents The Stronach Group’s continued movement toward redefining Thoroughbred racing and the ecosystem that drives it. 1/ST RACING & GAMING drives the best-in-class racing operations and gaming offerings at the company’s premier racetracks, training centers and premier events including: Santa Anita Park and San Luis Rey Downs (California); Gulfstream Park – home of the Pegasus World Cup and Palm Meadows Thoroughbred Training Center (Florida); and The Preakness Stakes (Maryland). 1/ST CONTENT is the operating group for 1/ST’s media and content companies including: Monarch Content Management, Elite, TSG Global Wagering Solutions (GWS) and 1/ST TV. 1/ST TECHNOLOGY is racing’s largest racing and gaming technology company offering world-class products via its AmTote, Xpressbet, 1/ST BET, XB SELECT, XB NET, PariMAX and Betmix brands. 1/ST EXPERIENCE blends the worlds of sports, entertainment and hospitality through innovative content development, elevated national and local venue management and hospitality, strategic partnerships, sponsorships, and procurement development. As the advocate for critical industry reforms and by making meaningful investments into aftercare programs for retired horses and jockeys, 1/ST HORSE CARE represents The Stronach Group’s commitment to achieving the highest level of horse and rider care and safety standards in Thoroughbred racing on and off the track. The Stronach Group’s TSG Properties is responsible for the development of the company’s live, play and work communities surrounding its racing venues including: The Village at Gulfstream Park (Florida) and Paddock Pointe (Maryland). For more information, visit www.1st.com or follow @1ST_racing on Twitter or @1stracing on Instagram and Facebook.
+
+ The post Cirque du Soleil Brings LUZIA to South Florida! appeared first on citybiz. 
+
+---
+
+[Original/Source Press Release](https://www.citybiz.co/article/754574/cirque-du-soleil-brings-luzia-to-south-florida/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cirque-du-soleil-s-luzia-returns-to-south-florida-in-2026/c1d30d32c4ebb7e813da254dd90094c8) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsrampTLDR/comments/1nz6qrs/cirque_du_soleils_luzia_returns_to_south_florida/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/citybiz/qrcode/2510/6/quay3guc.webp)
