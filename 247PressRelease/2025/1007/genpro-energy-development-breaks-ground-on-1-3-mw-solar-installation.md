@@ -1,0 +1,18 @@
+# GenPro Energy Development Breaks Ground on 1.3 MW Solar Installation
+
+RAPID CITY, SD, October 07, 2025 /24-7PressRelease/ -- GenPro Energy Development today announced the start of construction on the Camden Heights Solar Project. This 999kW-ac solar installation will power seven affordable housing buildings containing 252 apartment units in Rapid City, South Dakota. The solar component is part of Elmington Capital Group's ambitious $78 million Camden Heights development, one of the largest affordable housing initiatives in the region.  The ground-mounted solar system, located at 1700 Camden Drive in northeast Rapid City, will generate clean energy to offset approximately 90% of the apartment complex's energy needs. This groundbreaking project represents a significant step forward in making renewable energy accessible to low-income communities while reducing utility costs for seniors and families.  "This project exemplifies the mission of GenPro Energy Development, which is to build projects that promote economic development at the local level," said Molly Brown, Managing Partner at GenPro Energy Development. "By bringing solar power directly to affordable housing, we're not just stabilizing and reducing energy costs for the Camden Heights residents – we're creating a replicable model for sustainable community development that other South Dakota cities can adopt."  Elmington, the developer behind the broader Camden Heights initiative, selected GenPro Energy Development to design and implement the solar component of this transformative project. The partnership demonstrates how private developers and renewable energy specialists can work together to create comprehensive solutions for affordable housing challenges.  The Camden Heights Solar Project is made possible through a collaboration of key partners, including Elmington, Black Hills Energy, the City of Rapid City, the South Dakota Housing Authority, and the Black Hills Area Community Foundation. The City of Rapid City's commitment has been instrumental in advancing the vision of affordable, sustainable housing for Rapid City's families and seniors.  About GenPro Energy Development:  GenPro Energy Development based out of Piedmont, SD, specializes in distributed generation solutions that drive economic growth and empower communities across the Great Plains, Rocky Mountains, and Midwest. With over 20 years of experience in solar development, particularly for public power entities, municipalities, and affordable housing projects, GenPro combines technical expertise and deep regional market knowledge to deliver sustainable energy solutions.  About Elmington Capital Group:  Elmington Capital Group is a leading developer of affordable housing communities, with a focus on creating sustainable, well-designed developments that serve seniors and families. The Camden Heights project represents the company's commitment to integrating renewable energy solutions into affordable housing development, setting a new standard for sustainable community development in the region. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527463/genpro-energy-development-breaks-ground-on-13-mw-solar-installation)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-dakota-s-largest-affordable-housing-project-goes-solar/ecd06d7177ba51df95ce09c96ea28eff) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/7/bossJlPK.webp)

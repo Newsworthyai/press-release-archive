@@ -1,0 +1,18 @@
+# Dr. Bradley Nelson's New Book 'The Heart Code' Selected by Worthy Books to Support Giving Tuesday Library Campaign
+
+ST. GEORGE, UT, October 07, 2025 /24-7PressRelease/ -- Renowned holistic physician and bestselling author Dr. Bradley Nelson is honored to announce that his latest book, "The Heart Code: The Breakthrough Method to Open Your Heart and Transform Your Life," has been selected by Worthy Books, a nonprofit devoted to placing transformative works into community libraries for free access. In celebration, Dr. Nelson is launching a Giving Tuesday campaign to amplify the book's reach and impact.  In "The Heart Code," co-authored with his wife Jean Nelson, Dr. Nelson builds on the success of his previous bestselling book "The Emotion Code," offering a deeper method for identifying and clearing Heart-Walls™— energetic barriers that can block fulfillment, emotional connection, and purpose. Through a clear, step-by-step process, the book helps readers release energetic blocks and move toward greater health, clarity, confidence, and authentic living.  How the Worthy Books / Giving Tuesday campaign works:  • Donate: Supporters can make tax-deductible contributions via Worthy Books at worthybooks.org/the-heart-code. • Receive: As a thank-you, donors will receive a complimentary ebook edition of "The Heart Code." • Impact: Physical copies of the book will be donated to libraries nationwide, enabling free access for readers in communities across the country.  "This campaign is more than just a book launch — it's about opening hearts and making healing accessible," Dr. Nelson says. "'The Heart Code' offers tools for transformation, and through Worthy Books and Giving Tuesday, we're putting those tools into the hands of people who may not otherwise have access."  The Giving Tuesday campaign runs Oct. 6 through Dec. 2, 2025. Supporters are encouraged to donate early, ensuring as many library placements as possible. For more information and to make a tax-deductible donation, visit: worthybooks.org/the-heart-code.  About Dr. Bradley Nelson: Holistic physician Dr. Bradley Nelson is one of the world's foremost experts on natural methods of achieving wellness. He is the creator of The Emotion Code®, The Body Code™, and The Belief Code®, and CEO of Discover Healing. His bestselling books include "The Emotion Code," and "The Body Code." His newest book, "The Heart Code" (Dec. 2, 2025), is now available for preorder with special gifts at drbradleynelson.com.  About Worthy Books: Worthy Books is a 501(c)(3) nonprofit dedicated to democratizing access to meaningful literature. Through partnerships with authors and donors, they procure and distribute books to public libraries for free, fostering education, empowerment, and community wellness.  To request an interview with Dr. Nelson, contact:  Michelle Tennant Nicholson, M.A. International Publicist | Chief Creative Officer Wasabi Publicity, Inc. 828.749.3200 (office) | 828.817.4034 (cell/WhatsApp)  Michelle@WasabiPublicity.com   For more information visit drbradleynelson.onlinepresskit247.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527462/dr-bradley-nelsons-new-book-the-heart-code-selected-by-worthy-books-to-support-giving-tuesday-library-campaign)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-bradley-nelson-s-the-heart-code-partners-with-worthy-books-for-giving-tuesday/ebc567fbda5e948cf9f01c2e3928d7d6) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/7/lenda_xH.webp)
