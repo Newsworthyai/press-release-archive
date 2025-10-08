@@ -1,0 +1,18 @@
+# Pretina Hutchinson's New Memoir, Destiny Blockers
+
+STARKE, FL, October 08, 2025 /24-7PressRelease/ -- Licensed mental health counselor and pastor Pretina Hutchinson is proud to announce the release of her debut memoir, Destiny Blockers, a transformative trauma healing Christian book that reveals the hidden emotional and spiritual battles that prevent people from fulfilling their life's purpose.  In Destiny Blockers, Hutchinson draws from her own life, which was marked by childhood abuse, parentification, toxic relationships, rejection, and deep emotional pain. Through her raw and inspiring storytelling, she guides readers on a journey of spiritual deliverance healing, showing how the very experiences meant to break her ultimately birthed the woman she is today: a vessel of faith, resilience, and purpose.  This mental health counselor memoir is more than a personal story. It is a practical guide for overcoming toxic relationships, breaking cycles of emotional bondage, and confronting spiritual barriers. Hutchinson reveals how "destiny blockers", pain, fear, rejection, and even misguided relationships, can subtly derail a person's calling, and she shares strategies to identify and overcome them.  Highlights of Destiny Blockers include: • Honest reflections on surviving childhood trauma and years of emotional suppression • Practical lessons blending clinical mental health insight with biblical wisdom • A roadmap for spiritual deliverance healing to help readers reclaim their purpose • Empowering strategies for overcoming toxic relationships and breaking free from cycles of pain  As a licensed mental health counselor with over 20 years of experience, Hutchinson has served as a lifeline to individuals in crisis, from children in need of protection to adults battling depression, suicidal thoughts, and spiritual despair. She currently leads Jesus Christ Deliverance Ministries, where she merges her faith and clinical expertise to help others achieve emotional and spiritual restoration.  "Destiny blockers didn't destroy me," Hutchinson shares. "They pushed me into purpose. Pain became my pulpit, and pressure birthed the woman I am today." Her story resonates with anyone who has felt stuck, silenced, or on the brink of breakthrough, offering hope that freedom and fulfillment are possible.  Early readers of Destiny Blockers have praised it as both a memoir and a manual for healing, describing it as a book that opens spiritual eyes and equips readers to fight for their destinies. It speaks to those seeking emotional recovery, spiritual guidance, or simply the courage to break free from the obstacles holding them back.  Destiny Blockers is now available on Amazon and other online retailers. Don't miss this inspiring and life-changing book. Your destiny is waiting.  For inquiries, interviews, or media requests, please contact: Contact Person: Pretina Hutchinson Contact Email: Pretina98@gmail.com  About the Author:  Pretina Hutchinson is a pastor, licensed mental health counselor, and first-time author whose life bridges the worlds of psychology and faith. Her journey from trauma to triumph inspired her to write Destiny Blockers, a book that blends raw personal experience, clinical insight, and spiritual truth to help others heal, overcome, and walk boldly into their God-given purpose. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527476/pretina-hutchinsons-new-memoir-destiny-blockers)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pastor-s-memoir-reveals-how-to-overcome-destiny-blockers/ff18bc23c2f2d2b638f172447d5163ae) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/8/quayei_L.webp)
