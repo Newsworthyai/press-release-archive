@@ -1,0 +1,36 @@
+# Researchers Discover Why Cancer Immunotherapy Could Be Failing
+
+A new study from Ohio State University Wexner Medical Center has discovered why immunotherapy fails in 60-80% of cancer patients. Researchers identified a previously unknown stress pathway called TexPSR that floods weakened immune cells with misfolded proteins, crippling their ability to attack tumors. Blocking this pathway in laboratory models restored immune cell function and significantly improved immunotherapy effectiveness across multiple cancer types.
+
+ As companies like Calidi Biotherapeutics Inc. (NYSE American: CLDI) undertake R&D programs aimed at commercializing novel immunotherapies, the insights gained from the study on…
+
+ Read More>>
+
+ About TinyGems
+
+ TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
+
+ To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
+
+ For more information, please visit https://www.TinyGems.com
+
+ Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
+
+ TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
+
+ TinyGems is powered by IBN 
+
+---
+
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/researchers-discover-why-cancer-immunotherapy-could-be-failing/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cancer-breakthrough-scientists-discover-why-immunotherapy-fails/7d6913be38d75003a3f463c0e7e8bbf9) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/8/eachYzhN.webp)
