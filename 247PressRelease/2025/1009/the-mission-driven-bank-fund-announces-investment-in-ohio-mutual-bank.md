@@ -1,0 +1,26 @@
+# The Mission Driven Bank Fund announces investment in Ohio mutual bank
+
+CLEVELAND, OH, October 09, 2025 /24-7PressRelease/ -- The Mission Driven Bank Fund (MDBF) today announced an investment in First Mutual Holding Co., the bank holding company for Warsaw Federal Savings & Loan, an independent mutual bank and Minority Depository Institution (MDI) based in Cincinnati. As with prior investments, the Fund will make technical services support available in conjunction with the capital investment.   Warsaw Federal intends to use the net proceeds to support the bank's communities by providing focused financial services, tools and education to promote economic opportunity and financial equity. The bank is one of two MDIs headquartered in Ohio and is the only MDI currently serving the Cincinnati area.   "This investment marks a pivotal step in supporting the strategic growth we envision for our organization," said Robie Suggs, president & CEO of Warsaw Federal. "We're proud to empower underserved communities in the Greater Cincinnati region with the financial tools, education, and support they need to thrive. Our doors are open to everyone and together, we'll build stronger neighborhoods and a brighter future for all. We're excited to partner with the Mission Driven Bank Fund to further this progress."  The investment marks the 11th deployment for MDBF and the Fund continues to build active pipelines to invest in MDI and CDFI banks nationwide.   "The Mission Driven Bank Fund is pleased to recognize Warsaw Federal's commitment to promoting economic vitality across the Greater Cincinnati area," said Paul Welch, portfolio manager of the Fund. "We appreciate the opportunity to support Warsaw and other mission-aligned banks as they continue to provide vital banking services and experiences to often underserved communities."  About The Mission Driven Bank Fund The Mission Driven Bank Fund seeks to foster a stronger and more inclusive banking system by investing capital and providing technical services to FDIC-insured CDFI and MDI banks that target low to moderate income African American, Native American, Asian, Hispanic, and Pacific Islander communities. The Fund's mission is to drive growth and financial resiliency in the mission-driven bank sector, translating into progress that helps close the racial wealth gap. Elizabeth Park Capital Management, a specialist firm investing in U.S. banks, and Calvert Impact, a leading impact investing firm, are members of the Fund's general partner. Strategic Value Bank Partners is a subadvisor, and Performance Trust is a capital advisor and structuring agent for the Fund. For more information, visit missiondrivenbankfund.org   About Warsaw Federal Savings and Loan Association Warsaw Federal is an independent mutual bank and Minority Depository Institution (MDI) based in Cincinnati, Ohio. With a mission to empower undeserved communities to thrive in today's economy, Warsaw Federal is proud to be only the second mutual MDI in the country. Warsaw Federal provides banking products and services to individuals and businesses in greater Cincinnati and the surrounding communities. For more information, visit warsawfederal.bank   About First Mutual Holding Co. First Mutual Holding Co. is a member-owned mutual holding company headquartered in Ohio. FMHC provides a structure that allows independent affiliate banks to continue to serve their communities and grow as member-owned institutions. Affiliate banks of FMHC include First Federal Lakewood (Lakewood, OH), First Mutual Bank FSB, (Belpre, OH), Blue Grass Federal Savings and Loan (Paris, KY), Warsaw Federal Savings and Loan (Cincinnati, OH) and Martinsville First Savings Bank (Martinsville, VA). For more information, visit firstmutualholding.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527570/the-mission-driven-bank-fund-announces-investment-in-ohio-mutual-bank)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mission-driven-bank-fund-invests-in-cincinnati-s-warsaw-federal/7c063300b3e907fd452f60c06229c773) 
+
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202510/248266-mission-driven-bank-fund-invests-in-cincinnati-s-warsaw-federal-to-advance-financial-equity)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202510/248270-fondo-mission-driven-bank-realiza-inversion-estrategica-en-banco-mutual-de-ohio-para-promover-equidad-financiera)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202510/248351-mission-driven-bank-fund-investiert-in-warschau-federal-savings-loan-zur-forderung-finanzieller-gleichstellung)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202510/248326-le-mission-driven-bank-fund-investit-dans-une-banque-mutuelle-minoritaire-de-l-ohio-pour-renforcer-l-equite-financiere)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/9/pintEhgP.webp)
