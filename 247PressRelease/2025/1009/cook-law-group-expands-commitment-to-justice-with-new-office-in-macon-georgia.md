@@ -1,0 +1,18 @@
+# Cook Law Group Expands Commitment to Justice with New Office in Macon, Georgia
+
+MACON, GA, October 09, 2025 /24-7PressRelease/ -- Cook Law Group, a distinguished personal injury law firm based in Gainesville, GA, is proud to announce the opening of its new office in Macon, GA. This expansion strengthens the firm's mission to provide compassionate, results-driven legal representation to individuals and families across Georgia who have suffered harm due to the negligence of others.  Led by experienced personal injury attorneys Matt and Kate Cook, Cook Law Group has recovered over $700 million for clients, with more than $225 million secured in verdicts and settlements over the past decade. The new Macon office will extend the firm's people-focused approach to Bibb County and surrounding areas, offering dedicated legal support to victims of personal injury, wrongful death, medical malpractice, trucking accidents, defective products, and more.  "We are thrilled to bring our commitment to justice and personalized representation to the Macon community," said Matt Cook, founding partner of Cook Law Group. "Our new office allows us to serve more Georgians who are navigating the challenges of injury or loss, ensuring they have a trusted advocate to fight for their rights against insurance companies and liable parties."  The Macon office will provide the same high-caliber legal services that have earned Cook Law Group a reputation for excellence, including a client-centered approach that treats every individual as a person, not a file number. With over 90% of cases referred by other attorneys, the firm's expertise and track record are widely respected in the legal community. The new location will also offer free consultations to help accident victims understand their rights and options.  "We understand the complexities of personal injury claims and the tactics insurance companies use to minimize liability," said Kate Cook. "Our Macon office is a commitment to standing up for those who need us most, delivering innovative solutions and maximum recovery for our clients."  Located in the heart of Macon, the new office will serve clients throughout Bibb County and nearby communities, including Warner Robins, Milledgeville, and Forsyth. The firm continues to represent clients across Georgia, with established presences in Gainesville, Athens, Atlanta, Marietta, Smyrna, Alpharetta, Johns Creek, Lawrenceville, Norcross, Valdosta, Augusta, Camilla, and Columbus.  For more information or to schedule a free consultation with a Macon, GA personal injury lawyer, contact Cook Law Group at (678) 928-3899 or visit our website.  Cook Law Group is a premier personal injury law firm dedicated to representing individuals and families harmed by the negligence or wrongdoing of others. With a focus on personalized service and a proven record of securing significant verdicts and settlements, attorneys Matt and Kate Cook advocate fiercely for their clients. The firm never represents insurance companies, ensuring unwavering loyalty to those they serve. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527528/cook-law-group-expands-commitment-to-justice-with-new-office-in-macon-georgia)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cook-law-group-expands-to-macon-with-new-personal-injury-office/9263a7ab585ec1613fd4a8401433769c) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/9/coolXq5F.webp)
