@@ -1,0 +1,18 @@
+# A Classic Beauty Reborn: 1959 Mercedes-Benz 190SL Shines in The Ron Sturgeon Collection
+
+FORT WORTH, TX, October 10, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to announce the addition of a true automotive icon to the Ron Sturgeon Collection: the 1959 Mercedes-Benz 190SL, stunningly finished in timeless white. Perfectly embodying the style, engineering excellence, and luxury that Mercedes-Benz has long been known for, the 190SL remains one of the most beloved roadsters of the 1950s and 1960s.  Beneath its elegant curves lies a spirited 1.9-liter M121 inline-four engine, delivering 104 horsepower through a four-speed manual gearbox—making the 190SL as enjoyable to drive today as it was when it first rolled off the production line. With a double-wishbone front suspension, rear swing axles, and power-assisted drum brakes, this sporty yet approachable roadster offered a refined, smooth ride that continues to charm enthusiasts worldwide.  The interior is a symphony of vintage sophistication, featuring a Becker AM/FM radio, manual wind-up clock, locking glove box, and even air conditioning—rare luxuries for its time. The two-spoke steering wheel frames a 7,000-rpm tachometer and a 140-mph speedometer, showcasing the thoughtful marriage of sporty ambition and daily drivability that made the 190SL such a standout in its era.  "The 190SL isn't just a car—it's a mood, a lifestyle, and a testament to an era where elegance met innovation," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's the kind of car that makes you want to take the scenic route, and we're thrilled to have it as part of our growing collection of automotive legends."  Visitors to the DFW Car & Toy Museum can now experience firsthand the charm, poise, and enduring allure of the 1959 Mercedes-Benz 190SL—a car that truly set the standard for attainable luxury and driving pleasure.  Come relive the golden era of motoring with one of the most stylish classics ever built.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523901/a-classic-beauty-reborn-1959-mercedes-benz-190sl-shines-in-the-ron-sturgeon-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-museum-adds-iconic-1959-mercedes-190sl-to-collection/732ccb5503abff2b974ba326241b1a8f) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/10/club6T0Z.webp)

@@ -1,0 +1,18 @@
+# Victory Hemp Foods Sweeps Superpowers for Good Live Pitch, Winning Both Judges' Choice and SuperCrowd Awards
+
+STOCKTON, CA, October 10, 2025 /24-7PressRelease/ -- Victory Hemp Foods, led by founder and CEO Chad Rosen, captured both top honors at tonight's Superpowers for Good Live Pitch—the Judges' Choice award and the SuperCrowd (audience choice) award. In a tight vote with a standout field, the dual win signals strong conviction from both professional investors and the live audience. All four presenting companies were worthy of investment consideration and delivered compelling, impact-driven cases for growth.  "I'm thrilled to announce that Victory Hemp Foods swept the competition tonight—earning the confidence of our judges and the enthusiasm of our audience," said Devin D. Thorpe, Executive Producer and Host of Superpowers for Good and CEO of The Super Crowd, Inc. "The voting was close, and every founder brought their A-game. Chad and his team exemplify what impact crowdfunding is about: building a real business that creates value while doing good."  Accepting the awards, Chad Rosen said, "We're honored and energized by this recognition from both the judges and the SuperCrowd. Tonight's presenters inspired us—we're grateful to share the stage with such mission-driven peers. This belongs to our team, our farmer partners, and everyone who believes hemp ingredients can help build a more resilient, nutritious, and sustainable food system."  Judges Panel Sherwood "Woodie" Neiss, Co-Founder, Crowdfund Capital Advisors — industry pioneer and co-architect of the JOBS Act. Paul Lovejoy, Stakeholder Enterprise — impact investor focused on ventures delivering profit with measurable good.  Teddy Lyons, Senior Investment Associate, KingsCrowd — early-stage evaluator with venture and banking expertise.  Presenting Companies CORE Tax Deeds — a real-estate strategy centered on premium, high-yield tax deeds in Texas and select states. Dopple — an AI-powered fintech serving modern families, scaling via partnerships with programs like Head Start and Medicaid. Rancho Affordable Living — revitalizing properties into affordable, energy-efficient manufactured-home communities. Victory Hemp Foods — pioneering hemp-seed proteins and oils for clean, allergen-friendly nutrition ingredients.  Learn more about Victory Hemp Foods on its Wefunder offering page: https://wefunder.com/victory.hemp.foods.   The Superpowers for Good Live Pitch is a recurring showcase produced by The Super Crowd, Inc., where founders present to a panel of expert judges and a live audience. One company earns the Judges' Choice award, and the audience votes to select the SuperCrowd winner.   About Victory Hemp Foods Victory Hemp Foods develops hemp-based protein and oil ingredients for food and beverage brands, working with regenerative farmers to scale cleaner, allergen-friendly nutrition. See the Wefunder page for details. (Wefunder)  SuperCrowdLA is produced by The Super Crowd, Inc., a public benefit corporation dedicated to advancing impact crowdfunding and empowering diverse founders. The event brings together social entrepreneurs, impact investors, and ecosystem leaders to build a more inclusive and sustainable economy. Learn more at https://TheSuperCrowd.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527582/victory-hemp-foods-sweeps-superpowers-for-good-live-pitch-winning-both-judges-choice-and-supercrowd-awards)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/victory-hemp-foods-sweeps-top-awards-at-impact-investing-pitch/b5b7a3360064bd781a1dcb780e9dcbe7) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/10/noraXmme.webp)
