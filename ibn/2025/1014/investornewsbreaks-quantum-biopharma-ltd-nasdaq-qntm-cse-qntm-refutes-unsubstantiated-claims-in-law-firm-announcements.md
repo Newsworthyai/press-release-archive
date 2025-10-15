@@ -24,10 +24,10 @@ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM) issued a formal response rejecting 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-refutes-unsubstantiated-claims-in-law-firm-announcements/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-refutes-unsubstantiated-claims-in-law-firm-announcements-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-rejects-law-firms-allegations-as-misleading/739438a2099cf026c37dfb4f6a903ea8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-rejects-law-firms-allegations-as-baseless/06043c6910270e24dde0b7736106c9c6) 
 
  
 
@@ -35,4 +35,4 @@ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM) issued a formal response rejecting 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/14/lendv35T.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/14/harpZ1k1.webp)
