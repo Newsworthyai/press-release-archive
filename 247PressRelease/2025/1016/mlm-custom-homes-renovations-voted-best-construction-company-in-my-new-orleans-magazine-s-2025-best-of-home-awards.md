@@ -1,0 +1,18 @@
+# MLM Custom Homes &amp; Renovations Voted Best Construction Company in My New Orleans Magazine's 2025 Best of Home Awards
+
+NEW ORLEANS, LA, October 16, 2025 /24-7PressRelease/ -- MLM Custom Homes & Renovations, a leading provider of residential and commercial construction services in the Greater New Orleans area, has been voted the Winner for Best Construction Company in My New Orleans Magazine's 2025 Best of Home Awards. Determined by the magazine's readers through an online ballot, this award highlights MLM's dedication to outstanding craftsmanship, innovative design, and unparalleled client satisfaction in custom home building and renovations.  Established over 17 years ago by General Contractor and Owner Machi Medrzycki, MLM Custom Homes & Renovations specializes in custom new home construction, historic renovations, kitchen and bathroom remodels, room additions, and commercial renovations. Known for its commitment to transparency and quality, MLM leverages advanced tools like Buildertrend software to provide clients with real-time project updates, including daily photos, notes, budgets, and timelines. Serving south Louisiana and Mississippi, the company's experienced team ensures that every project, from ground up custom home builds to single room renovations, reflects excellence in build quality while honoring the distinctive tastes of the client.  "We are deeply grateful to the readers of My New Orleans Magazine for voting us as the Best Construction Company," said Machi Medrzycki, General Contractor and Owner of MLM Custom Homes & Renovations. "This recognition is a testament to our team's passion for creating exceptional spaces that our clients cherish. Whether we're restoring a historic New Orleans home or building a modern custom home, we approach every project with precision and care. Thank you to our clients and community for this incredible honor."  MLM Custom Homes & Renovations has also earned the 2025 Houzz Best Design + Build Company award, the 2025 Best Customer Service Award by Pulse of The City New Orleans and has been featured in publications such as Our Louisiana, Millenium and New Orleans Lifestyle magazines, showcasing their high-end residential projects, historic restorations, and innovative commercial renovations.  For more information about MLM Custom Homes & Renovations' residential services visit their website at https://mlm-inc.com/, and for commercial projects visit https://www.mlm-commercial.com/.  About MLM Custom Homes & Renovations MLM Custom Homes & Renovations is a leading general contracting company delivering luxury residential design-build services, historic renovations, and commercial renovations throughout the Greater New Orleans region and Mississippi. Founded by Machi Medrzycki, a licensed residential and commercial contractor with over 22 years of experience, MLM is committed to creating high-quality, personalized projects with a focus on client collaboration and exceptional results.  Media Contact: Lindsay Swenson MLM Custom Homes & Renovations Email: info@mlm-inc.com Phone: (504) 734-1999 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527726/mlm-custom-homes-renovations-voted-best-construction-company-in-my-new-orleans-magazines-2025-best-of-home-awards)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mlm-custom-homes-wins-best-construction-company-in-2025-awards/6a5b423f5fb7d81010d506578914fc40) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/16/jokeAKuZ.webp)

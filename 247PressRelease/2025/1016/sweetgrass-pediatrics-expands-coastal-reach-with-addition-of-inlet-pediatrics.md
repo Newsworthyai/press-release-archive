@@ -1,0 +1,18 @@
+# Sweetgrass Pediatrics Expands Coastal Reach with Addition of Inlet Pediatrics
+
+MURRELLS INLET, SC, October 16, 2025 /24-7PressRelease/ -- Sweetgrass Pediatrics is pleased to announce the addition of Inlet Pediatrics, now operating as Sweetgrass Pediatrics at the Inlet, effective October 15, 2025. The practice, located at 140 Bandage Court, Murrells Inlet, has proudly cared for families in the community for nearly 20 years.  Led by Dr. Amanda Drosieko, MD, Inlet Pediatrics has earned a reputation for compassionate, family-centered pediatric care. Dr. Drosieko, along with beloved nurse practitioner Dawn Fox, will remain with the practice and continue serving as familiar faces of care for years to come, ensuring continuity and trust through this transition.  With this expansion, Sweetgrass Pediatrics strengthens its presence in the rapidly growing Grand Strand region—bringing greater convenience, access, and coordinated pediatric services to local families. Updated office hours will be Monday through Friday, 8:00 AM to 5:00 PM, with a lunch closure from 12:00 PM to 1:00 PM. In addition, families at Sweetgrass Pediatrics at the Inlet will now have access to telemedicine options, behavioral health and counseling specialists, online appointment scheduling and texting communication, and the full network of Sweetgrass locations across the Charleston Lowcountry.  "The addition of Inlet Pediatrics marks an exciting step in Sweetgrass Pediatrics' continued growth along South Carolina's coast," said Dr. Colleen Boylston of Sweetgrass Pediatrics. "Dr. Drosieko and her team share our commitment to exceptional, family-focused care, and we're thrilled to welcome them into our growing network."  "Becoming part of Sweetgrass Pediatrics allows us to continue offering the same trusted care our families have relied on while expanding the resources and support available to them," shared Dr. Amanda Drosieko. "We look forward to many more years of caring for the children of Murrells Inlet."  For additional details on Sweetgrass Pediatrics and its commitment to delivering compassionate, accessible, and family-centered pediatric care, please visit www.sweetgrasspediatrics.com.  About Sweetgrass Pediatrics  Sweetgrass Pediatrics has proudly served families across South Carolina's Lowcountry for more than 20 years, offering comprehensive pediatric and adolescent care across nine locations. Founded by Dr. Colleen Boylston, a visionary pediatrician dedicated to compassionate and comprehensive care, Sweetgrass Pediatrics has become both a trusted community resource for families and an employer of choice for clinicians. As part of US Pediatric Partners, Sweetgrass Pediatrics continues to expand access to high-quality, family-centered pediatric care through innovative services such as telemedicine, integrated behavioral health, and coordinated care across its regional network. Together, Sweetgrass and US Pediatric Partners are committed to elevating pediatric excellence, ensuring every child across South Carolina has access to the highest standard of care. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527672/sweetgrass-pediatrics-expands-coastal-reach-with-addition-of-inlet-pediatrics)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sweetgrass-pediatrics-expands-with-inlet-pediatrics-merger/64056dd8421c89e3d0bb8511526a7ace) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/16/numbJext.webp)

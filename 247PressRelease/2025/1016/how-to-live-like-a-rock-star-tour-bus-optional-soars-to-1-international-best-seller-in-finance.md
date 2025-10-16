@@ -1,0 +1,18 @@
+# How to Live Like a Rock Star - Tour Bus Optional Soars to #1 International Best Seller in Finance
+
+FALLBROOK, CA, October 16, 2025 /24-7PressRelease/ -- Life isn't meant to be survived - it's meant to be lived. Boldly. Joyfully. With freedom, purpose, and peace. That's the powerful message behind How to Live Like a Rock Star - Tour Bus Optional, the brand-new book by international speaker, award-winning wealth strategist, and media personality Wendy Lyon - The Financial Lyon - which has officially become the #1 International Best Seller in Finance in the U.S., U.K., Canada, and France.   Launched on September 30, 2025, How to Live Like a Rock Star - Tour Bus Optional hit the ground running. It climbed to #1 in Finance in the United States on October 1 , then roared past the competition to become a #1 International Best Seller on October 3 - just three days after release.   This isn't just another money book. It's a bold call to live your life on your terms - not just with financial freedom, but with the confidence, abundance, and joy that make every day feel like a standing ovation.   As Lyon explains, "You don't need a tour bus ... you just need a plan." And that's exactly what she delivers: a clear, practical, and empowering roadmap to help readers dream big, live boldly, and leave ordinary behind. "If you've ever dreamed of living like a rock star - not because of the fame or the spotlight, but because of the freedom, purpose, and peace that come with it - this is your playbook," says Lyon. Drawing from decades of experience helping people transform their finances and their lives, she shows readers how to stop settling for 'just surviving' and start building the life they were always meant to live.   Readers can get their copy of the #1 best-selling book on Amazon here: https://www.amazon.com/dp/B0FTVNCW4K  To go deeper, fans are invited to visit https://HowTolivelikeaRockStar.vip, where they can download their Rock Star Checklist and discover 5 powerful mindset shifts to start transforming their life right now. They can also sign up to be notified when Lyon launches Rock Star Life Academy - an interactive program that takes readers through the book chapter by chapter with workbooks, a supportive community, and the accountability needed to turn dreams into reality. With her trademark blend of practical strategies, heartfelt storytelling, and unwavering belief that everyone deserves a rock star life, Wendy Lyon is helping people everywhere rewrite their future - proving that you don't need fame, fortune, or a tour bus to live like a rock star.  Wendy Lyon, widely known as The Financial Lyon, is an international best-selling author, award-winning wealth strategist, and sought-after speaker who has dedicated more than two decades to helping people transform their financial futures. Host of the acclaimed TV and radio show Wealth & Wisdom, Wendy empowers audiences to protect their most valuable asset - their life - while building lasting wealth and creating a life of purpose and freedom. Her proprietary strategies and powerful insights have helped countless clients eliminate debt, grow their wealth, and design lives they love. Wendy's mission is simple yet profound: to help people dream big, live boldly, and leave ordinary behind. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527725/how-to-live-like-a-rock-star-tour-bus-optional-soars-to-1-international-best-seller-in-finance)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wendy-lyon-s-rock-star-life-book-hits-1-international-bestseller/b3d5d19853c4ad391283d16f56312d23) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/16/swim4IAd.webp)

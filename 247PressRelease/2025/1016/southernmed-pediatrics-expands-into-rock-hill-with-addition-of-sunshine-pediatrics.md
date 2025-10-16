@@ -1,0 +1,18 @@
+# SouthernMED Pediatrics Expands into Rock Hill with Addition of Sunshine Pediatrics
+
+ROCK HILL, SC, October 16, 2025 /24-7PressRelease/ -- SouthernMED Pediatrics, one of South Carolina's leading pediatric healthcare providers, proudly announces the integration of Sunshine Pediatrics to its operations, effective October 15, 2025. Located at 724 Arden Lane, Suite 100, Rock Hill, Sunshine Pediatrics has been a trusted provider of children's healthcare in the community for more than two decades.  Founded by Dr. Raj Patel, Sunshine Pediatrics has earned a long-standing reputation for compassionate, high-quality care for local families. With the addition, Dr. Patel and the existing Sunshine team will remain on staff indefinitely, ensuring continuity of care and treating patients with the same familiar faces they have come to know and trust.  As part of SouthernMED Pediatrics, Sunshine Pediatrics will expand patient access and convenience with new weekday hours of 8:00 AM to 5:00 PM, including a lunch closure from 12:00 PM to 1:00 PM, while maintaining Saturday morning visits for added flexibility. Families will now also benefit from SouthernMED's robust statewide network, gaining access to telemedicine options, behavioral health and counseling services, online appointment scheduling, and a coordinated pediatric network across South Carolina.  "Sunshine Pediatrics has built a remarkable reputation for delivering compassionate care for more than 20 years," said Dr. Kyle Guyton, Co-Founder of SouthernMED Pediatrics. "We are honored to welcome Dr. Patel and the dedicated Sunshine team into the SouthernMED family. Together, we will continue providing exceptional care while expanding access and services to meet the needs of Rock Hill's growing families."  "Joining SouthernMED allows us to build on the foundation we've created in this community," shared Dr. Raj Patel of Sunshine Pediatrics. "Our patients can expect the same personal care and smiling faces they already know, now supported by the expanded resources of SouthernMED Pediatrics."  For additional details on SouthernMED Pediatrics and its mission to deliver comprehensive, family-centered pediatric care to medically under-served communities, please visit www.southernmedpeds.com.  About SouthernMED Pediatrics  SouthernMED Pediatrics has been a trusted leader in pediatric healthcare for families across South Carolina for more than 15 years. Founded by Dr. Kyle Guyton and Dr. Joseph Delaney, the practice began with a single location in Lexington in 2008 and has grown steadily through a shared vision of expanding access to high-quality pediatric care. Today, SouthernMED operates fourteen offices statewide and remains committed to reaching more medically underserved communities across South Carolina. As part of US Pediatric Partners, SouthernMED continues its mission to redefine pediatric excellence through a patient-first, team-driven model of care that prioritizes access, compassion, and innovation in every community it serves. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527674/southernmed-pediatrics-expands-into-rock-hill-with-addition-of-sunshine-pediatrics)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/southernmed-pediatrics-integrates-sunshine-pediatrics-in-rock-hill-expansion/ca39e1e957011714147ce09ab8aa0a71) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/16/maskB7Sj.webp)

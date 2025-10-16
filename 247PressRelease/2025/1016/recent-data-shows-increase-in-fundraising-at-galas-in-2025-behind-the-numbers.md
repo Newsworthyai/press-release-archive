@@ -1,0 +1,18 @@
+# Recent Data Shows Increase in Fundraising at Galas in 2025 – Behind the Numbers
+
+SOUTH ELGIN, IL, October 16, 2025 /24-7PressRelease/ -- Raising Paddles, a nationally known fundraising company that provides consulting and auctioneer services for non-profits for their fundraising events is providing analytics to show how the current political and economic landscape is impacting fundraising events, in particular the non-profit's signature event, such as a gala.  Utilizing data from 800 non-profit gala-type events, Raising Paddles has identified some key metrics to show how non-profits are performing with their galas. Many non-profits are concerned about results being negatively impacted by less giving by donors and funding by the government.  Analytics from these 800 events (post-covid) show that from 2022-2025, there has been a increase in attendance at events by 6%, and an increase in giving per attendee of 8.7%. Still, there is a slight decrease year over year from 2024 to 2025.   2024 averaged $429,183 in event revenue for galas and averaged 330 guests attending. In 2025 thru September, non-profits are averaging $433,227 in event revenue for galas and averaging 348 attendees. This represents a modest increase in revenues and attendees, which is a positive outcome in spite of the current environment for fundraising.  That said, there is a slight decline in revenue per attendee of 4.7%, which is about $70 per attendee at these events. So, even though giving has decreased per attendee, overall giving at galas has increased due to more attendees.  Utilizing data from 2022 – 2025, total revenues at galas has increase 14% overall, and attendance has increase 9% overall. It is important to note that these galas and fundraising events involved a certain level of service that not all non-profits utilize, including the use of a professional fundraising auctioneer. This data excludes events that have no auctioneer or utilize a non-auctioneer such as an emcee, local personality or other non-professional auctioneer. Raising Paddles data only measures performance at their events where a professional fundraising auctioneer is utilized.  Two reasons for this increase in spite of the challenges many non-profits are facing is that utilizing a professional fundraising firm allows non-profits to benefit from implementing new strategies to offset any decline in sponsorships or ticket sales. Raising Paddles provides consulting services to help identify potential fundraising opportunities that are not fully optimized with their clients.   The 2nd reason for increased revenues is the generosity of key donors that are willing to "fill the gap" to offset loss of revenue from traditional sources such as government funding. Having a strong donor base is an opportunity to make the ask for additional support in trying times.  For more information, contact Raising Paddles at www.raisingpaddles.com  Raising Paddles has supported over 1,000 non-profit organizations with consulting, education, and on-stage performances to augment fundraising efforts, helping raise nearly $500 million for their clients. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527747/recent-data-shows-increase-in-fundraising-at-galas-in-2025-behind-the-numbers)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/non-profit-galas-show-resilience-despite-economic-challenges/7382f1b6c7c55aa4cd75b4000f8d44fc) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/16/envyy8CJ.webp)
