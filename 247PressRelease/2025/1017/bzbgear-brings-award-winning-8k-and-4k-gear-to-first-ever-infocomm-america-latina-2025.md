@@ -1,0 +1,18 @@
+# BZBGEAR Brings Award-Winning 8K and 4K Gear to First-Ever InfoComm América Latina 2025
+
+MEXICO CITY, MEXICO, October 17, 2025 /24-7PressRelease/ -- Viva, Latin America! BZBGEAR®, a global leader in Pro AV and Broadcasting solutions, is proud to be exhibiting at InfoComm América Latina 2025. The inaugural event is making its long-awaited debut in Mexico City, Mexico, from October 22–24, transforming the World Trade Center into the ultimate hub for professional audiovisual innovation.  InfoComm América Latina 2025 will feature:  • A massive exhibition floor highlighting the latest in audio, conferencing, streaming, VR, IT, and more. • Congreso AVIXA, a Spanish-language conference series focusing on AI, sustainability, marketing, and industry trends. • Immersive demo rooms offering firsthand experiences of next-generation sound and video technologies. • AVIXA Xchange LIVE, a networking hub connecting industry leaders and innovators.  BZBGEAR Takes Center Stage with Spicy Pro AV and Broadcasting Gear  BZBGEAR will be showcasing its refreshed brand identity alongside an impressive lineup of new Pro AV and Broadcasting solutions at Booth 75. Visitors can use code BZB75 when registering for free passes.  "Exhibiting at the first-ever InfoComm América Latina is a significant milestone for us and the Latin America region," said Eugene Bocharov, CEO and President, BZBGEAR. "It'll be exciting to learn of the area's markets and projects and to demonstrate how we can be a good partner."  At InfoComm América Latina 2025, BZBGEAR will unveil its latest innovations:  • BG-8K-1616MA: The market's first-ever 8K 16x16 matrix switcher; InfoComm 2025 award winner. • BG-IPGEAR-XTREME-PRO: 8K AV over IP multicast transceiver over 1 Gb; IBC2025 award winner. • BG-STREAM-DE: 4K video streaming encoder/decoder/recorder that is Dante AV-H ready; IBC2025 award winner. • COMMANDER G2: Second-generation IP/Serial joystick controller with 5" touchscreen designed for precision and versatility. • 4K-VP and VPPRO series: The Swiss Army Knife of AV distribution, these 4K UHD matrix switchers support video walls, multiview, and signal extension. • ADAMO series: The Most Awarded PTZ Camera in the Market, these FHD/UHD AI auto-tracking PTZ cameras get enhanced with a powerful 40x optical zoom lens.  Calling All Gearheads  Come celebrate BZBGEAR's new look and groundbreaking products at InfoComm América Latina 2025. Visit Booth 75 at the World Trade Center in Mexico City, Mexico, from October 22–24. Remember to register with code BZB75 for your free show pass.  About BZBGEAR  Established in 2019 and headquartered in Sacramento, California, BZBGEAR is a leading manufacturer of end-to-end pro AV and broadcasting products. Their mission is to provide top-grade AV and broadcasting solutions focusing on design, user experience, and lifetime product support. Every solution is carefully designed by BZBGEAR hardware and software engineers to ensure unmatched quality and features. With award-winning products and industry-leading support, BZBGEAR is the number one choice for any AV and broadcasting application. Learn more at bzbgear.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527789/bzbgear-brings-award-winning-8k-and-4k-gear-to-first-ever-infocomm-am%C3%A9rica-latina-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bzbgear-debuts-award-winning-8k-av-tech-at-infocomm-latin-america/4687f4afc86850dcad92fcfd41f8b350) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/17/tarop13W.webp)

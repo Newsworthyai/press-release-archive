@@ -1,0 +1,18 @@
+# FICTION AUTHOR OF THE YEAR, KAY A. OLIVER, UNLEASHES A HEART-POUNDING NEW PSYCHOLOGICAL THRILLER "FEAR-STRUCK"
+
+LOS ANGELES, CA, October 17, 2025 /24-7PressRelease/ -- Award-winning novelist and Hollywood veteran Kay A. Oliver, recently named Fiction Author of the Year by the International Association of Top Professionals (IAOTP), is set to electrify readers once again with the release of her most chilling and emotionally charged thriller to date "FEAR-STRUCK."  Prepare to question everything you believe about fear, control, and survival.  In FEAR-STRUCK, Oliver plunges readers into the darkest corners of the human psyche where fear does not just haunt you... it hunts you. This haunting thriller plunges Orson Kutter into a nightmare beyond imagination when he is accused of brutal murders ripped straight from the pages of a novel he wrote years ago, and fiction suddenly becomes his deadliest reality. The story reveals how far we will go when the mind becomes the battlefield. Every page pulses with tension and deceit, echoing a chilling truth that the greatest danger may not lurk in the shadows, but within ourselves, teaching us it can be our worst enemy.   "Fear is the most powerful emotion we have," says Oliver. "It can save us, destroy us, or twist our perception of reality. Fear-Struck explores that razor-thin line and what happens when we step over it."  With her trademark cinematic storytelling and her background in Hollywood production, Oliver masterfully crafts a psychological maze that blurs the line between truth and delusion. Each twist feels like a cinematic reveal; each revelation forces readers to confront their own hidden fears.  Following her award-winning novels Road to Elysium and Disturbed Tombs, Oliver once again proves why she is a powerhouse in modern fiction, fearlessly tackling complex emotions, moral dilemmas, and the fragile limits of the human mind.  Get your copy here.  Fans of psychological thrillers will be consumed by FEAR-STRUCK, a pulse-pounding journey that seizes you from the very first page and refuses to release its grip until the final, jaw-dropping twist.  Visit https://KayAOliver.com to learn more about the author.  ABOUT THE AUTHOR   After more than 30 years in Hollywood, Kay A. Oliver traded scripts for novels, embracing the boundless creative freedom of fiction. Her debut, Disturbed Tombs, burst onto the literary scene, earning four prestigious awards and proving that women's stories do sell. That success opened the door to Road to Elysium and a growing collection of award-winning novels that keep readers turning the pages long into the night.  WIth over thirty literary awards, Oliver was honored in Who's Who in America 2024 and named Fiction Author of the Year 2025 by the IAOTP, Oliver continues to craft tales that uplift and empower. Her stories explore triumph over adversity, celebrate authentic relationships, and reflect the wisdom learned.  Readers often tell her that her novels do not just entertain - they linger, resonating long after the last chapter. Each story is a testament to the power of hope, the beauty of resilience, and the strength of the human spirit. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527689/fiction-author-of-the-year-kay-a-oliver-unleashes-a-heart-pounding-new-psychological-thriller-fear-struck)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-s-fear-struck-explores-psychology-of-fear/c838ff35fad0f4bb25dfed016dc9d0e1) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/17/clubkojz.webp)
