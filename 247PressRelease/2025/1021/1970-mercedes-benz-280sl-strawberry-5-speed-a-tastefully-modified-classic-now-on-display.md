@@ -1,0 +1,18 @@
+# 1970 Mercedes-Benz 280SL "Strawberry" 5-Speed: A Tastefully Modified Classic Now on Display
+
+FORT WORTH, TX, October 21, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is thrilled to feature a unique twist on a Mercedes-Benz icon: a 1970 Mercedes-Benz 280SL, now proudly on display as part of The Ron Sturgeon Collection. With over $70,000 in restoration work and the addition of a performance-focused five-speed manual transmission, this SL merges classic elegance with an enthusiast's driving spirit.  Originally finished in Silver Metallic with an Anthracite Grey hardtop, this U.S.-market example now wears a rich metallic burgundy repaint—a shade affectionately dubbed "Strawberry" for its deep, unexpected flair. The color, paired with its sleek proportions and timeless W113 "Pagoda" design, makes this 280SL a standout among even the most pristine factory-correct examples.  Under the hood lies the 2.8-liter M130 inline-six, which was resealed during its multi-year refurbishment, ensuring smooth and reliable performance. The real transformation, however, lies in the gearbox: a Tremec five-speed manual transmission sourced from the specialists at Bud's Benz, bringing a new level of engagement and precision to this luxury roadster.  "This 280SL captures the best of both worlds—classic Mercedes design and modern drivability," says Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's a car you admire standing still and absolutely love behind the wheel."  Other highlights include a fully refreshed braking system with new rotors, pads, and lines (2020), VDO instrumentation set into a body-colored dash fascia, and a period-correct Becker Europa stereo in the center console. The five-digit odometer currently shows 87,000 miles.  With disc brakes at all four corners, a rev-happy 7k-rpm tachometer, and the rare pairing of a manual gearbox in a car traditionally equipped with automatics, this 280SL stands out as both a collector's piece and a driver's delight.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523903/1970-mercedes-benz-280sl-strawberry-5-speed-a-tastefully-modified-classic-now-on-display)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/restored-1970-mercedes-280sl-with-5-speed-manual-debuts-at-dfw-museum/db303f049784cc9cc12633df08de5971) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/21/larkPww1.webp)
