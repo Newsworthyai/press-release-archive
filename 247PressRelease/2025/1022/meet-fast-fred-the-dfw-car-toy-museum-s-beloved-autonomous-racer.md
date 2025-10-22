@@ -1,0 +1,18 @@
+# Meet "Fast Fred" — The DFW Car &amp; Toy Museum's Beloved Autonomous Racer
+
+FORT WORTH, TX, October 22, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum has officially added a surprising new favorite to its lineup of classic cars and rare collectibles: Fast Fred, the museum's fully autonomous robotic floor scrubber. While he was built to clean, this high-tech Tennant X4 ROVR has quickly become one of the most talked-about "exhibits" on the floor.  Fast Fred was named in honor of museum founder Ron Sturgeon's late twin brother, a lifelong drag racer whose spirit lives on in this unexpected little speedster. Outfitted with custom decals, an NHRA sticker, and a smiley face up front, Fast Fred fits right in among the museum's collection of muscle cars, race legends, and automotive icons.  During his three-hour cleaning runs, Fast Fred zips through the galleries with precision, pausing politely when guests cross his path before darting off again with racer-like urgency. Visitors often stop to snap photos or cheer him on as he cruises past rows of chrome and horsepower.  "In a museum built on speed, nostalgia, and the love of cars, it's only fitting that even our cleaning crew has racing DNA," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "Fast Fred keeps our floors spotless—and our visitors smiling."  From roaring engines to autonomous innovation, the DFW Car & Toy Museum continues to blend automotive history with modern technology, creating an experience that surprises and delights guests of all ages.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com.  About Tennant Company  Tennant Company is a recognized leader in the cleaning industry, providing high-quality floor cleaning equipment to help create a cleaner, safer, healthier world. Tennant offers a wide range of commercial and industrial solutions that can help improve efficiency, reduce costs, and ensure safe, clean spaces.Tennant's Robotic Scrubber is powered by software provided by Brain Corp. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527824/meet-fast-fred-the-dfw-car-toy-museums-beloved-autonomous-racer)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fast-fred-museum-s-robotic-scrubber-steals-show-from-classic-cars/5b7a3fa1022eabefde0f8de4abdac510) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/22/clubvRZO.webp)

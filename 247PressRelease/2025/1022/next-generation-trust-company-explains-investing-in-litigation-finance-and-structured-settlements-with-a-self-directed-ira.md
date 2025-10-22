@@ -1,0 +1,18 @@
+# Next Generation Trust Company Explains Investing in Litigation Finance and Structured Settlements with a Self-Directed IRA
+
+ROSELAND, NJ, October 22, 2025 /24-7PressRelease/ -- Next Generation Trust Company, a custodian of self-directed retirement plans, has published an article about investing in litigation financing and structured settlements, two alternative assets within the legal sector that can be included in a self-directed IRA (SDIRA) or other self-directed plans.  "Although structured settlement investments have been around for a long time, litigation financing is a newer and growing trend in alternative asset investing," said Jaime Raskulinecz, founder and CEO of Next Generation. "Owners of a self-directed IRA can invest in litigation funding for legal settlements through a non-recourse advance as well as in structured settlements, and grow their retirement accounts through long-term passive income."   In litigation financing, the owner of a self-directed IRA provides a non-recourse cash advance to fund legal cases. This advance supports the plaintiff or plaintiff's attorney/law firm in exchange for a portion of the final settlement (the court award).   "This is a passive investment and as a non-recourse transaction, the investor only makes money if the case is successful," noted Raskulinecz. "Therefore, the risk is relatively high but there is potential for high returns—usually based on a percentage of the damages or a multiple of the initial investment—if the case is won."  Litigation funding can be used in many types of cases and may be made in a single case or portfolio of legal cases through a funding group, online platform, or hedge fund that specializes in litigation financing.   In structured settlements, the compensation paid to a plaintiff is spread out over a period of years, like annuities. The settlement is set up by the court and is usually paid out by an insurance company. Plaintiffs may choose to forego the recurring steady income over time and sell their future income stream at a discounted lump sum amount; investors can have their self-directed IRA purchase the rights to those future payments at less than their total value. The SDIRA receives steady passive income because the payment schedule continues according to the original setup, with income greater than the investment amount, and there is little risk involved. The article provides additional information about investing in this alternative asset.  Read the full blog here. More information about SDIRAs and the many alternative assets these plans allow is at www.NextGenerationTrust.com.  About Next Generation  Next Generation Trust Company is a custodian of self-directed retirement plans, chartered in South Dakota. Its sister firm, Next Generation Services, provides comprehensive account administration and transaction support. The neutral third-party professionals at Next Generation expertly guide clients and their trusted advisors as part of their white glove, personalized service for a seamless transaction experience from start to finish and educate consumers and professionals about self-directed retirement plans and the many alternative assets these plans allow. For more information, visit www.NextGenerationTrust.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527915/next-generation-trust-company-explains-investing-in-litigation-finance-and-structured-settlements-with-a-self-directed-ira)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/self-directed-iras-can-now-invest-in-legal-settlements-litigation/eb954dca00c9e21697a975e528ab1024) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/22/openmXXf.webp)

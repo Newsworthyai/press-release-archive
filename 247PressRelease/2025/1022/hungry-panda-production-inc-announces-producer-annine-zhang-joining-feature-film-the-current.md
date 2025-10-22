@@ -1,0 +1,18 @@
+# Hungry Panda Production Inc. Announces Producer Annine Zhang Joining Feature Film THE CURRENT
+
+CULVER CITY, CA, October 22, 2025 /24-7PressRelease/ -- Hungry Panda Production Inc. proudly announces that acclaimed producer Annine Zhang has officially joined as Producer for the upcoming feature film THE CURRENT, set to begin production on December 31, 2027, and conclude on December 7, 2028.  Zhang is recognized for her extensive experience in film production and her ability to bring emotionally resonant stories to the screen. Her previous work has earned critical acclaim, demonstrating her command of both the creative and logistical sides of filmmaking. Her leadership will be instrumental in delivering THE CURRENT's ambitious vision.  Executive Producer Xueru Tang, known for producing award-winning films that bridge cultural and emotional storytelling, will guide the project alongside Zhang. The two form a powerhouse creative team that exemplifies Hungry Panda's commitment to bold, character-driven cinema.  About THE CURRENT THE CURRENT tells the story of a mother who, after serving eight years in prison, returns to a world unrecognizable from the one she once knew. Her home and neighborhood have been transformed, and as she searches for her missing daughter, she encounters a young girl and her grandfather living in a modest motel. Bound by shared longing and loss, the two women begin to see their own reflections in each other, discovering fragile hope in the process.  Zhang's Role as Producer As Producer, Annine Zhang will oversee all phases of production, including pre-production planning, on-set management, post-production supervision, and distribution strategy. Her responsibilities include:  - Designing and implementing a comprehensive production plan covering budget, schedule, and resource allocation.  - Leading casting, location scouting, and interdepartmental coordination among key creative teams.  - Managing on-set operations to ensure smooth production flow and adherence to safety and quality standards.  - Overseeing post-production teams responsible for editing, visual effects, sound design, and scoring.  - Developing marketing and distribution strategies, managing festival submissions, and building partnerships with distributors and sales agents.  "Annine brings both creative precision and leadership strength to every project she touches," said Xueru Tang, Founder of Hungry Panda Production Inc. "Her collaboration on THE CURRENT elevates the film's vision — one that explores transformation, forgiveness, and human connection with profound emotional depth."  About Hungry Panda Production Inc. Located in Culver City, California, Hungry Panda Production Inc. is an independent film company specializing in emotionally charged, visually compelling storytelling. Under the leadership of founder Xueru Tang and executive producer Xueru Tang, the studio develops and produces innovative, cross-cultural projects that resonate with global audiences.  For updates and behind-the-scenes insights, follow Hungry Panda Production Inc. on social media at @hungrypandainc. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527932/hungry-panda-production-inc-announces-producer-annine-zhang-joining-feature-film-the-current)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annine-zhang-joins-hungry-panda-s-the-current-as-producer/795652ce99c630f9d8ca21f192f517a2) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/22/chip69Mr.webp)

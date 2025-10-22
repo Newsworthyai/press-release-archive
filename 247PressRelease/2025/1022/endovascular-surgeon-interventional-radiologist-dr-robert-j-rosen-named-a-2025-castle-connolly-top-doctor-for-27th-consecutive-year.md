@@ -1,0 +1,18 @@
+# Endovascular Surgeon &amp; Interventional Radiologist Dr. Robert J. Rosen Named a 2025 Castle Connolly Top Doctor for 27th consecutive year
+
+NEW YORK, NY, October 22, 2025 /24-7PressRelease/ -- Robert J. Rosen, M.D. has been named a 2025 Castle Connolly Top Doctor, the 27th year he has received the esteemed Top Doctor designation. Only 7 percent of the nation's licensed physicians are chosen each year as Castle Connolly Top Doctors for their specialties in their regions.   Dr. Rosen is an interventional radiologist and endovascular surgeon who serves as AVM Center Director at the Lenox Hill Heart and Vascular Institute in New York.   Dr. Rosen evaluates and treats a wide range of complex vascular conditions. He is internationally recognized for his work in managing congenital vascular malformations in children and adults, receiving patient referrals from around the world for these disorders. His medical focus also includes the treatment of aortic aneurysms, atherosclerosis, hepatic tumors, and uterine fibroids.   Throughout his career, Dr. Rosen has performed over 70,000 interventional and endovascular procedures and has developed techniques and instrumentation now in common use. His procedural expertise is applied to the minimally invasive treatment of congenital vascular malformations, aortic aneurysms, peripheral artery disease, liver cancer, and uterine fibroids.  Dr. Rosen received his medical degree from Hahnemann University in Philadelphia. He completed post-graduate training at the Hospital of the University of Pennsylvania, finishing his fellowship in interventional radiology and endovascular surgery there in 1980. Following his fellowship, he was recruited to establish the Division of Endovascular Surgery and Interventional Radiology at New York University Medical Center, a role he held for 25 years.   Dr. Rosen holds several patents and has contributed extensively to medical literature, with over 100 original scientific papers, two textbooks, and numerous book chapters. An esteemed educator, he lectures internationally and has been a visiting professor at multiple institutions. Dr. Rosen is a Fellow of the Society for Interventional Radiology and a member of the Alpha Omega Alpha Honor Medical Society, the Radiological Society of North America, and the Cardiovascular Council of the American Heart Association.   Top Doctors are nominated by peer physicians and selected by the physician-led Castle Connolly research team.  About Castle Connolly Castle Connolly publishes its Top Doctors and Top Hospitals list at castleconnolly.com and in a variety of print and online partner publications. Nominations are open to all board-certified MDs, DOs, and DPMs. The Castle Connolly team chooses honorees based on nominee criteria that includes their medical education, training, hospital appointments, and disciplinary histories.  Doctors do not and cannot pay to be selected as a Castle Connolly Top Doctor. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527848/endovascular-surgeon-interventional-radiologist-dr-robert-j-rosen-named-a-2025-castle-connolly-top-doctor-for-27th-consecutive-year)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-robert-rosen-named-2025-castle-connolly-top-doctor-for-27th-year/fba404e7bfd320c5efd8817fdc447a09) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/22/tall8cAU.webp)
