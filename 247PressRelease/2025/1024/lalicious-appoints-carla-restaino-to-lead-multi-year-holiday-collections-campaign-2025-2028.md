@@ -1,0 +1,18 @@
+# LALICIOUS Appoints Carla Restaino to Lead Multi-Year Holiday Collections Campaign (2025–2028)
+
+LOS ANGELES, CA, October 24, 2025 /24-7PressRelease/ -- LALICIOUS, the award-winning luxury body care brand celebrated for its natural ingredients and elevated sensory experiences, proudly announces the appointment of Carla Restaino as Social Media Manager for its multi-year Holiday Collections initiative spanning 2025–2028.  This strategic, seasonal project will unify LALICIOUS's e-commerce, production, and wholesale efforts under a cohesive, content-driven holiday roadmap — marking one of the brand's most ambitious digital campaigns to date.  Restaino, a digital content creator known for crafting high-performing social storytelling and data-led campaign ecosystems, will lead social vision and execution across Instagram and TikTok, integrating PR activations, influencer collaborations, and full-funnel Meta partnerships.  Under her direction, LALICIOUS's Holiday Collections (2025–2028) will roll out in three distinct phases:  • Year 1 (2025–2026): Holiday 2025 launches with coordinated PR mailers, influencer seeding, and synchronized e-commerce drops aligned with inventory readiness. Restaino will also partner with Meta to drive conversion-focused paid campaigns during peak shopping.  • Year 2 (2026–2027): The program expands to include creator-led livestreams, pre-sale windows, and enhanced e-commerce features such as holiday gift guides and PDP video modules.  • Year 3 (2027–2028): Exclusive collaborations, omnichannel storytelling, and a user-generated content contest will engage loyal fans while reinforcing LALICIOUS's distinctive holiday identity.  "Carla brings a dynamic blend of creativity, strategic discipline, and insight into how brands connect emotionally through digital channels," said Jessica Kernochan, Founder and CEO of LALICIOUS. "Her leadership will deepen our brand's voice during the most important time of year, when over half of our business volume takes place."  With a distinguished reputation across the beauty and wellness sector, LALICIOUS's collaborations and innovative marketing have been featured in publications like NewBeauty, Lady Clever, and Brit + Co, further cementing its place as a category leader. Restaino's appointment underscores the brand's commitment to modernizing its digital ecosystem while honoring its artisanal roots and commitment to self-care.  The multi-year initiative represents not just a marketing expansion, but a long-term vision — one that connects inspiration, storytelling, and commerce at every consumer touchpoint.  About LALICIOUS Founded by Jessica Kernochan, LALICIOUS is a luxury body care brand formulated with high-performance natural ingredients and crafted in the United States. Recognized for its rich, whipped textures and addictive scents, LALICIOUS continues to innovate within the premium skincare market while maintaining sustainable practices and unmatched sensorial experiences.  For more information, visit https://www.lalicious.com/.  Contact: Jessica Kernochan, Founder & CEO LALICIOUS jessicak@lalicious.com https://www.lalicious.com/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528014/lalicious-appoints-carla-restaino-to-lead-multi-year-holiday-collections-campaign-20252028)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lalicious-appoints-carla-restaino-for-multi-year-holiday-digital-campaign/d5695b4a19121710c0f2aeb4ba849561) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/24/fineqr_9.webp)

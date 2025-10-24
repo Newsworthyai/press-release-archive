@@ -1,0 +1,18 @@
+# Dr. Azfar Malik Grant for Healthcare Students Opens Applications for 2026 Cycle
+
+ST. LOUIS, MO, October 24, 2025 /24-7PressRelease/ -- The Dr. Azfar Malik Grant for Healthcare Students is now accepting applications for its 2026 award cycle. This $1,000 grant supports undergraduate students across the United States who are passionately pursuing careers in healthcare—with a special emphasis on mental health, psychiatry, and compassionate, patient-centered care.  Administered in honor of Dr. Azfar Malik, the grant reflects his lifelong mission to cultivate healthcare professionals who lead with both clinical skill and deep empathy. Dr. Azfar Malik, a globally respected psychiatrist and medical innovator, established the grant to empower students who are not only academically driven but also committed to transforming the future of medicine.  The opportunity is open to currently enrolled undergraduates at accredited U.S. colleges and universities who are on a clear path toward a healthcare career—including those studying pre-medicine, nursing, psychology, public health, social work, or other allied health fields. Applicants must demonstrate academic dedication, compassion for others, and a forward-looking vision for improving healthcare systems.  A central requirement of the application is an original 750–1,000-word essay responding to the prompt: "Discuss the most significant challenge facing the mental healthcare system today and propose an innovative solution that balances clinical efficacy with compassionate, patient-centered care."   This healthcare-focused prompt is designed to identify students who can think critically about real-world issues and envision practical, humane solutions—values that have defined the career of Dr. Azfar Malik.  With over four decades of experience, Dr. Azfar Malik served as Founder and Chief Medical Officer of CenterPointe Hospital and as Adjunct Associate Clinical Professor at Saint Louis University. His leadership in integrating psychiatric care with community health has earned him a Distinguished Lifetime Fellowship from the American Psychiatric Association. Through this grant, Dr. Azfar Malik continues to inspire the next generation of healers, advocates, and innovators.  Applications must be submitted electronically by July 15, 2026. The recipient will be announced on August 15, 2026. All materials—including the required essay and student information—should be sent to apply@drazfarmalikgrant.com.  Full eligibility details and submission guidelines are available at https://drazfarmalikgrant.com/.  The Dr. Azfar Malik Grant for Healthcare Students is more than financial support—it's an investment in students who believe healthcare must be as equitable and compassionate as it is scientifically sound.  About the Dr. Azfar Malik Grant for Healthcare Students Based in St. Louis, Missouri, the grant was founded by Dr. Azfar Malik to support undergraduate students committed to advancing healthcare through knowledge, integrity, and human-centered care. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528002/dr-azfar-malik-grant-for-healthcare-students-opens-applications-for-2026-cycle)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-azfar-malik-s-1000-healthcare-grant-opens-for-2026-applications/a796a03b22d22dd2865901fa66f56cbe) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/24/calmk75T.webp)

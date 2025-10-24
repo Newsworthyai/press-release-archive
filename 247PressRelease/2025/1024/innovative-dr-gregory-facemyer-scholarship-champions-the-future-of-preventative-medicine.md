@@ -1,0 +1,18 @@
+# Innovative Dr. Gregory Facemyer Scholarship Champions the Future of Preventative Medicine
+
+YOUNGSTOWN, OH, October 24, 2025 /24-7PressRelease/ -- The Dr. Gregory Facemyer Scholarship for Medical Students is now accepting applications from undergraduate students across the United States. This annual program supports the next generation of physicians who are dedicated to integrating preventative care into the core of medical practice. The scholarship invites students to articulate their vision for a healthier future through a focused essay competition.  Founded by Dr. Gregory Facemyer, a distinguished family physician from Youngstown, Ohio, the scholarship reflects his lifelong commitment to patient wellness and community health. The initiative provides a platform for aspiring medical doctors to engage with critical healthcare topics and receive financial support for their education.  The application process centers on a substantive essay. Candidates are required to submit an original piece, between 750 and 1,000 words, addressing the prompt: "Describe how you envision the role of preventative medicine in the future of healthcare, and explain how you plan to contribute as a physician to advancing patient wellness and community health." Submissions will be evaluated on clarity, originality, depth of thought, and alignment with the values of compassionate and preventative care.  The scholarship is open to any undergraduate student currently enrolled at an accredited college or university in the United States who has a demonstrated plan to pursue a career as a medical doctor. This national scope ensures a diverse pool of ideas and perspectives on the evolving landscape of healthcare.  The career of Dr. Gregory Facemyer serves as a model for the scholarship's ideals. With over 25 years of experience, Dr. Gregory Facemyer has built a professional life around the very principles the scholarship promotes. As the owner of Austin Square Medical Group and a Clinical Professor at Northeast Ohio Medical University, Dr. Gregory Facemyer has consistently prioritized preventative strategies and patient education. His recognition as an Ohio Top Doc underscores his influence and dedication to the medical field.  The establishment of this scholarship is a natural extension of the work of Dr. Gregory Facemyer. It is designed to identify and assist future doctors who share a similar passion for proactive medicine. By supporting these students, the scholarship aims to foster a medical community that not only treats illness but actively works to prevent it, thereby improving long-term community health outcomes.  The deadline for application submission is May 15, 2026. A one-time award of $1,000 will be granted to the selected winner, who will be announced on June 15, 2026.  Prospective applicants can find full details, including official rules and submission guidelines, on the scholarship's website. The Dr. Gregory Facemyer Scholarship for Medical Students looks forward to reviewing the innovative and thoughtful essays from the nation's future medical leaders. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528004/innovative-dr-gregory-facemyer-scholarship-champions-the-future-of-preventative-medicine)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-gregory-facemyer-scholarship-opens-for-future-preventative-care-leaders/a31ab956a54a9a0454b42e0efeba371c) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/24/yawn5IXE.webp)

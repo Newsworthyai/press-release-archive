@@ -1,0 +1,18 @@
+# An Exciting Coming-of-age Historical Following the Life of a Young Orphan Rising to Fame in Renaissance Venice
+
+AUSTIN, TX, October 24, 2025 /24-7PressRelease/ -- Venice, 1710 Poinsettia Girl is based on the story of Agata de la Pieta, an orphan musician of the Ospedale de la Pieta.  Ten-year-old Agata's world is shaken at the sudden death of her mother. Left only with her egregious father, a working musician in Venice, her ailing grandmother sends her to the well-known orphanage, hidden from everything she's ever known.  Agata auditions for the conservatory style music school where music is both salvation and spectacle. Hidden behind ornate metal grates, adorned with poinsettias in their hair, the singers are veiled in mystery, their ethereal music drawing noble audiences, including gilded young men who see them as treasures-not only for their sound but as coveted marriage prizes.  Just as she reaches the height of her musical journey, a marriage proposal from someone outside the audience tempts her with the promise of a new life-a return to the old neighborhood she's longed for and a home she barely remembers. Torn between the music that has defined her and the hope of belonging to a family, Agata must confront the most profound question of her life: is her purpose rooted in the music that shaped her, or in the love that might free her?  ISBN: 978-1964700441 HARDCOVER; 978-1964700434 PAPERBACK Publisher: Historium Press Order through Ingram – 55% wholesale discount - returnable  ABOUT THE AUTHOR Jennifer Wizbowski spent her childhood days lost among the spines of her favorite books. Inspired by the daffodil fields of Wordsworth and the babbling brooks of Shakespeare, she earned her bachelor's in English literature, a minor in music, and a secondary teaching credential, then wrote freelance for local business journals, taught in classrooms, and authored a Teen and Tween column for a parent magazine—all while raising her family.  As those years ended, she knew it was the right time to pursue her lifelong aspiration of bringing her own books to life. She now devotes herself to illuminating everyday women's stories often lost in the shadows of history, revealing how they became heroines of their own time and place.  Visit her website and blogs to learn more. https://www.gossamermedia.com Ms. Wizbowski is available for interviews, lectures, and/or book signings.  CONTACT: Jennifer Wizbowski historiumpublisher@gmail.com Dee Marley historiumpublisher@gmail.com  Order books by contacting Historium Press at historiumpublisher@gmail.com or through Ingram Distributors  HISTORIUM PRESS is located in Macon GA, U.S.A./ New York, NY U.S.A. - A subsidiary of The Historical Fiction Company  Historium Press is a hybrid book publisher specializing in historical fiction. We focus on historical books within the subgenres of literary, romance, time travel, mystery, fantasy, biography, adventure, young adult, thriller, nonfiction, and more.  We offer special hybrid packages for historical authors looking for quality publishing combined with book marketing and public relations.  Our goal is to help authors develop their brand and reach a wider audience.  https://www.historiumpress.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/527985/an-exciting-coming-of-age-historical-following-the-life-of-a-young-orphan-rising-to-fame-in-renaissance-venice)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/venice-orphan-s-musical-journey-revealed-in-new-historical-novel/6a5a8931e5596e0ac9f95f22ae6c56f5) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/24/moonMHS6.webp)
