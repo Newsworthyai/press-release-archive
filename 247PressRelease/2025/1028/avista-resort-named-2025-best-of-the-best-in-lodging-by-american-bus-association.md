@@ -1,0 +1,18 @@
+# Avista Resort Named 2025 "Best of the Best" in Lodging by American Bus Association
+
+NORTH MYRTLE BEACH, SC, October 28, 2025 /24-7PressRelease/ -- Avista Resort, a premier oceanfront hotel located in North Myrtle Beach, South Carolina, has been named a 2025 Best of the Best award winner in the lodging category by the American Bus Association (ABA). The prestigious award, presented by Destinations magazine—the official publication of the ABA—recognizes travel industry partners across North America that deliver exceptional service, hospitality, and group travel experiences.  Each year, the Best of the Best awards honor top-rated hotels, attractions, and destinations that go above and beyond to serve motorcoach groups and the group travel industry at large. Avista Resort was selected for its continued excellence in welcoming tour operators, motorcoach travelers, and group planners with outstanding accommodations, thoughtful amenities, and personalized service.  "We're so honored to be recognized by the American Bus Association as one of the Best of the Best in Lodging for 2025," said Kim Lewis, Director of Sales at Myrtle Beach Seaside Resorts. "This award means a lot to us because it comes from our peers and the tour groups who've chosen to stay with us year after year. It's a wonderful reflection of the care and dedication our entire Avista team puts into making every guest feel welcome. I couldn't be prouder of our staff and am so thankful to our partners in the motorcoach travel industry for their continued trust and support."  Located just steps from the Atlantic Ocean, Avista Resort offers condo-style accommodations with full kitchens and private balconies, indoor and outdoor pools, a lazy river, and on-site dining at Just Off Main. With group-friendly spaces, ample motorcoach parking, and a location minutes from top area attractions, the resort has become a trusted destination for group tours, reunions, retreats, and special events.  Avista Resort is also deeply committed to giving back, collaborating with local nonprofit organizations across South Carolina to support meaningful community initiatives.  About Avista Resort Avista Resort is a top-rated oceanfront hotel and condominium resort offering serene yet vibrant views of the South Carolina coastline. Known for its warm hospitality and exceptional guest experience, Avista creates long-lasting memories for families, groups, and travelers of all kinds. Located at 300 N Ocean Blvd, North Myrtle Beach, SC 29582. For more information, call (844) 494-0993 or visit www.avistaresort.com.  About the American Bus Association The American Bus Association (ABA) is the leading trade organization for the motorcoach, group travel, and tourism industry in North America. Destinations magazine, the official publication of the ABA, presents the annual Best of the Best awards to recognize excellence among its members and partners in group travel. For more, visit www.buses.org 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528126/avista-resort-named-2025-best-of-the-best-in-lodging-by-american-bus-association)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avista-resort-wins-prestigious-aba-best-of-the-best-lodging-award/5bc5ccbc905ba2d4be02ea9bea5e1fc4) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/28/gainVkEb.webp)

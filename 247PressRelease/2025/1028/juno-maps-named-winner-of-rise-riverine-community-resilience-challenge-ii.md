@@ -1,0 +1,18 @@
+# Juno Maps Named Winner of RISE Riverine Community Resilience Challenge II
+
+ROANOKE, VA, October 28, 2025 /24-7PressRelease/ -- Juno Maps, a leading geospatial technology company, has been named a winner of the RISE Riverine Community Resilience Challenge II, an international competition led by RISE Resilience Innovations to accelerate innovative solutions that address the growing risks facing inland, flood-prone communities in western portions of the state of Virginia.  The award recognizes Smart Site Plan, Juno Maps' cloud-based flagship platform that helps local governments prepare for, respond to, and recover from flood events. Designed with accessibility in mind, Smart Site Plan allows municipal teams, regardless of technical background, to visualize flood risk, assess vulnerable infrastructure, and collaborate in real-time across departments.  "We're honored to be selected as a winner of the RISE Riverine Community Resilience Challenge II," said Dustin Rauch, President & CEO of Juno Maps. "We're excited to partner with Virginia riverine communities and offer a solution that has the potential to save lives and protect infrastructure. This recognition reinforces our mission to build tools that put powerful data in the hands of those who need it most."  As a Challenge winner, Juno Maps will pilot Smart Site Plan in multiple western Virginia municipalities, with the goal of demonstrating how intuitive geospatial tools can support data-driven resilience planning in high-risk areas.   "Juno Maps is tackling a real and urgent need, giving communities the tools to see and understand their flood risk before disaster strikes," said Paul Robinson, Executive Director of RISE. "That's why their solution is so compelling. It gives local governments an immediate, easy-to-use way to understand and respond to risk. We're proud to support Juno Maps in bringing this level of clarity and confidence to flood-prone inland Virginia communities."  Funded by the Virginia Department of Housing and Community Development, the RISE Riverine Community Resilience Challenge II supports scalable solutions and innovations that strengthen long-term recovery, improve local decision-making, and build resilience to freshwater flooding. Juno Maps was selected for its potential to deliver measurable, real-world impact in high-risk communities.  About Juno Maps Juno Maps builds intuitive, data-rich geospatial platforms that help cities, utilities, and organizations tackle challenges ranging from infrastructure planning to environmental risk. With offices in Maryland and Valencia, Spain, Juno Maps is redefining how teams access and act on critical site data. For more information, visit junomaps.com.  About RISE Resilience Innovations RISE is a nonprofit resilience innovation hub and testbed based in Virginia that identifies, supports, and scales solutions to the biggest resilience-related risks facing flood-prone inland and coastal communities. Through its nationally recognized Innovation Challenge model, RISE has awarded more than $8 million to startups, entrepreneurs, and businesses to pilot cutting-edge technologies in real-world conditions. Learn more at www.riseresilience.org. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528109/juno-maps-named-winner-of-rise-riverine-community-resilience-challenge-ii)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/juno-maps-wins-rise-challenge-for-flood-resilience-platform/cb2d3bd608bc8a8c60fcc38ae1ddcec6) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/28/archx7fX.webp)

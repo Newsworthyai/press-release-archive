@@ -1,0 +1,18 @@
+# WAYS1 Showcases AI Digital Twin 'LDM TWIN' at Thailand Smart City Expo 2025
+
+SAN FRANCISCO, CA, October 28, 2025 /24-7PressRelease/ -- WAYS1, a South Korea–based smart mobility technology company, announced its participation in the Thailand Smart City Expo 2025, to be held from November 5–7 at QSNCC Bangkok. During the event, the company will unveil the on-site demonstration of "LDM TWIN," an AI-powered digital twin traffic management solution currently being piloted in Thailand.  WAYS1's exhibition booth will feature a live demonstration of LDM TWIN, showcasing a realistic 3D digital twin model of intersections in Thailand's Nonthaburi region. Visitors will experience how real-time data from vehicles, motorcycles, and pedestrians is collected, analyzed, and visualized within the system. Through this, participants can witness the next generation of data-driven traffic control and visualization technologies, offering a glimpse into the future of smart city mobility.  Throughout the exhibition, WAYS1's booth is expected to draw representatives from municipal governments, transportation authorities, and system integration (SI) partners across Thailand and other countries. Discussions will focus on LDM TWIN's scalability, data quality validation, and international collaboration opportunities for future smart mobility applications.  "At the core of LDM TWIN is real-time monitoring powered by on-site data," said Seungho Hwang, CEO of WAYS1. "By integrating high-definition maps, real-time perception, and signal coordination, the system enables seamless visualization and analysis of traffic conditions in real time. We're excited to demonstrate a model optimized for ASEAN urban environments during the exhibition."  WAYS1's participation in the Thailand Smart City Expo 2025 marks a significant milestone in its expansion across the ASEAN region. By introducing the LDM TWIN system to Thailand, the company aims to foster cross-border collaboration in the fields of AI-driven traffic management, smart infrastructure, and sustainable urban planning. The initiative underscores WAYS1's commitment to advancing digital transformation for smart cities, supporting governments and industry partners in building safer, more efficient, and environmentally conscious transportation ecosystems.  WAYS1 will operate at Booth H14 throughout the Thailand Smart City Expo 2025, hosting live demonstrations, business meetings, and partner consultations. The company will showcase how LDM TWIN integrates digital twin technology with real-time data to enhance traffic management and urban mobility. Visitors will be able to experience interactive simulations and explore potential applications for smart city infrastructure across ASEAN regions.  About WAYS1  WAYS1 is a Korean smart mobility solutions company specializing in digital twin, high-definition mapping, and C-ITS/BIS/BMS technologies. The company provides real-time traffic control and data-driven decision-making solutions, enabling the intelligent management of transportation systems for safer and more efficient cities worldwide. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528092/ways1-showcases-ai-digital-twin-ldm-twin-at-thailand-smart-city-expo-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ways1-debuts-ai-digital-twin-traffic-system-at-thailand-expo/263ff785e7239c25de54c12cf24ad9f5) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/28/poemDWX7.webp)
