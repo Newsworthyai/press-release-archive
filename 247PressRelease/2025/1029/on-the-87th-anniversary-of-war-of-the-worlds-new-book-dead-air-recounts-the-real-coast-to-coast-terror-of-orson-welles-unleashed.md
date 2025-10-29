@@ -1,0 +1,18 @@
+# On the 87th Anniversary of War of the Worlds, New Book Dead Air Recounts the Real Coast to Coast Terror of Orson Welles Unleashed
+
+CHICAGO, IL, October 29, 2025 /24-7PressRelease/ -- Eighty-seven years ago this week, millions of Americans believed the world was ending. On October 30, 1938, Orson Welles' now-legendary War of the Worlds broadcast sparked mass panic as listeners mistook the Mercury Theatre's radio drama for real news of a Martian invasion.  In his acclaimed new book, Dead Air: The Night Orson Welles Terrified America, National Bestselling author William Elliott Hazelgrove brings to life the night the United States collectively lost its grip on reality. Through vivid storytelling and deep research, Hazelgrove recreates the chaos, confusion, and cultural shockwave that turned a radio show into one of the most infamous moments in American history.  "Welles created the first viral event," Hazelgrove says. "In an age before television or social media, a single broadcast paralyzed the country. Dead Air shows how fear, faith in media, and imagination collided in one unforgettable hour."   The book has received rave reviews from critics and historians alike: "A masterful account of mass hysteria and media power." — Booklist "Hazelgrove turns a night of radio into a cinematic, heart-pounding read." — Publishers Weekly. As the 87th anniversary of the broadcast rekindles fascination with Welles' masterpiece, Dead Air reminds readers how a single story—told the right way at the right moment—can shake an entire nation. Hazelgrove, author of Evil on the Roof of the World and Madam President The Secret Presidency of Edith Wilson, once again blends cultural history and narrative drama to reveal the truth behind a night that defined modern media.  William Hazelgrove is the National Bestselling author of ten novels and twelve nonfiction titles. His books have received starred reviews in Publisher Weekly Kirkus, Booklist, Book of the Month Selections, ALA Editors Choice Awards Junior Library Guild Selections, Literary Guild Selections, History Book Club Selections, History Book Club Bestsellers, Distinguished Book Award. and optioned for the movies. He was the Ernest Hemingway Writer in Residence where he wrote in the attic of Ernest Hemingway's birthplace. He has written articles and reviews for USA Today, The Smithsonian Magazine, and other publications and has been featured on NPR All Things Considered. The New York Times, LA Times, Chicago Tribune, CSPAN, USA Today, World News Tonight have all covered his books with features. His book "Madam President: The Secret Presidency of Edith Wilson" is currently in development. He has two forthcoming titles: "Dead Air: The Night Orson Welles Terrified America" and "Hemingway's Attic: Hell and Glory in Cuba and the Writing of The Old Man and the Sea."  More information can be found at www.williamhazelgrove.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528140/on-the-87th-anniversary-of-war-of-the-worlds-new-book-dead-air-recounts-the-real-coast-to-coast-terror-of-orson-welles-unleashed)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dead-air-recalls-night-orson-welles-broadcast-terrified-america/ce015f5d3b193c35f3fc40933c4d64f5) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/29/kiteRNsc.webp)

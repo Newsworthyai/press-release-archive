@@ -1,0 +1,18 @@
+# UAE hosts UAE-Africa Tourism Investment Summit forging a shared vision for sustainable tourism ventures across Africa
+
+ABU DHABI, UAE, October 29, 2025 /24-7PressRelease/ -- Under the patronage of His Highness Sheikh Mohammed bin Rashid Al Maktoum, Vice President and Prime Minister of the United Arab Emirates (UAE) and Ruler of Dubai, the UAE Ministry of Economy and Tourism hosted the UAE-Africa Tourism Investment Summit 2025. The summit, held recently in Dubai under the theme 'Building Bridges for Sustainable Growth,' witnessed extensive participation from over 350 leaders, ministers, senior government officials, decision-makers, investors, and entrepreneurs from the UAE and 53 African nations.   The summit, held as part of the Future Hospitality Summit (FHS World 2025) and in collaboration with The Bench, was attended by His Excellency Abdulla bin Touq Al Marri, UAE Minister of Economy and Tourism and Chairman of the Emirates Tourism Council.  In his opening speech at the summit, H.E. Bin Touq said: "Guided by the wise vision of our leadership - a vision that not only anticipates the future but also actively shapes it and achieves its milestones - the UAE has positioned tourism as a bridge connecting peoples and cultures around the world. It has become a key driver for attracting investment and entrepreneurs, strengthening the growth and competitiveness of the UAE national economy, and a source of pride through its pioneering achievements across all its verticals, led by national talents who have earned global trust to hold high-level positions."  The Summit convened a series of panel sessions and presentations that explored the future of tourism in Africa and ways to develop tourism and investment collaboration between the UAE and African nations. The sessions contributed to strengthening economic integration in the continent by forging quality partnerships in tourism, hospitality, tourism infrastructure, tourism project financing and innovation.  Her Excellency Shaikha Nasser Al Nowais, UN Tourism Secretary-General elect for the term 2026–2029, delivered a presentation titled 'The Future of African Tourism', in which she outlined a comprehensive development vision for driving Africa's tourism sector forward.  In addition, the Summit hosted a high-level ministerial roundtable meeting with the participation of more than 20 African nations, resulting in a joint ministerial statement that sets out a new investment mapping to bolster collaboration and partnership in tourism, aviation, transport and logistics, infrastructure and digital transformation. The projects submitted by participating countries under the investment mapping are estimated to require a total investment of approximately USD 6 billion and are projected to generate 70,000 direct and indirect jobs collectively.  The joint statement also outlines five priority areas to bolster joint efforts between the UAE and Africa: tourism, investment and infrastructure, aviation and connectivity, sustainability, and SME-financing and innovation. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528145/uae-hosts-uae-africa-tourism-investment-summit-forging-a-shared-vision-for-sustainable-tourism-ventures-across-africa)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-africa-summit-maps-6b-tourism-investment-70k-jobs/7ba4319a8e1a5b96c7ae67131ab6d8e2) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/29/kiteRXlG.webp)

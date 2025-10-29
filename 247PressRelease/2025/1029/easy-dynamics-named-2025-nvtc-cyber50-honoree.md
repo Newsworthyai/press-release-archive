@@ -1,0 +1,18 @@
+# Easy Dynamics Named 2025 NVTC Cyber50 Honoree
+
+MCLEAN, VA, October 29, 2025 /24-7PressRelease/ -- Easy Dynamics (EZD) is pleased to announce they have been named a 2025 Cyber50 Award Honoree by the Northern Virginia Technology Council (NVTC). This recognition reinforces the company's reputation for innovation and leadership in advancing cybersecurity solutions that protect critical systems and data.  The NVTC Cyber50 Awards recognize the top 50 cybersecurity companies, government contractors, executives, and rising stars in the National Capital Region. Honorees were selected from more than 130 nominations through a rigorous evaluation process conducted by a panel of independent judges who assessed candidates based on three areas: innovation, impact, and leadership in cybersecurity.  "We are honored to be recognized as a 2025 NVTC Cyber50 honoree," said Poupak Afshar, CEO of Easy Dynamics. "I am thrilled to see the team recognized for their work delivering modern and effective cybersecurity solutions that address our nation's most critical security challenges. As we innovate in Zero Trust Architecture (ZTA), ICAM, and security automation, we always remain focused on our core mission: to design, build, and secure the systems that protect our people, places, and way of life."  EZD has established itself as a trusted partner in developing cybersecurity solutions for federal agencies of all sizes. The company provides clients with effective solutions that enhance their security posture, accelerate compliance and modernization efforts.  As the cybersecurity landscape continues to evolve with emerging threats and technological advancements, EZD remains committed to staying at the forefront of innovation. The NVTC Cyber50 recognition affirms the company's position as a leader in cybersecurity and underscores its ongoing dedication to protecting the digital infrastructure that powers our nation's critical operations.  About Easy Dynamics  Easy Dynamics is a leading technology services provider with a core focus in ICAM, Cloud Modernization, Risk Management, and Automation & Resiliency. We are builders, problem solvers, and trusted advisors who bring well-architected solutions and management consulting to our clients to align them with the best practices their missions demand. As industry leaders, we are committed to delivering unparalleled quality and service in all aspects of our organization and providing our customers with technical excellence and the business acumen needed to advise them on both tactical and strategic initiatives. Learn more at www.easydynamics.com.  About the Northern Virginia Technology Council (NVTC) NVTC is where the region's tech community comes together. From bold startups to Fortune 100 giants, we represent 500 members across sectors shaping the future of technology. NVTC drives innovation, fosters connections, and advocates for policies that fuel growth and position Northern Virginia as a global leader in technology. Through its initiatives in cybersecurity, gen AI, cloud computing, and beyond, NVTC empowers the tech community to shape the future. Whether it's through policy advocacy, peer networks, or industry promotion, NVTC drives innovation that's transforming the world. Learn more at www.nvtc.org. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528121/easy-dynamics-named-2025-nvtc-cyber50-honoree)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easy-dynamics-honored-as-2025-nvtc-cyber50-award-winner/0d599524ca61306fd3ed540985509d3b) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/29/quitcZWI.webp)
