@@ -1,6 +1,8 @@
 # RockBreaks – Lahontan Gold Corp. (TSXV: LG) (OTCQB: LGCXF) Receives C$4.3 Million from Warrant and Option Exercises
 
-Lahontan Gold (TSXV: LG) (OTCQB: LGCXF) announced it has received C$4,316,948 from the exercise of warrants and stock options between July 4 and Oct. 23, 2025, resulting in 334,420,221 common shares outstanding. The proceeds will fund exploration and mine development at the company’s Nevada projects, including the Santa Fe and West Santa Fe sites in the Walker Lane gold belt. CEO Kimberly Ann said the exercises demonstrate strong shareholder confidence and leave Lahontan fully financed for its fall drilling programs while tightening the company’s share structure for future growth.
+This article has been disseminated on behalf of Lahontan Gold and may include a paid advertisement.
+
+ Lahontan Gold (TSXV: LG) (OTCQB: LGCXF) announced it has received C$4,316,948 from the exercise of warrants and stock options between July 4 and Oct. 23, 2025, resulting in 334,420,221 common shares outstanding. The proceeds will fund exploration and mine development at the company’s Nevada projects, including the Santa Fe and West Santa Fe sites in the Walker Lane gold belt. CEO Kimberly Ann said the exercises demonstrate strong shareholder confidence and leave Lahontan fully financed for its fall drilling programs while tightening the company’s share structure for future growth.
 
  To view the full press release, visit https://ibn.fm/mSt0q
 
@@ -30,10 +32,10 @@ Lahontan Gold (TSXV: LG) (OTCQB: LGCXF) announced it has received C$4,316,948 fr
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-receives-c4-3-million-from-warrant-and-option-exercises/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-receives-c4-3-million-from-warrant-and-option-exercises-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-raises-c-4-3m-fully-funds-nevada-exploration/2e5a3ce1bbbb3a7055f8c26f1a7ea2b6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-secures-c-4-3m-fully-funds-nevada-exploration/9c029881204a04731be3da45a27be075) 
 
  
 
@@ -41,4 +43,4 @@ Lahontan Gold (TSXV: LG) (OTCQB: LGCXF) announced it has received C$4,316,948 fr
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/27/zestm2Mb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/warpJBzy.webp)

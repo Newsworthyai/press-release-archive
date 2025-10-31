@@ -1,8 +1,10 @@
 # RockBreaks – ESGold Corp. (CSE: ESAU) (OTCQB: ESAUF) Confirms Merrill Crowe Circuit as Optimal Processing Path at Montauban Gold-Silver Project
 
-ESGold (CSE: ESAU) (OTCQB: ESAUF) reported that metallurgical work at its fully permitted Montauban Gold-Silver Project in Quebec has validated the Company’s processing strategy for all site feedstock, including railway tailings, confirming the Merrill Crowe closed circuit as the optimal processing path. Gravity separation tests showed concentrate grades were insufficient for direct gold and silver pouring, leading to confirmation that all material will be processed through the Merrill Crowe system during the final construction phase. The results, supervised by Edmond St-Jean, P.Eng., and analyzed by ALS Global in Val-d’Or, de-risk equipment procurement and support ongoing mill construction, which is ahead of schedule. ESGold also noted continued infrastructure expansion, including the gold room and laboratory, and completion of advanced 3D geological modeling to guide an expanded exploration program.
+This article has been disseminated on behalf of ESGold and may include a paid advertisement.
 
- To view the full press release, visit https://ibn.fm/bHKim
+ ESGold (CSE: ESAU) (OTCQB: ESAUF) reported that metallurgical work at its fully permitted Montauban Gold-Silver Project in Quebec has validated the Company’s processing strategy for all site feedstock, including railway tailings, confirming the Merrill Crowe closed circuit as the optimal processing path. Gravity separation tests showed concentrate grades were insufficient for direct gold and silver pouring, leading to confirmation that all material will be processed through the Merrill Crowe system during the final construction phase. The results, supervised by Edmond St-Jean, P.Eng., and analyzed by ALS Global in Val-d’Or, de-risk equipment procurement and support ongoing mill construction, which is ahead of schedule. ESGold also noted continued infrastructure expansion, including the gold room and laboratory, and completion of advanced 3D geological modeling to guide an expanded exploration program.
+
+ To view the full press release, visit https://ibn.fm/2WICY
 
  About ESGold Corp.
 
@@ -28,10 +30,10 @@ ESGold (CSE: ESAU) (OTCQB: ESAUF) reported that metallurgical work at its fully 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-esgold-corp-cse-esau-otcqb-esauf-confirms-merrill-crowe-circuit-as-optimal-processing-path-at-montauban-gold-silver-project/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-esgold-corp-cse-esau-otcqb-esauf-confirms-merrill-crowe-circuit-as-optimal-processing-path-at-montauban-gold-silver-project-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-validates-processing-strategy-at-quebec-gold-silver-project/5a8c14354f55c417e1042f3d68a61d57) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-validates-processing-strategy-at-quebec-gold-silver-project/99d15636d39262a2544820fc60c4b596) 
 
  
 
@@ -39,4 +41,4 @@ ESGold (CSE: ESAU) (OTCQB: ESAUF) reported that metallurgical work at its fully 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/28/pendSFH3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/oxenUVdX.webp)
