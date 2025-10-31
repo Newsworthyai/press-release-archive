@@ -1,6 +1,8 @@
 # InvestorNewsBreaks – McEwen Inc. (NYSE: MUX) (TSX: MUX) Refiles Technical Report on Fox Complex Following OSC Review
 
-McEwen (NYSE: MUX) (TSX: MUX) announced it has amended and refiled its “NI 43-101 Technical Report on the Mineral Resources Estimate of the Fox Complex, Ontario, Canada,” originally filed April 4, 2025, following a review by the Ontario Securities Commission as part of its continuous disclosure program. The updated report now includes additional information required under Items 16 to 22 of Form 43-101F1 for an advanced property and replaces John Ryan Cox as a co-author to ensure compliance with Qualified Person requirements. No other changes were made, and the Mineral Resources statements for the Fox Complex remain unchanged.
+This article has been disseminated on behalf of McEwen and may include a paid advertisement.
+
+ McEwen (NYSE: MUX) (TSX: MUX) announced it has amended and refiled its “NI 43-101 Technical Report on the Mineral Resources Estimate of the Fox Complex, Ontario, Canada,” originally filed April 4, 2025, following a review by the Ontario Securities Commission as part of its continuous disclosure program. The updated report now includes additional information required under Items 16 to 22 of Form 43-101F1 for an advanced property and replaces John Ryan Cox as a co-author to ensure compliance with Qualified Person requirements. No other changes were made, and the Mineral Resources statements for the Fox Complex remain unchanged.
 
  To view the full press release, visit https://ibn.fm/7Ujah
 
@@ -26,10 +28,10 @@ McEwen (NYSE: MUX) (TSX: MUX) announced it has amended and refiled its “NI 43-
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-mcewen-inc-nyse-mux-tsx-mux-refiles-technical-report-on-fox-complex-following-osc-review/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-mcewen-inc-nyse-mux-tsx-mux-refiles-technical-report-on-fox-complex-following-osc-review-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-updates-fox-complex-technical-report-for-compliance/f3b1297ff73827da8a5efc0a58751423) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-updates-fox-complex-technical-report-after-osc-review/fedcbd9fcff706df89e9a57c8814eb2b) 
 
  
 
@@ -37,4 +39,4 @@ McEwen (NYSE: MUX) (TSX: MUX) announced it has amended and refiled its “NI 43-
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/29/silk9OZx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/ableeOW8.webp)

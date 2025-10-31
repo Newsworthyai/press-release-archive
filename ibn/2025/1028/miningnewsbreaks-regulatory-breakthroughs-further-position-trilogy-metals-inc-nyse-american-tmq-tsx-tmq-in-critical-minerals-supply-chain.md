@@ -1,6 +1,8 @@
 # MiningNewsBreaks – Regulatory Breakthroughs Further Position Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) in Critical Minerals Supply Chain
 
-Trilogy Metals (NYSE American: TMQ) (TSX: TMQ), leveraging its copper-rich assets in Alaska, is strategically positioned amidst a wave of favorable policy changes. “First, the U.S. House of Representatives passed a resolution to overturn restrictive land designations in central Yukon, opening up millions of acres previously locked from development. Second, federal executive action has advanced the proposed Ambler Access Road in Northwest Alaska, a long-sought industrial corridor that Trilogy has noted is essential to accessing its mining assets in the Ambler Mining District. Together, these moves reduce key regulatory obstacles for Trilogy Metals and sharpen the prospects for its copper-dominant polymetallic projects,” reads a recent article. “As demand for metals essential to clean energy and electrification increase, companies such as Trilogy are in the spotlight. With government action now aligning more toward unlocking mineral lands and facilitating infrastructure, Trilogy has an opportunity to progress from exploration toward full development—and possibly transform its projects in the Ambler Mining District into leading contributors to the mineral security of both Alaska and the United States.”
+This article has been disseminated on behalf of Trilogy Metals and may include a paid advertisement.
+
+ Trilogy Metals (NYSE American: TMQ) (TSX: TMQ), leveraging its copper-rich assets in Alaska, is strategically positioned amidst a wave of favorable policy changes. “First, the U.S. House of Representatives passed a resolution to overturn restrictive land designations in central Yukon, opening up millions of acres previously locked from development. Second, federal executive action has advanced the proposed Ambler Access Road in Northwest Alaska, a long-sought industrial corridor that Trilogy has noted is essential to accessing its mining assets in the Ambler Mining District. Together, these moves reduce key regulatory obstacles for Trilogy Metals and sharpen the prospects for its copper-dominant polymetallic projects,” reads a recent article. “As demand for metals essential to clean energy and electrification increase, companies such as Trilogy are in the spotlight. With government action now aligning more toward unlocking mineral lands and facilitating infrastructure, Trilogy has an opportunity to progress from exploration toward full development—and possibly transform its projects in the Ambler Mining District into leading contributors to the mineral security of both Alaska and the United States.”
 
  To view the full article, visit https://ibn.fm/EgvXd
 
@@ -28,10 +30,10 @@ Trilogy Metals (NYSE American: TMQ) (TSX: TMQ), leveraging its copper-rich asset
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-regulatory-breakthroughs-further-position-trilogy-metals-inc-nyse-american-tmq-tsx-tmq-in-critical-minerals-supply-chain/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-regulatory-breakthroughs-further-position-trilogy-metals-inc-nyse-american-tmq-tsx-tmq-in-critical-minerals-supply-chain-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trilogy-metals-gains-momentum-as-regulatory-barriers-fall-in-alaska/6e819c2a4c9d864d8d7b8821eb09b114) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trilogy-metals-gains-momentum-as-regulatory-barriers-fall-in-alaska/7a742734322ae6fa46215808dc52a3fc) 
 
  
 
@@ -39,4 +41,4 @@ Trilogy Metals (NYSE American: TMQ) (TSX: TMQ), leveraging its copper-rich asset
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/28/herbixon.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/calmXnSt.webp)

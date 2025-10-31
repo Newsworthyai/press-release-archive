@@ -32,10 +32,10 @@ This article has been disseminated on behalf of Lahontan Gold and may include a 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-receives-c4-3-million-from-warrant-and-option-exercises-2/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-receives-c4-3-million-from-warrant-and-option-exercises-1/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-secures-c-4-3m-fully-funds-nevada-exploration/9c029881204a04731be3da45a27be075) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-secures-c-4-3m-fully-funds-nevada-exploration/4aca13f1f8472c7f122f7ac778319d52) 
 
  
 
@@ -43,4 +43,4 @@ This article has been disseminated on behalf of Lahontan Gold and may include a 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/warpJBzy.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/nukehhRm.webp)

@@ -1,6 +1,8 @@
 # InvestorNewsBreaks – Nicola Mining Inc. (TSX.V: NIM) (OTCQB: HUSIF) CEO Shares Blue-Sky Potential in Recent Podcast
 
-Nicola (TSX.V: NIM) (OTCQB: HUSIF) was featured in a recent Ellis Martin Report and Money Talk Radio episode. CEO Peter Espig discussed the company’s positioning amid rising demand for gold, silver, and copper, carving out a unique position by combining cash-generating operations with long-term growth potential. “Espig explained how the company’s fully permitted Merritt Mill and unique business model distinguish it from many junior mining peers. Instead of being locked in an endless cycle of drilling and fundraising, Espig noted that Nicola Mining is already producing and processing, earning revenue and advancing a portfolio of precious metals assets, laying the groundwork for near-term profitability and long-term expansion. This gives investors a rare opportunity to participate in a junior company already generating tangible results.
+This article has been disseminated on behalf of Nicola Mining and may include a paid advertisement.
+
+ Nicola (TSX.V: NIM) (OTCQB: HUSIF) was featured in a recent Ellis Martin Report and Money Talk Radio episode. CEO Peter Espig discussed the company’s positioning amid rising demand for gold, silver, and copper, carving out a unique position by combining cash-generating operations with long-term growth potential. “Espig explained how the company’s fully permitted Merritt Mill and unique business model distinguish it from many junior mining peers. Instead of being locked in an endless cycle of drilling and fundraising, Espig noted that Nicola Mining is already producing and processing, earning revenue and advancing a portfolio of precious metals assets, laying the groundwork for near-term profitability and long-term expansion. This gives investors a rare opportunity to participate in a junior company already generating tangible results.
 
  “We’re a junior company that gives investors all the upside of exploration plays in these great exploration regions that is hedged by cash flow on the downside,” Espig said. “And it’s a great hedge because our operations bring in the cash flow that kind of mitigates having to continually dilute shareholders and raise money to keep the lights on. So, we’ve got very strong cash flow as a base, and we have the blue-sky upside of exploration.”
 
@@ -30,10 +32,10 @@ Nicola (TSX.V: NIM) (OTCQB: HUSIF) was featured in a recent Ellis Martin Report 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nicola-mining-inc-tsx-v-nim-otcqb-husif-ceo-shares-blue-sky-potential-in-recent-podcast/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nicola-mining-inc-tsx-v-nim-otcqb-husif-ceo-shares-blue-sky-potential-in-recent-podcast-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nicola-mining-cash-flow-backed-junior-miner-defies-industry-norms/08e9992a6eb5e3ac214179b7ea60593b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nicola-mining-cash-flow-hedged-junior-miner-defies-industry-norms/24731a4a8c7518d0b4a5c4e7933a7a00) 
 
  
 
@@ -41,4 +43,4 @@ Nicola (TSX.V: NIM) (OTCQB: HUSIF) was featured in a recent Ellis Martin Report 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/24/harpFRXG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/31/sageN1As.webp)
