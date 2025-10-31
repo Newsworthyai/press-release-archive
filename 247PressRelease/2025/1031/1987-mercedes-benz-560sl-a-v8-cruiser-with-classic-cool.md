@@ -1,0 +1,18 @@
+# 1987 Mercedes-Benz 560SL: A V8 Cruiser with Classic Cool
+
+FORT WORTH, TX, October 31, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to showcase a true icon of 1980s grand touring elegance: a 1987 Mercedes-Benz 560SL, now part of The Ron Sturgeon Collection. Finished in radiant red and showing just 12,000 original miles, this V8-powered roadster captures the peak of Mercedes-Benz refinement and performance during its golden era.  Under the hood, the 560SL is equipped with a 5.5-liter V8, factory-rated at 227 horsepower and 279 lb-ft of torque, paired to a four-speed automatic transmission and a limited-slip differential. Power, poise, and German precision define the drive, enhanced by power steering, a fully independent suspension, and power-assisted four-wheel disc brakes.  Inside, this SL is a time capsule of luxury and innovation. The cabin features automatic climate control, cruise control, electric windows, central locking, and even a period Carphone, all wrapped in a setting dominated by a factory Becker stereo and classic VDO instrumentation. The leather-wrapped four-spoke steering wheel frames a 170-mph speedometer, a 7k-rpm tachometer, and gauges for coolant temperature, oil pressure, fuel economy, and fuel level.  "This 560SL is the definition of a classic you can still drive and enjoy," says Ron Sturgeon, owner of the DFW Car & Toy Museum. "It has the comfort, presence, and understated power that makes the SL timeless—and with just 12,000 miles, it feels practically new."  Offered only in the North American market from 1986–1989, the 560SL is the most powerful and most refined of the R107 chassis, widely celebrated for its build quality, balanced performance, and enduring design. Whether admired for its classic lines or legendary longevity, this low-mileage SL is a standout among Mercedes-Benz collectibles.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523908/1987-mercedes-benz-560sl-a-v8-cruiser-with-classic-cool)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1987-mercedes-560sl-joins-dfw-car-museum-s-ron-sturgeon-collection/acbbe76387224bb0f0d1a4c611c7472d) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/31/meanCrOb.webp)

@@ -1,0 +1,18 @@
+# Relentless, Prepared, and Proven: Matthew Kensky Joins Scrofano Law PC in Fairfax
+
+FAIRFAX, VA, October 31, 2025 /24-7PressRelease/ -- Scrofano Law PC announces the addition of Matthew Kensky, a widely respected Northern Virginia criminal and traffic defense attorney with more than two decades of courtroom experience. Known among colleagues as "The Professor" for his mastery of Virginia criminal case law, Kensky expands the firm's Virginia practice (see Google Maps) with deep trial experience, appellate advocacy, and a reputation for clear, compassionate client communication.  Kensky began his career in 1999 at the Fairfax County Public Defender's Office, where he represented thousands of clients and rose to Senior Assistant Public Defender. He later served as the criminal and traffic defense attorney at a boutique Fairfax firm, continuing his work across Loudoun, Prince William, Arlington, Alexandria, Fairfax, Stafford, and Shenandoah counties. In addition to extensive trial work, Kensky has argued appeals before the Court of Appeals of Virginia, the Supreme Court of Virginia, and in matters involving Virginia administrative agencies.  Before joining Scrofano Law PC, Kensky ran his own solo practice for four years, representing hundreds of clients in District and Circuit Courts throughout Northern Virginia. Former clients describe him as "a rare gem"—"thoughtful, kind, and compassionate"—and praise his combination of relentless advocacy, meticulous preparation, and steady counsel. "I'm excited to be part of a team at Scrofano Law PC that shares my values. The firm not only prides itself on providing the highest quality legal services but genuinely cares about its clients," said Kensky.  A sought-after educator within the defense bar, Kensky regularly teaches annual CLE case-law updates, training other criminal and traffic defense lawyers on the latest decisions from Virginia's appellate courts. He's the attorney fellow practitioners call when they need a pinpoint citation, nuanced argument, or the precedent that can make the difference in negotiations or at trial.  Born in Richmond, Kensky is a graduate of James Madison University and earned his Juris Doctor from George Mason University School of Law, where he served as Managing Editor of the Civil Rights Law Journal and participated in the Association for Public Interest Law.   For a confidential consultation, contact Scrofano Law PC at (703) 584-5334 or visit https://vacrimlawyers.com/.  About Scrofano Law PC Scrofano Law PC is a criminal defense and DUI firm serving clients across Washington, D.C., Maryland, and Virginia. Founded by attorney Joseph A. Scrofano, the firm is known for fearless advocacy, trial excellence, and client-first service. With offices in Washington, D.C., Rockville, Maryland, and Fairfax, Virginia, Scrofano Law defends clients in matters ranging from traffic and DUI to violent felony charges.  Media Contact Scrofano Law PC Email: info@scrofanolaw.com Phone: (703) 584-5334 Website: https://vacrimlawyers.com/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528293/relentless-prepared-and-proven-matthew-kensky-joins-scrofano-law-pc-in-fairfax)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scrofano-law-pc-adds-the-professor-matthew-kensky-to-virginia-team/78c1a7c572ebefcaa3e01ee0c6b34b77) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/31/chip3YQk.webp)

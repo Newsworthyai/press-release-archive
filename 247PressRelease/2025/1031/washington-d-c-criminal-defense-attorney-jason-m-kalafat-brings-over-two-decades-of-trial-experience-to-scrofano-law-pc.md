@@ -1,0 +1,18 @@
+# Washington, D.C. Criminal Defense Attorney Jason M. Kalafat Brings Over Two Decades of Trial Experience to Scrofano Law PC
+
+WASHINGTON, DC, October 31, 2025 /24-7PressRelease/ -- Scrofano Law PC proudly announces the addition of Jason M. Kalafat in 2025 as Senior Trial Attorney, expanding the firm's depth of criminal defense experience across the District of Columbia and Maryland. With more than 20 years of experience defending clients in state and federal courts, Kalafat is known for his strategic approach, professionalism, and unrelenting advocacy for the accused.  Mr. Kalafat began his legal career as a Deputy Public Defender in Maricopa County, Arizona, where he litigated hundreds of cases ranging from misdemeanors to serious felony offenses. Focusing on DUI, aggravated DUI, firearms, and drug crimes, he quickly earned recognition as a capable, passionate advocate committed to protecting individual rights.   Since relocating to the Washington, D.C. area in 2008, Kalafat has represented clients in the D.C. Superior Court and the U.S. District Court for the District of Columbia. Over the course of his career, he has served as trial counsel in more than 100 trials, representing clients facing a full spectrum of criminal charges. Judges have frequently handpicked Kalafat for serious felony appointments under the D.C. Criminal Justice Act, a testament to his professionalism, trustworthiness, and command of the courtroom.  "Jason brings both remarkable trial experience and a calm, steady presence to our team," said Joseph A. Scrofano, founder and principal attorney of Scrofano Law PC. "He embodies our firm's mission—defending people relentlessly with honesty, compassion, and skill."  Mr. Kalafat's peers and clients alike describe him as "a capable and unrelenting advocate" with "great knowledge, understanding, and communication skills." Even former adversaries have praised his professionalism, as one prosecutor explained he "beat me on a gun case with DNA in 8 mins. Gun was in defendant's car trunk, in his gym bag, on his clothes, next to his mail, and with his DNA on the magazine inside the gun." Numerous professional accolades, including a high AVVO rating, an AV Preeminent peer review rating from Martindale-Hubbell, and repeated recognition as a Super Lawyer, underscore his reputation.  At Scrofano Law PC, Mr. Kalafat continues to dedicate his practice to defending individuals facing criminal charges, leveraging his deep experience and calm confidence to achieve justice for every client.  For a confidential consultation, contact Scrofano Law PC at 202-521-4944 or visit www.dc-dui-lawyer.com.  About Scrofano Law PC Scrofano Law PC is a leading criminal defense firm serving clients throughout Washington, D.C., Maryland, and Virginia. Founded by attorney Joseph A. Scrofano, the firm provides aggressive, client-centered representation in DUI, drug, and serious felony cases. With a team of accomplished trial attorneys, Scrofano Law is dedicated to protecting constitutional rights and fighting for justice—one case at a time.  Media Contact: Scrofano Law PC Email: info@scrofanolaw.com Phone: 202-521-4944 Website: www.dc-dui-lawyer.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528291/washington-dc-criminal-defense-attorney-jason-m-kalafat-brings-over-two-decades-of-trial-experience-to-scrofano-law-pc)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scrofano-law-bolsters-defense-team-with-veteran-trial-attorney-kalafat/be3b44804eb65910354d4f06e16ce087) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/31/epica0Xf.webp)

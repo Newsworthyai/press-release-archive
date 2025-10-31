@@ -1,0 +1,18 @@
+# Paolo Gnocchi Joins Scrofano Law PC After Two Decades Defending Clients in Maryland and D.C.
+
+ROCKVILLE, MD, October 31, 2025 /24-7PressRelease/ -- Scrofano Law PC proudly welcomes Attorney Paolo Gnocchi to its Maryland criminal defense team (see Google Maps). A trilingual trial lawyer fluent in English, Spanish, and Italian, Mr. Gnocchi brings more than 20 years of courtroom experience and a well-earned reputation for fearless advocacy and client-centered representation. Known for his tenacity and compassion, he has successfully defended clients in some of Maryland's most challenging criminal cases.  Mr. Gnocchi began his legal career at a respected Rockville law firm before joining the Baltimore City State's Attorney's Office as an Assistant State's Attorney, where he prosecuted a broad spectrum of cases. In 2004, he shifted his focus to criminal defense, joining a boutique firm and later founding the Law Office of Paolo Gnocchi, LLC in 2009. As a solo practitioner, he represented clients in both Maryland and the District of Columbia, trying and winning hundreds of cases ranging from traffic offenses to rape and first-degree murder.  "Paolo is a tremendous addition to our team," said Joseph A. Scrofano, founder and principal attorney of Scrofano Law PC. "His depth of experience, community roots, and integrity perfectly align with our mission to provide aggressive, compassionate representation to every client."  Mr. Gnocchi's commitment to justice extends beyond the courtroom. He has served as a felony panel attorney with the Maryland Office of the Public Defender, a CJA-certified attorney before the D.C. Superior Court, and was appointed by Governor Martin O'Malley to the Maryland Trial Courts Judicial Nominating Commission from 2009 to 2014. He has also appeared as a legal expert on CNN Español and other media outlets, using his platform to educate the public on criminal law issues.  A proud graduate of Universidad del Sagrado Corazón in San Juan, where he graduated magna cum laude, Mr. Gnocchi earned his Juris Doctor from the Catholic University Columbus School of Law. He was also appointed Chancellor of the Jessup Cup International Moot Court Team and interned with both the U.S. Department of Justice and a criminal-immigration defense firm during law school.  Recognized by Super Lawyers and highly rated on Avvo, Mr. Gnocchi is known among peers and clients alike for his diligence, empathy, and legal acumen. Former clients describe him as "top notch" and "a terrific, caring attorney."  For a confidential consultation, contact Scrofano Law PC at (301) 916-4226 or visit https://www.mdcrimlawyer.com/.  About Scrofano Law PC Scrofano Law PC is a criminal defense and DUI law firm serving clients throughout Washington, D.C., Maryland, and Virginia. Founded by Joseph A. Scrofano, the firm is dedicated to fearless advocacy, strategic litigation, and compassionate defense. With offices in Washington, D.C., Rockville, Maryland, and Fairfax, Virginia, Scrofano Law provides aggressive representation in cases ranging from DUI and drug offenses to serious felony crimes.  Media Contact: Scrofano Law PC Email: info@scrofanolaw.com Phone:(301) 916-4226 Website: https://www.mdcrimlawyer.com/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528294/paolo-gnocchi-joins-scrofano-law-pc-after-two-decades-defending-clients-in-maryland-and-dc)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scrofano-law-bolsters-defense-team-with-veteran-attorney-paolo-gnocchi/deacb252e8bae7dd25f71fc5da182493) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2510/31/urgeTHNW.webp)
