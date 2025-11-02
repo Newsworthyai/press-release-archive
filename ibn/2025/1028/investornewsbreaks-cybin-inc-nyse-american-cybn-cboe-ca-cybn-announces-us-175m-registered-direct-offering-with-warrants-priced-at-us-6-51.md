@@ -1,6 +1,8 @@
 # InvestorNewsBreaks – Cybin Inc. (NYSE American: CYBN) (Cboe CA: CYBN) Announces US$175M Registered Direct Offering With Warrants Priced at US$6.51
 
-Cybin (NYSE American: CYBN) (Cboe CA: CYBN) announced a registered direct offering of 22,277,750 common shares and, in lieu of shares for certain investors, pre-funded common share purchase warrants at US$6.51 per share or pre-funded warrant for aggregate gross proceeds of US$175,009,911.45; each share or pre-funded warrant is accompanied by 0.35 of one common share purchase warrant exercisable at US$8.14 per share until the earlier of June 30, 2027, 30 days after topline data is released for the APPROACH trial of CYB003 in major depressive disorder, or 30 days after an acceleration notice if the NYSE American closing price equals or exceeds US$19.53 for five consecutive trading days; participants include new and existing investors such as Venrock Healthcare Capital Partners, OrbiMed, Point72, Deep Track Capital, Acorn Bioventures, Spruce Street Capital, Squadron Capital Management, Adage Capital Partners LP, Boxer Capital Management, ADAR1 Capital Management, Stonepine Capital Management, Pivotal Bioventure Partners and Ally Bridge Group.
+This article has been disseminated on behalf of Cybin and may include paid advertising.
+
+ Cybin (NYSE American: CYBN) (Cboe CA: CYBN) announced a registered direct offering of 22,277,750 common shares and, in lieu of shares for certain investors, pre-funded common share purchase warrants at US$6.51 per share or pre-funded warrant for aggregate gross proceeds of US$175,009,911.45; each share or pre-funded warrant is accompanied by 0.35 of one common share purchase warrant exercisable at US$8.14 per share until the earlier of June 30, 2027, 30 days after topline data is released for the APPROACH trial of CYB003 in major depressive disorder, or 30 days after an acceleration notice if the NYSE American closing price equals or exceeds US$19.53 for five consecutive trading days; participants include new and existing investors such as Venrock Healthcare Capital Partners, OrbiMed, Point72, Deep Track Capital, Acorn Bioventures, Spruce Street Capital, Squadron Capital Management, Adage Capital Partners LP, Boxer Capital Management, ADAR1 Capital Management, Stonepine Capital Management, Pivotal Bioventure Partners and Ally Bridge Group.
 
  To view the full press release, visit https://ibn.fm/TPxvo
 
@@ -28,15 +30,31 @@ Cybin (NYSE American: CYBN) (Cboe CA: CYBN) announced a registered direct offeri
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-cybin-inc-nyse-american-cybn-cboe-ca-cybn-announces-us175m-registered-direct-offering-with-warrants-priced-at-us6-51/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-cybin-inc-nyse-american-cybn-cboe-ca-cybn-announces-us175m-registered-direct-offering-with-warrants-priced-at-us6-51-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-raises-175m-in-direct-offering-for-mental-health-breakthroughs/c5a0acb223a8d3d455df2196ea4135a7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-raises-175m-in-direct-offering-for-mental-health-breakthroughs/6082dfdcafeede59640d131114bcb6c7) 
 
+
+Pickup - [https://burstable.news/news](https://burstable.news/news/202511/272461-cybin-inc-secures-175-million-in-registered-direct-offering-to-advance-neuropsychiatry-pipeline)
+
+Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202511/272462-cybin-inc-anuncia-oferta-directa-registrada-de-us-175-millones-para-avanzar-tratamientos-de-salud-mental)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202511/272467-cybin-inc-sichert-sich-175-millionen-us-dollar-durch-registriertes-direktangebot-fur-psychiatrische-arzneimittelentwicklung)
+
+Pickup - [https://actueclair.com](https://actueclair.com/202511/272466-cybin-inc-annonce-une-offre-directe-enregistree-de-175-millions-de-dollars-americains-pour-financer-ses-therapies-innovantes-en-sante-mentale)
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202511/272469-cybin-secures-175-million-in-direct-offering-to-advance-psychedelic-mental-health-treatments)
+
+Pickup - [https://faqstaq.news/news](https://faqstaq.news/news/202511/272470-faq-cybin-inc-s-us-175m-registered-direct-offering-and-corporate-overview)
+
+Pickup - [https://themaverickpr.com/services/cannabis-news](https://themaverickpr.com/services/cannabis-news/202511/272468-cybin-secures-175-million-in-direct-offering-to-advance-psychedelic-mental-health-treatments)
+
+Pickup - [https://goinvest.com/ibn-faqstaq](https://goinvest.com/ibn-faqstaq/202511/272471-faq-cybin-inc-s-us-175m-registered-direct-offering-and-company-overview)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/28/wolf4yWe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/2/fernR4Qz.webp)
