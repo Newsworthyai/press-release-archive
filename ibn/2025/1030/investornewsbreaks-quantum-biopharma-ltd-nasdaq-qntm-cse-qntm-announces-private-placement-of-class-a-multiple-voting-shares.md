@@ -1,6 +1,8 @@
 # InvestorNewsBreaks – Quantum BioPharma Ltd. (NASDAQ: QNTM) (CSE: QNTM) Announces Private Placement of Class A Multiple Voting Shares
 
-Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company advancing treatments for neurodegenerative, metabolic, and alcohol misuse disorders, announced a non-brokered private placement of up to 30 Class A multiple voting shares at $25 per share for gross proceeds of up to $750. The offering, approved by shareholders on Sept. 26, 2025, is expected to be fully subscribed by entities controlled by Zeeshan Saeed and Anthony Durkacz. Upon completion, voting rights attached to the Class A shares will increase to 75.27%, restoring them to nearly their original level when the Company went public in 2018. Proceeds will be used for general working capital.
+This article has been disseminated on behalf of Quantum BioPharma and may include paid advertising.
+
+ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company advancing treatments for neurodegenerative, metabolic, and alcohol misuse disorders, announced a non-brokered private placement of up to 30 Class A multiple voting shares at $25 per share for gross proceeds of up to $750. The offering, approved by shareholders on Sept. 26, 2025, is expected to be fully subscribed by entities controlled by Zeeshan Saeed and Anthony Durkacz. Upon completion, voting rights attached to the Class A shares will increase to 75.27%, restoring them to nearly their original level when the Company went public in 2018. Proceeds will be used for general working capital.
 
  To view the full press release, visit https://ibn.fm/aicDo
 
@@ -24,10 +26,10 @@ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company advanc
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-announces-private-placement-of-class-a-multiple-voting-shares/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-announces-private-placement-of-class-a-multiple-voting-shares-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-s-750-private-placement-reshapes-ownership-structure/d8b4d79cd5926ec33d70aeea43b2953c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-s-750-private-placement-reshapes-ownership-structure/e5fdaded4d157d54cd9129d6c58565b5) 
 
  
 
@@ -35,4 +37,4 @@ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company advanc
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/30/dual6Hnz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/3/roam5qQG.webp)
