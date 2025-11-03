@@ -1,6 +1,8 @@
 # InvestorNewsBreaks – MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) Featured in NetworkNewsWire Editorial on Natural Hydrogen as Solution to AI Energy Demand
 
-MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) today announced its inclusion in an editorial published by NetworkNewsWire (“NNW”), one of 70+ brands within the Dynamic Brand Portfolio @ IBN (InvestorBrandNetwork), a communications platform specializing in financial news and content distribution. The article, titled “AI’s Growth Has a Power Problem — Natural Hydrogen Could Be the Perfect Solution,” explores the surging electricity demand driven by artificial intelligence and data centers, and how natural hydrogen could address this global energy challenge. MAX Power, a first mover in North America’s emerging natural hydrogen sector, controls approximately 1.3 million permitted acres in Saskatchewan, including the 124-mile-long Genesis Trend near a proposed Hydrogen Hub.
+This article has been disseminated on behalf of MAX Power Mining and may include paid advertising.
+
+ MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) today announced its inclusion in an editorial published by NetworkNewsWire (“NNW”), one of 70+ brands within the Dynamic Brand Portfolio @ IBN (InvestorBrandNetwork), a communications platform specializing in financial news and content distribution. The article, titled “AI’s Growth Has a Power Problem — Natural Hydrogen Could Be the Perfect Solution,” explores the surging electricity demand driven by artificial intelligence and data centers, and how natural hydrogen could address this global energy challenge. MAX Power, a first mover in North America’s emerging natural hydrogen sector, controls approximately 1.3 million permitted acres in Saskatchewan, including the 124-mile-long Genesis Trend near a proposed Hydrogen Hub.
 
  To view the full press release, visit https://ibn.fm/jP9U2
 
@@ -24,10 +26,10 @@ MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) today announced its inc
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-max-power-mining-cse-maxx-otc-maxxf-frankfurt-89n-featured-in-networknewswire-editorial-on-natural-hydrogen-as-solution-to-ai-energy-demand/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-max-power-mining-cse-maxx-otc-maxxf-frankfurt-89n-featured-in-networknewswire-editorial-on-natural-hydrogen-as-solution-to-ai-energy-demand-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/max-power-s-natural-hydrogen-solution-to-ai-s-energy-crisis/efa2e9d610005faa0f4bc0625f521854) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/max-power-s-natural-hydrogen-solution-to-ai-s-energy-crisis/c51838f41e3dc38f9b8e670b313843c8) 
 
  
 
@@ -35,4 +37,4 @@ MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) today announced its inc
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/28/yarnsd4E.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/3/numbB3u3.webp)

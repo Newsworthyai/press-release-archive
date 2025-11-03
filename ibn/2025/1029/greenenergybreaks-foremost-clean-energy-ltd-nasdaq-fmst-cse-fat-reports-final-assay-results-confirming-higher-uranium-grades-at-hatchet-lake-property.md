@@ -28,23 +28,17 @@ Foremost Clean Energy (NASDAQ: FMST) (CSE: FAT) announced final geochemical assa
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-foremost-clean-energy-ltd-nasdaq-fmst-cse-fat-reports-final-assay-results-confirming-higher-uranium-grades-at-hatchet-lake-property/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-foremost-clean-energy-ltd-nasdaq-fmst-cse-fat-reports-final-assay-results-confirming-higher-uranium-grades-at-hatchet-lake-property-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/foremost-clean-energy-reports-major-uranium-grade-increase-at-hatchet-lake/e1623119cb5cfb134d01048b78412560) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foremost-clean-energy-reports-major-uranium-grade-increase-at-hatchet-lake/c556e68692bfd04065782592a87380cc) 
 
 
-Pickup - [https://burstable.news/news](https://burstable.news/news/202510/268758-foremost-clean-energy-reports-higher-uranium-grades-at-hatchet-lake-property)
-
-Pickup - [https://estallarnoticias.com/](https://estallarnoticias.com//202510/268759-foremost-clean-energy-confirma-mayores-grados-de-uranio-en-propiedad-hatchet-lake-mediante-resultados-de-ensayos-finales)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202510/268832-foremost-clean-energy-bestatigt-hohere-uran-gehalte-in-hatchet-lake-property)
-
-Pickup - [https://actueclair.com](https://actueclair.com/202510/268824-foremost-clean-energy-confirme-des-teneurs-en-uranium-plus-elevees-a-hatchet-lake)
+Pickup - [https://buildingtexasshow.com/texas-news](https://buildingtexasshow.com/texas-news/202511/272482-foremost-clean-energy-confirma-mayores-grados-de-uranio-en-propiedad-hatchet-lake-en-saskatchewan)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/29/ovallS3X.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/3/quipTvgz.webp)

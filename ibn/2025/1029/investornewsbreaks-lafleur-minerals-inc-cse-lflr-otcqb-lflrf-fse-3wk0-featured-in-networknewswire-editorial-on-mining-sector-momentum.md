@@ -1,14 +1,14 @@
 # InvestorNewsBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) Featured in NetworkNewsWire Editorial on Mining Sector Momentum
 
-LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) today announced its inclusion in a NetworkNewsWire (“NNW”) editorial titled “Pivoting from Exploration to Production: Mining’s Moment,” which highlights how rising precious metal prices and global market uncertainty are reshaping mining investment opportunities. The feature underscores LaFleur’s transition from explorer to producer, noting the company’s fully permitted, refurbished gold-processing mill and its advantageous position relative to peers still in exploration.
+This article has been disseminated on behalf of LaFleur Minerals and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/q0e31
+ LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) is a Canada-headquartered company developing approximately 18,304 hectares (45,230 acres) of the Swanson site it believes will yield gold, thanks to initial investigation and the amount of gold recovery nearby, along with extensive data and results from over 36,000 metres of historical drilling. In addition, “LaFleur has the potential to benefit from the upside of restarting production operations and revenue generation from its fully permitted and recently refurbished Beacon Gold Mill, an asset valued over C$71 million replacement cost. As gold prices have skyrocketed in recent months, other miners have seen an incentive to get their ore processed as quickly as possible to take advantage of the market’s optimism, and LaFleur serves as a valuable conduit to surrounding, regional deposits that want to jump start into production without a processing facility,” reads a recent article. “The 100%-owned mill is capable of processing over 750 metric tons per day once an estimated C$5 million in restart upgrades take place, highlighting the low restart cost and immense upside potential at hand for this easily accessible and strategically positioned asset. The Beacon Gold Mill had received more than C$20 million in equipment and other upgrades by the former owner before LaFleur purchased it in bankruptcy proceedings for a small fraction of its value.”
 
- About LaFleur Minerals Inc.
+ To view the full article, visit https://ibn.fm/G6OJU
 
- LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The Company’s mission is to advance mining projects with a laser focus on our resource-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 18,304 hectares (183 km(2)) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has recently consolidated a large land package along a major structural break that hosts the Swanson, Bartec, and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. Lafleur Minerals’ fully-permitted and refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects.
+ About LaFleur Minerals Inc.LaFleur Minerals is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The company’s mission is to advance mining projects with a laser focus on our resource-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 18,304 hectares (183 km(2)) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has recently consolidated a large land package along a major structural break that hosts the Swanson, Bartec, and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. Lafleur Minerals’ fully permitted and refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects.
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at http://ibn.fm/LFLRF
+ NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
 
  About InvestorWire
 
@@ -24,10 +24,10 @@ LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) today announced its incl
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-fse-3wk0-featured-in-networknewswire-editorial-on-mining-sector-momentum/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-fse-3wk0-featured-in-networknewswire-editorial-on-mining-sector-momentum-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-pivots-to-production-amid-gold-price-surge/8b0276ef40b93e835e4024f3880151c2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-unlocks-gold-potential-with-swanson-project-beacon-mill/69cce9f0048d9fb4d2b2d85f8872c401) 
 
  
 
@@ -35,4 +35,4 @@ LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) today announced its incl
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/29/coolPEJn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/3/lilynhuG.webp)

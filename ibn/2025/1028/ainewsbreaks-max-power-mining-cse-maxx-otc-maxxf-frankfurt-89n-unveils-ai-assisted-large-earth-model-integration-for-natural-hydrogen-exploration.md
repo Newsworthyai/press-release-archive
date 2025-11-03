@@ -1,6 +1,8 @@
 # AINewsBreaks – MAX Power Mining (CSE: MAXX) (OTC: MAXXF) (FRANKFURT: 89N) Unveils AI-Assisted Large Earth Model Integration for Natural Hydrogen Exploration
 
-MAX Power Mining (CSE: MAXX) (OTC: MAXXF) (FRANKFURT: 89N) announced the development of its MAX Power Large Earth Model Integration (“MAXX LEMI”) for Natural Hydrogen, an advanced exploration system soon to be enhanced by artificial intelligence as part of the Company’s push toward the world’s first commercial Natural Hydrogen discovery. Canada’s first deep well targeting Natural Hydrogen is expected to begin drilling around Nov. 7 on MAX Power’s 200-km-long Genesis Trend in southern Saskatchewan, with additional wells planned across its 1.3-million-acre land package. Overseen by Chief Geoscientist Steve Halabura, P.Geo., and supported by the Petroleum Technology Research Centre, MAXX LEMI integrates extensive regional datasets and is evolving into a scalable, AI-assisted blueprint for global Natural Hydrogen exploration. The system will be highlighted at the Natural Hydrogen Summit in Paris on Nov. 13-14, 2025.
+This article has been disseminated on behalf of MAX Power Mining and may include paid advertising.
+
+ MAX Power Mining (CSE: MAXX) (OTC: MAXXF) (FRANKFURT: 89N) announced the development of its MAX Power Large Earth Model Integration (“MAXX LEMI”) for Natural Hydrogen, an advanced exploration system soon to be enhanced by artificial intelligence as part of the Company’s push toward the world’s first commercial Natural Hydrogen discovery. Canada’s first deep well targeting Natural Hydrogen is expected to begin drilling around Nov. 7 on MAX Power’s 200-km-long Genesis Trend in southern Saskatchewan, with additional wells planned across its 1.3-million-acre land package. Overseen by Chief Geoscientist Steve Halabura, P.Geo., and supported by the Petroleum Technology Research Centre, MAXX LEMI integrates extensive regional datasets and is evolving into a scalable, AI-assisted blueprint for global Natural Hydrogen exploration. The system will be highlighted at the Natural Hydrogen Summit in Paris on Nov. 13-14, 2025.
 
  To view the full press release, visit https://ibn.fm/3KAig
 
@@ -28,10 +30,10 @@ MAX Power Mining (CSE: MAXX) (OTC: MAXXF) (FRANKFURT: 89N) announced the develop
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-max-power-mining-cse-maxx-otc-maxxf-frankfurt-89n-unveils-ai-assisted-large-earth-model-integration-for-natural-hydrogen-exploration/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-max-power-mining-cse-maxx-otc-maxxf-frankfurt-89n-unveils-ai-assisted-large-earth-model-integration-for-natural-hydrogen-exploration-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/max-power-unveils-ai-enhanced-natural-hydrogen-exploration-system/2ea89df3c2eeea559d8f374d92a4d228) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/max-power-pioneers-ai-driven-natural-hydrogen-exploration-in-canada/656a8448165eb44fe4e7765eda3dad90) 
 
  
 
@@ -39,4 +41,4 @@ MAX Power Mining (CSE: MAXX) (OTC: MAXXF) (FRANKFURT: 89N) announced the develop
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2510/28/kissQL2P.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/3/apexZEWX.webp)
