@@ -1,0 +1,18 @@
+# Powell Law Firm Reaffirms Commitment to St. Louis Community with New Marketing Efforts
+
+ST. LOUIS, MO, November 03, 2025 /24-7PressRelease/ -- Powell Law Firm, one of Missouri's best personal injury law firms, proudly reaffirms its deep commitment to the St. Louis community with a renewed marketing initiative aimed at reaching and helping more residents in need of legal support after accidents and injuries.  Founded by Attorney Kenny Powell, a native of St. Louis, the firm continues to uphold its mission of providing compassionate, results-driven representation to victims of negligence. Born and raised in St. Louis and a graduate of Ladue High School, Kenny Powell comes from a family deeply rooted in civil rights advocacy. His grandfather, Dr. Jerome Williams Sr., led multiple civil rights protests, and his father sang at Dr. Martin Luther King Jr.'s funeral—a legacy of justice and community service that continues to inspire Powell's legal career.  Powell earned his bachelor's degree from the University of Kansas (KU), where he captained the men's tennis team and served as President of Omega Psi Phi Fraternity Inc. He was recognized for his academic and athletic achievements, including Jayhawk Scholar and Big 12 Commissioner's Honor Roll. After earning his certificate in Advanced Spanish in Salamanca, Spain, Powell attended Saint Louis University School of Law on a Dean's Scholarship, focusing on negotiations and alternative dispute resolution.  Before founding Powell Law Firm, he practiced law at a reputable plaintiff's civil litigation firm and spent a decade as a licensed sports agent representing Major and Minor League Baseball players. His diverse background, combined with judicial internships in both the Missouri Court of Appeals and the U.S. District Court, gives him unique insight into state and federal law.  Today, Powell Law Firm stands as a trusted advocate for St. Louis residents injured in car accidents, workplace incidents, and other cases of negligence. "We're proud to serve the city that shaped us," said Kenny Powell. "Our expanded marketing efforts will help ensure that more people know their rights and have access to experienced legal help when they need it most."  For those injured due to another's negligence, Powell Law Firm offers free consultations and comprehensive case evaluations.  About Powell Law Firm As one of Missouri's top personal injury law firms, Powell Law Firm is dedicated to standing up for individuals and families who have been harmed through no fault of their own. The firm represents clients in cases involving negligence by individuals, businesses, hospitals, government entities, and more. With a deep understanding of how life-changing an injury can be, Powell Law Firm combines compassion, experience, and resources to help clients seek justice and fair compensation. When you need trusted advocates by your side, Powell Law Firm is here to fight for you. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528365/powell-law-firm-reaffirms-commitment-to-st-louis-community-with-new-marketing-efforts)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powell-law-firm-expands-st-louis-outreach-with-renewed-community-focus/6f37f2457c8c712c34c1ae08c1eaf9ac) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/4/silkUt4j.webp)
