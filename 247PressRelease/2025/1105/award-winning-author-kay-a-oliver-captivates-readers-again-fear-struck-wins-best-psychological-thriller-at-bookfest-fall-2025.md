@@ -1,0 +1,18 @@
+# Award-Winning Author Kay A. Oliver Captivates Readers Again: "Fear-Struck" Wins Best Psychological Thriller at BookFest Fall 2025
+
+LOS ANGELES, CA, November 05, 2025 /24-7PressRelease/ -- We are thrilled to share exciting news that bestselling and award-winning author Kay A. Oliver has once again electrified the literary world, earning two prestigious Silver Book Awards at the BookFest Fall 2025 Awards!  Oliver's newest psychological thriller, Fear-Struck, took home top honors for Best Psychological Thriller, celebrating its razor-sharp suspense, emotional depth, and jaw-dropping twists. This gripping novel launches the Kutter Mystery Series, delivering mind-bending tension that keeps readers questioning what is real until the last breathtaking page.  "Fear-Struck is a spine-chilling psychological thriller that blurs the boundaries between imagination and reality." — Bookish_Pratibha  "I just finished Fear Struck. OMG. Loved it. It was so good." — A. Martinez  Following close behind, Oliver's supernatural mystery A Powerful Disturbance, the newest installment in the acclaimed Dr. Kaili Worthy series, earned a Silver Award for Fiction/Mystery/Supernatural/Series. Rich with archeological intrigue, paranormal energy, and Oliver's signature emotional depth, it continues a franchise that has captivated readers and collected awards since book one.  With over 30 literary awards and counting, Kay A. Oliver continues to prove her mastery in crafting unforgettable stories that thrill, haunt, and inspire.  "This award is not just a personal achievement," says Oliver. "It is a celebration of passion, persistence, and the power of storytelling. I am profoundly grateful to The BookFest and to every reader who embraces my books. May this honor inspire rising writers to chase their stories without fear."  Both award-winning novels are available now and are perfect for fans of gripping thrillers, layered mysteries, and psychological suspense that lingers long after "The End."  Discover the books and explore Kay's award-winning library click here  ABOUT The BookFest® Awards The BookFest Awards honor the outstanding storytellers shaping today's literary world. Each event draws thousands of readers, book lovers, and industry leaders, celebrating powerful writing and elevating authors with unforgettable voices and stories.  ABOUT Kay A. Oliver Kay A. Oliver is a bestselling, multi-award-winning author, Hollywood insider, and former Television Academy member whose novels deliver gripping suspense, emotional depth, and cinematic storytelling. Honored as Fiction Author of the Year 2025 (IAOTP), Oliver has been featured in The Wall Street Journal, AP News, Who's Who in America, and more. With more than a decade of literary success and over 30 prestigious awards, she continues to mentor emerging writers and inspire readers worldwide.  Her newest psychological thriller, Fear-Struck, marks the start of a riveting new series and is already being hailed as her most captivating work yet.  Explore all books and new releases at KayAOliver.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528442/award-winning-author-kay-a-oliver-captivates-readers-again-fear-struck-wins-best-psychological-thriller-at-bookfest-fall-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-wins-double-silver-book-awards-for-thrillers/f687d4846f5e10bb14adc05f006f7265) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/5/zeroyNfw.webp)

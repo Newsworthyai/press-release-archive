@@ -1,0 +1,18 @@
+# Hardison &amp; Cochran | Injury &amp; Workers Comp Lawyers Voted "Silver Best Personal Injury Law" by Raleigh's Best 2025
+
+RALEIGH, NC, November 05, 2025 /24-7PressRelease/ -- Hardison & Cochran | Injury & Workers Comp Lawyers has been named a 2025 Raleigh's Best winner, earning Silver in the Best Personal Injury Law Firm category.  Each year, Raleigh's Best, presented by The News & Observer, invites local residents to vote for the businesses and organizations they trust most. The program highlights firms that make a difference in the community — and this year's recognition means a lot to the Hardison & Cochran team.  "This award means a great deal to us because it came directly from the people of Raleigh," said Ben Cochran, managing partner of Hardison & Cochran. "We've built this firm on the belief that every client deserves to be heard and treated with respect. To know that our community recognizes that effort makes all the work worthwhile."  Hardison & Cochran represents clients across North Carolina in personal injury, workers' compensation, and Social Security Disability cases, helping people rebuild their lives after serious accidents. The firm's attorneys and staff are proud to stand alongside the other Raleigh businesses recognized in this year's awards.  About Hardison & Cochran | Injury & Workers Comp Lawyers  For over 40 years, the experienced attorneys of Hardison & Cochran | Injury & Workers Comp Lawyers have been helping the people of North Carolina with their personal injury, workers' compensation, and Social Security Disability claims. In that time, the firm has grown from one small office in Dunn, North Carolina, to six offices across the Tar Heel state in Raleigh, Greensboro, Fayetteville, Greenville, Wilmington, and Dunn.  Every member of the team is dedicated to pursuing meaningful results for their clients. Offering much more than just words, each attorney, paralegal, and staff member works diligently to provide personal attention and meet the needs of the firm's clients.  At Hardison & Cochran | Injury & Workers Comp Lawyers, the client and the case are given full support from start to finish, treating them fairly and with the respect they deserve. A skilled group of attorneys and staff provides the teamwork necessary to offer compassionate legal advocacy and seek the best possible results. This allows the team to develop and maintain a personal and professional relationship with clients so that they become clients for life.  The firm takes the following types of cases:  - Personal Injury - Workers' Compensation - Wrongful Death - Car Accidents - Truck Accidents - Motorcycle Accidents - Social Security Disability - Nursing Home Negligence - Child Care Negligence - Inadequate Security - Premises Liability - VA Disability - Defective Drugs - Defective Medical Devices - Defective Products  Hardison & Cochran | Injury & Workers Comp Lawyers welcomes North Carolina residents who have been injured or are seeking disability benefits to contact the firm for a free consultation. To learn more, visit www.lawyernc.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528417/hardison-cochran-injury-workers-comp-lawyers-voted-silver-best-personal-injury-law-by-raleighs-best-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hardison-cochran-wins-silver-in-raleigh-s-best-law-firm-awards/13f20eefaa0a2d765ddbbc84a4de4ccd) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/5/deepqvDQ.webp)

@@ -1,0 +1,18 @@
+# Stell Awarded Space RCO Contract to Deploy Software for Rapid Systems Integration
+
+MARINA DEL REY, CA, November 05, 2025 /24-7PressRelease/ -- Stell Engineering, Inc. announces it has been awarded an SBIR Phase III with the Space Rapid Capabilities Office (Space RCO) to enhance and deploy Stell's advanced systems integration software at Space RCO. The $5.8M contract funds deliverables over 24 months for Space RCO-tailored enhancements to the core Stell software and for a multi-layered secure deployment infrastructure.  This contract will accelerate Stell's software feature work and improve Space RCO system requirements management - tailoring the software for Space RCO's rapid deliveries and helping integrate complex system-of-systems of hardware, software and firmware interfaces for their evolving missions. The contract will also enable Stell to build on its existing cybersecurity and infrastructure work at the Controlled Unclassified Information (CUI) level, to include one-way connections into a high side environment.  Stell is working to ensure engineers within DOD and supporting contractors have the most advanced software possible to manage mission requirements, interfaces, testing, and compliance workflows – enabling US teams to develop, test, and field advanced hardware and systems faster than our adversaries.  This Phase III contract was awarded based on an AFWERX Direct to Phase II Small Business Innovation Research (SBIR) contract that Stell won in February 2024, serving Space Systems Command (SSC) Assured Access to Space (AATS) and Space Systems Integration Office (SSIO). Stell has been supported by team members at Space Systems Command, AFWERX, SpaceWERX, COMSO, and supporting SSC Systems Engineering and Technical Assistance (SETA) contractors at ManTech and Alpha Omega Group, LLC to make the Phase II innovation effort a success.  "Our team is proud to partner with SpaceRCO. Stell's mission is to ensure the United States of America maintains capability dominance on the battlefield by driving unmatched speed and technical execution on the engineering of complex systems. Working closely with SpaceRCO will enable us to realize this vision by putting our engineering team side by side with a DOD organization that is fielding novel hardware technologies on the most advanced and newly contested frontier – space." CEO, Malory McLemore  About Stell Stell is a US company that makes a modern software platform for systems engineering. Stell was founded in 2022, has raised $7M in venture capital, and has offices in Los Angeles and San Francisco, California. Satellite companies, ship builders, and battery manufacturing companies use Stell to ensure their products meet all customer, interface, regulatory, and functional requirements. DOD organizations such as Space Systems Command (SSC) are using Stell to develop and maintain interface specifications for faster procurement and integration of new launch vehicles, spacecraft, and payloads.  Stell's mission is to ensure the United States of America maintains capability dominance on the battlefield by driving unmatched speed and technical execution on the engineering of complex systems.  Company Press Contact: Malory McLemore, Co-Founder and CEO, malory@stell-engineering.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528429/stell-awarded-space-rco-contract-to-deploy-software-for-rapid-systems-integration)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stell-engineering-wins-5-8m-space-rco-contract-for-systems-integration/49ca919afaee4febd61b3ab36737caa7) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/5/poem6Uf3.webp)

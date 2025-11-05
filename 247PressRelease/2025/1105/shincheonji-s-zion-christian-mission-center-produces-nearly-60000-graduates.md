@@ -1,0 +1,18 @@
+# Shincheonji's Zion Christian Mission Center Produces Nearly 60,000 Graduates
+
+NEW YORK, NY, November 05, 2025 /24-7PressRelease/ -- The Zion Christian Mission Center hosted its 116th graduation ceremony on November 2 at the Shincheonji Cheongju Church in South Korea. Despite intense persecution and slander, the mission center produced a total of 59,192 graduates this year, including 2,248 pastors.   Notably, the number of pastors graduating from the Zion Christian Mission Center continues to rise. Within the past four years, the total number of graduating pastors surpassed 13,500.   The mission center run by Shincheonji Church of Jesus, the Temple of the Tabernacle of the Testimony, teaches the Bible systematically, focusing on prophecy and fulfillment, the will of God and the flow of scripture from Genesis to Revelation. To graduate, students must complete all three levels of the free, year-long course — introductory, intermediate, and advanced — and score 90 points or higher on comprehensive exams.  As he spoke during the graduation ceremony, Shincheonji Church Chairman Lee Man-hee called on all believers to carry out genuine faith lives according to scripture.  "There are far too many people who claim to believe in Jesus but do not follow the Bible completely," Chairman Lee said. "Do not rely on church authority — check for yourself through Scripture whether your faith is truly grounded in the Word."  A highlight of the ceremony was the graduation speech delivered by Oh Sun-kyung, a former pastor. "I planted three churches and proudly considered myself a true believer who devoted her life to the Lord's kingdom and glory," the former pastor said. "Yet deep down, I carried a heavy burden — I could not understand Revelation. Even after reading the Bible over 30 times, I found no answers, and in shame before my congregation, I eventually gave up my ministry."  Oh Sun-kyung urged other pastors to come to Shincheonji Church's mission center to master Revelation and properly guide their congregation members.  "Now that the secrets of Revelation have been revealed, the role of a pastor — a shepherd of God's flock — is to lead the believers to heaven," the former pastor said. "Let us first master this promised Word without adding or subtracting from it. Pastors, let us humble ourselves before the Word, join hands with our congregations, and score a perfect 100 on the Bible test — becoming those who are sealed by God."  The graduation ceremony, themed, "Love and Blessing, Light to the World," filled the Shincheonji Cheongju Church with around 20,000 graduates inside and outside of the building. Due to limited space, the remaining graduates joined online from Shincheonji Churches across South Korea and around the world, adding to the atmosphere of the celebration.  This year's graduation follows four years in which the total number of graduates surpassed 100,000. In 2023 and 2024, the Zion Christian Mission Center graduated 108,084 and 111,628 theology students, respectively. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528391/shincheonjis-zion-christian-mission-center-produces-nearly-60000-graduates)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-graduates-59192-including-2248-pastors-amid-growth/45c50422af1ea08d1cab5a8194b17918) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/5/riftiPuz.webp)
