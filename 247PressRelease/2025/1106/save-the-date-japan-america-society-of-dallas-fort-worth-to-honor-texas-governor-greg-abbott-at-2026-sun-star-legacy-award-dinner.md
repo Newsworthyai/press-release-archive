@@ -1,0 +1,18 @@
+# Save the Date: Japan-America Society of Dallas/Fort Worth to Honor Texas Governor Greg Abbott at 2026 Sun &amp; Star Legacy Award Dinner
+
+DALLAS, TX, November 06, 2025 /24-7PressRelease/ -- The Japan-America Society of Dallas/Fort Worth (JASDFW) invites the community to save the date for one of North Texas's most anticipated international business and cultural galas – the 2026 Sun & Star 28th Annual Legacy Award Dinner to be held Wednesday, April 15, 2026, in the Grand Ballroom of the Irving Convention Center, from 6:00 p.m. to 9:30 p.m.  Each year, the Sun & Star Legacy Award Dinner brings together hundreds of top executives from the business, government, and diplomatic communities to celebrate the enduring partnership between Japan and the Lone Star State. Guests experience an evening of high-level networking, cultural connection, and international collaboration that showcases the dynamic Texas–Japan relationship.  In 2026, JASDFW will proudly present its highest award, the Sun & Star Legacy Award to Texas Governor Greg Abbott in recognition of his outstanding leadership and commitment to advancing economic, cultural, and diplomatic ties between Japan and Texas. Under Governor Abbott's leadership, Texas has become one of Japan's strongest partners in the United States for trade, innovation, and investment. This includes establishing strategic agreements with the Tokyo Metropolitan Government and Aichi Prefecture, which is home to Toyota's global headquarters. Today, Texas is home to hundreds of Japanese-owned businesses and serves as a cornerstone of continued U.S.–Japan collaboration.  "The Sun & Star Legacy Award Dinner exemplifies how partnerships between Texas and Japan continue to shape our future," said Lawrence P. Howorth, Chair of the Board of Directors, Japan-America Society of Dallas/Fort Worth. "We are honored to recognize Governor Abbott for his leadership and commitment to strengthening this relationship. This event stands as a powerful platform for building friendships, fostering business collaboration, and celebrating the shared values of innovation, respect, and community."  Guests can look forward to an elegant evening featuring a VIP reception, gourmet dinner, and opportunities to connect with influential figures from both nations. The event will also include a silent auction with curated travel experiences, designer jewelry, fine dining packages, and exclusive sports and golf offerings.  The Sun & Star Legacy Award Dinner is JASDFW's signature annual fundraiser, supporting programs that promote education, culture, and business exchange across North Texas and beyond. Proceeds enable the Society to continue its mission of fostering mutual understanding and collaboration between Japanese and American communities.  Sponsorships and table reservations are now open. To receive updates or express early interest, Click Here  About the Japan-America Society of Dallas/Fort Worth  Founded in 1970, the Japan-America Society of Dallas/Fort Worth is dedicated to strengthening the bonds between the people of Japan and North Texas through business, education, and cultural exchange. JASDFW provides high-quality programs that foster friendship, understanding, and collaboration between the two nations. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528469/save-the-date-japan-america-society-of-dallasfort-worth-to-honor-texas-governor-greg-abbott-at-2026-sun-star-legacy-award-dinner)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/governor-abbott-honored-at-2026-japan-texas-legacy-gala/3114b433dece9180717f2b7de56b28a3) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/6/numblp6r.webp)

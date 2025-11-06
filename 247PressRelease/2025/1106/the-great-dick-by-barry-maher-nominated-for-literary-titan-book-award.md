@@ -1,0 +1,18 @@
+# The Great Dick By Barry Maher Nominated for Literary Titan Book Award
+
+SANTA BARBARA, CA, November 06, 2025 /24-7PressRelease/ -- The Great Dick (ISBN 978-1968532130, Crystal Lake Publishing, 2025) by Barry Maher has been nominated for the Literary Titan Book Award. The Literary Titan Book Award is bestowed upon books that exemplify exceptional standards in the presentation of original content and is considered a leading book award in the publishing industry. The Great Dick is Maher's debut novel and was released in September of this year and has earned both a loyal following and critical acclaim. The nomination recognizes Maher's striking blend of dark humor, psychological depth, and genre-bending storytelling that critics are already calling one of the most original debuts of the year.  "I'm deeply honored and humbled by this nomination," said Barry Maher, author of The Great Dick. "This book started as an exploration of how we define ourselves through failure and redemption, and I'm thrilled that readers and critics alike have connected with that journey."  The Great Dick follows Stephen Witowski, a down-on-his-luck drifter whose encounter with a mysterious woman sets off a surreal chain of events mixing noir suspense, supernatural tension, and biting social satire. Drawing comparisons to classic American anti-heroes and modern thrillers alike, Maher's novel takes readers on a wild ride through guilt, greed, and redemption in the sun-scorched landscape of Southern California.  The book has been praised by New York Times bestselling authors Jacquelyn Mitchard (The Deep End of the Ocean), Gayle Lynds (Masquerade), and Michael Prescott (The Shadow Hunter). Mitchard called it "compulsively readable," while Lynds hailed Maher as "a brilliant new talent." Prescott described it as "a witches' brew of sensual tension, metaphysical speculation, lurid crime, tabloid scandal, and black magic—all served up with sly wit."  About the Literary Titan Book Award The Literary Titan Book Award is bestowed upon books that exemplify exceptional standards in the presentation of original content. For both fiction and non-fiction works, this award appreciates the meticulous development of unique characters or subjects presented in an authentically engaging context. Whether it is an innovative narrative structure for a fiction book or a compelling argumentation in a non-fiction work, we value the ability to support fresh themes and ideas. The award also honors the craft of elegant prose, showcasing a talent for transforming simple words into compelling, beautifully constructed text. This prestigious accolade is our tribute to books that represent an extraordinary achievement in the literary world.  About Barry Maher Barry Maher is an author, speaker, and consultant whose nonfiction works—including Filling the Glass and No Lie: Truth Is the Ultimate Sales Tool—have been translated into multiple languages and featured in publications such as The Wall Street Journal, The New York Times, and USA Today. The Great Dick marks his highly acclaimed debut in fiction. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528476/the-great-dick-by-barry-maher-nominated-for-literary-titan-book-award)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/barry-maher-s-the-great-dick-nominated-for-literary-titan-book-award/a079b76ca73e019f3a2111000d15123f) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/6/dashQVty.webp)

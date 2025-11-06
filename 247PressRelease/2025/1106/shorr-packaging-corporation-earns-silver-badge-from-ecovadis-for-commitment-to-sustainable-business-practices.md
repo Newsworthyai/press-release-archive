@@ -1,0 +1,18 @@
+# Shorr Packaging Corporation earns Silver Badge from EcoVadis for Commitment to Sustainable Business Practices
+
+AURORA, IL, November 06, 2025 /24-7PressRelease/ -- Shorr Packaging Corporation – an award-winning distributor of packaging products, equipment, and services- proudly announces that the company has once again earned the EcoVadis Silver Badge for its demonstrated leadership in sustainable packaging and ethical business practices. This achievement highlights Shorr's continuous improvement and strong environmental, social, and governance performance, along with its ongoing efforts to foster a circular economy and positive impact across the packaging industry and local communities.  The EcoVadis assessment evaluates organizational sustainability performance across more than 150,000 companies worldwide, measuring performance through 21 sustainability criteria that span four key areas: Environment, Labor & Human Rights, Ethics, and Sustainable Procurement. Under the 2025 EcoVadis standards, the Silver Badge distinguishes companies ranking among the top 15% of all evaluated organizations, recognizing Shorr's ongoing commitment to responsible and ethical operations and strategy.   Shorr's 2025 Sustainability Report highlights the company's continued progress toward measurable and transparent sustainability results, including:  • Demonstrated Impact: Case studies showcasing tangible reductions in environmental impact and successfully addressing packaging challenges with sustainable solutions. • Industry Leadership: Increased participation in sustainability-focused organizations, such as the Flexible Film Recycling Alliance and the UN Global Compact, to enhance recycling and circular economy initiatives. • Community Focus: Expansion of local outreach and volunteer initiatives supporting social responsibility goals, such as organization-wide Earth Day events and the monthly Adopt-A-Trail clean-up. • Cultural Integration: Deepening sustainability as a foundational element of corporate culture and strategy, helping to accelerate the packaging industry's transition toward a circular economy.  "Shorr is honored to once again receive the Silver Badge from EcoVadis," said Meredith Moore, Program Manager – Shorr Sustainability. "This recognition reflects our investments and dedication to environmental stewardship, ethical business practices, and social responsibility, as well as the growing momentum of the Shorr Sustainability impact. Sustainability is a priority for Shorr, and we have a responsibility to continue serving as a resource and leader for our customers, employee-owners, and community."   Shorr continues to lead with a clear, actionable sustainability mission, proving that consistent, data-driven environmental and social strategies are essential to long-term business success.  About Shorr Packaging Founded in 1922, Shorr Packaging Corporation is a leading, employee-owned distributor of packaging products, equipment, and services. Representing the most respected manufacturers and brands in the packaging industry, Shorr is among the United States' largest independent distributors.  For more information, visit www.shorr.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528464/shorr-packaging-corporation-earns-silver-badge-from-ecovadis-for-commitment-to-sustainable-business-practices)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shorr-packaging-earns-ecovadis-silver-for-sustainability-leadership/35878c881a3f6e9a7b15130325964838) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/6/waitmVyB.webp)
