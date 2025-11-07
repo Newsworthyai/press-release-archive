@@ -1,0 +1,18 @@
+# Texas de Brazil Hawaii Launches New Social Media Pages and Announces Holiday Hours
+
+HONOLULU, HI, November 07, 2025 /24-7PressRelease/ -- Texas de Brazil, the island's premier Brazilian steakhouse, proudly announces the launch of its official Facebook and LinkedIn pages — inviting guests to connect, share, and celebrate the spirit of Aloha meets Churrasco.  Located on Oahu's beautiful South Shore, Texas de Brazil Hawaii blends the bold flavors of Southern Brazil with the warmth of Hawaiian hospitality. Guests enjoy an elevated dining experience featuring perfectly grilled cuts of beef, lamb, pork, chicken, and sausage, carved tableside by authentic Brazilian gauchos and complemented by a lavish salad area and signature sides.  As the holiday season approaches, Texas de Brazil Hawaii will be open on both Thanksgiving Day and Christmas Day, welcoming guests to celebrate the season with an unforgettable feast. Whether you're a local ʻohana looking for a festive gathering or a traveler seeking a memorable holiday dining experience in Honolulu, reservations are strongly encouraged.   "Our team is excited to share the flavors and traditions of Brazil with the Aloha spirit this holiday season," said Jasmine Doropan, General Manager of Texas de Brazil Hawaii. "We look forward to welcoming guests from near and far to celebrate together around our tables."  To stay connected with Texas de Brazil Hawaii, follow the restaurant on: Facebook: Texas de Brazil Hawaii Facebook LinkedIn: Texas de Brazil Hawaii LinkedIn  Both pages will feature updates on seasonal offerings, wine pairings, local events, and exclusive behind-the-scenes stories highlighting the talented team that brings the Texas de Brazil experience to life on Oahu.  Texas de Brazil Hawaii is located at the Ala Moana Center, 4 th Floor Macy's Side, 1450 Ala Moana Blvd., Honolulu, HI open daily for dinner, with special holiday hours beginning at 11:00 AM on both Thanksgiving Day and Christmas Day.  Reserve your table early — space is limited for holiday dining. Visit https://texasdebrazil.com/reservations/ to book your experience.  About Texas de Brazil Hawaii Located on Oahu's beautiful South Shore, Texas de Brazil consistently ranks among the best restaurants in Honolulu, HI. We are a Brazilian steakhouse, and one of the few on the island. Ever heard of a continuous dining meat? Get ready to sample perfectly-cooked pork, chicken, beef, lamb, and sausages carved from roasting spits right at your table. Our servers wear traditional Brazilian gaucho (cowboy) dress as they chat with you about their offerings and your preferences. It's not just meat that is our specialty, although it is what we are most famous for. Our Brazilian steakhouse sides are also insanely delicious, as is our incredible salad bar.  So, so many options, and the best part: you don't have to choose! The sides and salad bar are all-you-can-eat as well! Come see for yourself what makes us one of the best restaurants in Honolulu and bring the whole family. Kids love Texas de Brazil's fun atmosphere, and, of course, we offer discounts on their dinner. Hope to see you soon! Mahalo! 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528552/texas-de-brazil-hawaii-launches-new-social-media-pages-and-announces-holiday-hours)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-de-brazil-hawaii-launches-social-media-for-holiday-season/a541a9570ad6897004f3c80244136cec) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/7/pearKn6q.webp)

@@ -1,0 +1,18 @@
+# 2022 Mercedes-AMG SL 55: The Reborn Roadster That Balances Power and Prestige
+
+FORT WORTH, TX, November 07, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to showcase the rebirth of a legendary nameplate with the arrival of a 2022 Mercedes-AMG SL 55 in sleek black—one of the latest additions to The Ron Sturgeon Collectionand a striking tribute to the enduring legacy of the SL-Class, which dates back to the iconic 300SL Gullwing.  After several years of lukewarm reception and competition from newer grand touring rivals, the SL-Class has returned with new firepower and focus, positioning itself as a true driver's car while still retaining the luxurious DNA that made it famous. The AMG-developed SL 55 is powered by a 469-horsepower twin-turbo V8, paired with standard all-wheel drive and four-wheel steering—features designed to deliver precise handling and impressive acceleration without sacrificing everyday comfort.  A redesigned platform and lightweight fabric folding roof replace the outgoing hardtop, bringing back the SL's beloved open-air character while also reducing weight and improving agility. Inside, the SL 55 features a tech-rich, driver-centric cabin that fuses high-performance intent with premium materials and modern connectivity.  "This car represents the evolution of a legend," says Ron Sturgeon, founder of the DFW Car & Toy Museum. "The SL has always been about elegance and engineering—and this new SL 55 is a bold return to form. It's fast, refined, and unmistakably an AMG."  Whether admired for its cutting-edge technology or its motorsport-inspired performance, the 2022 SL 55 shows that Mercedes-Benz isn't just reviving an icon—it's reimagining it for a new generation.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523911/2022-mercedes-amg-sl-55-the-reborn-roadster-that-balances-power-and-prestige)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mercedes-amg-sl-55-revives-legend-at-dfw-car-toy-museum/8e601836d73c4c5ad33b366ec9a8b400) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/7/limepu9Q.webp)
