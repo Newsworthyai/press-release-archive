@@ -93,14 +93,14 @@ Hong Kong Design CentreChelsea Chan [chelsea.chan@hkdesigncentre.org](mailto:che
 [Original/Source Press Release](https://evertise.net/dfa-awards-2024-asias-creative-luminaries-shine-new-designer-of-the-year-award-unveiled/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dfa-awards-2024-announces-esteemed-laureates-for-design-excellence/7fcb37f07ce0a897d6f298e8dd2eb655) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102907-dfa-awards-2024-celebrating-asia-s-creative-excellence-and-the-introduction-of-the-designer-of-the-year-award)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1glnd7n/dfa_awards_2024_announces_esteemed_laureates_for/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2411/7/fern_T9C.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/lendzP8W.webp)

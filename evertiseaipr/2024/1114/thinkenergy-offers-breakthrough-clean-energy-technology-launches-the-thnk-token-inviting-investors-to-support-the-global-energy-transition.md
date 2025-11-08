@@ -43,14 +43,14 @@ Coral Gables , FL , November 14, 2024– As global demand for cleaner energy gro
 [Original/Source Press Release](https://evertise.net/thinkenergy-offers-breakthrough-clean-energy-technology-launches-the-thnk-token-inviting-investors-to-support-the-global-energy-transition/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thinkenergy-launches-digital-asset-for-global-energy-transition/800ef517cbe0059482e085c7e6af30ab) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102920-faq-thinkenergy-s-breakthrough-in-clean-energy-technology-and-thnk-token-launch)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1gzsp6x/thinkenergy_launches_digital_asset_for_global/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2411/25/limeIKwW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/paleLBoC.webp)

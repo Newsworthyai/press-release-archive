@@ -31,14 +31,14 @@ On November 17, Against the backdrop of accelerating globalization and increasin
 [Original/Source Press Release](https://evertise.net/uniting-global-youth-to-shape-the-future-world-association-of-young-scientists-officially-established/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/world-association-of-young-scientists-inaugurated-to-drive-global-scientific-collaboration/119b9a3b07acb07a418137eac53fc357) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102922-faq-world-association-of-young-scientists-ways-establishment-and-its-global-impact)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1gzsp9w/world_association_of_young_scientists_inaugurated/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2411/25/blurZDQC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/mendrWXs.webp)

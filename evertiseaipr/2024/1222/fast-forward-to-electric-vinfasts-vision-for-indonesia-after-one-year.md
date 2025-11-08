@@ -69,14 +69,14 @@ Hanoi, 21st December – VinFast has achieved a significant milestone in Vietnam
 [Original/Source Press Release](https://evertise.net/fast-forward-to-electric-vinfasts-vision-for-indonesia-after-one-year/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-future-of-electric-driving-experience-the-vinfast-vf-e34/ddc31072f013dd5bf0694c02047f6a38) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102938-vinfast-s-electrifying-journey-in-indonesia-a-comprehensive-faq)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1hkqeg2/the_future_of_electric_driving_experience_the/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/arch5cgH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/jokeIMh8.webp)

@@ -55,14 +55,14 @@ California, 12th December – As one of the world’s few dedicated electric veh
 [Original/Source Press Release](https://evertise.net/vinfasts-focus-on-after-sales-service-a-key-to-ev-adoption/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-s-rapid-growth-and-emphasis-on-after-sales-support-drive-global-expansion/d2f85fa28f1cd898429e8161c8f78826) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102933-vinfast-s-commitment-to-after-sales-service-and-ev-adoption-a-comprehensive-faq)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hkqedg/vinfasts_rapid_growth_and_emphasis_on_aftersales/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/rend4cVV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/yawnO2_y.webp)

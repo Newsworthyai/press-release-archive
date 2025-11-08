@@ -59,14 +59,14 @@ Unlike other companies that only prioritize sales volume, VinFast has invested s
 [Original/Source Press Release](https://evertise.net/vinfasts-us-strategy-taking-responsibility-with-long-warranties/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-s-customer-centric-approach-and-industry-leading-10-year-warranty/86c445d4bfafec65c3e0542c0f6443fd) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102946-vinfasts-us-strategy-comprehensive-faq-on-long-warranties-and-customer-satisfaction)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hmnsgl/vinfasts_customercentric_approach_and/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/26/rendu2Zm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/ninomzRQ.webp)

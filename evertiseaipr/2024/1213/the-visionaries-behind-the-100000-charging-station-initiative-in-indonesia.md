@@ -63,14 +63,14 @@ Indonesia, 12th December – The construction of charging stations is a crucial 
 [Original/Source Press Release](https://evertise.net/the-visionaries-behind-the-100000-charging-station-initiative-in-indonesia/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/v-green-and-prime-group-to-develop-100000-ev-charging-stations-in-indonesia/3397b0d27213ab4a3696041705e6b6f9) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102931-faq-the-100000-charging-station-initiative-in-indonesia-by-v-green-and-prime-group)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1hkq9im/vgreen_and_prime_group_to_develop_100000_ev/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/gainCAH5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/frogtuMh.webp)

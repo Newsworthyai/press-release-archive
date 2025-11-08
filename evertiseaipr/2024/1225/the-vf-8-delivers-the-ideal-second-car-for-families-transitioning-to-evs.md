@@ -43,14 +43,14 @@ Life rarely moves at one speed, especially for busy families juggling errands, w
 [Original/Source Press Release](https://evertise.net/the-vf-8-delivers-the-ideal-second-car-for-families-transitioning-to-evs/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vf-8-the-ideal-electric-vehicle-solution-for-modern-families/5d1764ef19da9aad0436a5917b4d3b04) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102944-vf-8-the-ideal-second-car-for-families-transitioning-to-evs-faq)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1hm02pp/vf_8_the_ideal_electric_vehicle_solution_for/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/25/palesx1f.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/calm2N4t.webp)

@@ -45,14 +45,14 @@ As the U.S. electric vehicle market loses steam, VinFast emerges with a potentia
 [Original/Source Press Release](https://evertise.net/vinfast-vf-8-the-car-to-retake-the-ev-momentum/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-vf-8-the-solution-to-revive-the-u-s-electric-vehicle-market/90755e274e8c94816c963f83743429ff) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102909-vinfast-vf-8-reigniting-the-ev-market-with-premium-features-and-exceptional-service)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1glnd8z/vinfast_vf_8_the_solution_to_revive_the_us/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2411/7/cakeJJj6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/iconWQQf.webp)

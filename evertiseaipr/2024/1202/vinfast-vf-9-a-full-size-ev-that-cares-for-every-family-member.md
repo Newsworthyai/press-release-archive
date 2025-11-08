@@ -39,14 +39,14 @@ The VinFast VF 9 is a fully electric, seven-seater SUV designed to redefine the 
 [Original/Source Press Release](https://evertise.net/vinfast-vf-9-a-full-size-ev-that-cares-for-every-family-member/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-vf-9-redefining-the-full-size-electric-suv-segment-in-the-u-s/2fe7b40ef88454cd1f87749952c0d39b) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102926-vinfast-vf-9-comprehensive-faq-on-the-full-size-electric-suv)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1hkq6o2/vinfast_vf_9_redefining_the_fullsize_electric_suv/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/boldseCH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/quizwChT.webp)

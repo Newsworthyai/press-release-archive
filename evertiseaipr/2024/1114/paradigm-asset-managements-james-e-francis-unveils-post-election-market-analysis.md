@@ -71,14 +71,14 @@ Paradigm Asset Management Co. LLC New York, NY November 14, 2024
 [Original/Source Press Release](https://evertise.net/paradigm-asset-managements-james-e-francis-unveils-data-driven-post-election-investment-strategy/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/paradigm-asset-management-releases-post-election-market-analysis/1a364e02c950febd93c57b94d3fee50c) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102917-faq-on-paradigm-asset-managements-post-election-market-analysis)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1gzsp3y/paradigm_asset_management_releases_postelection/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2411/25/chefSTOD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/limeA6sQ.webp)

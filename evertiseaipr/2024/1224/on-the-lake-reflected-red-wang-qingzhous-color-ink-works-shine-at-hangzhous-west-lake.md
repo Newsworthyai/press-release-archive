@@ -57,14 +57,14 @@ December 23, 2024, Hangzhou, Zhejiang, China, On December 15, 2024, the art exhi
 [Original/Source Press Release](https://evertise.net/on-the-lake-reflected-red-wang-qingzhous-color-ink-works-shine-at-hangzhous-west-lake/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/color-ink-art-exhibition-reflections-on-the-lake-by-wang-qingzhou-opens-in-hangzhou/16ecdc5be3b2e5100fa55544f9eae123) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102942-faq-wang-qingzhous-color-ink-art-exhibition-at-hangzhous-west-lake)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1hlf4o1/color_ink_art_exhibition_reflections_on_the_lake/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/24/tileW3oI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/ferntKpv.webp)

@@ -47,14 +47,14 @@ Los Angeles, 21st December – As electric vehicles (EVs) steadily gain ground, 
 [Original/Source Press Release](https://evertise.net/vinfast-amplifies-ev-benefits-with-strong-warranties-and-aftersales/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-challenges-assumptions-about-ev-battery-lifespan/fe2e6282247eeb4c44cf8b164341b9a5) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102940-vinfast-s-ev-warranty-and-aftersales-support-faq)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hkqimo/vinfast_challenges_assumptions_about_ev_battery/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/jazzT4HU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/roamdbsG.webp)

@@ -47,14 +47,14 @@ VinFast is reshaping the EV landscape with its extended warranties and comprehen
 [Original/Source Press Release](https://evertise.net/vinfast-joins-others-in-offering-long-warranties-but-raises-the-bar-higher/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinfast-redefines-ev-ownership-with-industry-leading-warranties-and-after-sales-support/97d8a7eebd63dc95345b824e35b658ad) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102929-vinfast-s-extended-warranties-and-after-sales-support-revolutionizing-ev-ownership)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1hkq6qr/vinfast_redefines_ev_ownership_with/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/23/neonXKp1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/nina3gCC.webp)

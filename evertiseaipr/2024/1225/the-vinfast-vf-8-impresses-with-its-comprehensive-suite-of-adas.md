@@ -25,14 +25,14 @@ In a region where innovation is highly valued, the interest in electric vehicles
 [Original/Source Press Release](https://evertise.net/the-vinfast-vf-8-impresses-with-its-comprehensive-suite-of-adas/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vf-8-redefining-electric-vehicle-innovation-in-the-middle-east/f4a3f469a9261f98256f841a2996a684) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [https://faqstaq.news/news](/news/202504/102945-faq-the-vinfast-vf-8-and-its-advanced-driver-assistance-systems-adas)
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1hm04ys/vf_8_redefining_electric_vehicle_innovation_in/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/2412/25/kite4N2B.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/herb5IKV.webp)
