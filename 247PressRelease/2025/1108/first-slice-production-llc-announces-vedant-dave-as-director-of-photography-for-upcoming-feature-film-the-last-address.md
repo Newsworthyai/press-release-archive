@@ -1,0 +1,18 @@
+# First Slice Production LLC Announces Vedant Dave as Director of Photography for Upcoming Feature Film "The Last Address"
+
+LOS ANGELES, CA, November 08, 2025 /24-7PressRelease/ -- The feature, directed and executive produced by Gursimran Singh, begins its production cycle on November 10, 2025, and will continue through January 14, 2027.  A deeply human story exploring migration, belonging, and intergenerational connection, The Last Address follows Arjun, a young Indian student searching for his estranged father in America, and his unexpected friendship with Mr. Sharma, an elderly immigrant living alone in Los Angeles. Through its emotionally rich narrative, the film captures the universal need for home and connection, told through a lens of authenticity and grace.  In his role, Vedant Dave will serve as the key creative force behind the film's visual storytelling. Collaborating closely with Singh, Dave will shape the overall cinematic language—defining tone, color palette, camera movement, and lighting design to mirror the emotional evolution of the characters. From designing custom LUTs and conducting detailed technical tests to overseeing all aspects of the camera and lighting departments, his work will ensure that every frame resonates with the film's introspective essence.  Speaking about the collaboration, Director Gursimran Singh remarked, "Vedant's ability to blend emotional sensitivity with technical mastery makes him an invaluable creative partner. His visual storytelling doesn't just capture images—it evokes memory, emotion, and truth. The Last Address is about finding home in unexpected places, and Vedant's cinematography will be instrumental in guiding that emotional journey."  First Slice Production LLC—known for its artful, globally conscious independent films—has built a reputation for projects that prioritize substance, cultural authenticity, and artistic vision. Singh's past work has been featured in notable outlets such as VoyageLA and Shoutout LA, praised for its emotionally grounded narrative style and cinematic refinement.  Principal photography is scheduled to begin on May 22, 2026, in Los Angeles and surrounding areas, with post-production concluding by November 2026. The film will culminate with festival submissions and public marketing releases leading into early 2027.  For Vedant Dave, The Last Address represents both a professional challenge and a creative honor. Drawing on his extensive experience crafting emotionally rich, expressive imagery, Dave is expected to deliver a visual experience that is intimate, reflective, and deeply human—an expression of cinema that celebrates storytelling through light and shadow.  The Last Address exemplifies First Slice Production LLC's dedication to producing meaningful and globally resonant narratives—films that speak not only to the immigrant experience but to anyone who has ever searched for identity, reconciliation, or belonging.  Gursimran Singh | Producer First Slice Production LLC Email: gursimrang7@icloud.com IMDb: https://www.imdb.com/name/nm11077862/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528558/first-slice-production-llc-announces-vedant-dave-as-director-of-photography-for-upcoming-feature-film-the-last-address)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-slice-production-announces-the-last-address-film-timeline/97156204939572c3529aca3b0d1fd3b4) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/8/rendnNEe.webp)

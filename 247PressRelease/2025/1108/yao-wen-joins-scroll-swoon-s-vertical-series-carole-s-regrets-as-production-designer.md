@@ -1,0 +1,18 @@
+# Yao Wen Joins Scroll&amp;Swoon's Vertical Series Carole's Regrets as Production Designer
+
+LOS ANGELES, CA, November 08, 2025 /24-7PressRelease/ -- Scroll&Swoon, LLC has announced the appointment of production designer Yao Wen to lead the visual design for its upcoming vertical-format series Carole's Regrets, slated for production from October 1, 2028 through December 15, 2028. The highly anticipated project will be distributed on leading short-form content platforms Vigloo and Goodshort, reinforcing Scroll&Swoon's reputation for pushing the boundaries of digital cinematic storytelling.  Carole's Regrets is produced by Scroll&Swoon co-founders Arwen (Ziyu) Wang and Jocelyn Koo, in collaboration with Academy Award-winning director Rommel Villa (Sweet Potatoes, 2020 Student Academy Awards).  As Production Designer, Yao Wen plays a pivotal creative role in defining the series' aesthetic identity and design philosophy. Her responsibilities encompass concept development, art direction, and the creation of modular, adaptable set environments optimized for vertical storytelling. Collaborating closely with producers Wang and Koo, and director Villa, Wen oversees every stage of design execution—from initial visual concept briefs and mood boards to lighting design, materials selection, and set dressing throughout the shoot cycle.  Wen's leadership contributes to the series' innovative production model, which emphasizes modular design frameworks capable of evolving across brands, genres, and campaign cycles. By implementing scalable art direction systems, she ensures that ScrollSwoon's signature visual tone remains consistent across its portfolio while maintaining agility for new seasonal and commercial clients.  "Yao brings an intuitive architectural precision and emotional clarity to her design approach," said producer Arwen (Ziyu) Wang, co-founder of Scroll&Swoon. "Her ability to shape physical spaces that both reflect character psychology and streamline production efficiency makes her work invaluable to our 2028 slate."  Producer Jocelyn Koo added, "Carole's Regrets is a deeply modern, emotionally intelligent narrative meant for the mobile screen generation. Yao's designs give that narrative a vivid, cinematic language that feels both expansive and intimate."  Wen's design process continues beyond production into post, where she oversees visual audits, brand alignment updates, and the long-term maintenance of Scroll&Swoon's design assets. Her work ensures that Carole's Regrets not only elevates the artistic standard of vertical cinema but also sets a model for sustainable, high-value production design in digital-forward storytelling.  For Scroll&Swoon, Carole's Regrets represents a key milestone in its evolving creative ecosystem, uniting a distinguished international production team within Los Angeles's thriving independent content community.  About ScrollSwoon, LLC Founded by Ziyu (Arwen) Wang and Jocelyn Koo, Scroll&Swoon is a boutique film and vertical media studio specializing in cinematic short-form content and emotional storytelling for global audiences. The company has gained notable recognition across independent film circuits for its blend of high-production artistry and market-ready innovation. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528584/yao-wen-joins-scrollswoons-vertical-series-caroles-regrets-as-production-designer)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scroll-swoon-taps-yao-wen-to-design-vertical-series-carole-s-regrets/33c5c73f4a9f9a3a2c49526759b1f0a7) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/8/fastMWt3.webp)
