@@ -1,0 +1,18 @@
+# Ranch Hand Selects TriPoint Logistics Center for Consolidated Location for Production and Distribution
+
+SEGUIN, TX, November 07, 2025 /24-7PressRelease/ -- Ranch Hand, a subsidiary of LCI Industries (NYSE: LCII), has signed a 400,000-square-foot build-to-suit lease at TriPoint Logistics Center in Seguin, Texas. TriPoint Logistics Center is a 120-acre industrial park owned by Ackerman & Co. and its investment partner Baltisse. The development covers approximately 1/3 of the industrial park. Ackerman & Co. will deliver the manufacturing and distribution facility for Ranch Hand.   Ranch Hand will consolidate into the new facility from two of its existing plants, allowing the company to double its manufacturing capacity.   The facility will provide Ranch Hand a location in the heart of the Texas Triangle with direct access to Interstate 10 between Houston and San Antonio. Expected to be completed in late 2026, the facility will produce Ranch Hand's line of industry-leading truck accessories, including grill guards, bumpers and running boards. The 36-foot clear height cross-dock facility will include space for production, staging, packaging and warehousing.   Tom Walrich of Lee & Associates represented Ranch Hand in the lease transaction, and John Colglazier, Kyle Kennan, and Gray Gilbert of Partners represented Ackerman & Co.   "We're proud to deliver this state-of-the-art build-to-suit project for Ranch Hand," said Jeff Bryant, Principal for Ackerman & Co. in Texas. "The City of Seguin is an ideal location for manufacturing and distribution."  In the San Antonio MSA, Ackerman and Baltisse completed a 300,000-square-foot industrial development in Schertz, Doerr Lane Logistics Center; and a 511,000-square-foot industrial development in Selma, Corporate Drive Industrial Park. Phase two at TriPoint Logistics Center can accommodate up to 1 million square feet of industrial or manufacturing space.  In Dallas, Ackerman & Co. opened its second Texas office and has invested in two industrial portfolio acquisitions: the 12 building, 258,846-square-foot Midway Business Park in the East Fort Worth submarket, and a six-building portfolio totaling 276,920 square feet in Irving and Carrollton, northwest of Downtown Dallas. In addition, Ackerman owns a 25-acre industrial site in Terrell, Texas.  About Ackerman & Co.  Headquartered in Atlanta, Ackerman & Co. is a privately held, full-service commercial real estate firm focused on providing quality investment, brokerage, management and development services in the Southeast. The company, founded in 1967, retains an expert team of more than 100 real estate professionals. To date, Ackerman & Co. has developed and acquired nearly 35 million square feet of office, medical, industrial, retail and mixed-use space, has more than 7 million square feet under management, and maintains an investment portfolio valued at $1 billion.   For more information on Ackerman & Co., visit www.ackermanco.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528578/ranch-hand-selects-tripoint-logistics-center-for-consolidated-location-for-production-and-distribution)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ranch-hand-doubles-capacity-with-400k-sq-ft-texas-facility/be975b37449a57fbe4817621e5598ab9) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/7/ella7_qG.webp)
