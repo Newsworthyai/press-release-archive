@@ -1,0 +1,18 @@
+# Acclaimed Writer Xuemo Embarks on Latin American Lecture Tour — Exploring "Wisdom and Transcendence in the Age of AI"
+
+JOSÉ C. PAZ, ARGENTINA, November 10, 2025 /24-7PressRelease/ -- As part of his Latin American lecture tour, acclaimed Chinese writer Xuemo has been invited by the Universidad San Ignacio de Loyola (USIL) in Peru to deliver a keynote address titled "Wisdom and Transcendence in the Age of AI." The event will take place at 5:00 p.m. in the Auditorio Luis Bedoya, marking the first anniversary of the Peruvian Chinese Language Institute.  Distinguished guests including USIL President Dr. Jorge Talavera, Dean of Humanities Dr. Justo Balmaceda, and Director of the Language Research Center Dr. Rocío Baldárrago will attend the event.  Xuemo, recipient of the 2025 New York City Big Book Award and the 2025 International Book Awards, is one of China's most celebrated contemporary authors. His works—translated into more than 30 languages—have inspired readers around the world through their profound explorations of consciousness, compassion, and the human quest for meaning.  Following his appearance in Peru, Xuemo will join Professor Xintang Sun at the Universidad Nacional de José C. Paz (UNPAZ) in Argentina for a lecture titled "Wisdom Beyond the Age of AI." Hosted by UNPAZ President Dr. Darío Kusinsky, the session will feature live interpretation by Pro.Xintang Sun, Director of the Confucius Institute at the University of Magallanes and the Latin American Studies Center at Beijing Language and Culture University. The lecture is part of UNPAZ's "International Week of Science, Art, and Knowledge Production" and will be livestreamed on the university's official YouTube channel.  On November 13, Xuemo will return to USIL to present his new Spanish-language book "The World Is a Reflection of the Mind," published by the Latin American Publishing Group.  His Latin American journey will then continue in Chile, with a lecture at the University of Magallanes on November 18 (Tuesday), an appearance at the Santiago International Book Fair on November 22 (Saturday), and a literary dialogue at GAM Bookstore in Santiago on November 24 (Monday).  The tour will culminate with a lecture at El Colegio de México on November 28 (Friday), followed by Xuemo's participation in the Guadalajara International Book Fair (FIL Guadalajara) on December 4–5, marking the grand finale of his cross-cultural journey.  Earlier this month, Xuemo appeared on France's MANDARIN TV program "Dialogue in Paris," where he reflected on the enduring resonance of Silk Road civilization. Speaking about the challenges of modern society, he emphasized that as artificial intelligence reshapes human life, humanity must cultivate a new kind of wisdom to accompany technological advancement.  "In an age of turmoil, anxiety, and uncertainty," Xuemo said, "each of us must illuminate our own heart with love and wisdom. When every individual lights up their inner world, the whole world will shine. Humanity can rekindle the inner lamp of love and wisdom to rediscover confidence and harmony at its core."  Ida Liu Ruxue International Media Inc. http://www.xuemobooks.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528602/acclaimed-writer-xuemo-embarks-on-latin-american-lecture-tour-exploring-wisdom-and-transcendence-in-the-age-of-ai)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xuemo-s-latin-american-tour-wisdom-in-the-age-of-ai/a5480edef5af08b0c1b645cbbb4dcc39) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/10/xeno60S4.webp)

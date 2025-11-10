@@ -1,0 +1,18 @@
+# Xoë Miles Redefines Self-Worth in Her Bold New Single "Someone's Somebody"
+
+NASHVILLE, TN, November 10, 2025 /24-7PressRelease/ -- Award-winning alt-pop artist, songwriter, and producer Xoë Miles released her highly anticipated new single, "Someone's Somebody" today. Known for her bold blend of emotional honesty and catchy self-produced pop, Xoë delivers a powerful anthem that dives into self-doubt and desire, layered over bright, 2010s-inspired production.  "I wrote 'Someone's Somebody' about feeling unwanted and overthinking everything in a one-sided relationship — blaming myself, craving validation, and trying to be whatever someone wants just to feel wanted," says Xoë. "The lyrics are heavy, but I intentionally made the production have a vibrant 2010's pop sound to make the contrast hit even harder."  With "Someone's Somebody", Xoë continues to cement her reputation as one of indie pop's most fearless voices — seamlessly blending catchy melodies with lyrical honesty and self-produced sonic textures.  LISTEN TO "SOMEBODY'S SOMEBODY" BY XOË MILES HERE  More About Xoë Miles Born Emily Cole Little, Xoë Miles is an award-winning alt-pop singer-songwriter, producer, and engineer whose music blends introspective storytelling with infectious pop sensibilities. A native Texan now based in Nashville, she is a self-taught musician performing nationwide at venues, festivals, and fundraisers, often accompanying herself on guitar and ukulele.  Her self-produced album "Manipulated" earned major acclaim, ranking #7 on the Houston Chronicle's Best Albums of 2021 and Top 21 Albums of 2021 on VW Radio. Singles from the album have received recognition from prestigious competitions, including the John Lennon Songwriting Contest, Vanda & Young Global Song Competition, ISC, and Unsigned Only.  Beyond her studio achievements, Xoë has performed at SXSW, The NAMM Show, Muscle Shoals Songwriters Fest, and the LAUNCH Music Conference, and has been featured in outlets including American Songwriter Magazine, The Hollywood Digest, Music Connection, LA Today, Authority Magazine, and StarShine Magazine.  Collaborating with hitmakers like Michelle Buzz (Katy Perry, Bebe Rexha, Adam Lambert) and Jeremy Dussolliet (Hailee Steinfeld, Melanie Martinez, B.o.B.), Xoë's songwriting and production prowess continue to evolve with each release.  Notable Accolades  • John Lennon Songwriting Contest Finalist — "Miss Me"  • Vanda & Young Global Song Competition Top 50 Finalist — "Mirror"  • Houston Chronicle's Top 12 Albums (#7) — "Manipulated"  • ISSA Rising Female Artist of the Year (2021)  • Josie Music Awards Vocalist of the Year (2019)  • American Songwriter Magazine Featured Artist  • LA Today Spotlight Feature at the Emmys Pre-Party 2025  Connect with Xoë Miles  Website: xoemiles.com Instagram: @xoemiles TikTok: @xoemiles Facebook: XOË MILES X (Twitter): @xoemiles YouTube: @xoemiles Threads: @xoemiles  For media inquiries or interviews, contact: Sandy Lo Media & Marketing Email: marketing@sandylo.com  Sandy Lo Media & Marketing is a public relations and marketing company helping independent music artists, actors, and brands with promotion, branding, graphic design, social media, websites, and marketing initiatives.   Contact Sandy Lo: Phone: 646-655-9975 E-mail: marketing@sandylo.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528587/xo%C3%AB-miles-redefines-self-worth-in-her-bold-new-single-someones-somebody)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xoe-miles-releases-emotional-new-single-someone-s-somebody/d2e6aa9e9c41be380a0bef3e8bccabfa) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/10/bold5rX7.webp)
