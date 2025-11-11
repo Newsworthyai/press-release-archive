@@ -1,0 +1,18 @@
+# 971 Mercedes-Benz 280SL: The One That Started It All
+
+FORT WORTH, TX, November 11, 2025 /24-7PressRelease/ -- Among the hundreds of rare and exotic vehicles at the DFW Car & Toy Museum, few hold as much sentimental value as the striking 1971 Mercedes-Benz 280SL in red, a car that marks the very beginning of Ron Sturgeon's journey as a collector more than 35 years ago.  Affectionately known by insiders as "the car that started it all," this 280SL wasn't acquired in showroom condition. In fact, it had suffered minor fire damage near the right rear quarter, reportedly caused by a smoker while fueling. Ron purchased the car from the insurance company and meticulously brought it back to life—replacing only the taillight, rear bumper, and performing expert paint and bodywork. The result is a stunning example of the beloved "Pagoda" SL that blends resilience with elegance.  Finished in a rich, factory-correct red, the 1971 280SL is powered by a robust 2.8-liter inline-six, featuring Bosch mechanical fuel injection—a hallmark of Mercedes-Benz engineering at the time. It's paired with a 4-speed automatic transmission, offering a smooth and capable ride that makes this classic a favorite for Sunday drives and museum laps alike.  "This Mercedes isn't just a beautiful car—it's personal," says Ron Sturgeon, owner of the DFW Car & Toy Museum. "It's the first collectible I ever bought, and I've driven it more than any other. It reminds me why I fell in love with cars in the first place."  Often considered the last of the "classic" SLs, the W113 280SL holds a special place in automotive history for its combination of advanced engineering, refined styling, and timeless drivability. And for Ron, this particular car carries even more: a story of restoration, passion, and the beginning of a world-class collection.  Now restored, loved, and still regularly driven, this 280SL remains a cornerstone of the museum and a testament to one man's lifelong love for collecting cars with character.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523912/971-mercedes-benz-280sl-the-one-that-started-it-all)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1971-mercedes-280sl-the-car-that-started-a-museum-collection/1a051a7f2451d9c3de13f1955e45aa66) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/11/rift3C4q.webp)
