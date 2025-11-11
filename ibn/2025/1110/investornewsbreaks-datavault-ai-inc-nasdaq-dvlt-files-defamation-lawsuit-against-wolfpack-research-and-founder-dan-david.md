@@ -24,10 +24,10 @@ Datavault AI (NASDAQ: DVLT), a leader in data tokenization and management, annou
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-datavault-ai-inc-nasdaq-dvlt-files-defamation-lawsuit-against-wolfpack-research-and-founder-dan-david/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-datavault-ai-inc-nasdaq-dvlt-files-defamation-lawsuit-against-wolfpack-research-and-founder-dan-david-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-sues-wolfpack-research-over-defamatory-short-report/d6e5858000e951270373a2cddb4bbadf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-sues-wolfpack-research-over-defamatory-short-report/7baa8280f8296555e391e69738171ab9) 
 
  
 
@@ -35,4 +35,4 @@ Datavault AI (NASDAQ: DVLT), a leader in data tokenization and management, annou
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/10/bend86t0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/10/ninovGOV.webp)
