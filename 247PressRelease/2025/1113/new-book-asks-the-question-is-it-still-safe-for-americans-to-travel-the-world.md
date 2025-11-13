@@ -1,0 +1,18 @@
+# NEW BOOK ASKS THE QUESTION: IS IT STILL SAFE FOR AMERICANS TO TRAVEL THE WORLD?
+
+CHICAGO, IL, November 13, 2025 /24-7PressRelease/ -- Is it still safe to travel the world for Americans? Lauren Geohegan and Jay Austin thought so in 2017 when they set out on their around their cycling trip around the world. They made it just past a year when five ISIS Terrorists caught up with them in the Pamir Mountains of Tajikistan and knocked them down with their car then attacked with butcher knives. Four people in all were killed. The media covered the death of the two Americans and many asked the question if they were niave to beleive they could travel in a country right next to Afghanistan.   But Jay and Lauren were not reckless. They had checked the state department site that said Tajikistan posed a low risk to travelers. They had some close calls on their trip but basically were treated very well by the people they met many offering shelter and food. Jay had posed the question early in his trip does evil exist in the world. After their murder many gleefully asssailed the couple for being entitled millenials who believed they could travel anywhere. The qustion still taunts us today. Where can we Americans travel safely in the world?  Jay recognized the risk of traveling but he also pointed out that without risk there is no adventure. The very essence of traveling involves risk. Traveling internationally on bikes certainly elevates that risk. But Jay and Lauren saw it as the best way to get to know the people and see the world. Today the State Department has Tajikistan at an elevated risk to travelers. Would Jay and Lauren have gone there if they saw it was a higher risk to travel to the Pamir Mountains with bike trails at breath taking heights of fourteen thosuand feet. Probably.  Evil on the Roof of the World by William Elliott Hazelgrove will be released November 13 2025 by Bloomsbury Publishing  William Hazelgrove is the National Bestselling author of ten novels and twelve nonfiction titles. His books have received starred reviews in Publisher Weekly Kirkus, Booklist, Book of the Month Selections, ALA Editors Choice Awards Junior Library Guild Selections, Literary Guild Selections, History Book Club Selections, History Book Club Bestsellers, Distinguished Book Award. and optioned for the movies. He was the Ernest Hemingway Writer in Residence where he wrote in the attic of Ernest Hemingway's birthplace. He has written articles and reviews for USA Today, The Smithsonian Magazine, and other publications and has been featured on NPR All Things Considered. The New York Times, LA Times, Chicago Tribune, CSPAN, USA Today, World News Tonight have all covered his books with features. His book "Madam President: The Secret Presidency of Edith Wilson" is currently in development. He has two forthcoming titles: "Dead Air: The Night Orson Welles Terrified America" and "Hemingway's Attic: Hell and Glory in Cuba and the Writing of The Old Man and the Sea."  More information can be found at www.williamhazelgrove.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528726/new-book-asks-the-question-is-it-still-safe-for-americans-to-travel-the-world)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyclists-tajikistan-tragedy-questions-travel-safety-in-risky-regions/01e37433bc9adc22b8b1f9ceb8f9549b) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/dualjfEg.webp)

@@ -1,0 +1,18 @@
+# WILLIAM ELLIOTT HAZELGROVE'S NEW BOOK REVISITS ONE OF THE MOST SHOCKING TRAGEDIES IN ADVENTURE TRAVEL — EVIL ON THE ROOF OF THE WORLD
+
+CHICAGO, IL, November 13, 2025 /24-7PressRelease/ -- Bestselling author William Elliott Hazelgrove, whose work has been featured on NPR, CBS, NBC, Inside Edition, and The New York Times, returns with a gripping new work of narrative nonfiction: Evil on the Roof of the World: A Cycling Trip That Ended in Terror (Rowman & Littlefield, Nov. 13, 2025)  In 2018, two young American idealists — Lauren Geoghegan and Jay Austin — set off to cycle around the world, chronicling their belief in the fundamental goodness of people. Their journey ended in the mountains of Tajikistan, when members of ISIS deliberately ran them down and murdered them.  Hazelgrove's new book reconstructs their odyssey — through diaries, blogs, and global reporting — and confronts the question at the heart of modern idealism: Can innocence survive in a world that still harbors evil? Blending travel writing, moral inquiry, and investigative reporting, Evil on the Roof of the World has already been praised by early reviewers as "meticulously researched," "haunting," and "a powerful meditation on belief and violence."  "Hazelgrove's prose is utilitarian, letting the facts of the case carry the narrative forward… The approach pays off, lending the account an unsettling air. Readers will be aghast." — Publishers Weekly  Hazelgrove explores how two adventurous spirits inspired by kindness and curiosity collided with the darkest expression of fanaticism. As he traces their path through the Caucasus, Europe, and Central Asia, he illuminates the enduring tension between hope and cruelty — and why their story still matters. "I wanted to understand what happens when pure belief in the world meets evil head-on," Hazelgrove says. "It's a story about courage, but also about our faith in humanity."  William Hazelgrove is the National Bestselling author of ten novels and twelve nonfiction titles. His books have received starred reviews in Publisher Weekly Kirkus, Booklist, Book of the Month Selections, ALA Editors Choice Awards Junior Library Guild Selections, Literary Guild Selections, History Book Club Selections, History Book Club Bestsellers, Distinguished Book Award. and optioned for the movies. He was the Ernest Hemingway Writer in Residence where he wrote in the attic of Ernest Hemingway's birthplace. He has written articles and reviews for USA Today, The Smithsonian Magazine, and other publications and has been featured on NPR All Things Considered. The New York Times, LA Times, Chicago Tribune, CSPAN, USA Today, World News Tonight have all covered his books with features. His book "Madam President: The Secret Presidency of Edith Wilson" is currently in development. He has two forthcoming titles: "Dead Air: The Night Orson Welles Terrified America" and "Hemingway's Attic: Hell and Glory in Cuba and the Writing of The Old Man and the Sea."  More information can be found at www.williamhazelgrove.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528694/william-elliott-hazelgroves-new-book-revisits-one-of-the-most-shocking-tragedies-in-adventure-travel-evil-on-the-roof-of-the-world)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyclists-idealistic-journey-ends-in-isis-terror-in-new-book/62f45b9e7b70f85930fa3ca6e791eb30) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/clubSPSs.webp)

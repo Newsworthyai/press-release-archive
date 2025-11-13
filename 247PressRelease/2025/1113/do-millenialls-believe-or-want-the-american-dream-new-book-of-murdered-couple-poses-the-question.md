@@ -1,0 +1,18 @@
+# Do Millenialls Believe or Want the American Dream? New Book of Murdered Couple Poses the Question
+
+CHICAGO, IL, November 13, 2025 /24-7PressRelease/ -- We've all though about it. Quit the job and take off down the road less traveled. It is an American brithright to chuck everything for the unknown but few actually do it. Millenialls seem to have more than the normal disastisfaction with the American Dream than other generations. Jay Austin and Lauren Geohegan had it all. Georgetown graduates. Jay worked for HUD and Lauren worked in admissions at Georgetown University. Jay lived in a Tiny House and was an off the grid kind of guy but they enjoyed a large group of friends in one of the most urbane cities in the world. Then they decided to quit their jobs to bike around the world with no return date.   Jay and Lauren one year later woudl be murdered by ISIS terrorists in the Pamir Mountains of Tajikistan. They had made it just over a year on their four year trip around the world. Jay had blogged extensively about his dissatisfaction with the American Dream. "I dont believe in the thirty year grind and then live for ten years and die. I want to live now while Im young and able to do things I want to do." This was their mantra and one that seems to be getting traction with the millenials in general. Why wait? Why not enjoy life now. The American Dream to Jay and Lauren seemed like a dead end road.   William Elliott Hazelgrove's new book tracks the couple on their journey for a full year right up to their murder by five ISIS terrorists. Jay and Lauren come across as a couple looking for a different American Dream. Something that was not to be found in the nine to five. They made it just over a year and lived a life most people only dream about. Evil on the Roof of the World will be released Nov 13 2025.  William Hazelgrove is the National Bestselling author of ten novels and twelve nonfiction titles. His books have received starred reviews in Publisher Weekly Kirkus, Booklist, Book of the Month Selections, ALA Editors Choice Awards Junior Library Guild Selections, Literary Guild Selections, History Book Club Selections, History Book Club Bestsellers, Distinguished Book Award. and optioned for the movies. He was the Ernest Hemingway Writer in Residence where he wrote in the attic of Ernest Hemingway's birthplace. He has written articles and reviews for USA Today, The Smithsonian Magazine, and other publications and has been featured on NPR All Things Considered. The New York Times, LA Times, Chicago Tribune, CSPAN, USA Today, World News Tonight have all covered his books with features. His book "Madam President: The Secret Presidency of Edith Wilson" is currently in development. He has two forthcoming titles: "Dead Air: The Night Orson Welles Terrified America" and "Hemingway's Attic: Hell and Glory in Cuba and the Writing of The Old Man and the Sea."  More information can be found at www.williamhazelgrove.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528734/do-millenialls-believe-or-want-the-american-dream-new-book-of-murdered-couple-poses-the-question)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/couple-s-global-bike-dream-ends-in-isis-terrorist-murder/7f180a025248a7112ad27e024c87babe) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/keepseQH.webp)

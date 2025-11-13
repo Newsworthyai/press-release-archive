@@ -1,0 +1,18 @@
+# The Stuckey Firm Announces 2025 Scholarship Winner Kayla Marsh
+
+SPRINGFIELD, OH, November 13, 2025 /24-7PressRelease/ -- The Stuckey Firm, LLC, is proud to announce Kayla Marsh, a University of Toledo pre-law student, as the recipient of its 2025 Scholarship. The $2,500 award recognizes Kayla's advocacy for expanding the right to jury trials for personal injury victims.  Kayla, who is pursuing a degree in Political Science with a minor in Criminal Justice, says her passion for the scholarship topic stems from her experience working at a personal injury law firm since high school. She witnessed firsthand the influential role juries play in ensuring access to justice.   "I've been surrounded by cases where juries make a significant difference, and restricting their role could have serious consequences. This scholarship topic felt especially relevant to me and pushed me to think more critically about what a fair trial really looks like," Kayla explained.  Kayla credits much of her inspiration to her mentor and boss, Lori, an attorney who has guided her since high school. "Her passion for her work and the way she supports her clients and uplifts others have left a lasting impression on me," Kayla shared.  After graduating from UToledo, Kayla plans to pursue a legal career that makes a meaningful impact, possibly as a prosecutor working at the federal level. "I want to be the kind of attorney who seeks justice, holds people accountable, and advocates for fairness in the system," she said.  Beyond her academic pursuits and achievements, Kayla is deeply involved in her university and community. She serves as president of both the Ohio Innocence Project-U Chapter and the Political Science Student Association, competes on the mock trial and Model EU teams, and plays club softball. She also volunteers for the Ohio Coalition to End Qualified Immunity and interns for Judge Lindsay Navarre at the Lucas County Court of Common Pleas.  The Stuckey Firm, LLC, is honored to support Kayla's journey as she works toward her goal of building trust in the justice system and advocating for those who need a voice.  About The Stuckey Firm, LLC  Founded in 2018 by Nathan Stuckey, The Stuckey Firm, LLC, serves individuals and families across Ohio and West Virginia in personal injury, wrongful death, and accident cases. Nathan, who has practiced law since 2010, started the firm to provide a more personal approach to legal representation.   With over three decades of combined experience and thousands of clients served, The Stuckey Firm, LLC, has grown to include offices in Springfield, Dublin, and West Virginia. The firm focuses on personalized advocacy, giving clients direct access to their attorneys and ensuring clear, open communication.   Every case is prepared with detailed investigations and strategies tailored to the client's needs to maximize recovery. The firm is committed to holding negligent parties accountable and achieving results, whether through negotiation or trial. The Stuckey Firm, LLC, provides free consultations to discuss potential cases and legal strategies. Call now to discuss your accident. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528731/the-stuckey-firm-announces-2025-scholarship-winner-kayla-marsh)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kayla-marsh-wins-stuckey-firm-s-2025-scholarship-for-jury-rights-advocacy/e1bdfde41c25bff256469c3b8125b7bb) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/healk89H.webp)

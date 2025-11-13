@@ -1,0 +1,18 @@
+# Owner of Micro Com Document Scanning Says Adieu After 46 Years with the Company
+
+VANCOUVER, BC, November 13, 2025 /24-7PressRelease/ -- All good things come to an end, but in business, that's easier said than done. As the owner of a successful document scanning bureau in Vancouver, retirement for Craig Hollingum meant finding the right successor for Micro Com Systems (MCS)–and in business, there is no shortcut, no Tinder app to match and swipe right. For more, go to https://www.microcomsys.com/to-the-clients-and-staff-of-mcs-thanks-its-been-a-great-ride/  After high school, Craig found himself adrift. Career path was a "thorny subject" at his home, as he put it. No obvious career had presented itself. In 1979, he answered a newspaper ad seeking a sales representative at a micrographic service bureau in Vancouver. In 1981, he migrated to MCS and stayed ever since. Along the way, he became one of three owners in 1992, eventually outlasting the other two to become the sole owner in 2010.  When the question of retirement came up after 46 years, Craig did his research. A quick search revealed the average age for retirement is 65.3 years old, according to Stats Canada. As a business owner, announcing retirement and walking away wasn't an option. Craig saw he had four options for moving on:  Offering the business to successors (children) Dying of a massive coronary at his desk Winding down the business gradually Finding a buyer to take over  For Craig, the successors declined, and the second option didn't appeal even remotely!. Option three didn't work as everyone in the company hoped to remain employed. Option four seemed like the best route, and Craig began having conversations with a few people in similar niches early in 2023. Initially, nothing panned out, but then one of the parties re-engaged earlier this year, expressing serious interest in expansion into the BC market.  New Owners for Vancouver Document Scanning Business to Take Over  After some ongoing negotiations, both parties ironed out their differences and arrived at a mutually beneficial agreement. Effective December 1, 2025, Consentia Inc. of Edmonton will be the new proprietor of MCS.  Consentia operates a similar service bureau in Edmonton; it's a team with a proven track record of keeping customers happy by providing the highest level of imaging services. Even better, like MCS, they are a Canadian company–locally owned and operated!  Craig says he feels very comfortable handing over the keys to Consentia before moving to the next stage of life–" it's been a great ride," he adds.  About the Company  Since 1975, Micro Com Systems has been providing local businesses with Document Management Solutions. Their list of products and services include: Document Imaging & Management, Archival & Book Scanning, Medical Imaging, OCR, Large Format Scanning, Microfilm Scanning, Aperture Card Scanning, Enterprise Report Management (ERM), High Speed Printing, Capture Software, and Capture Equipment.  For more information, please visit https://www.microcomsys.com/ or call (604) 872-6771.  Micro Com Systems Craig Hollingum (604) 872-6771 Company website: https://www.microcomsys.com/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528733/owner-of-micro-com-document-scanning-says-adieu-after-46-years-with-the-company)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vancouver-document-scanning-business-passes-to-new-owners-after-46-years/2662516a130990214d1ff06f8d6c48e7) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/apex8GEK.webp)

@@ -1,0 +1,18 @@
+# iuvo Announces the Launch of Edge of Excellence: Empowering People to Shape the Future
+
+BOSTON, MA, November 12, 2025 /24-7PressRelease/ -- iuvo, a Boston-based transformational IT consulting and managed services firm, today announced the launch of Edge of Excellence: Empowering People to Shape the Future, a new podcast designed to spark meaningful conversations about leadership, culture, technology's evolving role in business, and what it truly takes to build resilient, high-performing organizations.   Hosted by Bryon Beilman, CEO and Co-Founder of iuvo, and Jess DeForge, Marketing Manager at iuvo, Edge of Excellence brings together experienced executives, leaders, and innovators to go beyond buzzwords and surface-level trends. Each episode explores the real, human side of leadership and how culture and strategy intersect with modern IT.   "Technology doesn't drive results by itself, people do," said Bryon Beilman, CEO at iuvo. "This podcast is about the conversations that happen behind the scenes: how leaders think, adapt, and make decisions that move organizations forward. We want to create space for honest, practical dialogue about the challenges and opportunities leaders face today."   The podcast arrives at a pivotal moment as organizations across industries grapple with the rapid acceleration of cloud adoption, AI integration, security risk, talent retention, and the cultural shifts reshaping the workplace.   The debut episode, "The Future of IT: What Every Leader Should Know Heading Into 2026," is available now.  In this first conversation, the iuvo team breaks down:   - How IT has shifted from a support function to a strategic growth driver   - What technology trends leaders should prioritize (and which to ignore)   - How to align business vision with IT execution   - Practical steps to build a future-ready organization   "We created this podcast because we kept having conversations internally and with clients that felt too valuable to keep inside one room," said host Jess DeForge. "There is so much power in hearing how leaders navigate complexity, change, and growth, especially now. Edge of Excellence is a space to learn from one another."   About Edge of Excellence   Edge of Excellence is for CEOs, CIOs, founders, managers, and anyone passionate about strong leadership, organizational culture, and the impact of technology on business. New episodes will be released bi-weekly.   Listeners can tune in here or on:   - Spotify  - Apple Podcasts  - YouTube  And wherever podcasts are available  About iuvo  Founded in 2007, iuvo is a leading transformational IT consulting and managed services partner helping organizations build strong, scalable, secure technology foundations. With a people-first philosophy, iuvo empowers internal teams, strengthens IT strategy, and delivers solutions that enable growth, resilience, and innovation. The company is consistently recognized for service excellence, ranking among the Channel Futures MSP 501, CRN Fast Growth 150, and INC Best Places to Work.   Learn more at iuvotech.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528580/iuvo-announces-the-launch-of-edge-of-excellence-empowering-people-to-shape-the-future)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-launches-edge-of-excellence-podcast-for-modern-leaders/52a8d9ab259b508b67f0c34f4e23a6ec) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/gulfrmkD.webp)

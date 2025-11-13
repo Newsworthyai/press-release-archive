@@ -1,0 +1,18 @@
+# LUMIN8 Records Announces Dual Release Waves in Trance, Dance, and Contemporary Opera
+
+LOS ANGELES, CA, November 13, 2025 /24-7PressRelease/ -- As part of the continued expansion of BFAlexanderMusic into a global multi-label collective, its electronic imprint LUMIN8 Records is preparing two major release waves that showcase the label's growing artistic range — from high-energy trance and dance productions to dramatic contemporary opera and classical crossover.  November 29 – Trance/Dance Release Wave  The first wave arrives November 29, featuring international vocalists Alejandra, Diego, and electronic co-producer Sergio G-Man.  Releasing November 29: • Alejandra – "Feel the Heat" • Alejandra – "Let Me Show You How (To Love Me)" • Alejandra – "If I Said I Was Impressed (I Lied)" • Diego – "Fire and Ice" • Diego – "I Am Diego" • Sergio G-Man – "Digital Love Transmission" (bonus release)  All tracks were written by B.F. Alexander and produced by B.F. Alexander and Sergio G-Man, blending emotional lyricism with cinematic electronic production.  December 20 – Contemporary Opera & Classical Crossover (LUMIN8 Classica)  A second release wave follows December 20, introducing the new division LUMIN8 Classica, dedicated to modern opera, dramatic vocals, and cinematic orchestral compositions.  All four Classica titles are performed by Alejandra, showcasing her vocal versatility and commanding operatic range.  Releasing December 20 under LUMIN8 Classica: • Alejandra – "Cenere e Fuoco (Ashes and Fire)" • Alejandra – "Lumen in Tenebris (Light in Darkness)" • Alejandra – "Tempesta e Silenzio (Storm and Silence)" • Alejandra – "Vita Eterna (Eternal Life)"  These works highlight Alejandra's ability to transition from trance/dance stylings to full dramatic opera, blending modern composition with timeless vocal performance.  Quote from B.F. Alexander: "LUMIN8 Records represents our evolution into dance and trance energy — music that connects emotion and motion. With LUMIN8 Classica, we're expanding that vision into opera and cinematic expression. It's all about giving our artists the freedom to explore every part of who they are."  A Multi-Genre Independent Collective  These releases continue the momentum established by The Alexander Project, alongside the collective's additional imprints — Mental Bill Records, Unfiltered Records, and ZANDERSONGSMUSIC (ASCAP) — forming a versatile independent ecosystem committed to artist-owned rights, global collaboration, and multi-genre innovation.  All titles will be available worldwide on Spotify, Apple Music, iHeartRadio, and YouTube Music on their respective release dates.  About BFAlexanderMusic  Founded in 2020 by songwriter and producer B.F. Alexander, BFAlexanderMusic is a Los Angeles–based independent record and publishing collective operating multiple imprints including The Alexander Project, LUMIN8 Records, LUMIN8 Classica, Mental Bill Records, Unfiltered Records, and ZANDERSONGSMUSIC (ASCAP). The organization champions global artistry, creative freedom, and artist-owned rights while producing music across rock, alternative, electronic, dance, and contemporary opera genres. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528748/lumin8-records-announces-dual-release-waves-in-trance-dance-and-contemporary-opera)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumin8-records-expands-with-trance-opera-release-waves/5b36f760ba66056872a1abafcefc2cc0) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/coolU5Ur.webp)

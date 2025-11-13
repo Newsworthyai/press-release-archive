@@ -1,0 +1,18 @@
+# New Book by Dr. Walter Malone, Jr. Offers Hope for a Generation Seeking Purpose
+
+PITTSBURGH, PA, November 13, 2025 /24-7PressRelease/ -- With mental-health challenges continuing to rise, many Americans are asking, How can I overcome the persistent anxiety and depression that plague me? Will I ever know my life's purpose? How do I get past my failures? Where can I find hope? According to the Centers for Disease Control and Prevention, 12.1 percent of U.S. adults regularly experience feelings of anxiety, and 4.8 percent report regular feelings of depression. Both rates have grown markedly over the past decade (CDC, 2024).  In response to that growing struggle, Dr. Walter Malone, Jr. offers a faith-anchored answer in his new book, Tailored to Win: Aligning Your Life with God's Plan, releasing November 18, 2025, through The Church Online, LLC, Publishing Division.  Drawing from Scripture and more than four decades of pastoral ministry, Dr. Malone reminds readers that genuine victory begins in the mind and takes root in a relationship with God. Each chapter builds on a practical principle, from developing a disciplined mindset and embracing God's vision to staying authentic, persevering through difficulty, and making space for rest and renewal.  "Tailored to Win is not a book about success or having a positive outlook on life, and it doesn't offer criteria for self-actualization. Instead, Tailored to Win offers a biblical foundation and practical application for how to live a completely fulfilled and empowered life because we understand that we are spiritually synchronized with the purpose and plan God has designed for each of us!" — Dr. Walter Malone, Jr.  Through real-life stories, scriptural teaching, and pastoral wisdom, Tailored to Win helps readers move from weariness to spiritual strength, offering a road map for those who long to live with confidence, peace, and direction in difficult or uncertain circumstances.  The book, releasing on November 18, 2025, will be available for purchase through Amazon.com.   About the Author  Dr. Walter Malone, Jr. is the Pastor and Founder of Canaan Christian Church in Louisville, Kentucky. A native of Nashville, Tennessee, he attended Fisk University and earned degrees from American Baptist College, Southern Baptist Theological Seminary, and United Theological Seminary. Dr. Malone is the author of several other books, including An Operative Faith for an Oppressed People and The Freedom to Be: A Journey into Spiritual Formation. He and his wife, Sandra, reside in Louisville and have one son, Dr. Walter Malone III.  About The Church Online, LLC, Publishing Division  The Church Online, LLC Publishing Division partners with pastors, authors, and ministries to produce resources that communicate timeless biblical truth through today's media platforms. Based in Pittsburgh, Pennsylvania, the division provides end-to-end editorial, design, and distribution support for faith-based authors and leaders. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/528519/new-book-by-dr-walter-malone-jr-offers-hope-for-a-generation-seeking-purpose)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/faith-based-answer-to-rising-mental-health-crisis-in-new-book/248ea552f09b47e69ce63b462cef5851) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2511/13/iconEwBm.webp)
