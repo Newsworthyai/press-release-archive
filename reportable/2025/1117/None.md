@@ -1,47 +1,25 @@
-# Former NASA Space Shuttle Engineer Releases Groundbreaking Book on Anxiety Relief Through Energy Therapy
+# Stonegate Capital Partners Updates Coverage On GoHealth Inc. (NASDAQ: GOCO) 2025 Q3
 
-Cocoa Beach, FL -- Mark L. Fox, former Space Shuttle Chief Engineer and inventor of the VIBE pocket-sized Pulsed Electromagnetic Field (PEMF) device, announces the release of his new book, Go Find Joy: The Science of Calm: Erasing Anxiety with Energy Therapy. The book offers a science-based approach to managing anxiety without pharmaceutical intervention, introducing readers to the revolutionary potential of energy therapy.
+DALLAS, TX -- November 17th, 2025 -- GoHealth Inc. (NASDAQ: GOCO): Stonegate Capital Partners updates their coverage on GoHealth Inc. (NASDAQ: GOCO). GoHealth, Inc. reported a difficult 3Q25 as the Company continued to navigate a materially different Medicare Advantage environment. Net revenues declined to $34.2M from $118.3M a year ago, reflecting an intentional pullback in Medicare Advantage volume, reduced non-agency activity, and a broader industry shift toward margin integrity and renewal stability. Medicare agency and non-agency revenues both declined meaningfully year over year, while other revenue increased as GoHealth Protect and related offerings continued to scale and diversify the top line. Results were further pressured by significant non-cash impairment charges, which weighed on reported margins, even as management focused on preserving liquidity, platform efficiency, and a high-quality member base. As 2025 progresses, management remains focused on retention, quality, and disciplined execution through the current AEP, with an eye toward re-accelerating when market conditions stabilize.
 
-With anxiety affecting millions worldwide, Fox draws on his background in engineering and two decades of research to present PEMF therapy as an accessible, drug-free solution for those seeking relief from chronic anxiety, pain, PTSD, and sleep disorders. The book features a foreword by Dr. Pedram Shojai, The Urban Monk, who praises Fox's work as "revolutionary" and notes that "finding joy is much easier when we feel safe."
+Company Updates:
 
-"After 20 years of working with people who've tried every medication and treatment available, I've seen firsthand how PEMF therapy can transform lives," says Fox. "This book isn't just about technology—it's about giving people their joy back."
+Strategic Initiatives: During 3Q25, GoHealth advanced its strategic and capital initiatives, building on the super priority term loan facility finalized earlier in the year. As previously discussed last quarter, the senior secured super priority term loan, including $80.0M of new money, continues to support working capital and enhance strategic flexibility, while keeping the Company in compliance with its debt covenants and providing room for future consolidation. The Company refreshed its Board of Directors and continues to evaluate integration opportunities across a fragmented broker landscape. Overall, we believe management has been creative in stabilizing the balance sheet and strengthening strategic optionality, allowing greater focus on execution and retention heading into and through AEP.
 
-The book is structured in three parts:
+Sales: In 3Q25 the Company saw sales per submission decline by 34.3% y/y to $461. This reflected both the deliberate volume pullback and evolving revenue mix. This was seen as agency revenue decreased by 71.5% while non-agency revenue declined by 96.5% year-over-year. Of note, other revenue grew meaningfully, supported in part by continued momentum in GoHealth Protect, which is becoming a more important contributor to the model and helping to diversify revenue beyond traditional commission streams. The Sales/Direct Operating Cost of Submission ratio moved down to 0.6x from 1.1x as lower scale and mix shifts weighed on leverage, though we expect a more balanced contribution from Protect and agency relationships to help mitigate revenue volatility over time.
 
-* Part One: Rethink Anxiety – Understanding the modern anxiety epidemic
-* Part Two: Ready to Reboot? – Introduction to PEMF therapy and nervous system healing
-* Part Three: Make Room for Joy – Practical applications and building a calm practice
+Cost of Acquisition: GOCO was further challenged in its cost of customer acquisition in the quarter with average CAC of $716. This was an increase of 14.0% year over year. While near-term margins remain compressed given the intentional pullback in volume and higher quarterly unit costs, we believe management is maintaining a disciplined approach to acquisition efficiency, focusing on agent productivity, enhanced training, and data-driven marketing strategies that should support better unit economics.
 
-Fox's unique perspective combines his engineering expertise with compassionate insight into the struggles of anxiety sufferers. He addresses common skepticism head-on, providing scientific evidence while acknowledging that pharmaceutical companies' dominance in healthcare has kept alternative therapies like PEMF largely unknown to mainstream medicine.
+Valuation: We are using a combined historical FY24 EBITDA, blended with our expected FY27 EBITDA, which we believe helps normalize to a medium term EBITDA of ~$85.0M. We then apply an EV/EBITDA range of 9.0x to 11.0x with a midpoint of 10.0x and then further adjust for minority interest. This results in a range of $7.46 to $14.32 with a mid-point of $10.89.
 
-The VIBE device, Fox's invention, operates at frequencies 100,000 times lower than a cell phone and can be worn throughout daily activities. Users have reported relief from conditions including chronic pain, insomnia, PTSD, ADD/ADHD, and fibromyalgia.
-
-"Go Find Joy" includes testimonials from clients who have experienced life-changing results, such as a woman who resolved decade-long post-chemotherapy insomnia and another who eliminated 17 years of chronic back pain after just two sessions.
-
-With practical tools, resources, and a 30-day money-back guarantee on the VIBE device, Fox invites readers to take ownership of their health and explore the possibilities of energy therapy.
-
-About the AuthorMark L. Fox is an entrepreneur, scientist, engineer, author, and former Space Shuttle Chief Engineer with NASA. He is also the inventor of VIBE, described as the world's only pocket-sized PEMF device. A hot air balloonist for 35 years who built his own airplane, Fox brings a creative problem-solving approach to healing. His work focuses on Resonance Frequency Therapy for common ailments in people and pets, offering therapy options in the comfort of home without drugs or doctor visits.
-
-BOOK DETAILS
-
-Title: Go Find Joy: The Science of Calm: Erasing Anxiety with Energy Therapy
-
-Author: Mark L. Fox
-
-Format: Available in print and ebook/kindle
-
-Publication Date: 2025
-
-For more information about Resona Health and Energy Therapy, visit Resona.Health
-
- About Resona Health Resona Health is a wellness technology company that develops Pulsed Electro-Magnetic Field (PEMF) therapy devices designed to provide natural relief from various ailments such as chronic pain, stress, and anxiety. It was founded by Mark Fox, a former NASA space shuttle chief engineer who transitioned from aerospace engineering to health innovation. About Mark L. FoxMark L. Fox is an entrepreneur, scientist, engineer, author, and former Space Shuttle Chief Engineer with NASA. He is also the inventor of VIBE, described as the world's only pocket-sized PEMF device. A hot air balloonist for 35 years who built his own airplane, Fox brings a creative problem-solving approach to healing. His work focuses on Resonance Frequency Therapy for common ailments in people and pets, offering therapy options in the comfort of home without drugs or doctor visits. 
+ About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/former-nasa-space-shuttle-engineer-releases-groundbreaking-book-on-anxiety-relief-through-energy-therapy)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-gohealth-inc-nasdaq-goco-2025-q3)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/former-nasa-engineer-releases-drug-free-anxiety-solution-book/7918fa9f1e6cff3b378b40ac9b3c99a6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gohealth-navigates-medicare-shift-as-revenue-drops-71-in-q3/204681a48508a2407a116659adaa5ebc) 
 
  
 
@@ -49,4 +27,4 @@ For more information about Resona Health and Energy Therapy, visit Resona.Healt
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2511/17/jokemx43.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2511/17/goldkqSN.webp)
