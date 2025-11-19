@@ -1,32 +1,25 @@
-# “Go Find Joy” Becomes a Multi-Category Amazon Best Seller — A Breakthrough Moment for Energy Healing and Pet Wellness
+# Global Psychedelic Week 2025 Concludes with 5,000 Participants from 100+ Countries
 
-Cocoa Beach, FL (Newsworthy.ai) Tuesday Nov 18, 2025 @ 1:15 PM Central — Today, Resona Health proudly announces that the new release Go Find Joy: The Science of Calm — Erasing Anxiety with Energy Therapy by Mark L. Fox has spectacularly climbed the ranks to become a multi-category Amazon best seller. The book simultaneously reached #1 in Energy Healing, Dog Care & Health, and Pet Dogs, and achieved top placements in Alternative Therapies, Alternative Medicine, and other major wellness and pet-care categories.
+San Francisco, CA (Newsworthy.ai) Tuesday Nov 18, 2025 @ 6:10 PM America/Toronto — The inaugural Global Psychedelic Week 2025 has officially concluded, marking a historic moment for the international psychedelic community. From November 3–9, thousands of participants joined a seven-day global celebration of healing, equity, and cultural transformation, connecting voices across continents through shared purpose and vision.
 
- A Unique Crossover Success This compelling accomplishment underscores a powerful cultural shift. Readers are actively seeking natural, science-backed solutions not only for human emotional and nervous-system well-being, but also for the health and serenity of their beloved pets. The rare crossover of bestseller status between human wellness and pet wellness categories highlights just how relevant and universal the book’s message has become.
+ With 140 speakers across 32 sessions, the online program ran with exceptional precision — the maximum delay was just three minutes — featuring scientists, Indigenous leaders, therapists, artists, and entrepreneurs shaping the future of psychedelics. Beyond the screen, the movement came alive through 105 in-person events in over 100 countries, bringing together more than 5,000 participants in community gatherings, workshops, and ceremonies spanning every continent.
 
- From Aerospace Engineering to Energy Healing Mark L. Fox, a former rocket-engineer and chief engineer for a Space Shuttle program, now pioneers the field of resonance and energy-based therapies. In Go Find Joy, Fox translates his rigorous engineering background into accessible insights and practical techniques designed to calm the nervous system, erase anxiety, and enhance emotional resilience for both humans and animals.
+ “Global Psychedelic Week was not an event, it was a living proof that psychedelics are here to stay,” said Milica Radovic Mandic, Co-Founder of Global Psychedelic Week. “We witnessed scientists, Indigenous elders, therapists, artists, and seekers coming together from over a hundred countries to share knowledge and healing. Every conversation, every gathering, every moment carried the same pulse, love, reciprocity, and awakening. What touched me most was seeing how decentralized this movement has become: people hosting circles, ceremonies, and meetups all around the world. It reminded us that transformation doesn’t belong to one place, it belongs to all of us.”
 
- Why This Matters * Growing demand for holistic, non-drug approaches to emotional health, stress, and anxiety — for people and pets.
-* Convergence of markets — wellness consumers increasingly view human and animal health through a united lens.
-* New voice in wellness — Fox offers a distinctive blend of aerospace-grade science and practical healing.
-* Brand momentum for Resona Health — This success supports our vision for next-generation wellness tools for humans and animals.
+ Co-Founder Dennis Walker added, “The inaugural Global Psychedelic Week achieved a level of international diplomacy and cross-border cooperation that is rare in any discipline, especially in today’s world. We saw indigenous wisdom keepers sit side by side with world renowned scientists and policy experts to engage in diplomatic, solution-oriented dialogue about hot button issues such as indigenous intellectual property rights, ethics around psychedelic medicalization, the role of psychedelic therapies in addressing trauma in war zones, and much more. We didn’t fully arrive at every answer to every burning question underlying this era of psychedelic mainstreaming, but that was never the point: we achieved civil discourse around psychedelic science and culture on a global scale, and seeded an unprecedented level of opportunity for international cooperation and cross-pollination among the rapidly growing global psychedelic community and industry.”
 
- What’s Next With this blockbuster launch, Resona Health is accelerating its efforts across marketing, wholesale partnerships, and expanded content programs. The book’s outstanding performance opens the door to new collaborations in animal-wellness channels, human therapy markets, and energy-healing educators worldwide.
+ The energy throughout the week was described by attendees as “100% vibe, heart, and love”, a reflection of the growing global momentum toward connection, reciprocity, and healing.
 
- About Resona Health Resona Health is a leading-edge wellness company dedicated to advancing resonance-frequency therapies and integrative health solutions. We design technologies and content that help individuals and companion animals access a calmer nervous system, enhanced recovery, and elevated well-being.
+ Recordings of all sessions will soon be available for replay. To stay informed and access updates, visit globalpsychedelicweek.com and sign up for the newsletter.
 
- About the Book Go Find Joy: The Science of Calm — Erasing Anxiety with Energy Therapy presents a groundbreaking synthesis of advanced engineering principles and accessible healing practices. Whether for humans seeking emotional balance or pets needing nervous-system support, the book offers simple, practical strategies grounded in resonance and energy-based approaches.
-
- Media & Wholesale Inquiries For media interviews, wholesale partnership opportunities, or bulk-purchase programs, please contact Resona Health at the details above.
-
- This statement has not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ Global Psychedelic Week will return November 2–8, 2026 — continuing to bridge science and spirit, tradition and innovation, local communities and global consciousness. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202511181918/go-find-joy-becomes-a-multi-category-amazon-best-seller-a-breakthrough-moment-for-energy-healing-and-pet-wellness)
+[Original/Source Press Release](https://newsworthy.ai/news/202511181921/global-psychedelic-week-2025-concludes-with-5000-participants-from-100-countries)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ex-rocket-engineer-s-energy-therapy-book-becomes-multi-category-amazon-bestseller/db9e4d9a7c2de2fa5400a1abc8a0af8b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-psychedelic-week-2025-unites-thousands-across-continents/6f08edef1fd957c9b34ac9a936c44dda) 
 
  
 
@@ -34,4 +27,4 @@ Cocoa Beach, FL (Newsworthy.ai) Tuesday Nov 18, 2025 @ 1:15 PM Central — Today
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2511/18/beanlzXY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2511/18/voltkTlN.webp)
