@@ -1,43 +1,39 @@
-# Kingsoft Announces 2025 Third Quarter Results
+# LogicMark Leverages AI And Machine Learning Patents To Fight Elder Mistreatment And Financial Fraud
 
-HONG KONG - November 19, 2025 (NEWMEDIAWIRE) - Kingsoft Corporation Limited (“Kingsoft” or the “Company”; Stock Code: 03888.HK), a leading software and internet services company in China, has announced its unaudited quarterly results for the three months ended September 30, 2025 (“period under review”).
+By Meg Flippin Benzinga
 
- During the period under review, the revenue of Kingsoft reached RMB 2,419.2 million. Revenue from the office software and services business, and online games and others business represented 63% and 37% of total revenue, respectively. Gross profit amounted to RMB 1,943.9 million. Operating profit before share-based compensation costs was RMB356.9 million.
+ DETROIT, MICHIGAN - November 20, 2025 (NEWMEDIAWIRE) - Roughly one in ten Americans 60 or older has been the victim of some form of elder abuse in their lifetime, while older adults lose a staggering $28 billion each year to financial fraud. Despite efforts, elder abuse and financial fraud have been around seemingly forever with no end in sight. It's proven hard to solve because it is difficult to detect.
 
- Mr Jun LEI, Chairman of the Company, commented, “In the third quarter, the Group continued to focus on its core businesses and enhance its competitive edge. With ‘AI, Collaboration, and Internationalization’ as its strategic priorities, Kingsoft Office Group continued to deepen the application scenarios of AI and strengthen its brand and ecosystem development. The online games business advanced genre expansion and extended its global reach, marked by the global launch of its sci-fi mech game Mecha BREAK.”
+ Determining who to blame for fraud and abuse is hard when there are several people involved when someone needs caregiving. LogicMark Inc. (OTC: LGMK), the provider of personal emergency response systems (PERS), health communication devices and technology for the growing care economy, is leveraging its patents in AI and game theory to find a more reliable way to figure that out. LogicMark has been enabling seniors to live independently on the go and at home thanks to its suite of devices, software and AI and machine learning technology – and its patents, including the ones around incentive misalignment and AI game theory – for almost 20 years.
 
- Mr Tao ZOU, Chief Executive Officer of the Company, added, “In the third quarter, the Group’s total revenue reached RMB 2,419.2 million. The office software and services business delivered solid growth, supported by robust momentum in WPS software business, rapid growth of WPS 365 business, and steady growth in the WPS individual business. For online games and others business, the new game was still being in its early development phase and gradually building its market influence."
+ Spotting Ulterior Motives
 
- BUSINESS REVIEW
+ To protect from elder abuse and fraud, LogicMark holds patents focused on detecting incentive misalignment in caregiving environments, which occurs when the goals of the paid caregiver conflict with their clients’ best interests, leading to potential abuse or fraud. Its patents analyze the activities and motivations of every party or “player” involved in the care of the elderly person using AI and machine learning. The analysis ensures all the players in the care protocol are acting in alignment with the person’s safety and security in mind.
 
- Office Software and Services
+ The system will first use AI and machine learning to assess the goals, interests and behaviors of all of the individuals involved in caregiving to determine what their alignment should be. Then game theory AI applications simulate multiple “games” or scenarios using AI and machine learning to determine if there are any misalignments of interests between the “players” and the person receiving care, caregivers, family members, friends or agencies involved in the care. The intent is to always ensure the best possible outcome for the person who needs care. If any misalignments are spotted, they can be flagged and reported to the appropriate individuals.
 
- For the third quarter of 2025, revenue from the office software and services business increased to RMB 1,521.3 million.
+ Real Life Scenarios
 
- The office software and services business has maintained its momentum of steady growth. For WPS individual business, the rollout and promotion of new AI-powered products, together with refined operations in both domestic and international markets, drove steady increases in WPS AI monthly active users, paying subscribers, and user value. For WPS 365 business, we continued enhancing our collaboration and AI product offerings, achieving significant progress in expanding customer base among private and local state-owned enterprises, and strengthening our product competitiveness and industry influence. The WPS software business saw accelerated progress in localization projects. Our AI-enabled products for government scenarios continued to iterate and deployed across government agencies, supporting the digital and intelligent transformation of localization customers.
+ Consider a situation where an elderly person’s family hires an agency to provide five hours of daily care starting at 8:00 a.m. LogicMark’s device records that the caregiver did not arrive at 8:00 a.m. and didn’t stay for five hours. This is recognized as a misalignment of interests and is reported to the family for follow-up with the agency.
 
- Online Games and Others
+ In another example, someone is being cared for by the family’s 25-year-old granddaughter, who is responsible for buying groceries each week. Prior to this arrangement, the weekly grocery bill averaged $150, as captured by LogicMark’s service, potentially through a partnership for grocery orders with a delivery service. Over the six weeks that the granddaughter was responsible, the weekly bill steadily increased to $280. The incentive misalignment and game theory AI detects this change in pattern which is inconsistent with the past, and alerts the family. This could be due to the granddaughter purchasing personal items for herself – or a conversation could reveal that the grandmother now prefers more expensive groceries. Either way, the system helps surface the issue for the family to resolve. Without LogicMark’s technology, the family wouldn’t know about either instance.
 
- For the third quarter of 2025, revenue from the online games and others business was RMB 897.9 million.
+ With the patents, LogicMark is helping pioneer the use of AI to help prevent elder mistreatment and financial exploitation in caregiving environments. By tracking and modeling behaviors using AI, LogicMark is able to identify any misalignments in activity that may lead to less-than-optimal care for the elderly person. With elder abuse continuing to grow, and with financial fraud costing the nation tens of billions of dollars a year, tools like this are clearly needed.
 
- Within the online games business, JX3 Online, the flagship game, celebrated its 16th anniversary in August and launched its annual expansion pack to introduce innovative gameplay in October. Anime game Snowbreak: Containment Zone maintained its core user base through long-term content updates and user operations. Sci-fi mech game Mecha BREAK continuously optimized its gameplay and operations after launching, to enhance the players' experience. Two international IP games - Goose Goose Duck and Angry Birds - are expected to launch in the coming quarters in China.
+ Featured image from Shutterstock.
 
- Mr Jun LEI concluded, “Looking ahead, Kingsoft Office Group will stay committed to its strategy of 'AI, Collaboration, and Internationalization', meeting the scenario needs from individual users to enterprises through its core product portfolio. Online games business will focus on developing high-quality content and expanding global publishing, enhancing the long-term vitality of its classic franchises while driving the growth and sustainable development of new genres.”
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
 
- About Kingsoft Corporation Limited
+ This content was originally published on Benzinga. Read further disclosures here.
 
- Kingsoft (3888.HK) is a leading Chinese software and internet service company listed on the Hong Kong Stock Exchange. It has three main subsidiaries: Kingsoft Office, Seasun Holdings and Kingsoft Shiyou. With the implementation of the “transformation toward mobile internet” strategy, Kingsoft has completed a comprehensive transformation in its overall business and management model. The Company has established a strategic layout with office software and interactive entertainment as its pillars, and cloud services and artificial intelligence as its new starting points. Kingsoft has nearly 9,000 employees worldwide and holds a significant market share domestically. For more details, please refer to http://www.kingsoft.com.
-
- Contact:Kingsoft Investor RelationsLi YinanTel: +86 10 6292 7777Email: ir@kingsoft.com
-
- For further queries, please contact Hill and KnowltonOvina ZhuTel: +852 2894 6315Email: kingsofthk@hkstrategies.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/kingsoft-announces-2025-third-quarter-results-7084264)
+[Original/Source Press Release](https://www.newmediawire.com/news/logicmark-leverages-ai-and-machine-learning-patents-to-fight-elder-mistreatment-and-financial-fraud-7084289)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kingsoft-reports-strong-q3-2025-results-with-ai-driven-growth/3e9a492c8566b6ff257cbcbea625a597) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-fights-28b-elder-fraud-crisis-with-game-theory-detection/b7fb34f9d3843cef25c4adfef4428004) 
 
  
 
@@ -45,4 +41,4 @@ HONG KONG - November 19, 2025 (NEWMEDIAWIRE) - Kingsoft Corporation Limited (“
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2511/20/faceo4QP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2511/21/archqcQQ.webp)
