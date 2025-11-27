@@ -1,31 +1,31 @@
-# Britain to Unveil $2bn Package to Expedite Transition to EVs
+# 420 with CNW — Activists in Oregon Withdraw Measure Seeking to Legalize Marijuana Consumption Lounges
 
-Britain is preparing to make a major move in its journey toward cleaner transport. The government is set to unveil a fresh $2 billion package aimed at helping more people switch from petrol and diesel cars to electric vehicles, also known as EVs. This announcement comes at a time when the country is trying to speed up progress toward its long-term climate goals while also dealing with slowing demand for electric cars.
+Oregon activists have halted their effort to place a measure on the 2026 ballot that would have legalized marijuana social lounges across the state. The Oregon Cannabis Cafe Coalition confirmed that it has withdrawn the proposal after months of preliminary work, including filing two variations of the measure.
 
- For EV companies like Bollinger Innovations, Inc. (OTC: BINI) that are operating in a domestic market that has been stripped of…
+ If approved, the measure would have taken effect at the start of 2027. Marijuana companies like Trulieve Cannabis Corp. (CSE: TRUL) (OTCQX: TCNNF) that have participated in…
 
  Read More>>
 
- About TechMediaWire
+ About CNW420
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TechMediaWireLos Angeles, CAwww.TechMediaWire.com310.299.1717 OfficeEditor@TechMediaWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/britain-to-unveil-2bn-package-to-expedite-transition-to-evs/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-activists-in-oregon-withdraw-measure-seeking-to-legalize-marijuana-consumption-lounges/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uk-unveils-2-billion-ev-package-to-accelerate-clean-transport-shift/3840673e647d2f259758efcbe9321271) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oregon-activists-withdraw-2026-marijuana-social-lounge-ballot-measure/f0296752341e64c7f88a0f126b3e087e) 
 
  
 
@@ -33,4 +33,4 @@ Britain is preparing to make a major move in its journey toward cleaner transpor
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/26/luna5nS0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/26/loss7nII.webp)

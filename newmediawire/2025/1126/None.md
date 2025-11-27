@@ -1,25 +1,39 @@
-# Datavault AI (DVLT) Executes Licensing Agreement With World Boxing Council
+# Wolftank Group Increases Sales and Improves Earnings
 
-LOS ANGELES, CA - November 26, 2025 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) signed a software licensing agreement with the World Boxing Council to deploy its ADIO(R), DataVault(R), VerifyU(TM), and IDE platforms across WBC championship events through 2025 and 2026, enabling shared event-driven revenue and allowing Datavault to capture and authenticate global fan engagement across broadcasts, streaming, social channels, and in-venue activations.
+* Sales in Q3 2025 rise 7.6% year-on-year to EUR 29.9 million (Q3 2024: EUR 27.8 million)
+* Adjusted EBITDA in Q3 2025 at EUR 1.1 million
+* High order backlog of EUR 150 million provides a basis to continue the growth path
 
- To view the full press release, visit https://ibn.fm/NIwj6
+ INNSBRUCK, Austria - November 26, 2025 (NEWMEDIAWIRE) - Wolftank Group AG (“Wolftank”, ISIN: AT0000A25NJ6), a leading provider of environmental technologies and emission-free infrastructure solutions, increased consolidated sales by 7.6% in the third quarter of 2025 to EUR 29.9 million (Q3 2024: EUR 27.8 million) despite a still volatile environment. In addition, Wolftank succeeded in achieving an operational turnaround on a quarterly basis, with adjusted EBITDA of EUR 1.1 million. Key drivers were strict cost discipline, an improved product and project mix, and the resumption of operations at a recycling plant that had been shut down for maintenance until August. Furthermore, Wolftank made further progress in streamlining its organizational structure and withdrew from Latin America. The deconsolidation of the Brazilian subsidiary resulted in a positive one-time effect of EUR 1.1 million. Including this effect, EBITDA in Q3 2025 amounted to EUR 2.2 million (Q3 2024: EUR 2.3 million).
 
- About Datavault AI Inc.
+ “The results in the third quarter confirm the course we have taken. By streamlining our structure, maintaining strict cost management, and strengthening our profitable business areas, we were able to achieve an operational turnaround in the past quarter,” said Wolftank Group CEO Simon Reckla.
 
- Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The company is headquartered in Philadelphia, PA.
+ The results for the first nine months of 2025 were influenced by a challenging first half of the year, which was partly caused by the downtime of a recycling plant and strong customer-side caution. Wolftank achieved consolidated sales of EUR 90.7 million from 1-9/2025, compared with EUR 89.8 million in the same period of the previous year. In the Environmental Services segment, sales amounted to EUR 72.5 million (1-9/2024: EUR 77.3 million, -6.2%). In the Hydrogen and Renewable Energy segment, sales rose by 45.6% to EUR 18.2 million (1-9/2024: EUR 12.5 million) due to the strong demand for emission-free infrastructure.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Thanks to the operational turnaround in the third quarter, adjusted EBITDA amounted to EUR 1.0 million and adjusted EBIT to EUR -2.9 million. The adjustments include a one-time provision of EUR 2.5 million for a first-instance ruling regarding a compensation payment to a customer in Italy, as well as the effect of the deconsolidation of the subsidiary in Latin America. Without considering these one-time effects, EBITDA amounted to EUR -0.5 million (1-9/2024: EUR 7.0 million) and EBIT to EUR -4.3 million (1-9/2024: EUR 2.3 million).
 
- Forward Looking Statements
+ “Our very strong order backlog of EUR 150 million forms the basis for achieving our goals and for consistently implementing our recently presented GreenLead 2030 strategy. We are now fully focusing on developing new growth areas along our core competencies, including innovative solutions for battery recycling, PFAS decontamination, and automated tank remediation,” said CEO Simon Reckla.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Wolftank confirms its 2025 forecast, expecting revenues in the range of EUR 121 million to EUR 123 million and adjusted EBITDA in the range of EUR 1.5 million to EUR 3.0 million.
+
+ About Wolftank GroupThe Wolftank Group is a leading provider of environmental technologies in the green-tech sector. Its core business includes due diligence services for environmental risks, customized solutions for soil and groundwater remediation, recycling and recovery processes, and low-emission technologies. The Group’s subsidiaries in seven countries across three continents are managed by Wolftank Group AG, headquartered in Innsbruck. Wolftank Group AG shares (WKN: A2PBHR; ISIN: AT0000A25NJ6) are listed in the direct market plus segment of the Vienna Stock Exchange and in the m:access segment of the Munich Stock Exchange, and are traded on Xetra as well as on the Frankfurt and Berlin stock exchanges. Further information: www.wolftankgroup.com
+
+ Contact:Wolftank Group Investor RelationsPhone: +43 512 345726Email: investor-relations@wolftankgroup.com
+
+ Disclaimer:This communication contains statements that relate to the future and are based on the current knowledge, expectations, and predictions of the management of Wolftank Group AG. All statements are subject to potentially uncertain assumptions and risks that may result in a significant deviation from the statements or results communicated directly or indirectly. Such statements can be identified by the use of words such as "expect", "plan", "anticipate", "target", "estimate", "assume" or similar. Consequently, statements relating to the future are only valid at the time they were made. The company assumes no obligation to adjust or correct statements in this announcement in the future or to verify statements made in this press release in the future.
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-executes-licensing-agreement-with-world-boxing-council-7084412)
+[Original/Source Press Release](https://www.newmediawire.com/news/wolftank-group-increases-sales-and-improves-earnings-7084416)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-partners-with-world-boxing-council-for-fan-engagement-tech/e68fd9ca897ec79ad3a1fc23ec556c41) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wolftank-group-posts-q3-turnaround-with-7-6-sales-growth/426a484ddbc4e33894f4f71ef6bc3b3e) 
 
  
 
@@ -27,4 +41,4 @@ LOS ANGELES, CA - November 26, 2025 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT)
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2511/26/bestH6_Y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2511/26/waitA0B_.webp)
