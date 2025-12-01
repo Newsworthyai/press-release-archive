@@ -1,35 +1,41 @@
-# PsychedelicNewsBreaks – NRx Pharmaceuticals, Inc. (NASDAQ: NRXP) to Present at NobleCon21
+# SPARC AI Inc. (OTCQB: SPAIF) (CSE: SPAI) Differentiates from Drone Surveillance Competitors with GPS-Free, Software-First, and Continuous Intelligence
 
-NRx Pharmaceuticals (NASDAQ: NRXP) said Founder, Chairman and CEO Jonathan Javitt, M.D., M.P.H., will present at NobleCon21 on Dec. 3 at 4:30 p.m. EST, offering an update on the company’s expanded focus in investigational drugs, medical devices, and interventional psychiatric therapies for suicidal depression, PTSD, and related conditions, as well as progress in generating clinical revenue since NobleCon 2024.
+Disseminated on behalf of SPARC AI Inc. (OTCQB: SPAIF) (CSE: SPAI) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/JeaP1
+ * SPARC AI Inc. offers autonomous navigation and target acquisition software for drones and other robotic systems
+* The company’s technology differentiates from competitors by not relying on sensors, but having a software-first model, and offering continuous geospatial and behavioral intelligence
+* At the heart of the company’s technology is Overwatch, an intelligence interface that combines targeting and navigation into a single capability
 
- About NRx Pharmaceuticals, Inc.
+ SPARC AI (OTCQB: SPAIF) (CSE: SPAI), a drone technology and software developer, has created a target acquisition system and autonomous navigation software for drones and other robotic systems, to help first responders, as well as assist in industries like defense and security.
 
- NRx Pharmaceuticals, Inc. (www.nrxpharma.com), is a clinical-stage biopharmaceutical company developing therapeutics based on its NMDA platform for the treatment of central nervous system disorders, specifically suicidal depression, chronic pain, and PTSD. The Company is developing NRX-100 (preservative-free intravenous ketamine) and NRX-101, (oral D-cycloserine/lurasidone). NRX-100 has been awarded Fast Track Designation for the treatment of Suicidal Ideation in Depression, including Bipolar Depression. NRX-101 has been awarded Breakthrough Therapy Designation for the treatment of suicidal bipolar depression. NRx has recently filed an Abbreviated New Drug Application (ANDA) and initiated a New Drug Application filing for NRX-100 (IV ketamine) with an application for the Commissioner’s National Priority Voucher Program for the treatment of suicidal depression.
+ The company’s advanced technology offers precision geolocation, uses terrain-based navigation powered by proprietary AI models, and has zero detectable emissions or signatures. This means the technology…
 
- NOTE TO INVESTORS: The latest news and updates relating to NRXP are available in the company’s newsroom at https://ibn.fm/NRXP
+ Read More>>
 
- About PsychedelicNewsWire
+ NOTE TO INVESTORS: The latest news and updates relating to SPAIF are available in the company’s newsroom at https://ibn.fm/SPAIF
 
- PsychedelicNewsWire (“PNW”) is a specialized communications platform with a focus on all aspects of psychedelics and the latest developments and advances in the psychedelics sector. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, PNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, PNW brings its clients unparalleled recognition and brand awareness. PNW is where breaking news, insightful content and actionable information converge.
+ About AINewsWire
 
- To receive SMS alerts from PsychedelicNewsWire, text “Groovy” to 888-902-4192 (U.S. Mobile Phones Only)
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://www.PsychedelicNewsWire.com
+ AINW is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the PsychedelicNewsWire website applicable to all content provided by PNW, wherever published or re-published: https://www.PsychedelicNewsWire.com/Disclaimer
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- PsychedelicNewsWireAustin, Texaswww.PsychedelicNewsWire.com512.354.7000 OfficeEditor@PsychedelicNewsWire.com
+ For more information, please visit www.AINewsWire.com
 
- PsychedelicNewsWire is powered by IBN 
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
+
+ AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
+
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/pnw/psychedelicnewsbreaks-nrx-pharmaceuticals-inc-nasdaq-nrxp-to-present-at-noblecon21/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/sparc-ai-inc-otcqb-spaif-cse-spai-differentiates-from-drone-surveillance-competitors-with-gps-free-software-first-and-continuous-intelligence/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nrx-pharma-ceo-to-present-at-noblecon21-on-mental-health-therapies/170cb5f61a00bfc0e2186e60f6e70ccf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-ai-unveils-sensor-free-drone-navigation-tech-for-first-responders/3aff9c20f8c4ea2bcd7d6d3041a9f2f3) 
 
  
 
@@ -37,4 +43,4 @@ NRx Pharmaceuticals (NASDAQ: NRXP) said Founder, Chairman and CEO Jonathan Javit
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/1/jazzRTfI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/1/meanDHyM.webp)
