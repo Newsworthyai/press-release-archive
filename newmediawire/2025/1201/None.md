@@ -1,78 +1,41 @@
-# Think Business, Think Hong Kong Strengthens Italy-Hong Kong Ties and Opens New Path for Asian Collaboration
+# Mitesco Accelerates A.I. Advancements, Eyes Strategic Mergers and Uplisting Path
 
-Over 1,000 Participants Explored Rising Opportunities in Asia
+VERO BEACH, FL - December 1, 2025 (NEWMEDIAWIRE) - Mitesco, Inc. (OTC-QB: MITI, www.mitescoinc.com, the “Company”), provides this update to its shareholders, including a discussion of its current growth strategy, now expanded beyond organic efforts to include a focus on acquisitions, and discusses its intent to move to a senior trading exchange. The Company is also pleased to report progress on its “Robo Agent” application, an A.I.-driven sales force automation platform now featuring lead‑enhancement tools for the financial products industry covering mortgage and insurance with plans to expand support for financial advisors in retirement planning and personal finance.
 
- * Some 760 participants attended Milan symposium to explore opportunities in finance, innovation, supply chain and creative industries
-* A flagship event featuring high-level dialogues and more than 260 on-site business matching meetings connected Hong Kong and Italian companies
+ “First, let me remind all readers that our primary goal is to increase return on investment for our shareholders. We are approaching that within our Vero Technology Ventures arm with efforts to develop enterprise-level software, offered exclusively in our data centers. Our organic growth plans feature our Robo Agent suite of products, generally aimed at improving the productivity of sales professionals, beginning with residential real estate, and then advancing related products to include mortgage and home insurance through a robust lead enhancement feature. We think this follows the industry consolidation where we see a greater level of vertical integration of the home buying process,” commented Mack Leath, CEO. He continued, “While that effort is well underway with prototype versions in testing now, we are also in discussions for versions aimed at other consumer-oriented financial products, including health insurance and investments for retirement. These are all business-to-consumer (B2C) types of transactions where guiding the sales professionals with A.I.-based “coaching” may yield greater results than are available without this type of automation.”
 
- HONG KONG - November 30, 2025 (NEWMEDIAWIRE) - The Think Business, Think Hong Kong (TBTHK) signature promotion organised by the Hong Kong Trade Development Council (HKTDC) was held on 27 November in Milan to promote bilateral trade and investment with Italy.
+ When asked about the Company’s Centcore data center growth plans, Leath replied, “Obviously our software efforts are intended to fuel growth in our data center with our target of larger, enterprise-level users whose numbers represent thousands for any given target audience, and millions of potential users within any of our industry segments. Beyond that organic effort, we are actively involved in discussions with investment banking professionals about potential merger candidates of size. While it may seem that a small public company would not be a suitable platform for a large acquisition transaction, everyone should keep in mind that the market for “special purpose acquisition companies (SPAC) is robust, and in many ways, we can offer the same benefits with greater speed and less cost. If the target is considered suitable to the potential funding sources, there is no reason that we would not support a transaction which complements our business strategy.”
 
- Returning to Italy for the first time since 2014, the TBTHK event attracted over 1,000 participants. The TBTHK symposium was held at Palazzo Mezzanotte - home of the Italian Stock Exchange - and attended by some 760 participants, reaffirming the strong and growing relationship between Hong Kong and Italy. Over 240 leaders of the Italian, European and Hong Kong business communities joined the Hong Kong Dinner.
+ He continued, “We intend to move to a senior exchange as quickly as possible, and having a larger revenue base would certainly allow us to better meet the listing requirements. A larger trading environment may also provide greater liquidity to our shareholders and allow for even faster growth through subsequent transactions.”
 
- TBTHK Milan gathered over 90 delegates from Hong Kong, including government officials, business and creative industry leaders, financial and professional services providers, investors and start-up entrepreneurs, as well as executives from Chinese Mainland companies based in Hong Kong for a day of dialogue, networking and partnership building with Italian companies keen to expand into Asia. The event highlighted Hong Kong’s role as a superconnector and super value-adder, enabling both Hong Kong and mainland enterprises to go global and seize opportunities in Italy and across Europe.
+ In closing, Leath noted, “Everything we have outlined today is intended to increase the potential return on investment to our shareholders. We expect that as a result of these growth efforts, our investor base may increase in size, as they see our potential to become a significant player in the data center business, with both users of our internal software solutions, and by supporting other applications, whether internal to the client, or from a third party. While the success of any of these initiatives cannot be guaranteed, and there is no assurance that suitable funding will be available, we are committed to these objectives and believe that over time we will find success.”
 
- At the symposium’s Opening Session, Paul Chan, Hong Kong SAR Government Financial Secretary, and Prof Frederick Ma, HKTDC Chairman delivered remarks. Valentino Valentini, Deputy Minister of the Ministry of Enterprise and Made in Italy, delivered a video speech.
+ About Mitesco, Inc.
 
- In his opening remarks, Mr Chan said: “For long, Hong Kong and Italy have much in common. We share a passion for creativity, craftsmanship, and elegance. Italian style has captured our hearts. Our two cities (Hong Kong and Milan) are gateways connecting continents, blending Eastern and Western ingenuity. And we both thrive on openness, creativity, innovation and entrepreneurial spirit.”
+ Mitesco (OTC: MITI) is a growth-oriented technology company focused on platforms that improve efficiency, access, and affordability. With deep experience in business transformation, the company deploys capital toward both organic initiatives and strategic acquisitions that enhance shareholder value.
 
- Mr Chan mentioned that the economic partnership between Hong Kong and Italy is flourishing and remarkably diverse: “In 2024, bilateral merchandise trade reached EUR 7.2 billion. Some 200 Italian companies, from world-beating brands to leading players in banking, insurance, logistics and chocolate, have their regional headquarters, offices or operations in Hong Kong.”
+ Investor Contact:Jimmy CaplanEmail: jimmycaplan@me.comPhone: (512) 329-9505
 
- In his welcome remarks, Prof Ma said: “At the HKTDC, facilitating partnerships is at the core of what we do. Partnerships lead to innovation. And innovation drives growth and expansion. We help businesses, large and small, realise their growth and expansion plans, wherever they may be - China, Asia and beyond.”
+ About Centcore Data Center
 
- Prof Ma added: “Renowned as one of the world's leading international financial hubs, many opportunities await Italian businesses in Hong Kong - in traditional and newer sectors. Just like Italy, Hong Kong is focused on I&T. This covers fintech, greentech, AI and smart city development, the creative sector and more. I see great potential for collaboration.”
+ Centcore, a division of Mitesco, Inc., provides secure, scalable cloud services tailored to modern enterprise and public sector needs. Centcore is a trusted provider across industries, offering certified infrastructure and high-availability solutions. See www.centcoreusa.com or contact:
 
- Mr Valentini said: “Italian companies that have been present in Hong Kong for many years now play a leading role in sectors such as fashion, luxury, design, food, manufacturing and logistics, and are also paving the way in more innovative fields.”
+ Brian ValaniaEmail: bvalania@centcoreusa.comPhone: (610) 888-7509
 
- Mr Valentini added that Hong Kong is an ideal platform for Italian companies that wish to grow in the Chinese Mainland and the wider Asian region, while Italy is moving to further enhance its attractiveness to new investment. The relationship between Italy and Hong Kong is built on decades of exchange and close ties. Now is the time to turn this experience into new, successful partnerships for the benefit of Italian businesses and entrepreneurs.
+ About Vero Technology Ventures
 
- High-level exchanges highlight new areas of collaboration
+ Our venture arm invests in productivity-driven cloud technologies designed for business and government applications. Areas of focus include infrastructure, process automation, analytics, and data center tooling. Entrepreneurs seeking capital and collaboration are invited to connect via email at: info@mitescoinc.com.
 
- The plenary session explored global economic trends, the evolving role of Hong Kong's financial markets and the deep integration with the Chinese Mainland that continues to provide international companies, including Italian ones, with a competitive advantage in accessing Asia. The session brought together leading figures from the international business community to discuss how Hong Kong continues to serve as a strategic gateway to Asia.
+ Forward-Looking Statements This press release contains forward-looking statements, including, but not limited to, statements related to the expansion into new operations and software application development and managed services. Words such as "expects," "anticipates," "aims," "projects," "intends," "plans," "believes," "estimates," "seeks," "assumes," "may," "should," "could," "would," "foresees," "forecasts," "predicts," "targets," "commitments," and variations of such words and similar expressions are intended to identify such forward-looking statements. We caution you that the foregoing may not include all the forward-looking statements made in this press release.
 
- Chaired by Hans Michael Jebsen, Chairman of the Hong Kong-Europe Business Council and Jebsen Group, the discussion featured insights from Bernard Chan, Chairman of the West Kowloon Cultural District Authority and President of Asia Financial Holdings Limited; Bonnie Chan, CEO of Hong Kong Exchanges and Clearing Limited; Claudio de Bedin, Partner at Justin Chow & de Bedin Solicitors LLP; Fabio De Rosa, Head of Global Transaction Banking, Banco BPM; and Alex Zhavoronkov, Founder and CEO of Insilico Medicine.
-
- Reflecting the evolving priorities of both economies, the five thematic sessions covered four strategic areas. The Digital Trade and Finance session, co-organised with the Hong Kong Monetary Authority, explored how technology is reshaping cross-border trade and financial flows. It also showcased how platforms, such as distributed ledger-based trade solutions and commercial data exchange systems, are enhancing efficiency, transparency and access to financing - offering new pathways for Italy-Hong Kong trade collaboration.
-
- The Innovation and Technology session, supported by the Hong Kong Science and Technology Parks Corporation, focused on smart city innovation and the rapid rise of AI-powered technologies in Asia, illustrating how Italian companies can engage with Hong Kong’s burgeoning innovation ecosystem.
-
- After a networking luncheon, the Global Supply Chain session, co-organised with Invest Hong Kong, examined how Hong Kong’s capital markets and corporate treasury frameworks are driving transformation in global supply chains. The discussion highlighted Hong Kong’s role as a hub for supply chain digitalisation, green logistics and advanced manufacturing partnerships.
-
- Two Creative and Design sessions were held. One brought together celebrated architects and designers from Hong Kong and Italy, including Steve Leung, Founder of Steve Leung Design Group; Andrea Ponti, Founder and Design Director of Ponti Design Studio Limited; and Dr Rocco Yim, Principal of Rocco Design Architects Associates Limited. The second one, co-organised with the Hong Kong Design Centre and Hong Kong Designers Association, explored how Hong Kong and Italy - two global centres of creativity - can co-design new opportunities in architecture, lifestyle, luxury and cultural innovation. Participants discussed how the fusion of Italian craftsmanship and Hong Kong’s cultural vibrancy can unlock new markets across Asia.
-
- Networking and strategic dialogue reinforce long-term ties
-
- Alongside the symposium, TBTHK facilitated over 260 on-site business matching meetings, one-on-one consultations and dedicated networking opportunities. During the event, participants also browsed the InnoVenture Salon and Business Support Zone, an exhibition area featuring over 20 exhibitors from Hong Kong, including start-ups and representatives from government agencies, accounting firms, corporate services companies, logistics specialists, legal firms and many other sectors. The zones provided a practical platform for Italian companies to connect with Hong Kong-based experts, pursue innovative services, solutions and technologies and strengthen cross-border collaboration.
-
- Following the symposium, the Hong Kong Dinner was held at Palazzo Parigi. It was attended by over 240 business leaders, government officials and representatives of the Hong Kong and Italian business communities, further promoting bilateral economic and cultural exchanges.
-
- Photo Download: http://bit.ly/44xYBrq
-
- Websites:
-
- Think Business, Think Hong Kong:https://thinkbusinessthinkhk.com/2025-milan/symposium/en/index.html
-
- Media enquiries
-
- HKTDC’s Communication & Public Affairs Department:
-
- Jane CheungTel: +852 2584 4137Email: jane.mh.cheung@hktdc.org
-
- Weber ShandwickNadia LauriaTel: +39 3356962981Email: hkmedia@webershandwickitalia.it
-
- Marco PedrazziniTel: +39 3470369222Email: hkmedia@webershandwickitalia.it
-
- Ines BaraldiTel: +39 3428650498Email: hkmedia@webershandwickitalia.it
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
+ These forward-looking statements are based on the Company's current plans, assumptions, beliefs, and expectations. Forward-looking statements are subject to the occurrence of many events outside of the Company's control. Actual results and the timing of events may differ materially from those contemplated by such forward-looking statements due to numerous factors that involve substantial known and unknown risks and uncertainties. These risks and uncertainties include, among other things, the ability to obtain additional financing; the risk that commenced and threatened litigation may result in material judgments against the Company; and other risks and uncertainties included in the Company's reports on Forms 10-K, 10-Q, and 8-K and in other filings the Company makes with the Securities and Exchange Commission from time to time, available at www.sec.gov. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/think-business-think-hong-kong-strengthens-italy-hong-kong-ties-and-opens-new-path-for-asian-collaboration-7084429)
+[Original/Source Press Release](https://www.newmediawire.com/news/mitesco-accelerates-a-i-advancements-eyes-strategic-mergers-and-uplisting-path-7084434)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-italy-business-summit-forges-new-asian-market-pathways/a605752d660f8f4afe06ac31b0eac041) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mitesco-expands-with-ai-robo-agent-acquisitions-and-senior-exchange-plans/96697e70a69ae34d8f69df96de8ba745) 
 
  
 
@@ -80,4 +43,4 @@ Over 1,000 Participants Explored Rising Opportunities in Asia
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/1/quiphPhX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/1/hintMQL0.webp)

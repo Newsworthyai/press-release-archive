@@ -1,28 +1,62 @@
-# UGI’s Natural Gas Supply Costs Rise,                Customers to See 0.9% Bill Increase
+# November 2025 Biohacking Index Report Reveals the Top 10 Verified Wellness Brands
 
-UGI Utilities, Inc. is announcing a smaller-than-expected increase in the purchased gas cost rate beginning on December 1, 2025. As a result, the average residential heating customer receiving gas supply from UGI will see their total bill increase 0.9%, raising their total average monthly bill from $118.43 per month to $119.49 per month.
+Wellness Eternal has released the November 2025 Biohacking Index Report, showcasing the top ten wellness and longevity brands ranked solely by verified five-star reviews submitted in or before November 2025.
 
-Utilities are required by law to pass the cost of the natural gas they purchase directly through to customers without any markup.
+Unlike October’s curated list, the November report reflects pure community-driven results, based on verified feedback from practitioners, operators, and consumers across the Biohacking Index platform.
 
-UGI recognizes some customers may have difficulty paying their heating bill. Customers with a limited or fixed income should visit www.ugi.com/customerassistance or call UGI at 1-800-UGI-WARM to determine if they are eligible for one of several energy assistance programs. UGI can also assist eligible customers in applying for federally funded Low-Income Home Energy Assistance Program (LIHEAP) grants when the application process opens on December 3.
+Top 10 Brands — November 2025
 
-In addition, UGI offers budget billing, as well as multiple payment options such as via UGI’s online account center and app, and an auto-pay program to assist customers in managing bill payments.
+1. Bioptron Hyperlight – 20
+2. Vivobase – 20
+3. Activation Products – 20
+4. Ammortal – 15
+5. Roxiva Innovations LTD – 8
+6. The Buzz CRM – 5
+7. The Legacy Frequency – 3
+8. Dr. Anne Truong, MD – 3
+9. Foster Consulting – 3
+10. The Exerscience Center – 3
 
-UGI encourages customers to use energy wisely and make efficiency improvements in their homes. Additional information on energy efficiency programs is available on UGI’s website at www.ugi.com/energy-saving-tips .
+These brands represent a diverse set of categories including light therapy, EMF protection, nutraceuticals, emotional wellness, regenerative medicine, and human performance.
 
- UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI is available at www.ugi.com on Facebook at www.facebook.com/ugiutilities; and X at www.twitter.com/ugi_utilities. 
+Why It MattersThe Biohacking Index provides one of the industry’s only verification-based rating systems, designed to help consumers and practitioners identify credible, effective, and trusted wellness solutions. All reviews go through email and role attestation to ensure authenticity.
+
+Key Insights — November 2025
+
+* 100+ verified five-star reviews captured
+* 35% practitioner / 65% consumer review mix
+* 4-day median time to first review post-onboarding
+* Fastest-growing categories: light therapy and EMF protection
+
+User-Validated Testimonials
+
+(These are anonymized + compliant with review-based PR standards.)
+
+* Ammortal: “I noticed a measurable shift in my nervous system the first week. It’s become part of my daily reset.”
+* Vivobase: “My sleep improved within days. I didn’t realize how much EMF was affecting me until it was gone.”
+* Activation Products: “The quality is unmatched—clean, consistent, and easy to integrate into my routine.”
+
+Note: Testimonials reference verified Index submissions; no medical claims implied.
+
+Get Indexed: Brands and practitioners can join the Index or submit verified reviews at: www.biohackingindex.com or email: we@wellnesseternal.com
+
+ Wellness Eternal is led by Lindsay O'Neill, a visionary and dynamic leader who has earned recognition in some of the most prestigious outlets. Lindsay is one of MSN’s 2025 Top 10 Notable Women, recognized by NY Weekly Mag, Business Insider, Crain’s NY and Forbes as a Top Entrepreneur, a TEDx and Gaia speaker, and a Harvard Certified Culinary Medicine Chef. She was also featured in Women's Health Magazine 2025 for her expertise in Biohacking & Wellness. 
 
 ---
 
-[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-s-natural-gas-supply-costs-rise-customers-to-see-0-9-bill-increase)
+[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/november-2025-biohacking-index-report-reveals-the-top-10-verified-wellness-brands)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-announces-modest-0-9-gas-rate-increase-for-december-2025/bf0b7ce23482bf545076b121acb8822f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-eternal-s-2025-biohacking-report-reveals-top-brands/a9000954bd1b247f288d8208a933a1bb) 
 
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/314613-november-2025-biohacking-index-report-highlights-top-10-verified-wellness-brands-based-on-community-feedback)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/314607-faq-november-2025-biohacking-index-report-and-top-wellness-brands)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2511/26/mintWQNX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/1/ideauirp.webp)
