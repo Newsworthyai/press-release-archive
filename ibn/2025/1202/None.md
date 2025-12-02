@@ -1,40 +1,42 @@
-# NetworkNewsBreaks – NRx Pharmaceuticals, Inc. (NASDAQ: NRXP) Schedules Corporate Update Call for Dec. 2
+# Microsoft Inks Deal to Buy Renewable Energy in Spain
 
-NRx Pharmaceuticals (NASDAQ: NRXP), a clinical-stage biopharmaceutical company, said it will host a corporate update conference call on Dec. 2, 2025, at 9 a.m. Eastern to review recent clinical, regulatory and operational developments.
+Microsoft has secured renewable electricity supply from two Spanish solar facilities through an agreement with Madrid-based developer Zelestra. The power purchase arrangement includes funding for community sustainability programs through nonprofit organization ECODES, linking clean energy procurement with local social impact initiatives in a model that’s increasingly being adopted by technology companies.
 
- To view the full press release, visit https://nnw.fm/R7QHe
+ As more renewable energy gets connected onto grids around the world, numerous enterprises like Greenwave Technology Solutions, Inc. (NASDAQ: GWAV) stand to deepen the impact of their clean production processes that are aimed at reducing the environmental toll of various manufacturing…
 
- About NRx Pharmaceuticals, Inc.
+ Read More>>
 
- NRx Pharmaceuticals, Inc. (www.nrxpharma.com), is a clinical-stage biopharmaceutical company developing therapeutics based on its NMDA platform for the treatment of central nervous system disorders, specifically suicidal depression, chronic pain, and PTSD. The Company is developing NRX-100 (preservative-free intravenous ketamine) and NRX-101, (oral D-cycloserine/lurasidone). NRX-100 has been awarded Fast Track Designation for the treatment of Suicidal Ideation in Depression, including Bipolar Depression. NRX-101 has been awarded Breakthrough Therapy Designation for the treatment of suicidal bipolar depression. NRx has recently filed an Abbreviated New Drug Application (ANDA) and initiated a New Drug Application filing for NRX-100 (IV ketamine) with an application for the Commissioner’s National Priority Voucher Program for the treatment of suicidal depression.
+ About GreenEnergyStocks
 
- NOTE TO INVESTORS: The latest news and updates relating to NRXP are available in the company’s newsroom at https://nnw.fm/NRXP
+ GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
 
- About NetworkNewsWire
+ To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.GreenEnergyStocks.com
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
 
- For more information, please visit https://www.NetworkNewsWire.com
+ GreenEnergyStocksLos Angeles, CAwww.GreenEnergyStocks.com310.299.1717 OfficeEditor@GreenEnergyStocks.com
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ GreenEnergyStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-nrx-pharmaceuticals-inc-nasdaq-nrxp-schedules-corporate-update-call-for-dec-2/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/microsoft-inks-deal-to-buy-renewable-energy-in-spain/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nrx-pharmaceuticals-sets-key-2025-update-call-on-depression-drug-pipeline/f22abd849162e7d85606ff4518a6df67) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/microsoft-s-spanish-solar-deal-links-clean-energy-with-community-impact/9a9a3917b85c0030422ea9083c95ad62) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/microsoft-expands-renewable-energy-portfolio-with-spanish-solar-/202524915)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/315639-microsoft-secures-renewable-energy-agreement-in-spain-with-community-sustainability-component)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/microsoft-secures-renewable-energy-deal-in-spain-with-social-imp/202524915)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/gleeYpzv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/ninoSNgI.webp)

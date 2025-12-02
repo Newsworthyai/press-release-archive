@@ -1,44 +1,50 @@
-# NetworkNewsBreaks – Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) Accelerates Upper Kobuk Exploration with Federal Capital Injection
+# InvestorNewsBreaks – Wearable Devices Ltd. (NASDAQ: WLDS) Announces $5.68 Million Warrant Inducement Agreement
 
-Disseminated on behalf of Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) and may include paid advertising.
+Wearable Devices (NASDAQ: WLDS), an AI-based wearable gesture-control technology pioneer, said it entered a warrant inducement agreement with an existing institutional investor for the immediate cash exercise of warrants to purchase 3,322,000 ordinary shares at $1.71 per share, generating approximately $5.68 million in gross proceeds. A.G.P./Alliance Global Partners is serving as exclusive financial advisor. In exchange for the full cash exercise, the Company will issue new unregistered warrants to purchase up to 5,813,500 ordinary shares at $1.86 per share, exercisable upon shareholder approval and expiring five years thereafter. Closing is expected on or about Dec. 1, 2025, subject to customary conditions.
 
- Trilogy Metals (NYSE American: TMQ) (TSX: TMQ) is making significant strides in its efforts to boost America’s local supply chain for essential minerals. A recent article discussing this reads, “The company recently announced two major milestones: President Donald Trump’s restoration of permits for the Ambler Access Project, a 211-mile industrial-use-only road linking Alaska’s Dalton Highway to the Ambler Mining District, and a crucial $35.6 million investment from the U.S. Department of War… The U.S. Department of War’s investment, through the Office of the Undersecretary of Defense for Acquisition and Sustainment, will grant the government a 10% interest in Trilogy Metals. The funding will help accelerate exploration and development efforts at the Upper Kobuk Mineral Projects. This strategic partnership underscores the critical role of American copper, zinc, cobalt, and lead in driving technology, energy systems, and advanced manufacturing.”
+ To view the full press release, visit https://ibn.fm/cHs0Y
 
- To view the full article, visit https://nnw.fm/yu2Z0
+ About Wearable Devices
 
- About Trilogy Metals Inc.
+ Wearable Devices Ltd. (Nasdaq: WLDS, WLDSW) is a growth company pioneering human-computer interaction through its AI-powered neural input touchless technology. Leveraging proprietary sensors, software, and advanced AI algorithms, the Company’s consumer products – the Mudra Band and Mudra Link – are defining the neural input category both for wrist-worn devices and for brain-computer interfaces. These products enable touch-free, intuitive control of digital devices using gestures across multiple operating systems.
 
- Trilogy Metals is a metal exploration and development company which holds a 50% interest in Ambler Metals LLC, which has a 100% interest in the Upper Kobuk Mineral Projects in northwestern Alaska. On Dec. 19, 2019, South32, a globally diversified mining and metals company, exercised its option to form a 50/50 joint venture with Trilogy. The UKMP is located within the Ambler Mining District, which is one of the richest and most-prospective known copper-dominant districts in the world. It hosts world-class polymetallic volcanogenic massive sulphide (“VMS”) deposits that contain copper, zinc, lead, gold and silver, and carbonate replacement deposits, which have been found to host high-grade copper and cobalt mineralization. Exploration efforts have been focused on two deposits in the Ambler Mining District – the Arctic VMS deposit and the Bornite carbonate replacement deposit. Both deposits are located within a land package that spans approximately 190,929 hectares. Ambler Metals has an agreement with NANA Regional Corporation, Inc., an Alaska Native Corporation that provides a framework for the exploration and potential development of the Ambler Mining District in cooperation with local communities. Trilogy’s vision is to develop the Ambler Mining District into a premier North American copper producer while protecting and respecting subsistence livelihoods.
+ Operating through a dual-channel model of direct-to-consumer sales and enterprise licensing and collaborations, Wearable Devices empowers consumers with stylish, functional wearables for enhanced experiences in gaming, productivity, and XR. In the business sector, the Company provides enterprise partners with advanced input solutions for immersive and interactive environments, from augmented reality/virtual reality/XR to smart environments.
 
- NOTE TO INVESTORS: The latest news and updates relating to TMQ are available in the company’s newsroom at https://nnw.fm/TMQ
+ By setting the standard for neural input in the XR ecosystem, Wearable Devices is shaping the future of seamless, natural user experiences across some of the world’s fastest-growing tech markets. Wearable Devices’ ordinary shares and warrants trade on the Nasdaq Capital Market under the symbols “WLDS” and “WLDSW,” respectively.
 
- About NetworkNewsWire
+ NOTE TO INVESTORS: The latest news and updates relating to WLDS are available in the company’s newsroom at https://ibn.fm/WLDS
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ About InvestorWire
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.NetworkNewsWire.com
+ For more information, please visit https://www.InvestorWire.com
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- NetworkNewsWire is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-trilogy-metals-inc-nyse-american-tmq-tsx-tmq-accelerates-upper-kobuk-exploration-with-federal-capital-injection/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-wearable-devices-ltd-nasdaq-wlds-announces-5-68-million-warrant-inducement-agreement/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trilogy-metals-secures-35-6m-us-investment-ambler-road-permits-restored/ae1db7d21b27ff426e8a6fa825a481e6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wearable-devices-secures-5-68m-in-funding-for-ai-gesture-control-tech/957f0107cb4f09e6a596047dd6132846) 
 
 
-Pickup - [https://burstable.news](https://burstable.news/news/202511/314065-trilogy-metals-secures-35-6-million-federal-investment-to-accelerate-upper-kobuk-mineral-exploration)
+Pickup - [https://news.trinzik.com/frontier-tech-news](https://news.trinzik.com/frontier-tech-news/202512/315485-wearable-devices-secures-5-68-million-through-warrant-exercise-agreement)
+
+Pickup - [https://advos.io/en](https://advos.io/en/wearable-devices-secures-5-68-million-through-warrant-agreement-/202524911)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/315643-wearable-devices-ltd-secures-5-68-million-through-warrant-inducement-agreement)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/wearable-devices-ltd-secures-5-68-million-through-warrant-induce/202524911)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/28/yogak_Go.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/poem9sSv.webp)
