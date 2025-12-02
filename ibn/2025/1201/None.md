@@ -1,41 +1,31 @@
-# SPARC AI Inc. (OTCQB: SPAIF) (CSE: SPAI) Differentiates from Drone Surveillance Competitors with GPS-Free, Software-First, and Continuous Intelligence
+# Chinese Firm Starts Mass Producing Solid-State Batteries
 
-Disseminated on behalf of SPARC AI Inc. (OTCQB: SPAIF) (CSE: SPAI) and may include paid advertising.
+GAC Group completed construction of China’s first production line for large-format solid-state batteries, putting it on track to begin producing solid state batteries at a globally unprecedented scale. The facility currently operates at limited capacity producing vehicle-grade cells, but the performance targets attached to this technology have attracted international automotive industry attention.
 
- * SPARC AI Inc. offers autonomous navigation and target acquisition software for drones and other robotic systems
-* The company’s technology differentiates from competitors by not relying on sensors, but having a software-first model, and offering continuous geospatial and behavioral intelligence
-* At the heart of the company’s technology is Overwatch, an intelligence interface that combines targeting and navigation into a single capability
-
- SPARC AI (OTCQB: SPAIF) (CSE: SPAI), a drone technology and software developer, has created a target acquisition system and autonomous navigation software for drones and other robotic systems, to help first responders, as well as assist in industries like defense and security.
-
- The company’s advanced technology offers precision geolocation, uses terrain-based navigation powered by proprietary AI models, and has zero detectable emissions or signatures. This means the technology…
+ If the technology proves its worth in the field, many auto industry players like Massimo Group (NASDAQ: MAMO) will undoubtedly incorporate this…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to SPAIF are available in the company’s newsroom at https://ibn.fm/SPAIF
+ About GreenCarStocks
 
- About AINewsWire
+ GreenCarStocks (“GCS”) is a specialized communications platform with a focus on electric vehicles (“EVs”) and the green energy sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GCS is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, GCS brings its clients unparalleled recognition and brand awareness. GCS is where breaking news, insightful content and actionable information converge.
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from GreenCarStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- AINW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.GreenCarStocks.com
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the GreenCarStocks website applicable to all content provided by GCS, wherever published or re-published: https://www.GreenCarStocks.com/Disclaimer
 
- For more information, please visit www.AINewsWire.com
+ GreenCarStocksAustin, Texaswww.GreenCarStocks.com512.354.7000 OfficeEditor@GreenCarStocks.com
 
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
-
- AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ GreenCarStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/sparc-ai-inc-otcqb-spaif-cse-spai-differentiates-from-drone-surveillance-competitors-with-gps-free-software-first-and-continuous-intelligence/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/chinese-firm-starts-mass-producing-solid-state-batteries/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-ai-unveils-sensor-free-drone-navigation-tech-for-first-responders/3aff9c20f8c4ea2bcd7d6d3041a9f2f3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gac-group-launches-china-s-first-solid-state-battery-production-line/7a58eccdddb8934b0c29044e4a9c02d7) 
 
  
 
@@ -43,4 +33,4 @@ Disseminated on behalf of SPARC AI Inc. (OTCQB: SPAIF) (CSE: SPAI) and may inclu
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/1/meanDHyM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/1/icyfRyi.webp)

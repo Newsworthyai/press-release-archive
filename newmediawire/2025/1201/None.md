@@ -1,27 +1,35 @@
-# HeartBeam (BEAT) Outlines Regulatory Strategy After NSE Decision on ECG Synthesis Software
+# MAX Automation SE Plans to Switch to the General Standard for More Efficient Capital Market Communication and a Sharper Focus on Its Operating Business
 
-LOS ANGELES, CA - December 1, 2025 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT), a medical technology company developing personalized cardiac-care insights, detailed its strategy following receipt of a Not Substantially Equivalent decision for its 510(k) submission covering its 12-lead ECG Synthesis Software. The Company has been in active discussions with FDA review staff, which have signaled willingness to work toward a constructive resolution. HeartBeam said its VALID-ECG clinical study met endpoints and that remaining FDA concerns may be resolved through revised labeling. To advance the process, the Company plans to pursue multiple parallel paths - including a formal appeal or a 510(k) resubmission - and believes recent interactions indicate a viable path forward under the appeal option, which carries an expected 60-day timeline. HeartBeam will continue providing updates on commercialization and funding plans as regulatory engagement progresses.
+* Reduction of administrative requirements and related costs
+* Focus on operational development and strategic growth initiatives
+* Continuation of quarterly capital market communications
 
- To view the full press release, visit https://ibn.fm/C381i
+ HAMBURG - December 1, 2025 (NEWMEDIAWIRE) - MAX Automation SE (ISIN DE000A2DA588), a company listed in the Prime Standard segment of the Frankfurt Stock Exchange, intends to transfer its listing within the Regulated Market of the Frankfurt Stock Exchange from the Prime Standard to the General Standard. In making this move, the company intends to make its capital market presence more efficient while maintaining its high standards of transparency and continuity in capital market communications. MAX Automation SE will continue to voluntarily report on its business performance on a quarterly basis and with a view to its shareholder structure in German.
 
- About HeartBeam, Inc.
+ The planned switch to the General Standard is intended to reduce costs and administrative expenses, thereby freeing up resources that were previously tied up by the additional requirements of the Prime Standard. These resources can then be specifically channelled into the operational development of the Group and strategic growth initiatives in the future.
 
- HeartBeam, Inc. is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar dimensions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024. The Company holds over 20 issued patents related to technology enablement.
+ In this context, the Supervisory Board of MAX Automation SE will submit an application to the management of the Frankfurt Stock Exchange to revoke the admission of the company’s shares to the segment of the Regulated Market with additional post-admission obligations (Prime Standard). The admission of the shares to the Regulated Market (General Standard) will nevertheless be retained.“By making the planned change, we are striking a balance between operational efficiency and the demands of the stock exchange segment we are choosing. We are focusing more strongly on the operational development of our Group and at the same time ensuring reliable and continuous communication with the capital market,” explained Guido Mundt, Chairman of the Supervisory Board of MAX Automation SE.CONTACT:
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Marcel NeustockInvestor RelationsPhone: +49 – 40 – 8080 582 75investor.relations@maxautomation.comwww.maxautomation.comCONTACT FOR MEDIA REPRESENTATIVES:
 
- The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
+ Susan HoffmeisterCROSS ALLIANCE communication GmbHPhone: +49 – 89 – 125 09 03 33sh@crossalliance.dewww.crossalliance.deABOUT MAX AUTOMATION SE
 
- Forward Looking Statements
+ MAX Automation SE, headquartered in Hamburg, is a medium-sized finance and investment company focused on the management and acquisition of investments in growth and high cash flow companies operating in niche markets. The products and solutions of the portfolio companies are used in various end industries and for numerous industrial applications, including automotive, electronics, recycling, raw materials processing, packaging, and medical technology. MAX Automation SE has been listed in the Prime Standard of the Frankfurt Stock Exchange since 2015 (ISIN DE000A2DA588).
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law. 
+ www.maxautomation.com
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-outlines-regulatory-strategy-after-nse-decision-on-ecg-synthesis-software-7084438)
+[Original/Source Press Release](https://www.newmediawire.com/news/max-automation-se-plans-to-switch-to-the-general-standard-for-more-efficient-capital-market-communication-and-a-sharper-focus-on-its-operating-business-7084442)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-navigates-fda-hurdle-for-revolutionary-3d-ecg-technology/a81d5dddcdff21bef3212e602ecc7970) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/max-automation-shifts-to-general-standard-to-boost-operational-focus/b298379428edaab569b430e6c86619eb) 
 
  
 
@@ -29,4 +37,4 @@ LOS ANGELES, CA - December 1, 2025 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT), a 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/1/isleuhJP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/1/knotZE1I.webp)
