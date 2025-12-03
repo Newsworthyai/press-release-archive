@@ -1,41 +1,25 @@
-# Skkynet Appoints Lee Tedstone to Board of Directors
+# NRx Pharmaceuticals (NRXP) Amends IND to Advance NRX-101 With TMS for Depression Treatment
 
-Seasoned Global Leader to Support Skkynet’s Growth, Innovation, and Go-to-Market Expansion
+LOS ANGELES, CA - December 3, 2025 (NEWMEDIAWIRE) - NRx Pharmaceuticals (NASDAQ: NRXP), a clinical-stage biopharmaceutical company, said it amended its Investigational New Drug filing for NRX-101 to include use of the drug in combination with Transcranial Magnetic Stimulation for depression, including suicidal depression. The update follows evidence suggesting NRX-101 may significantly enhance TMS outcomes, with published studies showing more than two-fold improvements in symptom reduction and clinical response rates exceeding 80%. The Company noted NRX-101’s D-cycloserine component appears to augment neuroplasticity associated with TMS, while its low-dose lurasidone is intended to mitigate D-cycloserine’s known risk of low-grade hallucinations. NRx said it aims to validate the findings in a well-controlled trial of about 120 participants and is in partnership discussions with TMS device manufacturers to pursue joint registration studies and potential label augmentation.
 
- MISSISSAUGA, ON - December 3, 2025 (NEWMEDIAWIRE) - Skkynet Cloud Systems, Inc. (“Skkynet” or “the Company”) (OTCQB: SKKY), a global leader in real-time industrial data communication and connectivity solutions, today announced the appointment of Lee Tedstone to its Board of Directors. Tedstone is the CEO of Kobai, an industrial AI and knowledge-graph technology company, and a long-standing leader in the industrial software sector.
+ To view the full press release, visit https://ibn.fm/LT0dZ
 
- “Lee’s experience building and scaling technology businesses around the world will be a tremendous asset to Skkynet,” said Paul Thomas, President of Skkynet. “His leadership in developing go-to-market strategies, optimizing business operations, and driving sustainable revenue growth aligns directly with our objectives as we expand our presence in the industrial data market. We are excited to welcome him to our Board.”
+ About NRx Pharmaceuticals, Inc.
 
- Tedstone has held senior roles with global technology firms, including AVEVA, and brings deep experience across energy, aerospace, manufacturing, and critical infrastructure sectors. He has led organisations through sustained double-digit growth, supported multi-million-dollar M&A and strategic investment initiatives, and driven international expansion across Europe, North America, and Asia. His work spans product innovation, partnership development, and the scaling of high-performance teams in industrial and enterprise software.
+ NRx Pharmaceuticals, Inc. (www.nrxpharma.com), is a clinical-stage biopharmaceutical company developing therapeutics based on its NMDA platform for the treatment of central nervous system disorders, specifically suicidal depression, chronic pain, and PTSD. The Company is developing NRX-100 (preservative-free intravenous ketamine) and NRX-101, (oral D-cycloserine/lurasidone). NRX-100 has been awarded Fast Track Designation for the treatment of Suicidal Ideation in Depression, including Bipolar Depression. NRX-101 has been awarded Breakthrough Therapy Designation for the treatment of suicidal bipolar depression. NRx has recently filed an Abbreviated New Drug Application (ANDA) and initiated a New Drug Application filing for NRX-100 (IV ketamine) with an application for the Commissioner’s National Priority Voucher Program for the treatment of suicidal depression.
 
- “I am thrilled to join the Board of Directors at Skkynet,” said Tedstone. “With industrial companies rapidly advancing automation, connectivity, and AI initiatives, Skkynet is uniquely positioned to provide the secure, scalable infrastructure needed for modern operations. I look forward to helping the team accelerate growth, refine market strategies, and deliver value to customers and shareholders.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- “Lee’s appointment reinforces our commitment to building a world-class leadership team that can guide Skkynet through its next stage of commercial expansion,” added Thomas. “His experience and insight will play a key role in supporting our long-term vision.”
+ Forward Looking Statements
 
- About Skkynet
-
- Skkynet Cloud Systems, Inc. is a global leader in industrial software, providing secure, real-time data connectivity and edge processing for industrial systems of all types. Skkynet’s technologies bridge plant systems, cloud platforms, and AI to enable safe, intelligent, and resilient operations across all industrial verticals. Skkynet’s solutions empower organizations to optimize operations, enhance efficiency, and drive innovation by connecting, monitoring, and controlling their systems in real time while maintaining robust security and data privacy standards.
-
- For more information, visit skkynet.com.
-
- Forward-Looking Statements
-
- This news release contains forward-looking statements, including expectations regarding future financial performance, subscription growth, product launches, and overall business performance and outlook. These statements are based on current assumptions and involve risks and uncertainties that may cause actual results to differ materially from those expressed or implied. Skkynet undertakes no obligation to update these forward-looking statements except as required by law. Investors should refer to the risk factors disclosure outlined in Skkynet’s most recent report on Forms 10-K, 10-Q and other periodic reports filed with the U.S. Securities and Exchange Commission.
-
- Contact
-
- Skkynet Cloud Systems, Inc.Paul E. Thomas, PresidentTel: (888) 702-7851Web: https://skkynet.comEmail: ir@skkynet.com
-
- 
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/skkynet-appoints-lee-tedstone-to-board-of-directors-7084465)
+[Original/Source Press Release](https://www.newmediawire.com/news/nrx-pharmaceuticals-nrxp-amends-ind-to-advance-nrx-101-with-tms-for-depression-treatment-7084468)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/skkynet-appoints-industrial-ai-leader-lee-tedstone-to-board-for-growth-push/30a4268f4fe3dd477d7bf6e1cd829de0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nrx-pharma-expands-depression-drug-trial-to-boost-tms-therapy-results/75717a5c3748b666b43bcac624a689d1) 
 
  
 
@@ -43,4 +27,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/3/calm9trb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/3/rendD25j.webp)
