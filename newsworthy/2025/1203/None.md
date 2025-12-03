@@ -1,88 +1,23 @@
-# Klotho Conference 2025 Unites Global Experts to Accelerate Klotho-Based Therapies &amp; Diagnostics
+# Las Vegas Community Packs More Than 15,000 Shoebox Gifts for Children Worldwide
 
-Irvine, California (Newsworthy.ai) Tuesday Dec 2, 2025 @ 10:00 PM Pacific — The inaugural Klotho Conference & Scientific Seminar, held September 15–16 at the UCI Beall Applied Innovation Center, brought together leading researchers, clinicians, and innovators to discuss the most recent Klotho biology research, its therapeutic potential, and diagnostic advances. This landmark event marked a significant step forward in translating decades of Klotho research into actionable strategies for healthspan extension.
+Las Vegas, NV (Newsworthy.ai) Wednesday Dec 3, 2025 @ 7:00 AM Pacific — In a powerful display of unity and generosity, more than 535 volunteers gathered at Remnant Ministries for Lion Wholesale’s annual Shoebox Packing Party on November 8, 2025, an event that has become an annual tradition for the church and for the children's wholesale toy company. Over the course of six hours, volunteers prepared 15,519 Operation Christmas Child shoeboxes, each filled with gifts and the message of the gospel for children around the world.
 
- Short highlight reel > https://youtu.be/ngH6qERXwRI
+ Families, church groups, schools, and individuals from across Southern Nevada came together with purpose and joy, embodying Lion Wholesale’s mission to serve others and make a global impact. Sandy Ludwick, Co-Owner of Lion Wholesale, shared her heartfelt gratitude for the event and its volunteers. “More than fifteen thousand children are about to hear the greatest message ever told: that Jesus loves them, that they matter, that they are SEEN.”
 
- Playlist of ALL Klotho Conference Presentations in full link is here > https://www.youtube.com/playlist?list=PLIzjBuzofFehaUfXU0GdvI2X8cr3gm6SY
+ The day’s success was made possible through broad community support. SOS Radio helped spread the word and filled the gym with uplifting worship music. Volunteers were also treated to meals provided by local partners Cactus Jacks Outlaw Grill and Slanging Tacos, offering a welcome moment of rest and fellowship during the high-energy day.
 
- Key Highlights from the Conference
+ A fleet of packed trailers, loaded to the brim with colorful shoeboxes, departed the church that evening and began their journey to children in need around the globe.
 
- * State of the Industry & Foundational Science The conference opened with a “State of the Industry” address by Menachem Abraham, followed by a keynote from Dr. Makoto Kuroo, who discovered the Klotho gene. Their talks framed the current landscape of Klotho research, from molecular pathways to clinical translation. Klotho Conference
-* New Klotho therapeutic modalities
+ For those who were unable to attend this year, Lion Wholesale encourages the community to attend next year’s event. It will be another opportunity to be part of something meaningful and bring hope to children around the world. You can also continue to support their mission by purchasing toys online: https://lionwholesale.com/
 
- Carmela Abraham presented results of a Klotho-mRNA-LNP approach to increasing Klotho levels. Klotho Conference
-
- * Human Case Studies & Clinical Insights Petr Sramek presented compelling human case studies exploring Klotho-based therapies, shedding light on the translational journey from preclinical models to patient outcomes. Klotho Conference
-* Klotho and Brain Health A dedicated panel, led by Dr. Dena Dubal and Dr. Miguel Chillon, examined emerging evidence for Klotho’s neuroprotective role including its impact on neurodegenerative disease models and its potential for gene therapy applications. Klotho Conference
-* Klotho and cancerDr. Ido Wolf and Dr. Tamar Rubinek summarized their research on the potential of Klotho in malignant tumors suppression.
-
- Klotho Conference
-
- * Gene Therapy for Longevity Diseases Dr. Assumpció Bosch delivered a presentation on Klotho gene therapy for ALS, outlining preclinical progress and the roadmap for future clinical trials. Klotho Conference
-* Inflammation, Aging & Klotho Inflammation-focused research was a major topic: Dr. Iliya Lefterov and Dr. Radosveta Koldamova discussed how Klotho signaling intersects with inflammatory pathways and its implications for chronic disease and aging. Klotho Conference
-* Muscle, Movement & Regeneration A panel including Dr. Mona EzzatVilinov and celebrity fitness expert Ramona Braganza explored Klotho’s role in muscle regeneration, functional mobility, and exercise-driven healthspan. Klotho Conference+1
-* Aesthetics & Regenerative Medicine Applications Dr. Gail Humble discussed cutting-edge research into Klotho’s use in medical aesthetics — covering skin, hair, and tissue regeneration. Klotho Conference
-* Klotho in Organ Regeneration Dr. Doris Taylor closed out major talks with her visionary presentation on Klotho’s regenerative applications for organs and cardiovascular tissue. Klotho Conference
-* From Bench to Bedside Dr. Ian White delivered a keynote outlining the translational path for Klotho therapies, including how naturally derived human Klotho sources can move into clinical trial phases. Klotho Conference
-* Thought Leadership on Healthspan Dr. Joseph Cleaver gave a luncheon keynote on lifestyle, aging, and Klotho — synthesizing scientific insight with practical takehome messages for wellness practitioners. Klotho Conference
-
- Short summary of klotho research:
-
- * 4390 papers have been published on klotho since 1997.
-* Clear conclusion if you are low in circulating klotho you are likely aging more rapdily than you should.
-* Low klotho seems to increase cancer risk.
-* Low klotho leads to earlier decline in cognition and memory and higher liklihood of brain disorders.
-* Low klotho leads to higher risk of heart failure and kidney failure.
-* Low klotho precipitates higher levels of calcification and inflammation.
-* Low klotho leads to muscle atrophy and sarcopenia.
-* Low klotho may contibute to depression, anxiety and addictions.
-* Low klotho inihibits sexual health.
-* Low klotho is a major underlying cause of joint osteoarthritis.
-* Low klotho increases liklihood of epileptic seizures in those under 65.
-* Low klotho leads to earlier aging related hair loss.
-* Low klotho leads to higher levels of skin damage and wrinkles.
-* Low klotho leads to earlier age related vision deterioration.
-* Low klotho leads to earlier age related hearing loss.
-* Low klotho leads to higher risk of osteoporosis and other bone strength loss disorders.
-* Low klotho leads to higher oxidative stress.
-* Low klotho leads mitochondrial dysfunction.
-* Low klotho leads to higher susceptibility to infections.
-* Low klotho leads to slower wound healing.
-* Low klotho leads to accelerated telomere shortening and epigenetic age acceleration.
-* Low klotho reduces healthspan and longevity.
-* Studies are underway to prove out that higher klotho levels can reverse the above low klotho findings.
-
- Conference Impact and Outcomes
-
- * Attendees engaged in interactive Q&A sessions and roundtables to build collaborative pathways for Klotho research and commercialization.
-
- * Several research groups indicated plans to accelerate clinical development of Klotho-based gene therapies.
-
- * The conference catalyzed new partnerships, including academic institutions, biotech companies, and longevity-focused investor networks.
-
- * It reinforced the unified mission: raising Klotho biology into mainstream medical and therapeutic strategy to promote healthy aging.
-
- Looking Forward
-
- The success of this first Klotho Conference sets the stage for annual gatherings to follow. Organizers announced that future conferences will expand to include translational clinical trials, diagnostics development, and policy frameworks to bring Klotho therapies to patients responsibly and equitably.
-
- About Klotho Conference & Scientific Seminar  The Klotho Conference is a dedicated forum for exploring the science and therapeutic potential of the Klotho protein and gene. Hosted at UCI’s Beall Applied Innovation Center, this event brings together top-tier academics, clinicians, and innovators to accelerate healing and longevity through Klotho research. Klotho Conference
-
- Media Contact: Klotho Conference Organizing Team Email: howard@leonhardtventures.com
-
- Website: www.klothoconference.com Klotho Conference
-
- Primary Sponsor:Lionheart Health, Inc., 21010 Pacific City Cir #1406, Huntington Beach, CA 92648
-
- Web Sites:  www.lionheartlongevity.com | www.lionhearthealthstim.com | www.leonhardtventures.com 
+ About Lion Wholesale Lion Wholesale is a family-owned venture with a deep passion for Operation Christmas Child, the gospel message, and the joy these shoeboxes bring to children across the globe. What started as a heartfelt mission to share God's love through carefully selected gifts has grown into an enterprise dedicated to enriching children's lives. Lion Wholesale was born out of the experience of buying and testing toys for shoeboxes. Today, they focus on providing fun, affordable, quality gifts and sports equipment that do more than just entertain—they demonstrate God's great love to children. Learn more at LionWholesale.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512031946/klotho-conference-2025-unites-global-experts-to-accelerate-klotho-based-therapies-diagnostics)
+[Original/Source Press Release](https://newsworthy.ai/news/202512031948/las-vegas-community-packs-more-than-15000-shoebox-gifts-for-children-worldwide)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/klotho-conference-unlocks-longevity-secrets-from-gene-discovery-to-healthspan-therapies/c2c27e887eb27dcc6d45450ae29236ee) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lion-wholesale-volunteers-pack-15519-shoeboxes-for-global-children/0b824bff851ef83374a2f1e8035b4d8e) 
 
  
 
@@ -90,4 +25,4 @@ Irvine, California (Newsworthy.ai) Tuesday Dec 2, 2025 @ 10:00 PM Pacific — Th
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/3/irisLy37.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/3/rend1sBN.webp)
