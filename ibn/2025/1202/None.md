@@ -22,21 +22,21 @@ Microsoft has secured renewable electricity supply from two Spanish solar facili
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/microsoft-inks-deal-to-buy-renewable-energy-in-spain/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/microsoft-inks-deal-to-buy-renewable-energy-in-spain-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/microsoft-s-spanish-solar-deal-links-clean-energy-with-community-impact/9a9a3917b85c0030422ea9083c95ad62) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/microsoft-s-spanish-solar-deal-links-clean-energy-with-community-impact/66a17cae66553e2039fe985cf0e06ecb) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/microsoft-expands-renewable-energy-portfolio-with-spanish-solar-/202524915)
+Pickup - [https://advos.io/en](https://advos.io/en/microsoft-expands-renewable-energy-portfolio-with-spanish-solar-/202524931)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/315639-microsoft-secures-renewable-energy-agreement-in-spain-with-community-sustainability-component)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/316127-microsoft-s-spanish-solar-agreement-links-renewable-energy-procurement-with-community-investment)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/microsoft-secures-renewable-energy-deal-in-spain-with-social-imp/202524915)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/microsoft-expands-renewable-energy-portfolio-with-spanish-solar-/202524931)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/ninoSNgI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/swim0rh6.webp)
