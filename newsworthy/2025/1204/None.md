@@ -1,54 +1,33 @@
-# SalesNexus Launches Beta of Its AI CRM &amp; Marketing Automation Platform for B2B Sales Teams
+# RChilli Integrates with ServiceNow to Power AI-Driven Recruitment on the Partner Portal
 
-Houston, TX (Newsworthy.ai) Thursday Dec 4, 2025 @ 7:00 AM Central — Building on more than two decades of experience driving sales growth for small and mid-sized businesses, SalesNexus’ new AI platform weaves advanced intelligence directly into core CRM and marketing workflows. The result: a modern, proactive system that guides salespeople through their day, prioritizes opportunities, and automates meaningful customer engagement at scale.
+San Ramon, CA (Newsworthy.ai) Thursday Dec 4, 2025 @ 12:25 PM Central — RChilli, a global leader in AI-driven recruitment automation, today announced its integration with ServiceNow, delivering advanced Recruitment AI capabilities directly within the ServiceNow ecosystem. The new app, available through the ServiceNow Partner Portal, empowers HR teams, recruiters, and applicants to streamline hiring workflows with intelligent automation.
 
- A Complete AI System for B2B Sales Productivity The beta release introduces a comprehensive set of AI-driven capabilities, including:
+ Transforming Recruitment Inside ServiceNow With RChilli’s APIs now embedded within ServiceNow, recruitment becomes faster, more accurate, and fully digital.The integration offers end-to-end automation of resume processing, profile creation, and job matching — reducing manual work and improving candidate experience.
 
- AI Nudges & Auto-Tasks Real-time suggestions and automated task creation that keep reps focused on the right activities at the right time—follow-ups, reminders, and deal-saving actions appear automatically based on behavior, timing, and engagement patterns.
+ The collaboration supports three key personas in the hiring process:
 
- AI Email Summaries, Responses & Suggested Actions AI instantly summarizes long email threads and drafts context-aware reply options, recommended next steps, and personalized follow-up messages.
+ * Applicants can now auto-fill their Talent Profiles with just a resume—no manual entry required.Powered by RChilli’s Resume Data Extraction API.
+* Applicants can also see the most relevant job recommendations based on their resume and experience.Enabled through RChilli’s Search & Match API.
+* Recruiters and Hiring Managers can instantly identify top applicants for open roles.Using RChilli’s AI ranking and fitment solution.
 
- AI Call Transcription Accurate call transcription with actionable insights, enabling reps to understand customer intent, extract action items, and update CRM data without manual typing.
+ A Seamless Experience for HR Teams The RChilli–ServiceNow integration brings automation and intelligence to recruitment processes that were traditionally manual or disconnected.It integrates seamlessly with ServiceNow’s HR Service Delivery (HRSD) environment, enhancing how enterprises manage recruitment before onboarding.
 
- AI Opportunity & Pipeline Intelligence SalesNexus AI analyzes activity, engagement, and timing to:
+ “Our goal has always been to make recruitment faster, smarter, and more efficient. With ServiceNow, we’re enabling HR teams to leverage AI for every step—from resume upload to final selection—within the platform they already use,” said Inder Pal Singh, Sr. Director of Development at RChilli.
 
- * Recommend new prospects
-* Identify emerging opportunities
-* Highlight deal risk
-* Trigger pipeline automation sequencesThis gives sales managers unprecedented visibility—and helps reps prioritize high-value conversations.
+ For ServiceNow Partners This integration also opens opportunities for ServiceNow partners to deliver added value to their clients. Partners can now:
 
- AI-Powered Campaign & Content Creation Complete email campaigns can be generated in seconds. Users can produce:
+ * Embed RChilli’s AI recruitment solutions in HR projects
+* Enhance automation and reporting capabilities
+* Offer a unified experience from candidate sourcing to onboarding
 
- * Multi-step automated drip campaigns
-* Email sequences for prospecting or nurturing
-* On-brand emails optimized for engagementAll powered by SalesNexus’ integrated AI writer.
-
- AI Segment Creation SalesNexus automatically builds dynamic segments based on behaviors, timing, firmographics, engagement history, and predicted likelihood of conversion—no manual filtering required.
-
- AI Report Builder Reps and managers can simply ask for the analytics they need. The AI creates dashboards, reports, and visualizations instantly, eliminating time-consuming spreadsheet work.
-
- AI Sales Enablement The system equips reps with real-time intelligence—including suggested messaging, objection-handling prompts, playbook steps, and recommended content—to help them win more deals, faster.
-
- A Major Milestone in the Evolution of CRM for SMB and Mid-Market Sales Teams “AI is reshaping the sales technology landscape, but most solutions are just old tech with a chatbot added in.” said Craig Klein, CEO of SalesNexus. “Our mission is to bring powerful AI directly into the B2B selling process for everyday B2B sales teams. This new platform doesn’t just save time—it helps salespeople become dramatically more productive and effective without changing how they prefer to work.”
-
- The AI-powered system is engineered specifically for small and mid-sized businesses that want to accelerate growth without adding administrative overhead or costly data-science resources.
-
- Beta Availability The AI CRM software & Automation Suite is available today in limited beta. The company will expand availability over the coming months, with general release expected in January 2026.
-
- Sales teams interested in participating in the beta can request access at https://salesnexus.com/free-trial/
-
- About SalesNexus SalesNexus is a CRM and marketing automation platform built for B2B sales teams that need powerful tools without enterprise complexity. Founded in 2003, SalesNexus helps businesses build predictable pipelines, engage prospects more effectively, and scale revenue through automation, AI, and hands-on customer support.
-
- Media Contact:
-
- Craig KleinCEO, SalesNexus713-405-1117cklein@salesnexus.comwww.salesnexus.com 
+ About [RChilli](https://www.rchilli.com/) RChilli is the trusted partner for parsing, matching, and enriching candidate data, enabling enterprises and ATS providers to enhance hiring efficiency. With integrations across leading HR platforms—including Oracle HCM, SAP SuccessFactors, and now ServiceNow—RChilli empowers organizations with accurate, structured candidate data and intelligent recruitment automation. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512041940/salesnexus-launches-beta-of-its-ai-crm-marketing-automation-platform-for-b2b-sales-teams)
+[Original/Source Press Release](https://newsworthy.ai/news/202512041953/rchilli-integrates-with-servicenow-to-power-ai-driven-recruitment-on-the-partner-portal)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-launches-ai-platform-revolutionizing-b2b-sales-productivity/fae5849d96f40248ddf879863a978f19) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-integrates-ai-recruitment-with-servicenow-to-transform-hiring/623c651e7f58530a7234a442d853644f) 
 
  
 
@@ -56,4 +35,4 @@ Houston, TX (Newsworthy.ai) Thursday Dec 4, 2025 @ 7:00 AM Central — Building 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/4/cornqoOU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/4/harpSfuv.webp)

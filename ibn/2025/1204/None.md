@@ -1,39 +1,31 @@
-# AINewsBreaks – MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) Featured in MiningNewsWire Editorial on Rising Energy Demand and Natural Hydrogen
+# New Vehicle Registrations in Norway Were Nearly 100% Electric in November
 
-This article has been disseminated on behalf of MAX Power Mining and may include paid advertising.
+Norway saw almost all new car registrations go electric in November. The country recorded 19,427 battery-only vehicles out of 19,899 newly registered passenger cars, pushing the EV share to 97.6 percent and producing one of the largest monthly registration totals the market has seen.
 
- MAX Power Mining (CSE: MAXX; OTC: MAXXF; FRANKFURT: 89N) announces its inclusion in a MiningNewsWire editorial exploring how surging global electricity demand — driven by rapidly expanding AI and data-center power consumption — is creating urgent need for new baseload energy solutions. The article highlights natural hydrogen as a continuously generated, geologic energy source that could offer scalable, low-carbon support for AI-era power requirements. MAX Power is noted as the first publicly traded company in North America advancing a 1.3-million-acre land position permitted for natural hydrogen exploration and development, including a commercial-scale well, positioning the company at the forefront of this emerging category.
+ Entities like Massimo Group (NASDAQ: MAMO) will be hoping that the markets they operate in pick lessons from Norway and…
 
- To view the full press release, visit https://ibn.fm/CgBBf
+ Read More>>
 
- About MAX Power
+ About GreenCarStocks
 
- MAX Power is an innovative mineral exploration company focused on North America’s shift to decarbonization. The Company is a first mover in the rapidly growing Natural Hydrogen sector where it has built a dominant district scale land position with approximately 1.3 million acres (521,000 hectares) of permits covering prime exploration ground prospective for large volume accumulations of Natural Hydrogen. High priority initial drill target areas have been identified for commencement of drilling in Q4 2025. MAX Power also holds a portfolio of properties in the United States and Canada focused on critical minerals. These properties are highlighted by a 2024 diamond drilling discovery at the Willcox Playa Lithium Project in southeast Arizona.
+ GreenCarStocks (“GCS”) is a specialized communications platform with a focus on electric vehicles (“EVs”) and the green energy sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GCS is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, GCS brings its clients unparalleled recognition and brand awareness. GCS is where breaking news, insightful content and actionable information converge.
 
- NOTE TO INVESTORS: The latest news and updates relating to MAXXF are available in the company’s newsroom at https://ibn.fm/MAXXF
+ To receive SMS alerts from GreenCarStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About AINewsWire
+ For more information, please visit https://www.GreenCarStocks.com
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ Please see full terms of use and disclaimers on the GreenCarStocks website applicable to all content provided by GCS, wherever published or re-published: https://www.GreenCarStocks.com/Disclaimer
 
- AINW is where breaking news, insightful content and actionable information converge.
+ GreenCarStocksAustin, Texaswww.GreenCarStocks.com512.354.7000 OfficeEditor@GreenCarStocks.com
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
-
- For more information, please visit www.AINewsWire.com
-
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
-
- AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ GreenCarStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-max-power-mining-cse-maxx-otc-maxxf-frankfurt-89n-featured-in-miningnewswire-editorial-on-rising-energy-demand-and-natural-hydrogen/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/new-vehicle-registrations-in-norway-were-nearly-100-electric-in-november/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/max-power-pioneers-natural-hydrogen-for-ai-s-surging-power-demand/ea64164419faee89002f6cf226e8731c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/norway-hits-97-6-ev-share-in-november-setting-global-benchmark/899561daad9263796bd29e450092cc17) 
 
  
 
@@ -41,4 +33,4 @@ This article has been disseminated on behalf of MAX Power Mining and may include
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/4/navy2dyw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/4/paveBPX1.webp)
