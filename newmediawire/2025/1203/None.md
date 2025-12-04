@@ -1,25 +1,25 @@
-# NRx Pharmaceuticals (NRXP) Amends IND to Advance NRX-101 With TMS for Depression Treatment
+# Carsten Stolz to Leave the Baloise Group as of 31 December 2025
 
-LOS ANGELES, CA - December 3, 2025 (NEWMEDIAWIRE) - NRx Pharmaceuticals (NASDAQ: NRXP), a clinical-stage biopharmaceutical company, said it amended its Investigational New Drug filing for NRX-101 to include use of the drug in combination with Transcranial Magnetic Stimulation for depression, including suicidal depression. The update follows evidence suggesting NRX-101 may significantly enhance TMS outcomes, with published studies showing more than two-fold improvements in symptom reduction and clinical response rates exceeding 80%. The Company noted NRX-101’s D-cycloserine component appears to augment neuroplasticity associated with TMS, while its low-dose lurasidone is intended to mitigate D-cycloserine’s known risk of low-grade hallucinations. NRx said it aims to validate the findings in a well-controlled trial of about 120 participants and is in partnership discussions with TMS device manufacturers to pursue joint registration studies and potential label augmentation.
+BASEL, Switzerland - December 3, 2025 (NEWMEDIAWIRE) - Carsten Stolz, CFO of the Baloise Group, has decided to leave the company as of 31 December 2025 in order to pursue new professional challenges outside Baloise.
 
- To view the full press release, visit https://ibn.fm/LT0dZ
+Carsten Stolz has played a key part in shaping and influencing Baloise since 2002, holding various positions at Group level and in the operating business. He became Chief Financial Officer (CFO) in 2017, in which role he has held responsibility on the Corporate Executive Committee and Group Strategy Board (GSB) for the further development and transformation of finance.
 
- About NRx Pharmaceuticals, Inc.
+ Thomas von Planta, Chairman of the Board of Directors of Baloise Holding Ltd, expresses his gratitude to Carsten Stolz for the great dedication that he has shown over more than two decades: “We are losing a highly experienced executive and proven leader. Carsten Stolz initiated and successfully implemented the financial transformation of the Baloise Group. The Board of Directors would like to thank him for his significant contributions and wishes him all the best for the future.”
 
- NRx Pharmaceuticals, Inc. (www.nrxpharma.com), is a clinical-stage biopharmaceutical company developing therapeutics based on its NMDA platform for the treatment of central nervous system disorders, specifically suicidal depression, chronic pain, and PTSD. The Company is developing NRX-100 (preservative-free intravenous ketamine) and NRX-101, (oral D-cycloserine/lurasidone). NRX-100 has been awarded Fast Track Designation for the treatment of Suicidal Ideation in Depression, including Bipolar Depression. NRX-101 has been awarded Breakthrough Therapy Designation for the treatment of suicidal bipolar depression. NRx has recently filed an Abbreviated New Drug Application (ANDA) and initiated a New Drug Application filing for NRX-100 (IV ketamine) with an application for the Commissioner’s National Priority Voucher Program for the treatment of suicidal depression.
+ContactBaloise, Aeschengraben 21, CH-4002 BaselWebsite: www.baloise.comE-Mail: media.relations@baloise.com / investor.relations@baloise.comMedia Relations: Tel: +41 58 285 70 53Investor Relations: Tel: +41 58 285 81 81
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+About BaloiseThe focus is firmly on the future at Baloise. We aim to make tomorrow more straightforward, safer and more carefree for our customers, and we are taking responsibility for this today. Baloise is more than just a traditional insurance company. Through our smart finance and insurance solutions, we offer a complete service package. Dependable support, reliable cooperation and trust-based relationships are key aspects of our stakeholder interaction. We take care of financial matters so that our customers can concentrate on the important things in their lives and can find inspiration in the everyday. Baloise, a European company founded more than 160 years ago, currently employs 8,000 people at its headquarters in Basel (Switzerland) and across its subsidiaries in Belgium, Germany and Luxembourg. Our services generated a business volume of around CHF 8.6 billion in 2024. Baloise Holding Ltd shares (BALN) are listed on the SIX Swiss Exchange.
 
- Forward Looking Statements
+ 
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/nrx-pharmaceuticals-nrxp-amends-ind-to-advance-nrx-101-with-tms-for-depression-treatment-7084468)
+[Original/Source Press Release](https://www.newmediawire.com/news/carsten-stolz-to-leave-the-baloise-group-as-of-31-december-2025-7084473)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nrx-pharma-expands-depression-drug-trial-to-boost-tms-therapy-results/75717a5c3748b666b43bcac624a689d1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baloise-cfo-carsten-stolz-departs-after-23-years-driving-financial-transformation/393a2b9ef8d12195de08c3ab9e5fb1bf) 
 
  
 
@@ -27,4 +27,4 @@ LOS ANGELES, CA - December 3, 2025 (NEWMEDIAWIRE) - NRx Pharmaceuticals (NASDAQ:
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/3/rendD25j.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/3/zealIFNa.webp)
