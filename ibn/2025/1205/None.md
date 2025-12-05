@@ -1,44 +1,36 @@
-# Trump Drops “Renewable” from Energy Lab’s Name
+# Xiaomi Keeps Breaking its Sales Records as Demand Soars for its EVs
 
-President Donald Trump’s decision to remove the renewable label from a major U.S. energy lab has set off another round of debate about the administration’s priorities and its long-running skepticism toward wind and solar projects. The shift was quietly posted on the lab’s website late Monday, confirming that the National Renewable Energy Laboratory in Colorado will now appear under a new banner, the National Laboratory of the Rockies.
+Xiaomi keeps smashing its own electric vehicle sales records as soaring demand pushes its EV business into new territory. The company has now logged its third month in a row with more than 40,000 deliveries, a run that signals how quickly its EV lineup has become a serious force in China’s auto market.
 
- Key players like Foremost Clean Energy Ltd. (NASDAQ: FMST) (CSE: FAT) are yet to react to this name change and how it could impact the future trajectory of the lab, and the country’s…
+ For Xiaomi, this is a clear sign that it is scaling faster than many anticipated, and the brand appears intent on holding that trajectory as the market heads into another year of rapid expansion. For manufacturers like Lucid Motors (NASDAQ: LCID) that are thousands of…
 
  Read More>>
 
- About GreenEnergyStocks
+ About GreenCarStocks
 
- GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
+ GreenCarStocks (“GCS”) is a specialized communications platform with a focus on electric vehicles (“EVs”) and the green energy sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GCS is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, GCS brings its clients unparalleled recognition and brand awareness. GCS is where breaking news, insightful content and actionable information converge.
 
- To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from GreenCarStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.GreenEnergyStocks.com
+ For more information, please visit https://www.GreenCarStocks.com
 
- Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
+ Please see full terms of use and disclaimers on the GreenCarStocks website applicable to all content provided by GCS, wherever published or re-published: https://www.GreenCarStocks.com/Disclaimer
 
- GreenEnergyStocksLos Angeles, CAwww.GreenEnergyStocks.com310.299.1717 OfficeEditor@GreenEnergyStocks.com
+ GreenCarStocksAustin, Texaswww.GreenCarStocks.com512.354.7000 OfficeEditor@GreenCarStocks.com
 
- GreenEnergyStocks is powered by IBN 
+ GreenCarStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/trump-drops-renewable-from-energy-labs-name/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/xiaomi-keeps-breaking-its-sales-records-as-demand-soars-for-its-evs/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-strips-renewable-label-from-key-u-s-energy-lab-sparking-debate/1efe914bb628ee8c91c8020b714a96d0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xiaomi-shatters-ev-sales-records-for-third-straight-month/12d299989278490b7af1100ea56982e6) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/trump-administration-removes-renewable-from-national-energy-lab/202525081)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202512/318700-trump-administration-removes-renewable-from-national-energy-lab-name)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/trump-administration-removes-renewable-from-national-energy-lab/202525081)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/trump-administration-removes-renewable-from-national-energy-labo/202525081)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/5/harpFdU8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/5/fineV5lG.webp)
