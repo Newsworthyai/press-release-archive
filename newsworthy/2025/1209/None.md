@@ -1,91 +1,74 @@
-# Rock Solid Round Rock Podcast Celebrates One Year and 52 Conversations Shaping Central Texas
+# Gilley International Group Showcases South Side Development Strategy on The Building Texas Show
 
-Round Rock, TX (Newsworthy.ai) Tuesday Dec 9, 2025 @ 8:00 AM Central — The Rock Solid Round Rock Podcast is celebrating its first anniversary—marking 52 weekly episodes dedicated to elevating the entrepreneurs, civic leaders, and community voices shaping Central Texas. The show is available at rocksolidrr.com, with full video episodes streaming on YouTube.
+San Antonio, Texas (Newsworthy.ai) Tuesday Dec 9, 2025 @ 7:00 AM US/Central — The Building Texas Show, hosted by Texas business leader Justin McKenzie, features a powerful new episode with developer Gilley Mendoza, founder of Gilley International Group, whose ambitious, community-driven real estate projects are reshaping the future of South San Antonio.
 
- The podcast originated after the Round Rock Chamber’s Entrepreneurial Town Hall, an event that made clear the community’s desire for more visibility, mentorship, and storytelling around local business leadership. Hosts Bryan Eisenberg, Bill Combes, and Brent Pierce turned that request into action, blending their perspectives in storytelling, marketing, and production to create a platform centered on Round Rock and Central Texas’ rising momentum.
+ Mendoza, a first-generation developer with deep roots on the South Side, shares how his journey from college student to land developer began with an early fascination for real estate and a desire to build long-term generational opportunity. “I’ve always envisioned building a brand that could go international,” Mendoza said. “But it starts here, with my own community.”
 
- Why Did the Rock Solid Round Rock Podcast Reach 52 Episodes in Its First Year? Every episode is recorded at Round Rock Studio, where the atmosphere encourages authenticity and connection. Bryan brings decades of storytelling and behavioral insight. Bill brings hands-on experience with the needs of small businesses. Brent brings polished production and a studio intentionally designed for candid conversations.
+ Building the Future Where It’s Needed Most Gilley International Group has identified the South Side—specifically the corridor between Loop 410 and Loop 1604—as one of Texas’ most promising growth regions. While North San Antonio has long been fully developed, the southern arc remains almost entirely greenfield. “For the next 20 years, there is room for growth for everybody,” Mendoza noted.
 
- Together, their work reflects what makes Round Rock unique: a collaborative ecosystem of civic leaders, educators, founders, and service-minded residents committed to shaping the region’s future.
+ The region’s momentum is fueled by major institutional anchors, including:
 
- How Is the Podcast Strengthening Round Rock’s Entrepreneurial Future? The show has become a reference point for local founders, Chamber members, community organizations, and elected officials. Episodes highlight business development trends, community needs, education partnerships, nonprofit initiatives, and the lessons learned from both scrappy startups and seasoned leaders.
+ * Palo Alto College, directly across from Mendoza’s flagship development
+* Texas A&M University–San Antonio, now one of Texas’ fastest-growing universities with a 700-acre master plan
+* Expanding advanced manufacturing from Toyota, JCB, and other major employers
 
- This mix of civic insight and entrepreneurial transparency has helped position Round Rock as one of the most compelling business communities in Texas.
+ These factors position the South Side as one of Texas’ next major workforce, education, and housing clusters.
 
- Notable Guests Featured in Rock Solid’s First Year Over the podcast’s 52 episodes, Rock Solid has welcomed many of Central Texas’ most recognized leaders, including:
+ Spotlight Project: Villaret Commons During the episode, Mendoza unveiled new details about Villaret Commons, an 80-unit mixed residential community designed to meet the needs of first-generation homeowners, students, and the region’s expanding workforce.
 
- * Charlie Culpepper — Former Mayor of Round Rock
-* Bill Gravell — Former Williamson County Judge & SBA Advocate
-* Anita Steenson — U.S. Small Business Administration Disaster Relief and Recovery
-* Robin Eissler — Founder & CEO, BoosterHub
-* John Garrett — Founder, Community Impact
-* Jessica Scanlon — Founder & CEO, Hot Dog Marketing
-* Suzette Reynoso-Bivens — Founder, Tot Box Play Cafe
-* Tracy Donegan — Founder, Solasta Health
-* Will Williams — Founder, ShareTheWill Foundation, 26 year Army Ranger veteran
-* Joseph Fischer — Founder, Playmaker Recruiting & Round Rock Chamber Pitch Winner
+ Located directly across from Palo Alto College, the project will feature:
 
- These voices reflect the diversity, creativity, and community-minded leadership that define the Round Rock region.
+ * 19 duplexes (38 doors)
+* 42 single-family homes
+* Thoughtful “horizontal” development including roads, utilities, and modern infrastructure
 
- Rock Solid Round Rock Podcast Reveals Why Williamson County Is One of America’s Fastest-Growing Business Communities Rock Solid was born in one of the fastest-growing communities in America. Williamson County’s total appraised value nearly doubled from $89.1 billion to $184.4 billion in six years, and 12,558 new small businesses opened during that same period, even before the full economic impact of Samsung’s massive expansion is reflected.
+ With horizontal construction scheduled for completion in the next 45 days, Villaret Commons is positioned to become one of the most accessible and strategically located new communities in South San Antonio.
 
- This surge of growth, entrepreneurship, and investment has made Round Rock a proving ground for the future of Central Texas and the country. The podcast exists to capture the stories behind that momentum; giving founders, civic leaders, and innovators a platform to share how they’re shaping a region that’s expanding faster than almost anywhere else in the country.
+ Approachable Housing for a Growing Workforce Unlike large institutional builders moving into sensitive neighborhoods, Gilley International emphasizes “approachable housing”—homes priced to match the salaries of South Side manufacturing and trade jobs without compromising quality.
 
- What Does This Milestone Mean to the Host? “Celebrating a year of Rock Solid means celebrating our community,” said Bryan Eisenberg. “Every story shared is a reminder of the people who make Round Rock the future of Texas.”
+ “I didn’t say it was ‘affordable’ housing,” Mendoza explained. “But we are intentionally building homes in the $250,000 to $300,000 range because that’s where the community’s workforce is. That’s the opportunity.”
 
- About Rock Solid Round Rock Podcast The Rock Solid Round Rock Podcast highlights the entrepreneurs, civic leaders, and community voices defining Round Rock’s future. Episodes blend storytelling, local insight, and candid conversation—recorded weekly at Round Rock Studio.
+ A Development Philosophy Rooted in Community Mendoza openly discussed both the challenges and opportunities of building in the neighborhoods where he grew up. While some residents express skepticism toward developers, he believes transparency and engagement are essential.
 
- Learn more at rocksolidrr.com or watch full episodes at youtube.com/@rock-solid-podcast.
+ “You can’t make everyone happy,” he said. “But most people on the South Side want better retail, better housing, better options. I grew up here. I’m willing to do the work, have the conversations, and build what this community deserves.”
 
- Linked Media Watch full episodes on YouTube:
+ Host Justin McKenzie praised Mendoza’s commitment:
 
- https://youtube.com/@rock-solid-podcast
+ “This is the best kind of development we can hope for—local investors reinvesting in their own community with intention, long-term thinking, and respect for San Antonio’s heritage.”
 
- FAQ — Rock Solid Round Rock Podcast Q1: What inspired the launch of the Rock Solid Round Rock Podcast?
+ About Gilley International Gilley International is a San Antonio–based real estate development firm focused on land development, community-aligned housing, and long-term regional impact. Founded by developer Gilley Mendoza, the company emphasizes responsible growth on the South Side of San Antonio by aligning new housing with workforce needs, educational institutions, and South Texas’ rapidly expanding industrial corridors.
 
- The podcast was born after the Round Rock Chamber’s Entrepreneurial Town Hall, where residents expressed a strong desire for more public storytelling around local founders, community leaders, and civic impact.
+ About The Building Texas Show The Building Texas Show is a statewide business and community storytelling platform hosted by Justin McKenzie. The show highlights the people, industries, and ideas shaping the future of Texas—from rural innovation to urban transformation—and features leaders across real estate, technology, public policy, and economic development.
 
- Q2: How often are episodes released?
-
- New episodes premiere weekly on YouTube and across all major podcast platforms.
-
- Q3: Who hosts the show?
-
- Hosted by Bryan Eisenberg, alongside co-hosts Bill Combes and Brent Pierce, each bringing a unique lens to entrepreneurial storytelling.
-
- Q4: What makes Rock Solid different from other business podcasts?
-
- Its focus on community-first storytelling. The show elevates leaders at all stages—founders, students, educators, elected officials, nonprofit leaders, and business owners who rarely get a microphone.
-
- Q5: Where can listeners watch or listen?
-
- Video: YouTube and Spotify
-
- Audio: Spotify, Apple Podcasts, and all major podcast platforms.
-
- Extended FAQ — About the Hosts & Production Partners How does Round Rock Studio influence the storytelling quality of the podcast?
-
- Round Rock Studio is more than a recording space—it is the technical and creative backbone of the show. Owned by co-host Brent Pierce, the studio was built so local leaders could share their stories in a high-quality, accessible environment. Its professional lighting, multi-camera setup, and expert audio engineering allow every guest—whether a mayor, founder, or first-time entrepreneur—to feel comfortable and confident. This environment transforms unscripted, heartfelt conversations into polished, impactful episodes that reflect the best of what Round Rock represents.
-
- Why is No Time for Social such an important connector for local businesses featured on the podcast?
-
- No Time for Social, founded by co-host Bill Combes, supports many national and Central Texas businesses with their social media presence. Bill’s close work with startups, service providers, and nonprofits gives him a deep understanding of the real challenges entrepreneurs face every day. That perspective brings a grounded, practical layer to the podcast—often revealing patterns in the local economy, gaps in small business support, and opportunities for new founders. Through Bill’s work with the Round Rock Chamber, the show naturally reflects the needs of the community and the momentum of its business ecosystem.
-
- How does Bryan Eisenberg’s national expertise shape the way the podcast highlights local stories?
-
- As a New York Times bestselling author, international keynote speaker, and digital marketing pioneer, Bryan Eisenberg has spent more than two decades helping global brands understand human behavior and customer experience. On Rock Solid, he uses those same skills to draw out the deeper motivations behind each guest’s story; why they built what they built, how they overcame obstacles, and what drives their commitment to Round Rock. His roles as Ambassador Co-Chair at the Round Rock Chamber and co-owner of A Place At Home – North Austin keep him grounded in the community’s needs. This blend of international insight and local involvement helps elevate every conversation, showing how Round Rock’s leaders mirror the innovation and resilience of top business markets worldwide. 
+ Watch the Full Episode https://youtu.be/TWo74ePiNSQ 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512091961/rock-solid-round-rock-podcast-celebrates-one-year-and-52-conversations-shaping-central-texas)
+[Original/Source Press Release](https://newsworthy.ai/news/202512091952/gilley-international-group-showcases-south-side-development-strategy-on-the-building-texas-show)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rock-solid-podcast-hits-1-year-milestone-showcasing-central-texas-business-boom/3c61407b3968b8222d5ebbe2d6f801c4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/developer-gilley-mendoza-champions-community-driven-growth-in-south-san-antonio/e67fa9cd1bb6e3c9050ee55e6e3e5bb2) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/developer-gilley-mendoza-outlines-south-san-antonio-growth-strat/202525197)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/324398-gilley-international-group-outlines-south-san-antonio-development-strategy-focused-on-workforce-housing)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/325631-gilley-international-group-skizziert-entwicklungsstrategie-für-süd-san-antonio-mit-fokus-auf-wohnraum-für-arbeitnehmer)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/325618-gilley-international-group-presenta-su-estrategia-de-desarrollo-para-el-sur-de-san-antonio-centrada-en-viviendas-para-trabajadores)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/325623-gilley-international-group-dévoile-sa-stratégie-de-développement-pour-le-sud-de-san-antonio-axée-sur-le-logement-pour-les-travailleurs)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/325648-gilley-international-group-apresenta-estratégia-de-desenvolvimento-para-o-sul-de-san-antonio-com-foco-em-habitação-para-a-força-de-trabalho)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/developer-gilley-mendoza-outlines-south-san-antonio-growth-strat/202525197)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/developer-gilley-mendoza-outlines-south-san-antonio-growth-strat/202525197)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/9/lendVUZ0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/9/cakeRyMQ.webp)
