@@ -1,52 +1,54 @@
-# TechMediaBreaks – NextPlat Corp. (NASDAQ: NXPL) Highlights Business Development Progress and Expanding Healthcare Growth Initiatives
+# Gold Could Reach $5,000 in 2026, Heraeus Analysts Say
 
-NextPlat (NASDAQ: NXPL, NXPLW), a global consumer products and services company providing healthcare and technology solutions through e-commerce and retail channels, reports continued progress in its business development efforts as part of its ongoing growth and organizational refocusing strategy. Chairman Rodney Barreto has assumed an expanded role in business development, contributing to two revenue-generating healthcare contracts secured earlier this year, while the Company pursues additional joint venture and acquisition opportunities to expand its pharmacy services business. Based on preliminary results from October through early December 2025, NextPlat expects more than 12,000 additional 340B and contracted prescriptions, supporting sequential quarterly growth. Leadership noted that operational streamlining and strengthened customer support are driving improving revenue trends, with Barreto emphasizing the Company’s emerging traction and long-term growth potential.
+According to a recently published 2026 outlook for precious metals, analysts at Heraeus predict that robust investment demand, central bank purchases and concerns about fiscal dominance could cause the price of gold to climb significantly in H2 in 2026.
 
- To view the full press release, visit: https://ibn.fm/iK228
+ Several analysts are likely to publish their precious metals forecasts over the coming weeks as the year comes to an end. Entities like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) are likely to…
 
- About NextPlat Corp.
+ Read More>>
 
- NextPlat is a global consumer products and services company providing healthcare and technology solutions through e-Commerce and retail channels worldwide. Through acquisitions, joint ventures, and collaborations, the Company seeks to assist businesses in selling their goods online, domestically, and internationally, allowing customers and partners to optimize their e-Commerce presence and revenue. NextPlat currently operates an e-Commerce communications division offering voice, data, tracking, and IoT products and services worldwide as well as pharmacy and healthcare data management services in the United States through its subsidiary, Progressive Care.
+ About Rocks & Stocks
 
- NOTE TO INVESTORS: The latest news and updates relating to NXPL are available in the company’s newsroom at https://ibn.fm/NXPL
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- About TechMediaWire
+ R&S is where breaking news, insightful content and actionable information converge.
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://RocksAndStocks.news
 
- For more information, please visit https://www.TechMediaWire.com
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Rocks & StocksLos Angeles, CARocksAndStocks.news310.299.1717 OfficeEditor@RocksAndStocks.news
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
-
- TechMediaWire is powered by IBN 
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-nextplat-corp-nasdaq-nxpl-highlights-business-development-progress-and-expanding-healthcare-growth-initiatives/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/gold-could-reach-5000-in-2026-heraeus-analysts-say/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nextplat-reports-strong-healthcare-growth-12k-new-prescriptions-expected/6f24acd45bcea430ab3189e1b52e787c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-could-hit-5000-in-2026-as-analysts-predict-major-rally/18c21e65b8da69d02bbf776222f21bb9) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/nextplat-corp-reports-business-development-progress-and-expandin/202525269)
+Pickup - [https://advos.io/en](https://advos.io/en/heraeus-analysts-predict-gold-could-reach-5000-by-2026/202525285)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/329663-nextplat-corp-reports-business-development-progress-and-expanding-healthcare-initiatives)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/330219-heraeus-analysts-forecast-gold-could-reach-5000-by-2026-amid-investment-demand-and-central-bank-activity)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/329669-nextplat-corp-informa-sobre-el-progreso-en-el-desarrollo-empresarial-y-la-expansión-de-sus-iniciativas-sanitarias)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/330302-heraeus-analysten-prognostizieren-goldpreis-von-5000-us-dollar-bis-2026-aufgrund-von-investitionsnachfrage-und-zentralbankaktivitäten)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/329674-nextplat-corp-fait-état-de-progrès-dans-son-développement-commercial-et-de-lexpansion-de-ses-initiatives-dans-le-secteur-de-la-santé)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/330222-analistas-de-heraeus-pronostican-que-el-oro-podría-alcanzar-los-5000-dólares-para-2026-ante-la-demanda-de-inversión-y-la-actividad-de-los-bancos-centrales)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/nextplat-corp-reports-progress-in-healthcare-growth-strategy-and/202525269)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/330293-les-analystes-de-heraeus-prévoient-que-lor-pourrait-atteindre-5-000-dollars-dici-2026-porté-par-la-demande-dinvestissement-et-lactivité-des-banques-centrales)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nextplat-corp-reports-business-development-progress-and-expandin/202525269)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/330307-analistas-da-heraeus-preveem-que-ouro-pode-alcançar-us-5000-até-2026-devido-à-demanda-de-investimento-e-atividade-dos-bancos-centrais)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heraeus-analysts-predict-gold-could-reach-5000-by-2026/202525285)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heraeus-analysts-predict-gold-could-reach-5000-by-2026/202525285)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/10/moonYifb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/10/joinfD8V.webp)

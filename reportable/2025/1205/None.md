@@ -1,35 +1,50 @@
-# Join Us for a Live Web Event: Wendt Partners x PandaDoc
+# Boldin Survey Reveals End-of-Year Planners Have High Confidence and Anticipate Same or Greater Wealth at Longevity
 
-In today’s competitive B2B landscape, building the right software stack is essential for driving sustainable growth. During this engaging live web event, experts from Wendt Partners and PandaDoc will dive into how the combined power of CPQ and CRM technologies can streamline sales operations, enhance team performance, and accelerate revenue growth.
+San Francisco, CA – December 5, 2025 –
 
-This dynamic conversation will uncover actionable insights and strategies that modern B2B sales teams can implement immediately to improve efficiency and close deals faster.
+Boldin, the financial confidence company, announced the results of its survey about end-of-year planning. The company polled more than 1,000 financially savvy Americans – all of whom manage their own financial plan using Boldin – to find out why they engage in year-end financial planning, and what others can learn from their planning habits. Survey respondents were evenly split between retirees (51%) and those planning for retirement (49%). The majority of respondents are high-net-worth individuals, with 70% reporting assets ranging from $1 million to $5 million. Across all current wealth bands, the majority of respondents anticipate having the same or more money at their longevity than they have today, indicating that their approach is worth emulating.
 
-What You’ll Learn* How AI enhances CRM performance and fuels measurable sales growth.
-* The essential components your B2B CRM platform must include.
-* Where CPQ delivers transformational impact, helping your team accelerate deal cycles.
-* How HubSpot + PandaDoc create the ideal CRM + CPQ ecosystem for modern organizations.
-* Key steps to unlock CPQ success and empower your sales team today.
+To view the full announcement, including downloadable images, bios, and more, click here.
 
-Featured Speakers* Doug Wendt, Chief Growth Officer, Wendt Partners
-* Dustin Anglen, Customer Success & Enablement Manager, PandaDoc
+Key Takeaways:* Among retirees and retirement planners surveyed, 99% conduct year-end planning, and a majority review their plan multiple times throughout the year.
+* Nine out of ten (92%) of respondents said that annual or more frequent reflection on their big-picture financial goals and progress towards them significantly increases their confidence.
+* Nearly 80% of retirement planners complete end-of-year planning activities to increase confidence in their plan; less than half (43%) said they do so to build more wealth over time.
 
-Don’t miss this opportunity to discover how CRM and CPQ innovation can propel your company into its next stage of growth.
+About BoldinBoldin is democratizing access to high-quality financial planning. The company’s Retirement Planning software enables users to manage their own retirement plan independently or with support from Boldin’s coaches and online classes. Boldin users can also take advantage of fee-based, personalized advice from CFP® professionals at Boldin Advisors. To date, more than 450,000 people have used Boldin to create a plan and build their confidence to make smarter financial decisions. To learn more, visit https://www.boldin.com/.
 
-Register now to secure your spot! : Here
+Contacts:press@boldin.com
 
- About Wendt Partners: Wendt Partners is a HubSpot Elite Solutions Partner headquartered in Queens, New York City. The firm provides comprehensive enterprise CRM solutions focused on complex B2B markets. Wendt Partners serves companies ranging from startups to Fortune 500 companies through its focus on both industrial and technical markets and regulated industries. As an award-winning and fully accredited firm with one of the industry’s most seasoned teams, Wendt Partners continues to achieve remarkable growth and success in serving clients worldwide from offices in New York, Toronto, London, and Melbourne. For more information, please visit www.wendtpartners.com. 
+Source: Boldin
+
+Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://wendtpartners.reportablenews.com/pr/join-us-for-a-live-web-event-wendt-partners-x-pandadoc)
+[Original/Source Press Release](https://boldin.reportablenews.com/pr/boldin-survey-reveals-end-of-year-planners-have-high-confidence-and-anticipate-same-or-greater-wealth-at-longevity)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cpq-crm-unlocking-modern-b2b-sales-growth-with-wendt-partners-pandadoc/710ba7c8e75bc2ed588e19797c94e241) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boldin-survey-year-end-planners-confident-about-future-wealth/2e3ae207832305b6a0bff2dbc8a18b90) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/boldin-survey-shows-year-end-financial-planners-maintain-high-co/202525289)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/330211-boldin-survey-shows-high-confidence-among-end-of-year-financial-planners)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/330318-boldin-umfrage-zeigt-hohes-vertrauen-bei-finanzplanern-zum-jahresende)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/330312-encuesta-de-boldin-muestra-alta-confianza-entre-planificadores-financieros-de-fin-de-año)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/330314-une-enquête-boldin-révèle-une-grande-confiance-chez-les-planificateurs-financiers-de-fin-dannée)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/330320-pesquisa-da-boldin-revela-alta-confiança-entre-planejadores-financeiros-de-final-de-ano)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/survey-shows-high-net-worth-planners-confident-about-maintaining/202525289)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/boldin-survey-shows-end-of-year-financial-planners-maintain-high/202525289)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/5/larkhxzi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/10/chipZ5Vi.webp)
