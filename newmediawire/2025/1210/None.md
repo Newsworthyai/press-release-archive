@@ -1,85 +1,70 @@
-# Uterine Fibroids Linked to Elevated Heart Disease Risk
+# GeoVax Announces Addition of Renowned Global Experts to Its Scientific Advisory Board
 
-Research Highlights:
+Newly Appointed Members Include Leaders in Vaccine Immunology, T-Cell Science, and Clinical Research
 
- * Long-term heart disease risk among women diagnosed with uterine fibroids was more than 80% higher than in women without uterine fibroids, according to a 10-year study of more than 2.7 million U.S. women.
-* The elevated heart disease risk among those with uterine fibroids persisted among all races and ages but was particularly strong in women younger than 40.
-* Researchers said more studies are needed to better understand and confirm the relationship between having uterine fibroids and increased heart disease risk - for now, these findings suggest women diagnosed with fibroids may benefit from enhanced attention to heart health and risk factor management.
+ ATLANTA, GA - December 10, 2025 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing multi-antigen vaccines and immunotherapies for infectious diseases and cancers, today announced an update to its Scientific Advisory Board (SAB), welcoming internationally recognized experts whose work spans vaccine design, T-cell immunology, viral pathogenesis, and immunocompromised-host medicine.
 
- DALLAS - December 10, 2025 (NEWMEDIAWIRE) - Long-term heart disease risk in women diagnosed with uterine fibroids was more than 80% higher than in women without fibroids, according to new independent research published today in the Journal of the American Heart Association, an open access, peer-reviewed journal of the American Heart Association.
+ This strategic expansion is designed to support GeoVax's current and future development efforts with MVA and its multi-antigen MVA vector platform for vaccines targeting biothreat pathogens and vulnerable or currently underserved populations such as those from low- and middle-income countries, and immunocompromised patients. Future additions to the GeoVax SAB will support its oncology immunotherapy pipeline.
 
- Fibroids are predominately benign growths that develop from the muscle tissue of the uterus. The U.S. Office of Women’s Health notes that as many as 20% - and possibly up to 80% - of women will develop fibroids by the time they reach age 50.
+ Newly Announced SAB Members
 
- “Nearly 26 million pre-menopausal women in the U.S. are impacted by uterine fibroids and many do not experience any symptoms. Yet despite the high prevalence, fibroids are understudied and poorly understood,” said study author Julia D. DiTosto, M.S., a Ph.D. Candidate in Epidemiology at the Perelman School of Medicine at the University of Pennsylvania in Philadelphia. “Some studies have shown that fibroids and cardiovascular disease share biological pathways, including the growth of smooth muscle cells, the excessive buildup of fibrous connective tissue, calcification and inflammatory responses.”
+ Joining Prof. Teresa Lambe, PhD, OBE, FMedSci - Calleva Head of Vaccine Immunology, Oxford Vaccine Group / Jenner Institute, University of Oxford, whose appointment to the GeoVax SAB was previously announced, are the following:
 
- DiTosto noted that those findings have been hindered by limitations including small study sample sizes that lacked diversity and insufficient study design.
+ * Dr. Alessandro Sette, Dr of Biological Sciences - Center for Infectious Disease and Vaccine Research, La Jolla Institute for Immunology
 
- “We set out to address these critical gaps using a large, diverse dataset with extended follow-up,” she said. “Our findings suggest that fibroids may serve as an important marker for identifying women at elevated cardiovascular risk, with sustained increased risk persisting up to 10 years after diagnosis.”
+ An authority in T-cell epitope mapping and immune correlates of protection, Dr. Sette leads the NIH Immune Epitope Database (IEDB) and is widely recognized by defining T-cell immunity across SARS-CoV-2, Mpox, and Ebola.
 
- Researchers looked at a U.S. database of health information from 2000 to 2022. They studied more than 450,000 females (average age 41 years) with fibroids compared to nearly 2,251,000 females who had not been diagnosed with the fibroids. Over the next decade, researchers monitored for incidences of coronary artery disease (including heart attack), cerebrovascular disease (stroke and related conditions) and peripheral artery disease.
+ * Prof. Lance Turtle, PhD, MBBS, FRCP, DTMH - Chair in Immunity and Infectious Diseases, University of Liverpool / Royal Liverpool Hospital
 
- They found:
+ A clinician-scientist specializing in viral pathogenesis and post-infection immune recovery, Prof. Turtle’s research provides key translational insights into long-term immunity and emerging pathogen preparedness.
 
- * After 10-years of follow-up, women with fibroids were at higher risk for all three major conditions (coronary artery, cerebrovascular and peripheral artery diseases).
-* The risk of developing cardiovascular disease was 81% higher among those women with fibroids compared to those without.
-* At 10 years, more than 5.4% of women with fibroids had experienced a cardiovascular event compared to 3% of women without fibroids.
-* Women diagnosed with uterine fibroids were at increased heart disease risk across all racial and ethnic groups (white, Black, Hispanic and Asian groups).
-* Among younger women, under age 40, the risk for cardiovascular disease was 251% higher (or more than 3.5 times more likely) in those with fibroids compared to those without fibroids.
+ * Prof. Thushan I. de Silva, MBBS, PhD, MRCP - Professor of Infectious Diseases and Immunology, University of Sheffield
 
- “The strength of the relationship between heart disease risk and uterine fibroids was striking,” DiTosto said. “However, it's important to note that more research is needed to confirm these findings in other populations before formal changes are made to cardiovascular risk assessment guidelines. In the meantime, these results support having thoughtful conversations between women and their providers about heart health in the context of a fibroid diagnosis.”
+ An expert in human viral immunology, vaccine responses, and global immunosurveillance, Prof. de Silva leads studies across Europe, Asia, and Africa evaluating population-level vaccine immunity and viral evolution.
 
- “This study highlights yet another aspect in the unique factors that impact women in regard to the leading cause of death among them - cardiovascular disease,” said Stacey E. Rosen, M.D., FAHA, volunteer president of the American Heart Association and senior vice president of women’s health and executive director of the Katz Institute for Women’s Health of Northwell Health in New York City. “It also is an opportunity to recognize the very important role all of a woman’s health care clinicians can play in her overall health, including heart health. Because many women may use annual “well-woman” visits to their gynecologist or their general practitioner as their primary point of care, these visits offer exceptional opportunities that go beyond gynecologic health. These findings linking fibroids to heart disease support the need to discuss the bigger picture that considers ways to identify and reduce cardiovascular disease risk, even among those women who may not have any other apparent risk factors.”
+ * Dr. Joshua A. Hill, MD, FIDSA - Associate Professor, University of Washington School of Medicine / Fred Hutchinson Cancer Center
 
- Among the limitations of the study, fibroids may not have been diagnosed yet in women included in the comparison group. While the researchers tried to account for possible underdiagnosis of fibroids, the limitation may have impacted the results to some extent.
+ A leading infectious-disease expert focusing on vaccine response in immunocompromised and transplant patients, Dr. Hill’s work aligns with GeoVax’s emphasis on protecting high-risk, under-served populations.
 
- Study details, background and design:
+ David Dodd, GeoVax Chairman & CEO, commented: “By assembling this exceptional team of global experts, we are further strengthening GeoVax’s position at the forefront of vaccine innovation. Their combined experience - from antigen design to human immunology and clinical translation - perfectly aligns with our mission to deliver durable, broad-spectrum protection to both global and immunocompromised populations.”
 
- * The study included 2,701,062 females, average age of 41 years - 450,177 individuals with uterine fibroids matched to 2,250,885 controls without fibroids
-* Researchers at the University of Pennsylvania studied inpatient, outpatient and pharmacy claims from commercially insured individuals from 2000 to 2022 from Optum's de-identified Clinformatics® Data Mart Database.
-* Uterine fibroids were identified using ICD-9/10, CPT, or HCPCS codes, requiring either >1 inpatient/outpatient claim ≥1 day apart, or 1 fibroid claim preceded by transvaginal ultrasound or pelvic MRI within 30 days.
-* The outcome was first-time major atherosclerotic cardiovascular disease diagnosis including coronary artery disease, cerebrovascular disease and peripheral artery disease, ascertained using ICD-9/10 or CPT/HCPCS codes.
-* Models adjusted for sociodemographic factors (age, race/ethnicity), cardiovascular risk factors (smoking, obesity, sleep apnea, diabetes, hyperlipidemia, hypertension), mental health conditions (depression, anxiety), reproductive/obstetric history (parity, pregnancy complications, polycystic ovary syndrome (PCOS), infertility), cancer, health care utilization and medication use.
+ Dr. Kelly McKee, Chief Medical Officer, added: “The addition of these renowned experts ensures that our clinical strategy is guided by cutting-edge immunology insight and global research expertise. Their collaboration will be instrumental as GeoVax advances vaccines and immunotherapies designed to protect those who remain most vulnerable - particularly those in low and middle income countries (LMICs), and immunocompromised patients who have been underserved by traditional approaches or currently available vaccines”
 
- Co-authors, disclosures and funding sources are listed in the manuscript.
+ Dr. Mark Newman, Chief Scientific Officer, stated: “This expanded SAB strengthens multiple aspects of our R&D platform. With direct input from some of the world’s most respected scientific leaders, we can ensure that our vaccine and immunotherapy candidates deliver real-world impact.”
 
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ About GeoVax
 
- Additional Resources:
+ GeoVax Labs, Inc. is a clinical-stage biotechnology company developing novel vaccines against infectious diseases and therapies for solid tumor cancers. The Company’s lead clinical program is GEO-CM04S1, a next-generation COVID-19 vaccine currently in three Phase 2 clinical trials, being evaluated as (1) a primary vaccine for immunocompromised patients such as those suffering from hematologic cancers and other patient populations for whom the current authorized COVID-19 vaccines are insufficient, (2) a booster vaccine in patients with chronic lymphocytic leukemia (CLL) and (3) a more robust, durable COVID-19 booster among healthy patients who previously received the mRNA vaccines. In oncology the lead clinical program is evaluating a novel oncolytic solid tumor gene-directed therapy, Gedeptin®, having recently completed a multicenter Phase 1/2 clinical trial for advanced head and neck cancers. GeoVax is also developing a vaccine targeting Mpox and smallpox and, based on recent EMA regulatory guidance, anticipates progressing directly to a Phase 3 clinical evaluation, omitting Phase 1 and Phase 2 trials. GeoVax has a strong IP portfolio in support of its technologies and product candidates, holding worldwide rights for its technologies and products. For more information about the current status of our clinical trials and other updates, visit our website: www.geovax.com.
 
- * Spanish news release
-* Multimedia is available on the right column of release link.
-* After Dec. 10, 2025, view the manuscript online.
-* Spanish news release (Will be linked once available)
-* Heart disease risk factors in women highlight need for increased awareness, prevention
-* Pregnancy and Maternal Health Resources and Tools | Go Red for Women
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association @JAHA_AHA
+ Forward-Looking Statements
 
- About the American Heart Association
+ This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
 
- For Media Inquiries and American Heart Association Expert Perspective: 214-706-1173
+ Company Contact:info@geovax.com678-384-7220
 
- Cathy Lewis: cathy.lewis@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ Media Contact:Jessica Starmanmedia@geovax.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/uterine-fibroids-linked-to-elevated-heart-disease-risk-7084531)
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-announces-addition-of-renowned-global-experts-to-its-scientific-advisory-board-7084537)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uterine-fibroids-linked-to-81-higher-heart-disease-risk-in-women/74a658438952389ac8b5eff71c09f67b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-bolsters-scientific-advisory-board-with-global-vaccine-experts/3ea470506e26649cfff712ecec2c4076) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/geovax-strengthens-scientific-advisory-board-with-global-vaccine/202525263)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/329617-geovax-expands-scientific-advisory-board-with-global-vaccine-and-immunology-experts)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-expands-scientific-advisory-board-with-global-vaccine-exp/202525263)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-expands-scientific-advisory-board-with-global-vaccine-and/202525263)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/10/pearL5fU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/10/hintrqeX.webp)
