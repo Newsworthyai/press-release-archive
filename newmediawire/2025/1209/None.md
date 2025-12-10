@@ -1,67 +1,48 @@
-# Mitesco's Centcore Sets Sights on Tennessee for Data Center Expansion, Possible Acquisitions and AI
+# Vonovia Supervisory Board Appoints Katja Wunschel as Chief Development Officer and Renews Ruth Werhahn's Contract Ahead of Schedule
 
-VERO BEACH, FL - December 9, 2025 (NEWMEDIAWIRE) - Mitesco, Inc. (OTC-QB: MITI) today announced that its Centcore data center division is evaluating multiple locations across Tennessee as part of a strategic expansion initiative aimed at accelerating revenue growth, improving operating margins, and positioning it as a national provider.
+* Supervisory Board unanimously decides to appoint Katja Wunschel as new CDO from June 1, 2026
+* Contract of CHRO Ruth Werhahn renewed ahead of schedule until September 30, 2029
 
- “We have concluded that the potential for improved profits is greater in Tennessee, with lower-cost facilities, attractive power economics, and a strong base of technical resources,” said Brian Valania, General Manager of Centcore. “We are assessing both the acquisition of an existing facility and the deployment of our own ‘small-format’ buildout. We believe that our small-format approach may enable us to enter multiple markets quickly with significantly lower upfront expenditure than the large format that others have embraced.”
+ BOCHUM, Germany - December 9, 2025 (NEWMEDIAWIRE) - The Supervisory Board of Vonovia SE (“Vonovia”) unanimously decided to appoint Katja Wunschel as new Chief Development Officer (CDO) of Vonovia. She will join the company on April 1, 2026, and will take up her position on the Executive Board on June 1, 2026. She will succeed Daniel Riedl, who is leaving the Vonovia Board by mutual agreement on May 31, 2026, after a two-month induction period for Katja Wunschel.
 
- Valania added, “We have identified several promising sites near Nashville, as well as rural locations that offer favorable power infrastructure and compelling building attributes. These properties are not currently used as data centers, but we believe their structural characteristics make them excellent candidates for conversion into highly efficient operating environments.”
+ “The appointment of Katja Wunschel,” says Clara C. Streit, Chair of the Supervisory Board of Vonovia, “means we have gained a highly experienced business leader for our development business. She has many years of experience in project management and in implementing large investment projects. Her extensive knowledge in planning and implementing construction and development projects will be immensely valuable for the further development of new housing and, in particular, modular construction at Vonovia. Development has been a key component of the company's growth since 2018. As the Supervisory Board, we are delighted that our new construction business will continue to be in responsible hands. Speaking on behalf of the Supervisory Board, I would like to wish Katja Wunschel every success and all the best. Also, on behalf of the Supervisory Board, I want to express my sincere thanks to Daniel Riedl for using his expertise and experience in supporting her as she takes on her new role.”
 
- Power Advantage: Tennessee’s Low-Cost, High-Stability Profile
+ Katja Wünschel: “After more than 20 years in the energy sector - particularly in renewable energies - I am very much looking forward to the new challenges at Vonovia and would like to express my appreciation for the trust that is being placed in me. What both industries have in common is the need to deliver multiple projects at the same time while maintaining a high level of standardisation. For me, these similarities in project development and implementation are an exciting foundation for entering a new phase in modular construction.”
 
- A core factor behind Centcore’s interest in Tennessee is the state’s exceptionally competitive power pricing, often among the lowest industrial electricity rates in the United States - driven largely by the stability and scale of the Tennessee Valley Authority (TVA).
+ Katja Wunschel - Profile
 
- Centcore’s assessment highlights several advantages:
+ Katja Wunschel has been Chief Executive Officer at RWE Renewables Europe & Australia GmbH since 2022, a company that develops, builds and operates onshore wind and solar farms. Prior to this, from 2019, she was Chief Operating Officer (COO) at the predecessor organisation, RWE Renewables GmbH. She has held leading positions in the energy sector in Germany and abroad for over two decades.
 
- - Lower operating expenses for high-density compute and AI workloads
+ Katja Wunschel started her professional career in the Bayer Group in 1999 and moved to the energy supplier E.ON in 2002. After two years at head office and a further three years at E.ON in the Czech Republic, she moved into renewable energies at E.ON Climate & Renewables GmbH in 2008, initially as Director of Strategy & Business Development and then, from 2011, as Director of Global Engineering. She then became Director of Wind Onshore Europe, where she was responsible for the project planning, construction and operation of wind farms. She studied business administration at the University of Bayreuth.
 
- - More predictable long-term pricing versus many other regions
+ 
 
- - Strong grid reliability suitable for data center expansion
+ Katja Wunschel. Photo: RWE / Andre Laaks APPROVED FOR EDITORIAL USE. Contract of CHRO Ruth Werhahn renewed ahead of schedule until September 30, 2029
 
- - Higher-margin service delivery for colocation, GPU hosting, and managed AI infrastructure
+ The Supervisory Board has also renewed the contract of CHRO Ruth Werhahn ahead of schedule until September 30, 2029. Ruth Werhahn has been responsible for Human Resources, the Vonovia Technical Service, IT and Central Services since October 2023.
 
- Capital Strategy, Revenue Growth & Uplisting Path
+ Clara C. Streit: “Over the past two years, Ruth Werhahn has made significant progress in developing our employer brand and corporate culture and has successfully placed all her divisions on a strong entrepreneurial foundation. Especially during times of demographic change and an increasing shortage of skilled workers, HR plays a crucial strategic role.”
 
- Mack Leath, CEO of Mitesco, reaffirmed the Company’s strategy to drive higher revenue levels through both organic growth and strategic acquisitions.
+ Ruth Werhahn: “I am delighted to see so much trust has been placed in me. A modern and appealing corporate culture is essential for business growth, both now and in the future. This year alone, we have attracted around 2,800 new employees, primarily in maintenance, and we are continuing to grow. Housing is a basic need for everyone. And it is above all thanks to the employees of Vonovia that our company is so successful in business while also meeting its responsibilities to the community.”
 
- “We have begun conversations with investment banking professionals about a substantial financing facility designed to support our Centcore expansion, software initiatives, and potential acquisition opportunities,” said Leath. “We are evaluating the possibility of acquiring a larger, established technology provider with a meaningful user base - one that could benefit from our software platforms and our small-format, lower-cost data center approach. These steps align with our long-term vision of uplisting our common stock to a senior national exchange.”
+ About Vonovia
 
- AI Software Synergy: Enabling Enterprise-Grade Compute for RoboAgent
+ Vonovia SE is Europe’s leading private residential real estate company. With 533,000 residential units in Germany, Sweden and Austria, the focus is on the development and rental of modern and energy-efficient housing. Vonovia focuses on sustainability as the core of its growth policy and offers tenants a home with a high quality of living and excellent service. As part of its 2028 growth strategy, Vonovia will strengthen its Value-add, Development, and Recurring Sales segments, promote innovative technologies with a focus on serial modernization, modular new construction, and modern heating infrastructure, and offer its scalable model to the market.
 
- Mitesco also emphasized that expanding Centcore’s footprint directly supports its AI-driven software ecosystem, including RoboAgent, the Company’s real-estate automation platform.
+ The Bochum based company has been listed on the stock exchange since 2013. Since September 2015 Vonovia has been a constituent in the DAX. Vonovia SE is also a constituent of additional national and international indices, including DAX 50 ESG, Dow Jones Best-in-Class Europe Index, STOXX Global ESG Leaders, EURO STOXX ESG Leaders 50, FTSE EPRA/NAREIT Developed Europe, and GPR 250 World. Vonovia has a workforce of approximately 12,500 employees.
 
- “As AI workloads become more compute-intensive, having a cost-optimized domestic data center network becomes a competitive advantage,” Leath noted. “A Tennessee presence allows us to support both our internal AI offerings and new enterprise clients with secure, flexible, and cost-efficient infrastructure.”
+ Additional features:File: [Katja Wünschel_Fotograf_RWE_André_Laaks APPROVED FOR EDITORIAL USE.](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=8528b0a3244955a425786924cea9635f&application_id=2242450&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
 
- About Mitesco, Inc.
+ 
 
- Mitesco (OTC: MITI) is a growth-oriented technology company focused on platforms that improve efficiency, access, and affordability. With deep experience in business transformation, the company deploys capital toward both organic initiatives and strategic acquisitions that enhance shareholder value.
-
- Investor Contact:Jimmy CaplanEmail: jimmycaplan@me.comPhone: (512) 329-9505
-
- About Centcore Data Center
-
- Centcore, a division of Mitesco, Inc., provides secure, scalable cloud services tailored to modern enterprise and public sector needs. Centcore is a trusted provider across industries, offering certified infrastructure and high-availability solutions.
-
- See www.centcoreusa.com or contact:
-
- Brian ValaniaEmail: bvalania@centcoreusa.comPhone: (610) 888-7509
-
- About Vero Technology Ventures
-
- Our venture arm invests in productivity-driven cloud technologies designed for business and government applications. Areas of focus include infrastructure, process automation, analytics, and data center tooling. Entrepreneurs seeking capital and collaboration are invited to connect via email at: info@mitescoinc.com.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements, including, but not limited to, statements related to the expansion into new operations and software application development and managed services. Words such as "expects," "anticipates," "aims," "projects," "intends," "plans," "believes," "estimates," "seeks," "assumes," "may," "should," "could," "would," "foresees," "forecasts," "predicts," "targets," "commitments," and variations of such words and similar expressions are intended to identify such forward-looking statements. We caution you that the foregoing may not include all the forward-looking statements made in this press release.
-
- These forward-looking statements are based on the Company's current plans, assumptions, beliefs, and expectations. Forward-looking statements are subject to the occurrence of many events outside of the Company's control. Actual results and the timing of events may differ materially from those contemplated by such forward-looking statements due to numerous factors that involve substantial known and unknown risks and uncertainties. These risks and uncertainties include, among other things, the ability to obtain additional financing; the risk that commenced and threatened litigation may result in material judgments against the Company; and other risks and uncertainties included in the Company's reports on Forms 10-K, 10-Q, and 8-K and in other filings the Company makes with the Securities and Exchange Commission from time to time, available at www.sec.gov. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/mitesco-s-centcore-sets-sights-on-tennessee-for-data-center-expansion-possible-acquisitions-and-ai-7084526)
+[Original/Source Press Release](https://www.newmediawire.com/news/vonovia-supervisory-board-appoints-katja-wunschel-as-chief-development-officer-and-renews-ruth-werhahn-s-contract-ahead-of-schedule-7084529)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mitesco-s-centcore-eyes-tennessee-for-low-cost-data-center-expansion/0ade75869fa2ed347f7d910db9cbeee2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vonovia-appoints-new-cdo-renews-chro-contract-in-strategic-leadership-move/72a20f97087fa7ab29605a458e349359) 
 
  
 
@@ -69,4 +50,4 @@ VERO BEACH, FL - December 9, 2025 (NEWMEDIAWIRE) - Mitesco, Inc. (OTC-QB: MITI) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/9/dualthpE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/9/tileOzd_.webp)
