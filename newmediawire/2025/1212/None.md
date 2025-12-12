@@ -1,57 +1,27 @@
-# Arctic Plunge to Bring Sub-zero Temps and Snow; Take Extra Care to Stay Heart Healthy
+# Forward Industries (FWDI) Reports Fiscal 2025 Results Reflecting Early Momentum in Solana Treasury Strategy
 
-DALLAS - December 12, 2025 (NEWMEDIAWIRE) - A significant Arctic blast expected to hit the U.S. starting later this week will bring the coldest air of the season, dangerous wind, heavy snow - and the risk of heart issues - to those living in communities from the Great Plains to the Great Lakes. The exertion of shoveling snow in extreme cold can be deadly. According to the American Heart Association, the world’s leading nonprofit organization focused on heart and brain health for all, research shows that the exertion of shoveling snow may lead to an increased risk of a heart attack or sudden cardiac arrest.
+LOS ANGELES, CA - December 12, 2025 (NEWMEDIAWIRE) - Forward Industries (NASDAQ: FWDI), the leading Solana treasury company, today reported financial results for the twelve months ended Sept. 30, 2025, noting that despite less than one month of activity under its new Solana treasury strategy, the Company generated approximately $4.6 million in staking revenue during the fourth quarter and continues building toward long-term SOL-per-share growth. Fiscal 2025 net revenue was $18.2 million versus $20.0 million in the prior year, with operating expenses of $13.6 million compared to $7.3 million, and results reflecting a $160 million non-cash, unrealized mark-to-market loss on SOL holdings required under current accounting standards.
 
- The American Heart Association’s 2020 scientific statement, Exercise-Related Acute Cardiovascular Events and Potential Deleterious Adaptations Following Long-Term Exercise Training: Placing the Risks Into Perspective–An Update, notes snow shoveling among the physical activities that may place extra stress on the heart, especially among people who aren’t used to regular exercise. Numerous scientific research studies over the years have identified the dangers of shoveling snow for people with and without known heart disease.
+ To view the full press release, visit https://ibn.fm/jmd0Q
 
- “If you’ve ever taken a treadmill stress test or seen one on TV, imagine that same strain on your heart while you are trying to clear your driveway of heavy snow,” said, Stacey E. Rosen, M.D., FAHA, volunteer president of the American Heart Association and senior vice president of women’s health and executive director of the Katz Institute for Women’s Health of Northwell Health in New York City. “That strain combined with the arctic cold expected this winter could lead to a heart-related emergency - especially for those who aren’t physically fit or people with existing heart conditions.”
+ About Forward Industries, Inc.
 
- Rosen says someone who’s not as active during the year and then picks up a snow shovel in the winter may not realize the extreme cold and exertion forces your heart to work harder, sometimes dangerously harder.
+ Forward Industries, Inc. is a global design company serving top tier medical and technology companies. For over 60 years the company has been successful in developing and producing a portfolio of outstanding products for some of the world’s leading companies and brands. In September 2025, Forward Industries initiated a Solana treasury strategy dedicated to acquiring SOL and increasing SOL-per-share through bespoke strategies and active management of the company’s treasury. The Company’s Solana treasury strategy is supported by industry leading investors and operating partners, including Galaxy Digital, Jump Crypto, and Multicoin Capital. For more information on the Company’s Solana treasury strategy, visit sol.forwardindustries.com.
 
- * Shoveling is primarily arm work, which is harder on the heart than leg work.
-* Lifting heavy loads often causes people to hold their breath without realizing it, spiking heart rate and blood pressure.
-* Cold air constricts blood vessels throughout the body, raising blood pressure and tightening coronary arteries.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- The risk is even greater for people with cardiovascular concerns such as a sedentary lifestyle, obesity, smoking history, diabetes, high cholesterol, high blood pressure, or a prior heart attack, stroke or other cardiac condition. Talk to your doctor about any limitations on your winter activities based on your heart health.
+ Forward Looking Statements
 
- Tips to reduce increased risk from snow shoveling:
-
- * If you have known or suspected heart disease or risk factors for heart disease, get someone else to do your snow removal for you!
-* If you must shovel the snow, start gradually and pace yourself. Always cover your mouth and nose, wear layered clothing, as well as a hat and gloves.
-* Ideally, push or sweep the snow rather than lifting and throwing it, that action involves a little less exertion.
-* Be extra careful when the wind is blowing, the wind makes the temperature feel even colder than it is and will increase the effects of the cold on your body.
-* If you are able, use an automated snow blower rather than shoveling. While you should still proceed with caution and be mindful of how your body is feeling, research shows that using a snow blower doesn’t raise your heart rate quite as high as shoveling.
-
- The American Heart Association urges everyone to learn the common signs of a heart attack and stroke. If you experience chest pain or pressure, lightheadedness or heart palpitations or irregular heart rhythms, stop the activity immediately. Call 9-1-1 if symptoms don’t subside shortly after you stop shoveling or snow blowing. If you see someone collapse while shoveling snow, call for help and start Hands-Only CPR if they are unresponsive with no pulse.
-
- Learn more about cold weather and cardiovascular disease heart.org.
-
- Additional Resources:
-
- * Multimedia available on the right column of the release link.
-* Spanish news release
-* AHA health information: Cold Weather and Cardiovascular Disease
-* AHA health information: How to Stay Active in Cold Weather
-* AHA health information: Emergency Treatment of Cardiac Arrest
-* Journal of the American Medical Association manuscript: Cardiac Demands of Heavy Snow Shoveling
-* Follow us on X @HeartNews
-
- About the American Heart AssociationThe American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173 or AHAcommunications@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/arctic-plunge-to-bring-sub-zero-temps-and-snow-take-extra-care-to-stay-heart-healthy-7084568)
+[Original/Source Press Release](https://www.newmediawire.com/news/forward-industries-fwdi-reports-fiscal-2025-results-reflecting-early-momentum-in-solana-treasury-strategy-7084575)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/arctic-blast-brings-heart-attack-risk-aha-warns-on-snow-shoveling-dangers/9d8f4b13b6cb16b9824064e541ac41cd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forward-industries-reports-4-6m-in-solana-staking-revenue-in-fiscal-2025/27d587f118d8659306af48959b7e4e52) 
 
  
 
@@ -59,4 +29,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/12/wamcXWUf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/12/poemTdqW.webp)
