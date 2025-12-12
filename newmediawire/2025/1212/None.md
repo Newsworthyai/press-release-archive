@@ -1,61 +1,57 @@
-# HKTDC 4Q25 Export Confidence Index: 2026 Hong Kong Export Growth of 8-9%, Sustained AI product Demand Lays Solid Foundation for Future Expansion
+# Arctic Plunge to Bring Sub-zero Temps and Snow; Take Extra Care to Stay Heart Healthy
 
-HONG KONG - December 11, 2025 (NEWMEDIAWIRE) - Hong Kong’s exports are expected to grow by between 8% and 9% in 2026, according to figures releaased today by the Hong Kong Trade Development Council (HKTDC). The forecast forms part of the HKTDC’s annual Export Outlook report and follows on from the city’s better-than-anticipated 2025 export performance.
+DALLAS - December 12, 2025 (NEWMEDIAWIRE) - A significant Arctic blast expected to hit the U.S. starting later this week will bring the coldest air of the season, dangerous wind, heavy snow - and the risk of heart issues - to those living in communities from the Great Plains to the Great Lakes. The exertion of shoveling snow in extreme cold can be deadly. According to the American Heart Association, the world’s leading nonprofit organization focused on heart and brain health for all, research shows that the exertion of shoveling snow may lead to an increased risk of a heart attack or sudden cardiac arrest.
 
- For 2026, this sustained growth is set to be driven by robust demand for AI-related electronics products. According to the findings of the recently-released HKTDC 4Q25 Export Confidence Index, the majority of exporters (53.2%) see rising demand for AI/new technology-related electronic consumer goods as the factor most likely to boost their 2026 business. This is seen as crucial given that the electronics sector, overall, accounts for more than 70% of Hong Kong’s total export value.
+ The American Heart Association’s 2020 scientific statement, Exercise-Related Acute Cardiovascular Events and Potential Deleterious Adaptations Following Long-Term Exercise Training: Placing the Risks Into Perspective–An Update, notes snow shoveling among the physical activities that may place extra stress on the heart, especially among people who aren’t used to regular exercise. Numerous scientific research studies over the years have identified the dangers of shoveling snow for people with and without known heart disease.
 
- Heightened uncertainty giving way to greater clarity
+ “If you’ve ever taken a treadmill stress test or seen one on TV, imagine that same strain on your heart while you are trying to clear your driveway of heavy snow,” said, Stacey E. Rosen, M.D., FAHA, volunteer president of the American Heart Association and senior vice president of women’s health and executive director of the Katz Institute for Women’s Health of Northwell Health in New York City. “That strain combined with the arctic cold expected this winter could lead to a heart-related emergency - especially for those who aren’t physically fit or people with existing heart conditions.”
 
- These upbeat figures are remarkable given the high year-on-year comparison base from 2025. This is because many exporters sought to frontload orders in a bid to complete shipments before the imposition of the much-anticipated US tariffs.
+ Rosen says someone who’s not as active during the year and then picks up a snow shovel in the winter may not realize the extreme cold and exertion forces your heart to work harder, sometimes dangerously harder.
 
- Detailing the upshot of the tariff-related trade upheavals in particular, Irina Fan, Director of HKTDC Research, said: “While 2025 proved to be a year of heightened uncertainty, 2026 should be a year of greater clarity on global trade. With the Chinese Mainland and the US having come to a trade agreement in November, - some four months after many other nations had struck their own deals with the Trump administration - US tariffs are no longer among Hong Kong exporters' three biggest 2026 concerns.”
+ * Shoveling is primarily arm work, which is harder on the heart than leg work.
+* Lifting heavy loads often causes people to hold their breath without realizing it, spiking heart rate and blood pressure.
+* Cold air constricts blood vessels throughout the body, raising blood pressure and tightening coronary arteries.
 
- Fan did, however, acknowledge that uncertainties remain ahead. She said that as US imports from different countries are subject to different levels of tariffs, business leaders around the world will be looking to re-organise their activities to optimise any cost advantages.
+ The risk is even greater for people with cardiovascular concerns such as a sedentary lifestyle, obesity, smoking history, diabetes, high cholesterol, high blood pressure, or a prior heart attack, stroke or other cardiac condition. Talk to your doctor about any limitations on your winter activities based on your heart health.
 
- Outlining what this will mean within the Asia-Pacific region, Fan said: “Chinese Mainland exports to the US will be subject to 20% reciprocal tariff rate until November 2026 [1]. This comparatively low additional tariff puts China-based suppliers, many with more mature and highly productive supply chains, on par with their Southeast Asia counterparts, while giving them a significant advantage over any country subject to a higher tariff rate.”
+ Tips to reduce increased risk from snow shoveling:
 
- Multi-sector expectation of continued export expansion
+ * If you have known or suspected heart disease or risk factors for heart disease, get someone else to do your snow removal for you!
+* If you must shovel the snow, start gradually and pace yourself. Always cover your mouth and nose, wear layered clothing, as well as a hat and gloves.
+* Ideally, push or sweep the snow rather than lifting and throwing it, that action involves a little less exertion.
+* Be extra careful when the wind is blowing, the wind makes the temperature feel even colder than it is and will increase the effects of the cold on your body.
+* If you are able, use an automated snow blower rather than shoveling. While you should still proceed with caution and be mindful of how your body is feeling, research shows that using a snow blower doesn’t raise your heart rate quite as high as shoveling.
 
- Underpinning Hong Kong’s anticipated 2026 export expansion are the findings of the HKTDC Export Confidence Index 4Q25, which was also released today. The two key measures of this long-established quarterly metric - the Current Performance Index (51.4) and the Expectation Index (51.9) - have both stayed above the 50-point watershed level, a clear indication that future export growth is expected.
+ The American Heart Association urges everyone to learn the common signs of a heart attack and stroke. If you experience chest pain or pressure, lightheadedness or heart palpitations or irregular heart rhythms, stop the activity immediately. Call 9-1-1 if symptoms don’t subside shortly after you stop shoveling or snow blowing. If you see someone collapse while shoveling snow, call for help and start Hands-Only CPR if they are unresponsive with no pulse.
 
- Commenting on the findings of the 4Q25 survey, Kenneth Lee, Head of the HKTDC Research’s Special Project and Business Advisory Section, said: “When it comes to expansion plans over the next two-year period, Asia remains very much the focus. For 42.0% of respondents, the Chinese Mainland was the highest priority market, followed by the rest of Asia (30.3%) and the ASEAN bloc (18.9%). By industry, exporters in almost every sector saw scaling up their activities on the Chinese Mainland as their priority.”
+ Learn more about cold weather and cardiovascular disease heart.org.
 
- Beyond the headline findings of the survey, a more detailed analysis highlights good news for Hong Kong exporters in terms of both individual market prospects and the likely future success of most of the city’s key industry sectors.
+ Additional Resources:
 
- Positive sentiments for major markets and key industry sectors
+ * Multimedia available on the right column of the release link.
+* Spanish news release
+* AHA health information: Cold Weather and Cardiovascular Disease
+* AHA health information: How to Stay Active in Cold Weather
+* AHA health information: Emergency Treatment of Cardiac Arrest
+* Journal of the American Medical Association manuscript: Cardiac Demands of Heavy Snow Shoveling
+* Follow us on X @HeartNews
 
- In specific terms, turning to the Market Expectation Sub-Index, the Chinese Mainland (57.2) and the ASEAN bloc (57.0) are still considered to have significant growth potential. Predictably, this was less the case for the US (down 1.4 to 38.0), with the uncertainties in its trade environment continuing to unsettle Hong Kong exporters.
+ About the American Heart AssociationThe American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- Turning to individual industries, a number of sectors have expansionary expectations for the year ahead (i.e. had a relevant index reading of 50 or more). Topping the list is Jewellery (54.8), followed by Electronics (52.4), Timepieces (51.6) and Equipment/Materials (51.1).
+ For Media Inquiries: 214-706-1173 or AHAcommunications@heart.org
 
- Despite such overall positive sentiments, the survey also points out the possibility that a number of challenges may lie ahead. Most notably, it cited rising labour and production costs (53.9%), growing logistics challenges (38.8%) and declining overseas orders on account of the general economic slowdown (38.2%) as potential future concerns.
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
- [1] On top of Trump 1.0 tariffs of ~20% on average.
-
- References
-
- * Hong Kong 2026 Export Outlook: Sustained AI Product Demand Set to Drive 8-9% Growth Over Coming Year:https://research.hktdc.com/en/article/MjE4ODc2Mzk2Nw
-* HKTDC Export Confidence Index 4Q25: End-of-Year Figures Indicate Positive Expansion Prospects:https://research.hktdc.com/en/article/MjE4ODYyNTQwNw
-* HKTDC Research website: https://research.hktdc.com/en/
-
- Photo download: https://bit.ly/4oJPrPR
-
- Media enquiries
-
- HKTDC Communication and Public Affairs Department: Navin Law, t: +852 2584 4525, e: navin.cm.law@hktdc.comAgnes Wat, t: +852 2584 4554, e: agnes.ky.wat@hktdc.com
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in Mainland China, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-4q25-export-confidence-index-2026-hong-kong-export-growth-of-8-9-sustained-ai-product-demand-lays-solid-foundation-for-future-expansion-7084564)
+[Original/Source Press Release](https://www.newmediawire.com/news/arctic-plunge-to-bring-sub-zero-temps-and-snow-take-extra-care-to-stay-heart-healthy-7084568)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-exports-to-grow-8-9-in-2026-fueled-by-ai-demand/0c817b4a91b8a00a5afa3dd0683912c9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arctic-blast-brings-heart-attack-risk-aha-warns-on-snow-shoveling-dangers/9d8f4b13b6cb16b9824064e541ac41cd) 
 
  
 
@@ -63,4 +59,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/12/pearH1Sa.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/12/wamcXWUf.webp)
