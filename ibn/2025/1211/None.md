@@ -1,38 +1,40 @@
-# Gold Stutters as Bond Yields Tick Upwards
+# 420 with CNW — Seed Ban in America Threatens to Drive Marijuana Genetics Underground
 
-The start of the week saw prices of both silver and gold drop as treasury yields rose ahead of a policy announcement by the Federal Reserve. Silver dropped to $58.12 an ounce, representing a 0.4% decrease. At the same time, gold dropped by 0.1% while palladium and platinum prices rose.
+For the first time in six years, the U.S. is preparing to tighten rules on cannabis seeds after lawmakers inserted a last-minute clause into the recent federal spending package that reopened the government. Industry specialists warn that the change could wipe out the domestic seed market and reverse years of lenient oversight.
 
- All eyes will be on the Fed to digest whatever guidance they provide about the possible monetary policy for the coming year. Gold industry players like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) will be following the…
+ Companies like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) headquartered outside the…
 
  Read More>>
 
- About MiningNewsWire
+ About CNW420
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- MNW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.MiningNewsWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- MiningNewsWireLos Angeles, CAwww.MiningNewsWire.com310.299.1717 OfficeEditor@MiningNewsWire.com
-
- MiningNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/gold-stutters-as-bond-yields-tick-upwards/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-seed-ban-in-america-threatens-to-drive-marijuana-genetics-underground/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-and-gold-dip-as-fed-policy-announcement-looms/8d2c51ead03f2c34e6ac42e26e807009) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-tightens-cannabis-seed-rules-threatening-domestic-market/9ade9723e2e89319b2ae10228a0382db) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/us-cannabis-seed-ban-threatens-domestic-market-and-genetic-resea/202525385)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/us-seed-ban-threatens-to-drive-marijuana-genetics-underground-re/202525385)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/11/gainQCDK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/11/silkbrvZ.webp)

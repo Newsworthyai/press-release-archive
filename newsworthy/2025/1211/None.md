@@ -1,37 +1,31 @@
-# Aerospace Entrepreneur and Veteran Joseph Kopser Discusses the Future of the Texas Space Economy
+# Vote Like a Texan Releases New Episode Featuring Daniel Betts on Strengthening Civic Engagement Across Texas
 
-Austin, Texas (Newsworthy.ai) Thursday Dec 11, 2025 @ 1:10 PM Central — In a wide-ranging interview on the Building Texas Show with host Justin McKenzie, aerospace entrepreneur and military veteran Joseph Kopser outlined a bold vision for the state’s workforce, specifically highlighting the booming space industry, rural economic revitalization, and the critical need to bridge the gap between education and industry.
+Dripping Springs, Texas (Newsworthy.ai) Thursday Dec 11, 2025 @ 5:30 PM Central — Vote Like a Texan has released a new episode featuring respected community leader Daniel Betts, Candidate for Texas Congressional District 21, diving into the future of civic engagement, community leadership, and voter participation across Texas. The episode provides practical insights for Texans seeking to better understand how local involvement directly shapes the state’s economic, cultural, and political future.
 
- Recorded at Dallas College during the recent Y Texas summit, the conversation underscored Kopser’s role as a catalyst for economic growth through his work with the Grayline Group and the newly formed Space Workforce Incubator for Texas (SWIFT).
+ In this wide-ranging conversation, Betts discusses the urgent need to remove barriers to voting, modernize civic participation, and support the next generation of Texas leaders. The interview is part of Vote Like a Texan’s ongoing effort to produce nonpartisan, accessible content designed to empower Texans to participate confidently in every election.
 
- [From the Classroom to the Cosmos](https://josephkopser.medium.com/from-the-classroom-to-the-cosmos-why-swifts-rocket-lab-matters-for-texas-and-our-future-0d435044dc05) Kopser, a West Point graduate and aerospace engineer, emphasized that while Texas is becoming a global hub for space exploration—hosting giants like SpaceX, Blue Origin, and Firefly Aerospace—the state faces a critical shortage of skilled labor required to sustain this growth.
+ “Daniel Betts brings a grounded, solutions-focused voice to the conversation about how Texas communities evolve,” said Justin McKenzie, host of Vote Like a Texan. “His experience working with diverse populations across the state highlights what happens when we prioritize trust, transparency, and accessibility in our civic systems.”
 
- “We have to have a workforce to build those rockets, to sustain life support systems, and to build spacecraft,” Kopser told McKenzie. “It’s not just about rocket science design; it’s about physically running pipes, tubes, and chambers that hold highly pressurized liquid oxygen. That takes plumbers, electricians, and welders with great skill.”
+ The episode also explores how community organizations, business leaders, and public institutions can collaborate to strengthen turnout and expand civic engagement. Betts offers actionable steps Texans can take to positively influence their communities—not only during election cycles, but year-round.
 
- To address this, Kopser co-founded SWIFT to connect 18-to-35-year-olds with vocational training and higher education, ensuring that the "Texas economic miracle" isn't stalled by a lack of skilled hands. “People will be what they can see,” Kopser noted, stressing the importance of exposing students to these career paths early.
+ Key Topics Covered in the Episode • How local leadership shapes long-term outcomes for Texas communities• The barriers Texans face when participating in elections• Practical approaches to improving civic engagement statewide• Why community trust and transparency matter more than ever• The role of technology and modern communication in reaching voters• How first-time voters can get involved with confidence
 
- Revitalizing Rural Texas through Technology The discussion also tackled the "exporting of talent" from rural Texas. Kopser argued that the combination of fiber internet expansion and emerging autonomous supply chains offers a historic opportunity to reverse the exodus of young people from small towns.
+ Why This Episode Matters Texas continues to experience rapid population growth and demographic change—creating both challenges and opportunities for civic participation. As national attention shifts toward Texas as an economic and political powerhouse, Vote Like a Texan aims to ensure residents have clear, nonpartisan resources to make informed decisions.
 
- “We experimented for 20 years with exporting everything, and we recognized the fragility of our supply chain,” said Kopser. “Now, with the reshoring of manufacturing and the ability to work remotely, you can live the quality of life you want in rural Texas while accessing the modern economy. We cannot hollow out the middle class in our small towns; we need high-paying jobs to remain alongside the service industry and retirees.”
+ This interview with Daniel Betts aligns with the organization’s mission to create accessible, educational, and community-driven content that strengthens Texas democracy.
 
- Kopser highlighted "dual-use" technologies—innovations serving both national defense and commercial sectors—as key economic drivers. He pointed to Texas-based companies like Apptronik (humanoid robotics), Saronic (autonomous watercraft), and LoCal (biochar energy) as examples of private innovation solving public problems.
+ Watch the Full Episode YouTube:Podcast Platforms: Available on Spotify, Apple Podcasts, and all major audio platforms.
 
- A Future in Public Service? Jopseph Kopser recently launched is campaign to represent Texas House District 47.
+ About Vote Like a Texan Vote Like a Texan is a nonpartisan project dedicated to empowering Texans with clear, accessible, and culturally relevant information about voting, civic engagement, and community leadership. Through interviews, storytelling, and educational resources, the platform helps residents understand how to participate effectively in shaping Texas’ future. Learn more at www.votelikeatexan.org.
 
- “The skills gap is widening, and the decisions we make today will shape Texas’ economy for decades,” Kopser stated. “The hyper-partisan politics consuming our country distract from the real work of creating jobs and giving kids a fair shot.”
-
- For those interested in providing feedback on his potential candidacy, Kopser has launched a data-driven survey to gauge constituent priorities. He continues to advocate for "people over politics" through his organization, USTomorrow.
-
- About Joseph KopserJoseph Kopser is a lifelong problem solver, Army veteran, and aerospace expert. He is the co-founder of RideScout and SWIFT, and currently serves as an executive at Grayline Group. He is a recognized leader in veteran advocacy, workforce development, and the Texas innovation ecosystem.
-
- Media Contact Monica AvilaMarketing/PR for Grayline Group254-273-4907ea@josephkopser.com 
+ Media Contact Name: Justin McKenzieOrganization: Vote Like a TexanEmail: justin@votelikeatexan.comWebsite: www.votelikeatexan.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512111972/aerospace-entrepreneur-and-veteran-joseph-kopser-discusses-the-future-of-the-texas-space-economy)
+[Original/Source Press Release](https://newsworthy.ai/news/202512111970/vote-like-a-texan-releases-new-episode-featuring-daniel-betts-on-strengthening-civic-engagement-across-texas)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kopser-s-vision-bridging-texas-s-skills-gap-for-space-rural-revitalization/7bc1f9f89cc72e9a435e52e6967a1f52) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-leader-daniel-betts-talks-civic-engagement-on-vote-like-a-texan/f3143e8ced4e6a578d5aec6ba08239a1) 
 
  
 
@@ -39,4 +33,4 @@ Austin, Texas (Newsworthy.ai) Thursday Dec 11, 2025 @ 1:10 PM Central — In a w
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/11/tint8fYA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/11/lime5O_f.webp)
