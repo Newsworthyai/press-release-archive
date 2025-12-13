@@ -1,38 +1,31 @@
-# GlobalTech Corp. (GLTK) Acquiring, Building, and Collaborating with Scalable Tech Platforms, Obtaining Interest in a Premium UK Footwear Brand
+# 420 with CNW — Judge Rejects Request to Halt Implementation of New Michigan Cannabis Taxes
 
-* GlobalTech Corp. is a tech holding company focusing on companies and platforms across AI, big data, and the overall digital infrastructure
-* The company is committed to not only acquiring tech-centric assets with strong growth potential, but also helping them succeed with access to capital, better technology, and more
-* The GLTK portfolio spans a variety of industries, such as digital lending, e-commerce, HR, sports management, and others
-* The company recently announced of a 51% interest in Moda in Pelle (“MIP”), a premium UK footwear brand
+A Michigan court has refused to pause the state’s newly approved 24% tax on wholesale marijuana, clearing the way for the levy to begin on January 1, 2026. The decision, issued by Court of Claims Judge Sima Patel, was closely watched by marijuana companies and policymakers who have debated for months whether the Legislature overstepped its authority when it added the tax to this year’s budget.
 
- GlobalTech (OTC: GLTK), a technology holding company focused on acquiring, developing, and scaling AI, big data, and digital infrastructure platforms, is committed to supporting high-potential assets and accelerating their growth through access to capital markets and emerging technologies.
-
- This vision goes hand-in-hand with GLTK’s mission to leverage the company’s expertise and a strong network to invest in companies with high business potential and robust operations already in…
+ Companies like Cresco Labs Inc. (CSE: CL) (OTCQX: CRLBF) with operations in…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to GLTK are available in the company’s newsroom at ibn.fm/GLTK
+ About CNW420
 
- About TechMediaWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.TechMediaWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWireLos Angeles, CAwww.TechMediaWire.com310.299.1717 OfficeEditor@TechMediaWire.com
-
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/globaltech-corp-gltk-acquiring-building-and-collaborating-with-scalable-tech-platforms-obtaining-interest-in-a-premium-uk-footwear-brand/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-judge-rejects-request-to-halt-implementation-of-new-michigan-cannabis-taxes/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/globaltech-acquires-majority-stake-in-premium-uk-footwear-brand-mip/a986e7c27c88a87fccbf351718c17cba) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michigan-court-upholds-24-cannabis-tax-effective-january-2026/df64110cbc3ba67461ebfcceb482fe60) 
 
  
 
@@ -40,4 +33,4 @@
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/12/chipmnlr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/12/waitNCHT.webp)
