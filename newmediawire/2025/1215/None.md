@@ -1,85 +1,59 @@
-# Combination Pills for High Blood Pressure may Simplify Treatment, Improve Long-term Health
+# Critical Infrastructure Technologies Provides Nexus Production Update
 
-Statement Highlights:
+VANCOUVER, BC - December 15, 2025 (NEWMEDIAWIRE) - Critical Infrastructure Technologies Ltd. (CSE: CTTT) (OTC: CITLF) (FRA: X9V) (“CiTech” or the “Company”), a leading developer of autonomous, high-capacity mobile communications and security platforms, is pleased to provide an update on the production and delivery schedule for the first 2 of the Nexus20.
 
- * Single-pill medications that combine two or more blood pressure medications could simplify treatment to help more adults with high blood pressure achieve target blood pressure levels faster and maintain blood pressure goals long-term compared with patients taking multiple, separate pills daily.
-* The use of combination medications is linked to a lower risk of heart attack, stroke, heart failure-related hospitalizations and death, as well as to improved quality of life and reduced long-term costs for patients and the health care system.
-* More research is needed to understand the impact of single-pill combination medications for people with higher cardiovascular risks - people with resistant or secondary hypertension, or other chronic conditions such as kidney disease, Type 1 or Type 2 diabetes or heart failure, according to the new scientific statement.
+ Nexus 1
 
- DALLAS - December 15, 2025 (NEWMEDIAWIRE) - Taking one pill that combines two or more blood pressure medications may help adults with high blood pressure (also known as hypertension) lower their blood pressure level faster and more effectively than taking multiple medications separately, and it may also reduce the risk of heart attack and stroke, according to a new scientific statement published today in the American Heart Association’s journal Hypertension.
+ Military green, being delivered to our assembly facility in South Fremantle for final fit-off and testing late December 2025
 
- The new scientific statement, Single-Pill Combination Therapy for the Management of Hypertension, details the latest clinical evidence surrounding the use of single-pill combination medications for patients with high blood pressure, strategies to implement single-pill combinations into clinical practice and knowledge gaps that require further investigation.
+ Nexus 2
 
- According to the 2025 American Heart Association Statistical Update, nearly half of U.S. adults, about 122 million people, have high blood pressure, defined as blood pressure measures equal to or higher than 130/80 mm Hg. High blood pressure is the #1 modifiable risk factor for cardiovascular disease and it is a leading cause of heart attack, stroke, heart failure, kidney disease, cognitive decline and dementia. The recently published 2025 AHA/ACC High Blood Pressure Guideline recommends combining healthy lifestyle behaviors and early treatment with one or more blood pressure medications to lower blood pressure, if necessary. For people with blood pressure levels 140/90 mm Hg or higher (stage 2 hypertension), the guideline recommends beginning treatment with two medications at once – preferably in a single combination pill.
+ Yellow with red and white mast, being delivered to our assembly facility in South Fremantle for final fit-off and testing early January 2026.
 
- “Most people with high blood pressure need two or more blood pressure medications to reach target blood pressure measurements; however, taking multiple pills each day can be confusing or hard to keep up with,” said Jordan B. King, Pharm.D., M.S., chair of the scientific statement writing group and an associate professor of population health sciences at the University of Utah in Salt Lake City. “Single-pill combination pills are valuable tools to manage high blood pressure. Individuals taking a single combination pill are able to achieve optimal blood pressure levels sooner than peers who take the same medications in separate pills.”
+ Upon arrival, each Nexus unit will undergo a final fit-out process of approximately four weeks, integrating advanced communications, surveillance, and control systems.
 
- The statement authors note that single-pill combination medications are not the same as a “polypill.” Single-pill combination medications combine two or more blood pressure medications into a single pill, whereas polypills combine one or more blood pressure medications with statins (cholesterol-lowering medication) and/or aspirin. Polypills aim to reduce cardiovascular risk for patients requiring multiple preventive therapies.
+ Following completion, demonstrations will be conducted with strong commercial interest already evident across all markets.
 
- There are several types of effective medications to treat high blood pressure, including angiotensin-converting enzyme (ACE) inhibitors, angiotensin II receptor blockers (ARBs), calcium channel blockers and thiazide-type diuretics which are first-line recommended medications. However, less than 50% of U.S. adults who have been diagnosed with and are being treated for high blood pressure achieve the recommended blood pressure goal of less than 130/80 mm Hg.
+ “The continued progress of the Nexus production program highlights the scalability of our platform and the global demand for rapidly deployable infrastructure solutions,” said Brenton Scott, CEO, CiTech. “With production ramping up and international deployment now underway, we are entering a pivotal phase in demonstrating the versatility and capability of the Nexus system.”
 
- “High blood pressure is challenging to manage for many people, and many people do not take their medication consistently. They may not be aware that untreated high blood pressure increases their risk of developing heart disease and other cardiovascular conditions - and that achieving and maintaining target blood pressure can significantly reduce their risk,” King said.
+ PRODUCTION PHOTOS
 
- Benefits of Combination Medications
+ Military Green
 
- * Simplified, faster treatment: A step-by-step prescribing approach involving multiple pills and adjusting doses takes time to achieve blood pressure targets. It is easier for people to consistently take medications as directed when there are fewer pills to manage. Using a single-pill combination medication of two or more blood pressure-lowering medications may simplify the process and help adults with high blood pressure reach target blood pressure levels more quickly.
+ Image
 
- * Streamlined prescribing: Single-pill combinations streamline the prescribing process for clinicians by helping to reduce uncertainty around which medications to start and at what dosage. For most people with high blood pressure that requires medications, which could include some with stage 1 hypertension, the statement encourages clinicians to start with the preferred choice of a combination pill: either an ACE inhibitor or an ARB plus a calcium channel blocker.
+ Yellow (Red and white mast)
 
- * Improved long-term heart health: Observational studies with follow-up periods ranging from 1-5 years have linked single-pill combination medication use with a 15%-30% lower risk of major adverse cardiovascular events, such as heart attack, stroke, heart failure-related hospitalizations and death. Prevention of cardiovascular events is also linked to a longer and improved quality of life.
+ Image
 
- * Lower Costs: According to the American Heart Association’s 2025 Heart Disease and Stroke Statistics, the annual direct and indirect costs of cardiovascular disease in the United States were an estimated $417.9 billion. Improving blood pressure control could help lower health care costs for patients and health care organizations over time. Recent studies have found that combination pills are more cost-effective than taking the same medications in separate pills.
+ Image
 
- Barriers to Widespread Adoption
+ Image
 
- * Prescriber awareness and concerns: Clinicians may have limited awareness of available combination therapies. Concerns about reduced flexibility in dosage adjustments have been also identified as a barrier to prescribing single-pill medications. Some clinicians prefer separate pills because it allows easier adjustment or discontinuation of an individual medication if adverse side effects occur.
+ On Behalf of the Board of Directors:
 
- * Affordability and accessibility: Use of single-pill combination medications may be restricted by health insurance coverage and higher out-of-pocket costs for patients. Many insurers, including Medicare and Medicaid, continue to require the use of equivalent combinations prescribed as separate pills, despite the growing body of evidence demonstrating the cost-effectiveness of combination medications. Streamlining insurance coverage processes and lowering copayments for single-pill medications could help expand access for people with high blood pressure.
+ Brenton ScottDirector & Chief Executive OfficerCritical Infrastructure Technologies Ltd.Brenton.s@citech.com.au +61 411 751 191
 
- * Limited evidence for high-risk populations: More research is needed to evaluate the safety and effectiveness of single-pill combination medications for people at higher risk of cardiovascular disease, such as individuals with resistant or secondary hypertension, chronic kidney disease, Type 1 or Type 2 diabetes or heart failure and older adults. Studies examining the efficacy of single-pill combinations among higher-risk groups will better inform treatment in more complex cases and help guide clinical decision-making in the future.
+ About Critical Infrastructure Technologies Ltd.
 
- Currently, there are approximately 200 unique combinations of blood pressure medications used by patients in the U.S. The four most commonly used medications are currently available as single-pill combinations. Expanding options for the medications combined within single-pill combination medications and developing additional triple and quadruple combinations may further simplify treatment and improve patient outcomes, the statement notes.
+ Listed on the CSE with operations in Perth, Western Australia, CiTech is creating autonomous, high capacity, rapidly deployable technology that delivers essential services to where they are needed most. CiTech is targeting the mining, defence, border security/surveillance and emergency services sectors in relation to its first product release, the Nexus 16 and the recently released Nexus 20/24, which aims to provide critical mobile telecommunications, together with integrated C-UAS, ISR and radio for such sectors. Using patented technologies, CiTech’s self-deploying platform (SDP) provides a solution for two of the greatest limitations of current rapidly deployable communication solutions, strength of the tower and ability to rapidly self-deploy and operate, in numerous situations. The SDP is designed to support radio equipment including LTE (Long Term Evolution) and several other technological payloads, such as surveillance and anti-drone systems. CiTech has completed the research and development phase and is currently commercialising the first of many products that will be released. To learn more about the Company, visit www.citech.com.au.
 
- “If single-pill combinations were the norm rather than the exception, there could be a meaningful improvement in blood pressure control across the population, which could significantly reduce the risk of heart attacks and strokes. In the long run, better blood pressure control lowers health care costs for patients and society, enhances quality of life and improves health outcomes for the millions of people with high blood pressure,” King said.
+ Neither the CSE nor its Regulation Services Provider (as that term is defined in the policies of the CSE) accepts responsibility for the adequacy or accuracy of this release.
 
- This scientific statement was prepared by the volunteer writing group on behalf of the American Heart Association’s Council on Hypertension; the Council on Cardiovascular and Stroke Nursing; and the Council on Clinical Cardiology. American Heart Association scientific statements promote greater awareness about cardiovascular diseases and stroke issues and help facilitate informed health care decisions. Scientific statements outline what is currently known about a topic and what areas need additional research. While scientific statements inform the development of guidelines, they do not make treatment recommendations. American Heart Association guidelines provide the Association’s official clinical practice recommendations.
+ FORWARD-LOOKING INFORMATION
 
- Co-authors are Vice-Chair Robert D. Brook, M.D.; Jaejin An, B.Pharm., Ph.D.; Brandon K. Bellows, Pharm.D., M.S.; Jordana B. Cohen, M.D., M.S.C.E., FAHA; Yvonne Commodore-Mensah, Ph.D., M.H.S., R.N., FAHA; Lama Ghazi, M.D., Ph.D.; and Aisha T. Langford, Ph.D. Authors’ disclosures are listed in the manuscript.
+ This news release contains “forward-looking information” and “forward-looking statements” (collectively, “forward-looking information”) within the meaning of applicable securities laws. Forward-looking information is generally identifiable by use of the words “believes,” “may,” “plans,” “will,” “anticipates,” “intends,” “could”, “estimates”, “expects”, “forecasts”, “projects” and similar expressions, and the negative of such expressions. Forward-looking information in this news release.
 
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- Additional Resources:
-
- * Available multimedia is on right column of release link.
-* Spanish news release
-* After Dec. 15, 2025, view the manuscript online.
-* American Heart Association news release: New high blood pressure guideline emphasizes prevention, early treatment to reduce CVD risk (Aug. 2025)
-* American Heart Association news release: Heart disease remains leading cause of death as key health risk factors continue to rise (Jan. 2025)
-* American Heart Association health information: High Blood Pressure and High Blood Pressure Resources
-* American Heart Association health initiative: Target: BPTM
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the American Heart Association’s Hypertension journal @HyperAHA
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Amanda Ebert: Amanda.Ebert@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the Company’s actual results, level of activity, performance or achievements to be materially different from those expressed or implied by such forward-looking information. Forward-looking information is based on the reasonable assumptions, estimates, analysis and opinions of management made in light of its experience and perception of trends, current conditions and expected developments, and other factors that management believes are relevant and reasonable in the circumstances at the date such statements are made. Although the Company has attempted to identify important factors that could cause actual results to differ materially from those contained in forward-looking information, there may be other factors that cause results not to be as anticipated. There can be no assurance that such information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such information. All forward-looking information herein is qualified in its entirety by this cautionary statement, and the Company disclaims any obligation to revise or update any such forward-looking information or to publicly announce the result of any revisions to any of the forward-looking information contained herein to reflect future results, events or developments, except as required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/combination-pills-for-high-blood-pressure-may-simplify-treatment-improve-long-term-health-7084590)
+[Original/Source Press Release](https://www.newmediawire.com/news/critical-infrastructure-technologies-provides-nexus-production-update-7084595)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/single-pill-combo-therapy-revolutionizes-high-blood-pressure-treatment/84273da63831db7451d1f510e9b41591) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citech-advances-nexus20-production-with-first-units-set-for-delivery/f0f34203b167116b1b969faf6acd84c7) 
 
  
 
@@ -87,4 +61,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/glue__jh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/zestpXCU.webp)
