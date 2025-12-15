@@ -1,59 +1,25 @@
-# Critical Infrastructure Technologies Provides Nexus Production Update
+# Profit Momentum Builds for Beeline Holdings (BLNE) as Next-Gen Platform Accelerates
 
-VANCOUVER, BC - December 15, 2025 (NEWMEDIAWIRE) - Critical Infrastructure Technologies Ltd. (CSE: CTTT) (OTC: CITLF) (FRA: X9V) (“CiTech” or the “Company”), a leading developer of autonomous, high-capacity mobile communications and security platforms, is pleased to provide an update on the production and delivery schedule for the first 2 of the Nexus20.
+LOS ANGELES, CA - December 15, 2025 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE), a fast-growing digital mortgage platform redefining the path to homeownership, recently marked a key accomplishment, with its lending entity generating cash-flow positivity. “The achievement, disclosed in a corporate update on November 11, positions the company to target organization-wide cash-flow positivity in the first quarter of 2026,” reads an article discussing the milestone. “The fintech lender, which focuses on mortgage and home-equity products, has spent the past year streamlining costs while ramping up demand for its AI-powered origination technology. Management noted that cost discipline and what it describes as a scalable lending model have helped move the company toward sustainable profitability… Beeline’s strategy centers on building what it calls a next-generation mortgage platform, one designed to compress the traditionally long loan-origination timeline. Its tools include AI chatbot Bob, the proprietary production engine Hive, and a suite of digital mortgage workflows accessible to both borrowers and real-estate investors.”
 
- Nexus 1
+ To view the full article, visit https://ibn.fm/KKCXJ
 
- Military green, being delivered to our assembly facility in South Fremantle for final fit-off and testing late December 2025
+ About Beeline Holdings Inc.
 
- Nexus 2
+ Beeline is a next-generation mortgage and home-equity company simplifying the path to homeownership and liquidity. By combining blockchain technology, automation, and a customer-first digital experience, Beeline makes financing a home - or unlocking its value - faster, fairer, and more transparent. For more, visit www.makeabeeline.com.
 
- Yellow with red and white mast, being delivered to our assembly facility in South Fremantle for final fit-off and testing early January 2026.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Upon arrival, each Nexus unit will undergo a final fit-out process of approximately four weeks, integrating advanced communications, surveillance, and control systems.
+ Forward Looking Statements
 
- Following completion, demonstrations will be conducted with strong commercial interest already evident across all markets.
-
- “The continued progress of the Nexus production program highlights the scalability of our platform and the global demand for rapidly deployable infrastructure solutions,” said Brenton Scott, CEO, CiTech. “With production ramping up and international deployment now underway, we are entering a pivotal phase in demonstrating the versatility and capability of the Nexus system.”
-
- PRODUCTION PHOTOS
-
- Military Green
-
- Image
-
- Yellow (Red and white mast)
-
- Image
-
- Image
-
- Image
-
- On Behalf of the Board of Directors:
-
- Brenton ScottDirector & Chief Executive OfficerCritical Infrastructure Technologies Ltd.Brenton.s@citech.com.au +61 411 751 191
-
- About Critical Infrastructure Technologies Ltd.
-
- Listed on the CSE with operations in Perth, Western Australia, CiTech is creating autonomous, high capacity, rapidly deployable technology that delivers essential services to where they are needed most. CiTech is targeting the mining, defence, border security/surveillance and emergency services sectors in relation to its first product release, the Nexus 16 and the recently released Nexus 20/24, which aims to provide critical mobile telecommunications, together with integrated C-UAS, ISR and radio for such sectors. Using patented technologies, CiTech’s self-deploying platform (SDP) provides a solution for two of the greatest limitations of current rapidly deployable communication solutions, strength of the tower and ability to rapidly self-deploy and operate, in numerous situations. The SDP is designed to support radio equipment including LTE (Long Term Evolution) and several other technological payloads, such as surveillance and anti-drone systems. CiTech has completed the research and development phase and is currently commercialising the first of many products that will be released. To learn more about the Company, visit www.citech.com.au.
-
- Neither the CSE nor its Regulation Services Provider (as that term is defined in the policies of the CSE) accepts responsibility for the adequacy or accuracy of this release.
-
- FORWARD-LOOKING INFORMATION
-
- This news release contains “forward-looking information” and “forward-looking statements” (collectively, “forward-looking information”) within the meaning of applicable securities laws. Forward-looking information is generally identifiable by use of the words “believes,” “may,” “plans,” “will,” “anticipates,” “intends,” “could”, “estimates”, “expects”, “forecasts”, “projects” and similar expressions, and the negative of such expressions. Forward-looking information in this news release.
-
- Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the Company’s actual results, level of activity, performance or achievements to be materially different from those expressed or implied by such forward-looking information. Forward-looking information is based on the reasonable assumptions, estimates, analysis and opinions of management made in light of its experience and perception of trends, current conditions and expected developments, and other factors that management believes are relevant and reasonable in the circumstances at the date such statements are made. Although the Company has attempted to identify important factors that could cause actual results to differ materially from those contained in forward-looking information, there may be other factors that cause results not to be as anticipated. There can be no assurance that such information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such information. All forward-looking information herein is qualified in its entirety by this cautionary statement, and the Company disclaims any obligation to revise or update any such forward-looking information or to publicly announce the result of any revisions to any of the forward-looking information contained herein to reflect future results, events or developments, except as required by law.
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/critical-infrastructure-technologies-provides-nexus-production-update-7084595)
+[Original/Source Press Release](https://www.newmediawire.com/news/profit-momentum-builds-for-beeline-holdings-blne-as-next-gen-platform-accelerates-7084598)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/citech-advances-nexus20-production-with-first-units-set-for-delivery/f0f34203b167116b1b969faf6acd84c7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-achieves-cash-flow-positivity-targets-2026-profitability/c67d0c34bc357ef449e66679ce27dd93) 
 
  
 
@@ -61,4 +27,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/zestpXCU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/glueczsw.webp)

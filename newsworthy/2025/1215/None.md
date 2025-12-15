@@ -1,31 +1,54 @@
-# Rhug Wild Beauty: Luxury, High-Efficacy Skincare From the Historic Rhug Estate in Wales — Now Available in the U.S. on OneLavi and Amazon
+# Healthipops Expands Distribution — Vitamin Lollipops for Kids Now Available on Amazon
 
-Boca Raton, Florida (Newsworthy.ai) Monday Dec 15, 2025 @ 5:00 AM Pacific — Rhug Wild Beauty, the award-winning luxury organic skincare brand created on the iconic 12,000-acre Rhug Estate in North Wales, continues its U.S. expansion with availability on both OneLavi.com and Amazon. American consumers can now experience the brand’s signature fusion of estate-grown purity, wild-foraged botanicals, and clinically relevant natural actives—an approach that has positioned Rhug Wild Beauty at the forefront of clean, efficacious skincare. The brand’s recent momentum includes national TV features on Coffee with America and American Trends & Lifestyle, further elevating its visibility in the U.S. market.
+Boca Raton, Florida (Newsworthy.ai) Monday Dec 15, 2025 @ 8:45 AM Pacific — Healthipops, the innovative wellness brand redefining children’s nutrition, announced today that its popular line of vitamin-infused lollipops is officially live on Amazon.com. The launch marks a major milestone for the fast-growing brand as it expands nationwide, giving parents across the country easy access to a fun and effective way to keep their kids healthy.
 
- Founded by Lord Robert Newborough, a pioneer in organic and regenerative farming, Rhug Wild Beauty represents a new benchmark for luxury clean beauty. “Luxury should be credible, transparent, and truly effective,” said Lord Newborough. “At Rhug Wild Beauty, our estate-grown botanicals and science-backed formulations come together to deliver skincare that is both luxurious and results-driven, and we are delighted to bring this unique experience to the U.S. through OneLavi and Amazon.”
+ Amazon represents a huge step forward for Healthipops," said Maxine Brown, co-founder of Healthipops. "It allows families everywhere to experience a product that combines taste, science, and health in one simple solution. Parents can finally feel confident their kids are getting the nutrients they need—without the struggle.
 
- Why Rhug Wild Beauty Stands Apart Estate-Grown Actives Ingredients are sourced directly from the biodiversity-rich Rhug Estate, including wild-foraged botanicals and natural elements such as mineral-rich spring water, raw honey, and beeswax. These are paired with high-performance actives selected globally for proven clinical relevance.
+ Making Nutrition Fun and Functional Healthipops was founded with a simple mission: to help parents provide essential vitamins in a form kids actually enjoy. Each lollipop is infused with key nutrients that support overall wellness, immune health, and energy—crafted with natural flavors and colored naturally.
 
- Proven Efficacy & Performance Rhug Wild Beauty formulations utilize advanced delivery systems and clinically validated natural actives to deliver visible improvements in hydration, firmness, radiance, and skin vitality. Several products—including its face cream—have undergone clinical trials demonstrating measurable results across key skin-aging factors.
+ Healthipops first gained national attention when it was featured on the television show American Trends and Lifestyle, where viewers learned how the brand merges taste with science to deliver a better way to supplement daily nutrition.
 
- Transparent, Ethical Luxury All products are COSMOS Organic certified, vegan, cruelty-free, halal, and handcrafted in the UK. The brand reflects the Rhug Estate’s commitment to sustainability, ingredient integrity, and responsible land stewardship.
+ Meeting Demand for Better-for-You Treats As families look for healthier alternatives to sugary snacks, Healthipops continues to lead the “functional treats” movement—combining fun, flavor, and nutrition in every pop. The brand’s Amazon launch ensures nationwide access to its Kids Multivitamin Lollipops, with additional formulations planned for release later this year.
 
- Where to Buy * OneLavi: https://onelavi.com
-* Amazon: https://www.amazon.com
+ Healthipops bridges the gap between what parents want and what kids enjoy," said Nick Pullin, co-founder of Healthipops. "Our Amazon launch helps us bring that mission to more families who are looking for healthy, trusted, and delicious solutions.
 
- About [Rhug Wild Beauty](https://www.rhugwildbeauty.com/) Rhug Wild Beauty is a luxury organic skincare line drawn from the biodiverse Rhug Estate in North Wales. Built on regenerative farming, wild-foraged botanicals, and proven natural actives, the collection embodies centuries of Welsh heritage and a commitment to clean, transparent beauty. For More Information: Website: https://www.rhugwildbeauty.com 
+ Healthipops on Amazon * Healthipops Kids Multivitamin Lollipops (6-Pack)
+* Healthipops Kids travel vitamin Lollipops (6-Pack)
+* Healthipops Vitamin & Mineral Lollipops Throat Soother (6-Pack)
+
+ About [Healthipops](https://www.healthipopsusa.com/) Healthipops is a family-run business based in Kent, United Kingdom, dedicated to creating innovative, natural wellness solutions for the whole family. Founded in 2019 by Nick Pullin and Maxine Brown, Healthipops Vitamin & Mineral Lollipops combine botanical extracts with essential nutrients to support immunity and soothe everyday ailments. With award-winning formulas and a commitment to high-quality, natural ingredients, Healthipops aims to become a trusted name in homeopathic wellness. For more information, visit www.healthipopsusa.com or follow Healthipops on Facebook and Instagram. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512151976/rhug-wild-beauty-luxury-high-efficacy-skincare-from-the-historic-rhug-estate-in-wales-now-available-in-the-u-s-on-onelavi-and-amazon)
+[Original/Source Press Release](https://newsworthy.ai/news/202512151978/healthipops-expands-distribution-vitamin-lollipops-for-kids-now-available-on-amazon)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rhug-wild-beauty-expands-to-u-s-via-amazon-onelavi/24c4d4b2d2211f3b21838ba8a77b15f4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healthipops-launches-vitamin-lollipops-on-amazon-nationwide/cda718d626989dde873a91be1873f261) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/healthipops-expands-nationwide-distribution-through-amazon-launc/202525487)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/340943-healthipops-expands-nationwide-distribution-through-amazon-launch)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335272-healthipops-erweitert-die-landesweite-vertriebsstrecke-durch-amazon-launch)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335247-healthipops-amplia-su-distribucion-nacional-con-el-lanzamiento-en-amazon)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/335771-healthipops-etend-sa-distribution-nationale-grace-a-son-lancement-sur-amazon)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335185-healthipops-expande-distribuicao-nacional-com-lancamento-na-amazon)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/341137-healthipops-expands-availability-to-amazon-increasing-access-to-vitamin-infused-lollipops-for-children)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/healthipops-vitamin-lollipops-expand-to-amazon-offering-nationwi/202525487)
+
+Pickup - [https://news.mcrobserver.co.uk](https://news.mcrobserver.co.uk/202512/341080-healthipops-expands-availability-to-amazon-increasing-access-to-vitamin-infused-lollipops-for-children)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/healthipops-expands-nationwide-distribution-through-amazon-launc/202525487)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/15/quitfSSB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/15/loftqsf9.webp)

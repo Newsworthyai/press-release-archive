@@ -1,14 +1,14 @@
-# InvestorNewsBreaks – GlobalTech Corp. (OTC: GLTK) Names D. Boral Capital as Strategic Advisor for Planned Moda in Pelle Acquisition
+# InvestorNewsBreaks – C3is Inc. (NASDAQ: CISS) Closes Approximately $9 Million Public Offering
 
-GlobalTech (OTC: GLTK), a U.S.-headquartered technology holding company focused on artificial intelligence, big data and emerging technologies, announced that D. Boral Capital LLC has been engaged as strategic advisor in connection with the planned acquisition of 123 Investments Limited d/b/a Moda in Pelle and to provide general financial advisory services related to the transaction. The engagement supports GlobalTech efforts to execute the proposed acquisition, which remains subject to customary agreements, conditions and regulatory compliance, with no assurance that the transaction will be completed.
+C3is (NASDAQ: CISS), a ship-owning company providing dry bulk and tanker seaborne transportation services, announced the closing of a reasonable best-efforts public offering that generated approximately $9 million in gross proceeds before fees and expenses. The offering consisted of 7,500,000 units priced at $1.20 per unit, each including one common share or a pre-funded warrant in lieu thereof, along with Class D and Class E warrants, with proceeds intended to be used for capital expenditures, including potential vessel acquisitions, working capital and general corporate purposes, and the transaction was placed by Aegis Capital Corp.
 
- To view the full press release, visit https://ibn.fm/nl9cb
+ To view the full press release, visit https://ibn.fm/1Ln7X
 
- About GlobalTech Corporation
+ About C3is Inc.
 
- GlobalTech Corporation is a U.S.-based technology holding company driving innovation across AI, big data, and frontier technologies. Through strategic partnerships, scalable platforms, and capital investments, GlobalTech seeks to empower companies and enterprises to transform industries and create value in the digital economy.
+ C3is Inc. is a ship-owning company providing dry bulk and crude oil seaborne transportation services. The Company owns four vessels, three handysize drybulk carriers with a total capacity of 97,664 deadweight tons (dwt) and an Aframax oil tanker with a cargo carrying capacity of approximately 115,800 dwt, resulting with a fleet total capacity of 213,464 dwt. C3is Inc.’s shares of Common Stock are listed on the Nasdaq Capital Market and trade under the symbol “CISS.”
 
- NOTE TO INVESTORS: The latest news and updates relating to GLTK are available in the company’s newsroom at https://ibn.fm/GLTK
+ For more information, visit https://c3is.pro/
 
  About InvestorWire
 
@@ -24,10 +24,10 @@ GlobalTech (OTC: GLTK), a U.S.-headquartered technology holding company focused 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-globaltech-corp-otc-gltk-names-d-boral-capital-as-strategic-advisor-for-planned-moda-in-pelle-acquisition/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-c3is-inc-nasdaq-ciss-closes-approximately-9-million-public-offering/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/globaltech-engages-d-boral-capital-for-moda-in-pelle-acquisition/2c91641adcacee50dda4fecfe380ca9f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/c3is-raises-9m-in-public-offering-to-boost-fleet-and-operations/6bd8a0113567a816e4bc3c6672ef70ca) 
 
  
 
@@ -35,4 +35,4 @@ GlobalTech (OTC: GLTK), a U.S.-headquartered technology holding company focused 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/15/tintfFwU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/15/gainAgwi.webp)
