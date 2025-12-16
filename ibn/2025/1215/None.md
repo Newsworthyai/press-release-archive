@@ -1,33 +1,31 @@
-# InvestorNewsBreaks – C3is Inc. (NASDAQ: CISS) Closes Approximately $9 Million Public Offering
+# 420 with CNW — Ohio Senate Passes Bill Rolling Back Voter-Passed Marijuana Law
 
-C3is (NASDAQ: CISS), a ship-owning company providing dry bulk and tanker seaborne transportation services, announced the closing of a reasonable best-efforts public offering that generated approximately $9 million in gross proceeds before fees and expenses. The offering consisted of 7,500,000 units priced at $1.20 per unit, each including one common share or a pre-funded warrant in lieu thereof, along with Class D and Class E warrants, with proceeds intended to be used for capital expenditures, including potential vessel acquisitions, working capital and general corporate purposes, and the transaction was placed by Aegis Capital Corp.
+The Ohio Senate has passed a House-revised measure that would scale back parts of the state’s voter-approved cannabis statute and limit where most hemp products can be sold. Senators approved the revised bill on a 22–7 vote, agreeing to the House changes and forwarding the measure to Governor Mike DeWine.
 
- To view the full press release, visit https://ibn.fm/1Ln7X
+ Entities like Trulieve Cannabis Corp. (CSE: TRUL) (OTCQX: TCNNF) that have been involved in advocacy to reform marijuana laws in states like Florida are unlikely to be pleased by what is happening in Ohio where voters made their wishes known and passed a ballot measure but lawmakers are rolling back the…
 
- About C3is Inc.
+ Read More>>
 
- C3is Inc. is a ship-owning company providing dry bulk and crude oil seaborne transportation services. The Company owns four vessels, three handysize drybulk carriers with a total capacity of 97,664 deadweight tons (dwt) and an Aframax oil tanker with a cargo carrying capacity of approximately 115,800 dwt, resulting with a fleet total capacity of 213,464 dwt. C3is Inc.’s shares of Common Stock are listed on the Nasdaq Capital Market and trade under the symbol “CISS.”
+ About CNW420
 
- For more information, visit https://c3is.pro/
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- About InvestorWire
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-c3is-inc-nasdaq-ciss-closes-approximately-9-million-public-offering/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-ohio-senate-passes-bill-rolling-back-voter-passed-marijuana-law/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/c3is-raises-9m-in-public-offering-to-boost-fleet-and-operations/6bd8a0113567a816e4bc3c6672ef70ca) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ohio-senate-rolls-back-voter-approved-cannabis-law-restricts-hemp-sales/4b18b561a9caabb67fc539e12299cfe1) 
 
  
 
@@ -35,4 +33,4 @@ C3is (NASDAQ: CISS), a ship-owning company providing dry bulk and tanker seaborn
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/15/gainAgwi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/15/moonu8Wl.webp)

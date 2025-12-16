@@ -1,30 +1,52 @@
-# Profit Momentum Builds for Beeline Holdings (BLNE) as Next-Gen Platform Accelerates
+# Conversion of The Platform Group AG Into a KGaA Completed as Planned
 
-LOS ANGELES, CA - December 15, 2025 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE), a fast-growing digital mortgage platform redefining the path to homeownership, recently marked a key accomplishment, with its lending entity generating cash-flow positivity. “The achievement, disclosed in a corporate update on November 11, positions the company to target organization-wide cash-flow positivity in the first quarter of 2026,” reads an article discussing the milestone. “The fintech lender, which focuses on mortgage and home-equity products, has spent the past year streamlining costs while ramping up demand for its AI-powered origination technology. Management noted that cost discipline and what it describes as a scalable lending model have helped move the company toward sustainable profitability… Beeline’s strategy centers on building what it calls a next-generation mortgage platform, one designed to compress the traditionally long loan-origination timeline. Its tools include AI chatbot Bob, the proprietary production engine Hive, and a suite of digital mortgage workflows accessible to both borrowers and real-estate investors.”
+DUSSELDORF - December 15, 2025 (NEWMEDIAWIRE) - The conversion of The Platform Group AG into a German partnership limited by shares (Kommanditgesellschaft auf Aktien, KGaA) became effective today upon registration with the Commercial Register at the Local Court of Dusseldorf. The Company’s Annual General Meeting approved the conversion into a KGaA on 25 August 2025 with 99% of the votes cast.
 
- To view the full article, visit https://ibn.fm/KKCXJ
+ As of today, the Company operates under the name The Platform Group SE & Co. KGaA (“TPG”). All shareholders of the former The Platform Group AG are now limited partners (shareholders) of The Platform Group SE & Co. KGaA. Management and representation of the Company are carried out by The Platform Group Management SE as the general partner. The conversion strengthens the Company’s long-term strategic orientation, enhances its international operational flexibility, and ensures a stable ownership structure while maintaining a consistent share structure.
 
- About Beeline Holdings Inc.
+ As outlined in the Company’s ad-hoc announcement dated 30 May 2025, the legal and economic identity of the Company remains unchanged. The change in legal form will not affect the shareholders’ stake in the Company. They will hold the same number of shares in SE & Co. KGaA as they did before the change in legal form.
 
- Beeline is a next-generation mortgage and home-equity company simplifying the path to homeownership and liquidity. By combining blockchain technology, automation, and a customer-first digital experience, Beeline makes financing a home - or unlocking its value - faster, fairer, and more transparent. For more, visit www.makeabeeline.com.
+ In parallel with the conversion, the Company’s bearer shares were converted into registered shares. This step supports The Platform Group’s objective of fostering an active and constructive dialogue with its shareholders and represents a logical continuation of the conversion process and the new articles of association. As part of this transition, the Company’s securities identification number (WKN) and ISIN were technically updated. The shares are expected to trade under the new WKN A40ZW8 and ISIN DE000A40ZW88 from January 2026 onward. The trading symbol “TPG” will remain unchanged. Custodian banks will automatically implement the changes, and no action is required from shareholders.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ The Platform Group SE & Co. KGaA:The Platform Group SE & Co. KGaA is a software company that is active in 26 industries with its own platform solutions. Its customers include both B2B and B2C customers in sectors such as furniture retail, machinery retail, dental technology and luxury fashion. The Group has 19 locations across Europe and is headquartered in Dusseldorf. In 2024, sales of EUR 525 million was realized with an operating result (EBITDA adjusted) of EUR 33 million.
 
- Forward Looking Statements
+ Contact:Investor RelationsNathalie Richert, Head of Investor Relations ir@the-platform-group.comSchloss Elbroich | Am Falder 4 | 40589 Dusseldorf | Germanycorporate.the-platform-group.com
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/profit-momentum-builds-for-beeline-holdings-blne-as-next-gen-platform-accelerates-7084598)
+[Original/Source Press Release](https://www.newmediawire.com/news/conversion-of-the-platform-group-ag-into-a-kgaa-completed-as-planned-7084601)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-achieves-cash-flow-positivity-targets-2026-profitability/c67d0c34bc357ef449e66679ce27dd93) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-platform-group-completes-kgaa-conversion-boosting-strategic-flexibility/cd235499c70f7585e24e8a8f776c988b) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/the-platform-group-completes-conversion-to-kgaa-structure-enhanc/202525502)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/341498-the-platform-group-completes-conversion-to-kgaa-structure-enhancing-strategic-flexibility)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335286-die-platform-group-vollzieht-umwandlung-in-kgaa-struktur-und-starkt-strategische-flexibilitat)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335261-the-platform-group-completa-su-conversion-a-estructura-kgaa-mejorando-su-flexibilidad-estrategica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/335785-the-platform-group-finalise-sa-conversion-en-structure-kgaa-renforcant-sa-flexibilite-strategique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335199-the-platform-group-conclui-conversao-para-estrutura-kgaa-aumentando-flexibilidade-estrategica)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/341574-the-platform-group-converts-to-kgaa-structure-enhancing-strategic-flexibility)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-platform-group-completes-conversion-to-kgaa-structure-enhanc/202525502)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-platform-group-completes-conversion-to-kgaa-structure-enhanc/202525502)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/glueczsw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/15/yarnspdd.webp)
