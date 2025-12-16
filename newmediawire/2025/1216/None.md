@@ -1,88 +1,76 @@
-# Gum Disease may be Linked to Plaque Buildup in Arteries, Higher Risk of Major CVD Events
+# Golden Matrix Group, Inc. Announces Authorization of Stock Repurchase Program
 
-DALLAS - December 16, 2025 (NEWMEDIAWIRE) - There is increasing evidence that gum disease is associated with increased risk of cardiovascular events, including heart attack, stroke, atrial fibrillation, heart failure and cardiometabolic health conditions. Effective prevention and treatment of gum disease, also called periodontal disease, could potentially decrease the burden of cardiovascular disease, according to a new scientific statement published today in the American Heart Association’s flagship journal Circulation.
+LAS VEGAS, NV - December 16, 2025 (NEWMEDIAWIRE) - Golden Matrix Group Inc. (NASDAQ:GMGI) (“Golden Matrix”, “GMGI” or the “Company”), an international developer, licensor and global operator of online gaming and eCommerce platforms, systems and gaming content, today announced that its Board of Directors has authorized the repurchase of up to a maximum of $3.0 million of shares of the Company’s common stock. Subject to any future extension in the discretion of the Board of Directors of the Company, the repurchase program is scheduled to expire on December 15, 2026, when a maximum of $3.0 million of the Company’s common stock has been repurchased, or when such program is discontinued by the Board of Directors.
 
- The new American Heart Association scientific statement, “Periodontal Disease and Atherosclerotic Cardiovascular Disease,” features new data supporting an association between periodontal disease and atherosclerotic cardiovascular disease (ASCVD) and updates the Association’s 2012 scientific statement. ACSVD, the leading cause of death globally, is caused by buildup of arterial plaque (fatty deposits in the arteries) and refers to conditions that include coronary heart disease, stroke, peripheral artery disease and aortic aneurysms.
+ "We believe our shares are trading at a significant discount to the Company’s intrinsic value, and this repurchase program represents a disciplined and highly attractive use of capital. By reducing market overhang, addressing short interest, and repurchasing shares at current price levels, we are confident this initiative will enhance long‑term shareholder returns. Importantly, it also provides a more tax‑efficient method of returning capital compared to dividends, while driving earnings‑per‑share accretion that underscores our conviction in the Company’s future performance,” said Rich Christensen, Chief Financial Officer of the Company.
 
- “Your mouth and your heart are connected,” said Chair of the scientific statement writing group Andrew H. Tran, M.D., M.P.H., M.S., FAHA, a pediatric cardiologist and the director of the preventive cardiology program at Nationwide Children's Hospital in Columbus, Ohio. “Gum disease and poor oral hygiene can allow bacteria to enter the bloodstream, causing inflammation that may damage blood vessels and increase the risk of heart disease. Brushing, flossing and regular dental checkups aren’t just about a healthy smile - they’re an important part of protecting your heart.”
+ Under the stock repurchase program, shares may be repurchased from time to time in the open market or through negotiated transactions at prevailing market rates, or by other means in accordance with federal securities laws. Repurchases will be made at management’s discretion at prices management considers to be attractive and in the best interests of both the Company and its stockholders, subject to the availability of shares, general market conditions, the trading price of the common stock, alternative uses for capital, and the Company’s financial performance. Open market purchases are expected to be conducted in accordance with the limitations set forth in Rule 10b-18 of the Securities Exchange Act of 1934 (the “Exchange Act”) and other applicable laws and regulations. Repurchases may also be made under a Rule 10b5-1 plan, which would permit shares to be repurchased when the Company might otherwise be precluded from doing so under insider trading laws.
 
- Highlights of the statement include:
+ The repurchase program may be suspended, terminated or modified at any time for any reason, including market conditions, the cost of repurchasing shares, the availability of alternative investment opportunities, liquidity, and other factors deemed appropriate. These factors may also affect the timing and amount of share repurchases. The repurchase program does not obligate the Company to purchase any number of shares. There is no guarantee as to the exact number or value of shares that will be repurchased by the Company, if any.
 
- * Periodontal disease is a chronic inflammatory condition affecting over 40% of U.S. adults over age 30. The earliest stage is gingivitis (inflammation of the gums due to buildup of oral plaque). If left untreated, gingivitis may progress to periodontitis, where the gums begin to pull away from the teeth, forming small pockets that can trap bacteria and lead to infection. The most advanced stage, severe periodontitis, involves extensive damage to the bones supporting the teeth; teeth may become loose and fall out. This stage often requires surgical intervention.
+ The repurchase program is expected to be funded using the Company’s working capital. As of September 30, 2025, the Company had 140,660,454 shares of common stock issued and outstanding.
 
- * Periodontal disease is more common in individuals with poor oral hygiene and other cardiovascular disease risk factors, such as high blood pressure, overweight or obesity, diabetes and smoking. The prevalence of periodontal disease is also higher among men, older adults, individuals with low physical activity and people affected by adverse social determinants of health, such as lower socioeconomic status, food insecurity and/or lack of access to health care including dental care.
+ All shares purchased by the Company under the stock repurchase program will be retired and returned to treasury.
 
- * Although periodontal disease and ASCVD share common risk factors, emerging data indicates there is an independent association between the two conditions. Potential biological mechanisms linking periodontal disease with poor cardiovascular outcomes include direct pathways such as bacteria in the blood and vascular infections, as well as indirect pathways such as chronic systemic inflammation.
+ About Golden Matrix
 
- * Numerous studies have found that periodontal disease is associated with an increased risk of heart attack, stroke, atrial fibrillation, heart failure, peripheral artery disease, chronic kidney disease and cardiac death. Although periodontal disease clearly contributes to chronic inflammation that is associated with ASCVD, a cause-and-effect relationship has not been confirmed.
+ Golden Matrix Group, based in Las Vegas, NV, is an established B2B and B2C gaming technology company operating across multiple international markets. The B2B division develops and licenses proprietary gaming platforms to an extensive list of clients, while its B2C division operates RKings Competitions, a high-volume eCommerce site enabling end users to enter paid-for competitions on its proprietary platform in authorized markets. The Company also owns and operates MEXPLAY, a regulated online casino in Mexico.
 
- * There is also no direct evidence that periodontal treatment will help prevent cardiovascular disease. However, treatments that reduce the lifetime exposure to inflammation appear to be beneficial to reducing the risk of developing ASCVD. The treatment and control of periodontal disease and associated inflammation may contribute to the prevention and improved management of ASCVD.
+ Meridianbet Group, founded in 2001 and acquired by Golden Matrix in 2024, is a leading online sports betting and gaming operator, licensed in multiple jurisdictions across Europe, Africa, and South America.
 
- * People with one or more cardiovascular disease risk factors are considered to be at higher risk and may benefit from regular dental screenings and targeted periodontal care to address chronic inflammation. Previous studies have found that more frequent tooth brushing is associated with lower 10-year ASCVD risk (13.7% for once-daily or less brushing vs. 7.35% for brushing three or more times per day) and reduced inflammatory markers.
+ The companies’ sophisticated software automatically declines any gaming or redemption requests from within the United States, in strict compliance with current US law.
 
- * More research, including long-term studies and randomized controlled trials, is needed to determine whether periodontal treatment can impact ASCVD progression and outcomes.
+ FORWARD-LOOKING STATEMENTS
 
- * In addition, the role of socioeconomic status, access to dental care and other social factors that adversely affect health should be explored to develop targeted prevention and treatment strategies that can help reduce the prevalence and adverse outcomes of periodontal disease and ASCVD.
+ Certain statements made in this press release contain forward-looking information within the meaning of applicable securities laws, including within the meaning of the Private Securities Litigation Reform Act of 1995 (“forward-looking statements”). Words such as “strategy,” “expects,” “continues,” “plans,” “anticipates,” “believes,” “would,” “will,” “estimates,” “intends,” “projects,” “goals,” “targets” and other words of similar meaning are intended to identify forward-looking statements but are not the exclusive means of identifying these statements.
 
- This scientific statement was prepared by the volunteer writing group on behalf of the Cardiovascular Disease Prevention Committee of the American Heart Association Council on Lifelong Congenital Heart Disease and Heart Health in the Young; the Council on Clinical Cardiology; the Stroke Council; the Council on Basic Cardiovascular Sciences; and the Council on Cardiovascular and Stroke Nursing. While scientific statements inform the development of guidelines, they do not make treatment recommendations. American Heart Association guidelines provide the Association’s official clinical practice recommendations.
+ Important factors that may cause actual results and outcomes to differ materially from those contained in such forward-looking statements include, without limitation, the amount, timing, and sources of funding for the Company’s repurchase program, the fact that common share repurchases may not be conducted in the timeframe or in the manner the Company expects, or at all, the ability of the Company to obtain the funding required to pay certain Meridianbet Group acquisition post-closing obligations, the terms of such funding, potential dilution caused thereby and/or covenants agreed to in connection therewith; potential lawsuits regarding the acquisition; the business, economic and political conditions in the markets in which the Company operates; the effect on the Company and its operations of the ongoing Ukraine/Russia conflict and the conflict in Israel, changing interest rates and inflation, and risks of recessions; the need for additional financing, the terms of such financing and the availability of such financing; the ability of the Company and/or its subsidiaries to obtain additional gaming licenses; the ability of the Company to manage growth; the Company’s ability to complete acquisitions and the availability of funding for such acquisitions; disruptions caused by acquisitions; dilution caused by fund raising, the conversion of outstanding preferred stock, convertible securities and/or acquisitions; the Company’s ability to maintain the listing of its common stock on the Nasdaq Capital Market; the Company’s expectations for future growth, revenues, and profitability; the Company’s expectations regarding future plans and timing thereof; the Company’s reliance on its management; the fact that the sellers of the Meridianbet Group hold voting control over the Company; related party relationships; the potential effect of economic downturns, recessions, increases in interest rates and inflation, and market conditions, decreases in discretionary spending and therefore demand for our products and services, and increases in the cost of capital, related thereto, among other affects thereof, on the Company’s operations and prospects; the Company’s ability to protect proprietary information; the ability of the Company to compete in its market; the effect of current and future regulation, the Company’s ability to comply with regulations and potential penalties in the event it fails to comply with such regulations and changes in the enforcement and interpretation of existing laws and regulations and the adoption of new laws and regulations that may unfavorably impact our business; the risks associated with gaming fraud, user cheating and cyber-attacks; risks associated with systems failures and failures of technology and infrastructure on which the Company’s programs rely; foreign exchange and currency risks; the outcome of contingencies, including legal proceedings in the normal course of business; the ability to compete against existing and new competitors; the ability to manage expenses associated with sales and marketing and necessary general and administrative and technology investments; and general consumer sentiment and economic conditions that may affect levels of discretionary customer purchases of the Company’s products, including potential recessions and global economic slowdowns. Although we believe that our plans, intentions and expectations reflected in or suggested by the forward-looking statements we make in this press release are reasonable, we provide no assurance that these plans, intentions or expectations will be achieved.
 
- Co-authors are Vice Chair Abbas H. Zaidi, M.D., M.S.; Ann F. Bolger, M.D., FAHA; Oscar H. Del Brutto, M.D.; Rashmi Hegde, B.D.S., M.S.; Lauren L. Patton, D.D.S.; Jamie Rausch, Ph.D., R.N.; and Justin P. Zachariah, M.D., Ph.D., FAHA. Authors’ disclosures are listed in the manuscript.
+ Other important factors that may cause actual results and outcomes to differ materially from those contained in the forward-looking statements included in this communication are described in the Company’s publicly-filed reports, including, but not limited to, under the “Special Note Regarding Forward-Looking Statements,” “Risk Factors” and “Management’s Discussion and Analysis of Financial Condition and Results of Operations” sections of the Company’s periodic and current filings with the SEC, including the Form 10-Qs and Form 10-Ks, including, but not limited to, the Company’s Annual Report on Form 10-K for the year ended December 31, 2024 and its Quarterly Report on Form 10-Q for the quarter ended September 30, 2025, and future periodic reports on Form 10-K and Form 10-Q. These reports are available at www.sec.gov.
 
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ The Company cautions that the foregoing list of important factors is not complete and does not undertake to update any forward-looking statements except as required by applicable law. All subsequent written and oral forward-looking statements attributable to the Company or any person acting on behalf of the Company are expressly qualified in their entirety by the cautionary statements referenced above. Other unknown or unpredictable factors also could have material adverse effects on the Company’s future results. The forward-looking statements included in this press release are made only as of the date hereof. The Company cannot guarantee future results, levels of activity, performance or achievements. Accordingly, you should not place undue reliance on these forward-looking statements. Finally, the Company undertakes no obligation to update these statements after the date of this release, except as required by law, and takes no obligation to update or correct information prepared by third parties that is not paid for by the Company. If we update one or more forward-looking statements, no inference should be drawn that we will make additional updates with respect to those or other forward-looking statements.
 
- Additional Resources:
+ Connect with us:X - https://twitter.com/gmgi_officialInstagram - https://www.instagram.com/goldenmatrixgroup/
 
- * Available multimedia is on right column of release link.
-* Spanish news release
-* After 5 a.m. ET, Dec. 16, 2025, view the manuscript online.
-* American Heart Association news release: New resources help dentists identify patients at risk for cardiovascular disease (Nov. 2025)
-* American Heart Association news release: Regular dental flossing may lower risk of stroke from blood clots, irregular heartbeats (Jan. 2025)
-* American Heart Association health information: Oral Health
-* American Heart Association health initiative: Healthy Smiles, Healthy HeartsTM
-* Follow AHA/ASA news on X @HeartNews
-* Follow news from the AHA’s flagship journal Circulation @CircAHA
+ Investors & Press:Rich Christensenir@goldenmatrix.com
 
- About the American Heart Association
+ 
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ 
 
- For Media Inquiries: 214-706-1173
-
- Amanda Ebert: Amanda.Ebert@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/gum-disease-may-be-linked-to-plaque-buildup-in-arteries-higher-risk-of-major-cvd-events-7084604)
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-inc-announces-authorization-of-stock-repurchase-program-7084607)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gum-disease-linked-to-higher-heart-attack-stroke-risk-in-major-aha-statement/66f757bfd86408f09a06e04d06c970f2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-authorizes-3m-stock-buyback-to-boost-shareholder-value/210ba96ef49fb056a84d0446bb8ef75d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-links-gum-disease-to-increased-cardio/202525522)
+Pickup - [https://advos.io/en](https://advos.io/en/golden-matrix-group-authorizes-3-million-stock-repurchase-progra/202525527)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/342779-american-heart-association-statement-links-gum-disease-to-increased-cardiovascular-risk)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/343023-golden-matrix-group-authorizes-3-million-stock-repurchase-program)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335308-american-heart-association-zahnfleischerkrankungen-mit-erhohtem-herz-kreislauf-risiko-verbunden)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335312-golden-matrix-group-genehmigt-aktienruckkaufprogramm-in-hohe-von-3-millionen-us-dollar)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335282-declaracion-de-la-asociacion-americana-del-corazon-vincula-enfermedad-de-las-encias-con-mayor-riesgo-cardiovascular)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335289-golden-matrix-group-autoriza-programa-de-recompra-de-acciones-por-3-millones-de-dolares)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/335807-declaration-de-lamerican-heart-association-etablissant-un-lien-entre-les-maladies-des-gencives-et-un-risque-cardiovasculaire-accru)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/335812-golden-matrix-group-autorise-un-programme-de-rachat-dactions-de-3-millions-de-dollars)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335220-declaracao-da-american-heart-association-relaciona-doenca-gengival-a-maior-risco-cardiovascular)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335224-golden-matrix-group-autoriza-programa-de-recompra-de-acoes-de-us-3-milhoes)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/new-scientific-statement-links-gum-disease-to-increased-cardiova/202525522)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/golden-matrix-group-authorizes-3-million-stock-repurchase-progra/202525527)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gum-disease-linked-to-increased-cardiovascular-risk-new-scientif/202525522)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/golden-matrix-group-authorizes-3-million-stock-repurchase-progra/202525527)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/343150-golden-matrix-group-authorizes-3-million-stock-repurchase-program-through-2026)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/16/fondkqUu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/16/larkBLZF.webp)
