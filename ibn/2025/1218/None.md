@@ -1,36 +1,38 @@
-# Citroen Could Release an EV Costing Less Than $20,077
+# 420 with CNW — Marijuana Derivatives Show Promise in Treating Ovarian Cancer
 
-Citroen may launch an electric vehicle priced under $20,077 if European regulators approve a new vehicle classification. The French automaker could introduce a successor to the C1 that echoes the iconic 2CV’s character while looking completely different, according to Autocar reports. This would position Citroen among Europe’s most affordable electric options.
+Researchers searching for better ways to treat ovarian cancer have reported encouraging results from laboratory tests involving two marijuana compounds. According to a new study, both THC and CBD were able to slow the growth of ovarian cancer cells, and when used together, they were particularly effective at killing existing malignant cells.
 
- For entities like Ferrari N.V. (NYSE: RACE) that focus on the…
+ These findings come at a time when reports show President Trump is considering using an executive order to shift marijuana from Schedule I to III of the CSA. The wider marijuana industry, including enterprises like SNDL Inc. (NASDAQ: SNDL), welcomes these…
 
  Read More>>
 
- About GreenCarStocks
+ About CNW420
 
- GreenCarStocks (“GCS”) is a specialized communications platform with a focus on electric vehicles (“EVs”) and the green energy sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GCS is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, GCS brings its clients unparalleled recognition and brand awareness. GCS is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from GreenCarStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.GreenCarStocks.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the GreenCarStocks website applicable to all content provided by GCS, wherever published or re-published: https://www.GreenCarStocks.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- GreenCarStocksAustin, Texaswww.GreenCarStocks.com512.354.7000 OfficeEditor@GreenCarStocks.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- GreenCarStocks is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/citroen-could-release-an-ev-costing-less-than-20077/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-marijuana-derivatives-show-promise-in-treating-ovarian-cancer/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/citroen-eyes-sub-20k-ev-potentially-europe-s-most-affordable-electric-car/96806e9e774584dae4e5a50db7f2e5ee) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannabis-compounds-show-promise-in-fighting-ovarian-cancer/e7290f59a582fbd3791bcd15b468bb5b) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202512/349427-marijuana-compounds-show-promise-against-ovarian-cancer-in-lab-studies)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/18/wolflvhA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/18/coolFyrE.webp)
