@@ -1,74 +1,60 @@
-# Golden Matrix Group Appoints Atul Bali, Gaming Industry Expert, as Non-Executive Director
+# GeoVax to Raise Approximately $3.2 Million of Gross Proceeds in Public Offering
 
-Former Lead Independent Director of Everi Holdings Brings Deep Public Company and Global Gaming Expertise to the Board
+ATLANTA, GA - December 19, 2025 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing immunotherapies and vaccines against cancer and infectious diseases, today announced that it has entered into definitive securities purchase agreements with several institutional and individual investors for the purchase and sale of approximately 13.2 million units, each comprised of one share of the Company's common stock and warrants, as described below, to purchase shares of the Company’s common stock, at a price of $0.245 per unit in a public offering. The Company will issue warrants to purchase up to approximately 26.5 million shares of common stock. The warrants will have an exercise price of $0.245 per share, will be exercisable immediately following the date of issuance and will have a term of five years following the date of issuance.
 
- LAS VEGAS, NV - December 19, 2025 (NEWMEDIAWIRE) - Golden Matrix Group Inc. (NASDAQ: GMGI) ("Golden Matrix," "GMGI," or the "Company"), a global gaming technology company, today announced the appointment of Mr. Atul Bali as Non-Executive Director to its Board of Directors, effective December 18, 2025.
+ Roth Capital Partners is acting as the exclusive placement agent for the offering.
 
- Mr. Bali has also been appointed to serve as a member of the Company's Audit Committee, a member of the Nominating and Corporate Governance Committee, and as Chairman of the Compensation Committee.
+ The gross proceeds to the Company from this offering are expected to be approximately $3.2 million, before deducting the placement agent's fees and other offering expenses payable by the Company. The Company intends to use the net proceeds from this offering for working capital and general corporate purposes. The closing of the offering is expected to occur on or about December 22, 2025, subject to the satisfaction of customary closing conditions.
 
- Mr. Bali brings over three decades of executive and board-level experience across highly regulated gaming, lottery, fintech, and digital entertainment sectors spanning more than 50 countries. He most recently served as Lead Independent Director of Everi Holdings Inc. from 2019 until the company's acquisition by Apollo Global Management in July 2025 in a transaction valued at $6.3 billion.
+ The shares in the offering described above are being offered by the Company pursuant to a registration statement on Form S-1 (File No. 333-292127) previously filed with the Securities and Exchange Commission (the 'SEC') and declared effective by the SEC on December 19, 2025. The offering is being made only by means of a prospectus, including a prospectus supplement, forming a part of the effective registration statement, relating to the offering that will be filed with the SEC. Electronic copies of the final prospectus supplement and accompanying prospectus may be obtained, when available, on the SEC's website at http://www.sec.gov or by contacting Roth Capital Partners, LLC at 888 San Clemente Drive, Newport Beach CA 92660, by phone at (800) 678-9147 or by accessing the SEC’s website, www.sec.gov.
 
- His career also encompasses chairman and CEO roles across the gaming ecosystem, including President & CEO of GTECH G2 Ltd. (now part of IGT), President & CEO of Aristocrat Technologies Inc, Chairman of The Football Pools Ltd. (UK's football betting company), and President & CEO of RealNetworks Inc. Mr. Bali has guided companies through IPOs, private equity transactions, operational turnarounds, and regulatory licensing processes across Europe, North America, Latin America, Asia, and Africa.
+ This press release shall not constitute an offer to sell or the solicitation of an offer to buy any of the securities described herein, nor shall there be any sale of these securities in any state or jurisdiction in which such offer, solicitation or sale would be unlawful prior to registration or qualification under the securities laws of any such state or jurisdiction.
 
- "Atul's appointment represents a significant milestone for Golden Matrix," said William Scott, interim Chief Executive Officer of Golden Matrix Group. "His track record guiding public companies through complex growth phases, M&A transactions, and regulatory environments across multiple jurisdictions is directly aligned with our strategic priorities. His governance expertise and global perspective will be invaluable."
+ About GeoVax
 
- Mr. Bali is a Fellow Chartered Accountant (FCA) with the Institute of Chartered Accountants in England and Wales (ICAEW) and holds a BA (Dual Honours) in Law & Economics from Keele University.
+ GeoVax Labs, Inc. is a clinical-stage biotechnology company developing novel vaccines against infectious diseases and therapies for solid tumor cancers. The Company’s lead clinical program is GEO-CM04S1, a next-generation COVID-19 vaccine currently in three Phase 2 clinical trials, being evaluated as (1) a primary vaccine for immunocompromised patients such as those suffering from hematologic cancers and other patient populations for whom the current authorized COVID-19 vaccines are insufficient, (2) a booster vaccine in patients with chronic lymphocytic leukemia (CLL) and (3) a more robust, durable COVID-19 booster among healthy patients who previously received the mRNA vaccines. In oncology the lead clinical program is evaluating a novel oncolytic solid tumor gene-directed therapy, Gedeptin®, having recently completed a multicenter Phase 1/2 clinical trial for advanced head and neck cancers. GeoVax is also developing a vaccine targeting Mpox and smallpox and, based on recent EMA regulatory guidance, anticipates progressing directly to a Phase 3 clinical evaluation, omitting Phase 1 and Phase 2 trials. GeoVax has a strong IP portfolio in support of its technologies and product candidates, holding worldwide rights for its technologies and products. For more information about the current status of our clinical trials and other updates, visit our website: www.geovax.com.
 
- Separately, the Company announced that Mr. Thomas McChesney resigned as Independent Director, effective December 12, 2025.
+ Forward-Looking Statements
 
- About Golden Matrix
+ This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
 
- Golden Matrix Group, based in Las Vegas, NV, is an established B2B and B2C gaming technology company operating across multiple international markets. The B2B division develops and licenses proprietary gaming platforms to an extensive list of clients, while its B2C division operates RKings Competitions, a high-volume eCommerce site enabling end users to enter paid-for competitions on its proprietary platform in authorized markets. The Company also owns and operates MEXPLAY, a regulated online casino in Mexico.
+ Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
 
- Meridianbet Group, founded in 2001 and acquired by Golden Matrix in 2024, is a leading online sports betting and gaming operator, licensed in multiple jurisdictions across Europe, Africa, and South America.
+ Company Contact:info@geovax.com678-384-7220
 
- The companies' sophisticated software automatically declines any gaming or redemption requests from within the United States, in strict compliance with current US law.
-
- FORWARD-LOOKING STATEMENTS
-
- Certain statements made in this press release contain forward-looking information within the meaning of applicable securities laws, including within the meaning of the Private Securities Litigation Reform Act of 1995 ("forward-looking statements"). Words such as "strategy," "expects," "continues," "plans," "anticipates," "believes," "would," "will," "estimates," "intends," "projects," "goals," "targets" and other words of similar meaning are intended to identify forward-looking statements but are not the exclusive means of identifying these statements.
-
- Important factors that may cause actual results and outcomes to differ materially from those contained in such forward-looking statements include, without limitation, the amount, timing, and sources of funding for the Company's repurchase program, the fact that common share repurchases may not be conducted in the timeframe or in the manner the Company expects, or at all, the ability of the Company to obtain the funding required to pay certain Meridianbet Group acquisition post-closing obligations, the terms of such funding, potential dilution caused thereby and/or covenants agreed to in connection therewith; potential lawsuits regarding the acquisition; the business, economic and political conditions in the markets in which the Company operates; the effect on the Company and its operations of the ongoing Ukraine/Russia conflict and the conflict in Israel, changing interest rates and inflation, and risks of recessions; the need for additional financing, the terms of such financing and the availability of such financing; the ability of the Company and/or its subsidiaries to obtain additional gaming licenses; the ability of the Company to manage growth; the Company's ability to complete acquisitions and the availability of funding for such acquisitions; disruptions caused by acquisitions; dilution caused by fund raising, the conversion of outstanding preferred stock, convertible securities and/or acquisitions; the Company's ability to maintain the listing of its common stock on the Nasdaq Capital Market; the Company's expectations for future growth, revenues, and profitability; the Company's expectations regarding future plans and timing thereof; the Company's reliance on its management; the fact that the sellers of the Meridianbet Group hold voting control over the Company; related party relationships; the potential effect of economic downturns, recessions, increases in interest rates and inflation, and market conditions, decreases in discretionary spending and therefore demand for our products and services, and increases in the cost of capital, related thereto, among other affects thereof, on the Company's operations and prospects; the Company's ability to protect proprietary information; the ability of the Company to compete in its market; the effect of current and future regulation, the Company's ability to comply with regulations and potential penalties in the event it fails to comply with such regulations and changes in the enforcement and interpretation of existing laws and regulations and the adoption of new laws and regulations that may unfavorably impact our business; the risks associated with gaming fraud, user cheating and cyber-attacks; risks associated with systems failures and failures of technology and infrastructure on which the Company's programs rely; foreign exchange and currency risks; the outcome of contingencies, including legal proceedings in the normal course of business; the ability to compete against existing and new competitors; the ability to manage expenses associated with sales and marketing and necessary general and administrative and technology investments; and general consumer sentiment and economic conditions that may affect levels of discretionary customer purchases of the Company's products, including potential recessions and global economic slowdowns. Although we believe that our plans, intentions and expectations reflected in or suggested by the forward-looking statements we make in this press release are reasonable, we provide no assurance that these plans, intentions or expectations will be achieved.
-
- Other important factors that may cause actual results and outcomes to differ materially from those contained in the forward-looking statements included in this communication are described in the Company's publicly-filed reports, including, but not limited to, under the "Special Note Regarding Forward-Looking Statements," "Risk Factors" and "Management's Discussion and Analysis of Financial Condition and Results of Operations" sections of the Company's periodic and current filings with the SEC, including the Form 10-Qs and Form 10-Ks, including, but not limited to, the Company's Annual Report on Form 10-K for the year ended December 31, 2024 and its Quarterly Report on Form 10-Q for the quarter ended September 30, 2025, and future periodic reports on Form 10-K and Form 10-Q. These reports are available at www.sec.gov.
-
- The Company cautions that the foregoing list of important factors is not complete and does not undertake to update any forward-looking statements except as required by applicable law. All subsequent written and oral forward-looking statements attributable to the Company or any person acting on behalf of the Company are expressly qualified in their entirety by the cautionary statements referenced above. Other unknown or unpredictable factors also could have material adverse effects on the Company's future results. The forward-looking statements included in this press release are made only as of the date hereof. The Company cannot guarantee future results, levels of activity, performance or achievements. Accordingly, you should not place undue reliance on these forward-looking statements. Finally, the Company undertakes no obligation to update these statements after the date of this release, except as required by law, and takes no obligation to update or correct information prepared by third parties that is not paid for by the Company. If we update one or more forward-looking statements, no inference should be drawn that we will make additional updates with respect to those or other forward-looking statements.
-
- Connect with us:
-
- X - https://twitter.com/gmgi_officialInstagram - https://www.instagram.com/goldenmatrixgroup/
-
- Investors & Press:
-
- Rich Christensenir@goldenmatrix.com
-
- 
-
- 
-
- 
-
- 
+ Media Contact:Jessica Starmanmedia@geovax.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-appoints-atul-bali-gaming-industry-expert-as-non-executive-director-7084671)
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-raise-approximately-3-2-million-of-gross-proceeds-in-public-offering-7084672)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-appoints-gaming-veteran-atul-bali-to-board/c3d931b83e62d376908b1a6604b6ba09) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-raises-3-2m-in-public-offering-to-boost-cancer-and-vaccine-research/c8e8b3bc1347fb3b5623e5c35681782e) 
 
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/350842-golden-matrix-group-appoints-gaming-veteran-atul-bali-to-board-of-directors)
+Pickup - [https://advos.io/en](https://advos.io/en/geovax-announces-32-million-public-offering-to-fund-clinical-sta/202525744)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335499-golden-matrix-group-designa-al-veterano-del-juego-atul-bali-para-su-junta-directiva)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/351200-geovax-announces-32-million-public-offering-to-advance-clinical-stage-vaccine-and-cancer-therapy-programs)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/350871-faq-golden-matrix-group-appoints-atul-bali-as-non-executive-director)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335517-geovax-kundigt-offentliches-angebot-in-hohe-von-32-millionen-us-dollar-zur-forderung-klinischer-impfstoff-und-krebstherapieprogramme-an)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335521-geovax-anuncia-oferta-publica-de-32-millones-de-dolares-para-avanzar-programas-de-vacunas-y-terapias-oncologicas-en-fase-clinica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336175-geovax-annonce-une-offre-publique-de-32-millions-de-dollars-pour-faire-avancer-ses-programmes-de-vaccins-et-de-therapies-anticancereuses-en-phase-clinique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335430-geovax-anuncia-oferta-publica-de-us-32-milhoes-para-avancar-programas-de-vacinas-e-terapias-contra-o-cancer-em-fase-clinica)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/351192-faq-geovaxs-32-million-public-offering-and-company-overview)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-announces-32-million-public-offering-to-advance-clinical/202525744)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-announces-32-million-public-offering-to-advance-clinical/202525744)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/19/mossKAe9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/19/fine20JO.webp)

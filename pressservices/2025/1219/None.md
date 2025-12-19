@@ -1,26 +1,40 @@
-# Sophia Deluz and Manick Bhan Open Search Atlas Animal Sanctuary in Colombia
+# Search Atlas Launches Challenge Leaderboards for Competitive SEO Skill-Building
 
-Search Atlas Animal Sanctuary a "Dream Come True" says Sophia Deluz
+Gamify Your SEO Journey with Search Atlas’ Challenge Leaderboards
 
- New York City, United States - December 18, 2025 / Search Atlas /
+ New York City, United States - December 19, 2025 / Search Atlas /
 
- Search Atlas founders announce the opening of a permanent animal sanctuary in Colombia that is currently home to more than 30 rescued animals.
+ Search Atlas Unveils Leaderboards to Turn SEO Performance Into an Engaging Skill-Building GameSearch Atlas has launched the Challenge Leaderboard, a new feature that transforms SEO skill development into a measurable, competitive experience. The leaderboard ranks users across core platform areas by awarding points for completed tasks, keyword gains, and optimization outcomes.
 
-Sophia Deluz, Chief Operating Officer of Search Atlas, and Manick Bhan, Founder and CEO, announced the opening of Search Atlas Animal Sanctuary, a permanent refuge for rescued animals located in Medellín, Colombia. The sanctuary opens this month and is currently home to more than 30 animals, including donkeys, dogs, cats, sheep, chickens, a rabbit, and a mother cow with her calf rescued from a slaughterhouse.
+Search Atlas, a leading provider of AI-driven SEO and digital marketing tools, announces the launch of its Challenge Leaderboard, a new feature that gamifies professional SEO development and makes skill-building measurable and engaging.
 
-“Caring for animals has always been central to who we are,” said Sophia Deluz, COO of Search Atlas and co-founder of Search Atlas Animal Sanctuary.
+The Leaderboard ranks users based on performance across tools, including Keyword Projects, Local SEO, AI SEO, Content Genius, GSC Performance, Smart Ads, and Authority Building, awarding points for completed tasks, keyword improvements, and optimization achievements.
 
-A Sustainable Model for Animal RescueSearch Atlas Animal Sanctuary was created to provide permanent care for animals requiring long-term support, including senior dogs, farm animals rescued from unsafe conditions, and animals needing specialized medical attention. The Sanctuary was established alongside the growth of Search Atlas, the AI-powered SEO platform co-led by Sophia Deluz and Manick Bhan.
+Users can track their progress, compare rankings globally or within specific challenges, and earn recognition through dynamic levels, avatars, and achievement badges.
 
-“Opening an animal sanctuary has been a dream since the beginning of our relationship,” Sophia said. “We’re grateful that the success of Search Atlas has allowed us to turn that dream into a safe, permanent home for animals who need a home.”
+Leaderboard Features & Highlights:
 
-A portion of Search Atlas proceeds supports daily operations. Each resident receives veterinary care, proper nutrition, and an environment designed around its specific needs.
+* Track and Compare Performance: Users can see how they rank in Keyword Projects, Local SEO, AI SEO, Content Genius, GSC Performance, Smart Ads, and Authority Building, which provides a clear view of their SEO impact.
+* Earn XP and Level Up: Points are awarded for completed tasks, keyword improvements, and optimization achievements. Rankings increase as users engage more with the platform.
+* Dynamic Avatars: Each user is represented by a distinctive avatar that evolves through levels from Frog to Kraken, offering a visual marker of progress and expertise.
+* Unlock Achievement Badges: Badges celebrate milestones, challenge completions, and mastery of platform tools—giving users visible recognition for accomplishments.
+* View Rankings and Progress: Leaderboards display the top performers alongside each user’s personal ranking, including XP needed to reach the next level, making advancement transparent and motivating.
+* Top-Ten Rewards: Users in the top ten of each leaderboard are eligible for exclusive prizes, encouraging competition and engagement while rewarding high achievement.
+* Gamified Learning and Competition: Routine SEO tasks are transformed into interactive challenges, driving skill development, friendly competition, and community interaction across the platform.
 
-For updates about the Animal Sanctuary and its residents, follow Sophia Deluz’s Instagram, where she posts regular updates about the animals and the work they are doing.
+“Leaderboards turn SEO into a game that drives real professional growth,” said Manick Bhan, the CEO and Founder of Search Atlas. “Users earn points, level up avatars, and unlock badges as they engage with our platform tools. Top performers in each challenge receive exclusive recognition. This gamified approach makes skill development measurable, motivating, and fun, creating a competitive community where learning and achievement go hand in hand.”
 
-About Search Atlas Animal Sanctuary Search Atlas Animal Sanctuary is a permanent animal refuge located in Medellín, Colombia. Founded by Sophia Deluz and Manick Bhan, the sanctuary provides lifelong care for rescued animals and is supported through a portion of proceeds from Search Atlas.
+The Challenge Leaderboard redefines how SEO professionals and teams interact with the Search Atlas platform, turning everyday optimization tasks into achievements and fostering a culture of continuous learning.
 
- [](https://press-releases-production.s3.amazonaws.com/images/LvfMSlfd1gVTO0W89KUU118TmpkJjeUmJZf0dISu.jpg) [](https://searchatlas.com/) Contact Information:
+By combining competitive rankings, levels, badges, and exclusive rewards, the feature encourages sustained engagement while highlighting top performers and rising talent.
+
+Users are invited to explore the leaderboard today, track their progress, and join a growing community of professionals transforming skill-building into a competitive, rewarding experience.
+
+About Search Atlas
+
+Search Atlas empowers businesses and marketing professionals to maximize search engine visibility through advanced SEO, PPC, and digital marketing solutions. Its AI-driven platform streamlines optimization, automates campaigns, and tracks performance, delivering measurable growth while reducing operational complexity. Trusted by agencies, enterprises, and individual professionals worldwide, Search Atlas combines innovative technology with actionable insights to help users achieve lasting digital success. Learn more at searchatlas.com
+
+ [](https://press-releases-production.s3.amazonaws.com/images/P19xmTGiECcOgF0lSf3zrE12EfvNPRS7ZaGTz2zQ.jpg) [](https://searchatlas.com/) Contact Information:
 
  Search Atlas
 
@@ -32,19 +46,15 @@ About Search Atlas Animal Sanctuary Search Atlas Animal Sanctuary is a permanent
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/sophia-deluz-and-manick-bhan-open-search-atlas-animal-sanctuary-in-colombia-402892)
+[Original/Source Press Release](https://mediawiretoday.com/search-atlas-launches-challenge-leaderboards-for-competitive-seo-skill-building-402940)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/search-atlas-opens-animal-sanctuary-in-colombia-rescuing-over-30-animals/06ab5c525c91bcadcb6f03815cb7d18e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/search-atlas-gamifies-seo-with-challenge-leaderboards/ef02df00c54a1762b441a14dda23748b) 
 
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/350271-faq-search-atlas-animal-sanctuary-opening-in-colombia)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202512/350274-search-atlas-founders-open-permanent-animal-sanctuary-in-colombia)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2512/19/quizXRKH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2512/19/quizPEo6.webp)
