@@ -1,60 +1,48 @@
-# GeoVax to Raise Approximately $3.2 Million of Gross Proceeds in Public Offering
+# Beeline Holdings' (BLNE) Fractional Home-Equity Platform Emerges as Key Growth Driver
 
-ATLANTA, GA - December 19, 2025 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing immunotherapies and vaccines against cancer and infectious diseases, today announced that it has entered into definitive securities purchase agreements with several institutional and individual investors for the purchase and sale of approximately 13.2 million units, each comprised of one share of the Company's common stock and warrants, as described below, to purchase shares of the Company’s common stock, at a price of $0.245 per unit in a public offering. The Company will issue warrants to purchase up to approximately 26.5 million shares of common stock. The warrants will have an exercise price of $0.245 per share, will be exercisable immediately following the date of issuance and will have a term of five years following the date of issuance.
+LOS ANGELES, CA - December 19, 2025 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE) reported strong Q3 2025 performance, with revenue growth of 37% and a 9% decrease in operating expenses, underscoring its progress toward profitability and scale. An article discussing this reads, “A major contributor to Beeline’s growing pipeline is BeelineEquity, the company’s fractional home-equity sale platform built on blockchain infrastructure. The product enables homeowners to sell a portion of their property’s equity to access liquidity without taking on new debt or monthly payments…The first review of the Beeline Equity product read: ‘Thank you Beeline for leveraging the BlockChain to create liquidity for myself. I sold 17% of my home to generate approximately $200,000 in cash. With the Beeline Equity product, I don’t have any monthly payments and this is a pure sale of equity. I have up to 3 years to buy it back at very fair terms and if not the money is not paid back until my home is sold. Very creative Beeline. This product is going to explode…’ The testimonial reflects a growing appetite among homeowners for alternatives to traditional refinancing or home equity loans.”
 
- Roth Capital Partners is acting as the exclusive placement agent for the offering.
+ To view the full article, visit https://ibn.fm/LwczZ
 
- The gross proceeds to the Company from this offering are expected to be approximately $3.2 million, before deducting the placement agent's fees and other offering expenses payable by the Company. The Company intends to use the net proceeds from this offering for working capital and general corporate purposes. The closing of the offering is expected to occur on or about December 22, 2025, subject to the satisfaction of customary closing conditions.
+ About Beeline Financial Holdings Inc.Beeline Financial Holdings is a trailblazing mortgage fintech transforming the way people access property financing. Through its fully digital, AI-powered platform, Beeline delivers a faster, smarter path to home loans—whether for primary residences or investment properties. Headquartered in Providence, Rhode Island, Beeline is reshaping mortgage origination with speed, simplicity, and transparency at its core. The company is a wholly owned subsidiary of Beeline Holdings and also operates Beeline Labs, its innovation arm focused on next-generation lending solutions.
 
- The shares in the offering described above are being offered by the Company pursuant to a registration statement on Form S-1 (File No. 333-292127) previously filed with the Securities and Exchange Commission (the 'SEC') and declared effective by the SEC on December 19, 2025. The offering is being made only by means of a prospectus, including a prospectus supplement, forming a part of the effective registration statement, relating to the offering that will be filed with the SEC. Electronic copies of the final prospectus supplement and accompanying prospectus may be obtained, when available, on the SEC's website at http://www.sec.gov or by contacting Roth Capital Partners, LLC at 888 San Clemente Drive, Newport Beach CA 92660, by phone at (800) 678-9147 or by accessing the SEC’s website, www.sec.gov.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- This press release shall not constitute an offer to sell or the solicitation of an offer to buy any of the securities described herein, nor shall there be any sale of these securities in any state or jurisdiction in which such offer, solicitation or sale would be unlawful prior to registration or qualification under the securities laws of any such state or jurisdiction.
+ Forward Looking Statements
 
- About GeoVax
-
- GeoVax Labs, Inc. is a clinical-stage biotechnology company developing novel vaccines against infectious diseases and therapies for solid tumor cancers. The Company’s lead clinical program is GEO-CM04S1, a next-generation COVID-19 vaccine currently in three Phase 2 clinical trials, being evaluated as (1) a primary vaccine for immunocompromised patients such as those suffering from hematologic cancers and other patient populations for whom the current authorized COVID-19 vaccines are insufficient, (2) a booster vaccine in patients with chronic lymphocytic leukemia (CLL) and (3) a more robust, durable COVID-19 booster among healthy patients who previously received the mRNA vaccines. In oncology the lead clinical program is evaluating a novel oncolytic solid tumor gene-directed therapy, Gedeptin®, having recently completed a multicenter Phase 1/2 clinical trial for advanced head and neck cancers. GeoVax is also developing a vaccine targeting Mpox and smallpox and, based on recent EMA regulatory guidance, anticipates progressing directly to a Phase 3 clinical evaluation, omitting Phase 1 and Phase 2 trials. GeoVax has a strong IP portfolio in support of its technologies and product candidates, holding worldwide rights for its technologies and products. For more information about the current status of our clinical trials and other updates, visit our website: www.geovax.com.
-
- Forward-Looking Statements
-
- This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
-
- Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
-
- Company Contact:info@geovax.com678-384-7220
-
- Media Contact:Jessica Starmanmedia@geovax.com
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-raise-approximately-3-2-million-of-gross-proceeds-in-public-offering-7084672)
+[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-fractional-home-equity-platform-emerges-as-key-growth-driver-7084681)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-raises-3-2m-in-public-offering-to-boost-cancer-and-vaccine-research/c8e8b3bc1347fb3b5623e5c35681782e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-s-blockchain-home-equity-platform-drives-37-revenue-surge/0a4784636ae2002e4c626f377ce15809) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/geovax-announces-32-million-public-offering-to-fund-clinical-sta/202525744)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/351754-faq-beeline-holdings-fractional-home-equity-platform-and-q3-2025-performance)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/351200-geovax-announces-32-million-public-offering-to-advance-clinical-stage-vaccine-and-cancer-therapy-programs)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/beeline-holdings-blockchain-based-fractional-home-equity-platfor/202525773)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335517-geovax-kundigt-offentliches-angebot-in-hohe-von-32-millionen-us-dollar-zur-forderung-klinischer-impfstoff-und-krebstherapieprogramme-an)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beeline-holdings-fractional-home-equity-platform-drives-strong-q/202525773)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335521-geovax-anuncia-oferta-publica-de-32-millones-de-dolares-para-avanzar-programas-de-vacunas-y-terapias-oncologicas-en-fase-clinica)
+Pickup - [https://advos.io/en](https://advos.io/en/beeline-holdings-blockchain-based-fractional-home-equity-platfor/202525773)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336175-geovax-annonce-une-offre-publique-de-32-millions-de-dollars-pour-faire-avancer-ses-programmes-de-vaccins-et-de-therapies-anticancereuses-en-phase-clinique)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/351846-beeline-holdings-reports-strong-q3-growth-driven-by-fractional-home-equity-platform)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335430-geovax-anuncia-oferta-publica-de-us-32-milhoes-para-avancar-programas-de-vacinas-e-terapias-contra-o-cancer-em-fase-clinica)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335546-beeline-holdings-meldet-starkes-q3-wachstum-dank-fractional-home-equity-plattform)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/351192-faq-geovaxs-32-million-public-offering-and-company-overview)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335550-beeline-holdings-reporta-un-fuerte-crecimiento-en-el-tercer-trimestre-impulsado-por-su-plataforma-de-propiedad-fraccionada)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-announces-32-million-public-offering-to-advance-clinical/202525744)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336215-beeline-holdings-annonce-une-forte-croissance-au-t3-grace-a-sa-plateforme-de-fractionnement-de-capital-propriete)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-announces-32-million-public-offering-to-advance-clinical/202525744)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335459-beeline-holdings-relata-forte-crescimento-no-terceiro-trimestre-impulsionado-pela-plataforma-de-equity-fracionario-de-imoveis)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/351850-beeline-holdings-reports-strong-q3-2025-results-as-blockchain-mortgage-platform-gains-traction)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/19/fine20JO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/19/bestyELD.webp)
