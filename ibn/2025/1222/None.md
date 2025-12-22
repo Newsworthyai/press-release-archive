@@ -1,42 +1,44 @@
-# Web3MediaBreaks – Datavault AI Inc. (NASDAQ: DVLT) Secures Two U.S. Patents Strengthening Blockchain-Based Content Monetization Portfolio
+# ShelfieTech Ltd. (CSE: SHLF) (OTCQB: SHLFF) Hits Key Corporate Milestones with Funding Growth, Product Progress
 
-Datavault AI (NASDAQ: DVLT), a pioneer in AI driven data valuation, monetization, and quantum encrypted real world asset tokenization, announced the issuance of two U.S. patents that significantly strengthen its intellectual property portfolio related to blockchain based content management and monetization. The newly issued patents cover systems and methods for secure content licensing and tokenized monetization using blockchain technology and smart contracts, including automated identification of content usage, license verification, compliance enforcement, and fee distribution according to predefined terms. One patent protects a platform for monetizing digital content through blockchain managed tokens, enabling tamper resistant revenue sharing for creators and rights holders, while the second covers a comprehensive blockchain based content licensing system supporting mechanical, performance, synchronization, and micro licensing rights with transparent global royalty tracking. These patents further enhance Datavault AIs core patented technologies, including Sumerian(R) Crypto Anchors, DataScore, and DataValue AI agents, by combining blockchain immutability with AI driven valuation and quantum resistant encryption to support the tokenization of intellectual property, creative content, and data assets as secure real world assets.
+This article has been disseminated on behalf of ShelfieTech Ltd. (CSE: SHLF) (OTCQB: SHLFF) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/vlI26
+ * ShelfieTech’s corporate update highlights a strengthened financial position through recently completed financing rounds.
+* Another significant milestone is the completion of the company’s dual listing on both the CSE and the OTCQB market.
+* ShelfieTech has reached a foundational milestone by concluding the first stage of research and development for its Robotic Retail Shelf Monitoring System.
 
- About Datavault AI Inc.
+ Retail technology innovators that can turn research progress into market-ready solutions often attract strong attention, especially when they achieve tangible milestones that move them closer to wide adoption. In a recent corporate update, ShelfieTech (CSE: SHLF) (OTCQB: SHLFF) outlines a series of accomplishments in 2025 that reflect both strategic execution and momentum in deploying its next-generation retail automation technology. From financing success to dual exchange listings and product development advancements, the company’s update highlights a year of meaningful corporate progress.
 
- Datavault AI (NASDAQ: DVLT) is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
+ ShelfieTech’s corporate update highlights the company’s strengthened financial position through recently completed financing rounds that add depth to its balance sheet. Earlier this month, the company closed a private placement that raised approximately $1.7 million, bringing the total capital raised this year to…
 
- NOTE TO INVESTORS: The latest news and updates relating to DVLT are available in the company’s newsroom at https://ibn.fm/DVLT
+ Read More>>
 
- About Web3MediaWire
+ NOTE TO INVESTORS: The latest news and updates relating to SHLFF are available in the company’s newsroom at https://ibn.fm/SHLFF
 
- Web3MediaWire (“W3MW”) is a specialized communications platform with a focus on the next generation of internet technologies. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, W3MW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, W3MW brings its clients unparalleled recognition and brand awareness. W3MW is where breaking news, insightful content and actionable information converge.
+ About TechMediaWire
 
- To receive SMS alerts from Web3MediaWire, text “Web3” to 888-902-4192 (U.S. Mobile Phones Only)
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.Web3MediaWire.com
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the Web3MediaWire website applicable to all content provided by W3MW, wherever published or re-published: https://www.Web3MediaWire.com/Disclaimer
+ For more information, please visit https://www.TechMediaWire.com
 
- Web3MediaWireAustin, Texaswww.Web3MediaWire.com512.354.7000 OfficeEditor@Web3MediaWire.com
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- Web3MediaWire is powered by IBN 
+ TechMediaWireLos Angeles, CAwww.TechMediaWire.com310.299.1717 OfficeEditor@TechMediaWire.com
+
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/w3mw/web3mediabreaks-datavault-ai-inc-nasdaq-dvlt-secures-two-u-s-patents-strengthening-blockchain-based-content-monetization-portfolio/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/shelfietech-ltd-cse-shlf-otcqb-shlff-hits-key-corporate-milestones-with-funding-growth-product-progress/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-secures-key-patents-for-blockchain-content-monetization/abb67befe6593baced9089e2035b504c) 
-
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/353787-faq-datavault-ais-new-blockchain-content-monetization-patents)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shelfietech-hits-key-milestones-funding-dual-listing-retail-tech-progress/48d7dfb64df364acf18f559813bfc6db) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/22/heal1Bt1.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/22/filoSJg6.webp)

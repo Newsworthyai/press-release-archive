@@ -1,48 +1,58 @@
-# Local Doctor Helps Diabetic Patient Avoid Foot Amputation Through Care
+# Perfect Climate and Lewis Plumbing merge for better customer care
 
-Lakeville Professional Assists Diabetic Patient Avoid Foot Amputation And Improves Neuropathy Symptoms
+Perfect Climate expands its reach with Lewis Plumbing acquisition
 
- Lakeville, United States - December 19, 2025 / ALIGN Integrated Health /
+ Haubstadt, United States - December 21, 2025 / Perfect Climate Heating, Air & Plumbing /
 
- Lakeville, MN - A Rosemount resident is walking today thanks to early intervention and coordinated care that helped him avoid a full foot amputation.
+ Perfect Climate Heating, Air & Plumbing is excited to share its recent acquisition of Lewis Plumbing, Heating, & AC, merging two reputable, service-oriented companies under a unified banner. This integration enhances Perfect Climate's capability to address homeowners' heating, cooling, plumbing, and indoor air quality requirements while maintaining the local service principles that customers have depended on for many years.
 
-Bob, a Rosemount, Minnesota resident living with diabetes, first learned about ALIGN after reading about the clinic in a local newspaper. At the time, Bob was facing serious complications involving his foot, a common and dangerous issue for individuals with diabetes that can often lead to partial or full amputation if not addressed properly.
+This acquisition signifies a mutual dedication to dependability, quality workmanship, and customer-centric service. By uniting teams, resources, and expertise, Perfect Climate is broadening its ability to provide responsive, comprehensive home comfort solutions across Haubstadt and the neighboring regions.
 
-After seeking care at ALIGN, Bob was placed under a comprehensive treatment protocol overseen by Dr. Cody Rodewald DC, Clinical Director of ALIGN. Through consistent care, close monitoring, and Bob’s commitment to following the recommended plan, his condition stabilized and improved—ultimately preventing the need for full foot amputation.
+Implications of the Transition for HomeownersWith the two companies now functioning as one, customers benefit from the ease of having a single, reliable provider for plumbing, heating, cooling, and indoor air quality services, encompassing repair, installation, and replacement. The newly expanded organization enables Perfect Climate to provide 24/7 emergency service, guaranteeing that homeowners can access professional assistance at any time, including nights, weekends, and holidays.
 
-“Bob had a number of health challenges,” said Dr. Rodewald. “But he was compliant with care, and because of that, it literally saved his foot from requiring full amputation.”
+Perfect Climate continues to be locally owned and operated, upholding a tradition of serving the Haubstadt community that began in 2009. Homeowners can look forward to the same friendly service combined with enhanced service capabilities and a larger support team. All technicians are bonded, insured, and have undergone background checks, ensuring peace of mind with every visit.
 
-Diabetic foot complications are a leading cause of lower-extremity amputations in the United States. According to national data, many of these outcomes are preventable with early intervention, proper circulation support, inflammation management, and coordinated clinical oversight.
+Continuity for Customers of Lewis PlumbingCustomers who previously relied on Lewis Plumbing, Heating, & AC do not need to take any action or find a new provider. Perfect Climate Heating, Air & Plumbing has taken on full responsibility for ongoing service and support, ensuring a smooth transition. Former Lewis customers can arrange for service by contacting Perfect Climate directly or using the online contact form and will continue to receive attentive, expert care.
 
-Dr. Rodewald emphasized that Bob’s outcome was the result of both appropriate care and patient engagement. “This is a reminder of how critical it is for patients not to ignore warning signs and to take action early. When patients partner with their care team and follow through, the results can be life-changing.”
+Any existing warranties or service agreements made with Lewis Plumbing will be reviewed and honored by Perfect Climate. The company's objective is to uphold the coverage customers were promised while guaranteeing uninterrupted service and long-term system reliability.
 
-ALIGN focuses on integrated, patient-centered care designed to address complex health challenges while helping patients maintain mobility, independence, and quality of life.
+Dedication to Fair Pricing and Dependable ServicePerfect Climate remains devoted to providing honest recommendations, transparent pricing, and solutions customized to each homeowner's needs and budget. Competitive pricing will persist, along with financing options designed to make larger repairs or system replacements more attainable. The emphasis continues to be on assisting customers in making informed decisions while ensuring their homes remain safe and comfortable throughout the year.
 
-Bob’s story stands as a powerful example of what is possible when proactive care meets patient commitment.
+Emergency service remains a fundamental offering, underscoring Perfect Climate's commitment to reliable care when it is most needed. Regardless of when an issue arises, homeowners can rely on prompt, professional assistance.
 
- [](https://press-releases-production.s3.amazonaws.com/images/mMkMDGyys7lpeR3p5tklrn4G2c6i2LfPTlR3otGg.png) [](https://alignlakeville.com) Contact Information:
+Looking ForwardWhether you have been a loyal customer of Lewis Plumbing, Heating, & AC or are new to Perfect Climate Heating, Air & Plumbing, this transition provides increased convenience, expanded services, and ongoing local care under a single trusted name. Customers can anticipate the same integrity and dependability they appreciate, bolstered by a stronger team and broader service capabilities.
 
- ALIGN Integrated Health
+Homeowners are encouraged to arrange for service today and trust their HVAC, plumbing, and indoor air quality systems to seasoned professionals dedicated to ensuring consistent comfort and total peace of mind.
+
+To schedule service or learn more, contact Perfect Climate Heating, Air & Plumbing today.
+
+ [](https://press-releases-production.s3.amazonaws.com/images/zVf1Qvac0sYX1HKQDB9nsZCsh5BqK8FWsrqMGWHi.jpg) [](https://callperfectclimate.com) Contact Information:
+
+ Perfect Climate Heating, Air & Plumbing
 
  
 
-16301 Kenrick Ave  Lakeville, MN 55044United States
+189 IN-68  Haubstadt, IN 47639United States
 
- Dr. Cody Rodewald (952) 595-6337 https://alignlakeville.com 
+ Perfect Climate Heating, Air & Plumbing Heating, Air & Plumbing +1 (812) 615-2732 https://callperfectclimate.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/local-doctor-helps-diabetic-patient-avoid-foot-amputation-through-care-402219)
+[Original/Source Press Release](https://mediawiretoday.com/perfect-climate-and-lewis-plumbing-merge-for-better-customer-care-403206)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/diabetic-patient-avoids-foot-amputation-through-early-intervention-at-align/c4d19b91ab717e2fc675a5792bc91e08) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perfect-climate-expands-home-service-reach-with-lewis-plumbing-acquisition/c0d04443d4a274894acb8359b6fa982a) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/353566-faq-how-align-integrated-health-helped-a-diabetic-patient-avoid-foot-amputation)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/353953-faq-perfect-climates-acquisition-of-lewis-plumbing-what-homeowners-need-to-know)
+
+Pickup - [https://advos.io/en](https://advos.io/en/perfect-climate-expands-service-reach-through-acquisition-of-lew/202525819)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/353999-perfect-climate-expands-service-capabilities-through-acquisition-of-lewis-plumbing)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2512/22/navyGGxb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2512/22/lineMe3s.webp)

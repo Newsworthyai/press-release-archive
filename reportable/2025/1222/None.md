@@ -1,36 +1,40 @@
-# Stonegate Updates Coverage on Hooker Furniture Corporation (NASDAQ: HOFT) Q3 FY26
+# Tariff Shifts and the Future of Southern California Logistics
 
-Dallas, texas. December 22, 2025
+Temecula, CA – December 22, 2025
 
-DALLAS, TX -- December 22nd, 2025 --Hooker Furniture Corporation (NASDAQ: HOFT): Stonegate Capital Partners updates their coverage on Hooker Furniture Corporation (NASDAQ: HOFT). HOFT reported revenue, operating income, and adj EPS of $70.7M, ($16.3)M, and ($1.99), respectively. This compares to our/consensus estimates of $85.2M/$85.5M, ($2.2)M/($2.2)M, and ($0.15)/($0.14). Revenues came in below expectations, declining 32.2% y/y, driven primarily by the Company selling the majority of it’s HMI business segment. In contrast, Hooker Branded net sales grew 4.4% y/y and Domestic Upholstery increased 3.0%, underscoring continued resilience in the Legacy brands. Following the sale of its lower margin HMI business consolidated gross margins grew to 25.6% showing sequential growth. Overall profitability was challenged by one time trade name impairment charges related to the HMI transaction, which we expect to be mostly one time in nature. Management reaffirmed its focus on navigating macro headwinds such as housing market weakness, high mortgage rates, and subdued consumer demand, while positioning the company to return to profitability.
+As changing U.S. tariff structures begin reshaping global supply chains, the Inland Empire wine country region is emerging as a strategic logistical environment. Long known for tourism and agricultural assets, the region is increasingly being recognized, not only for its proximity to the Ports of Los Angeles and Long Beach, strong distribution infrastructure, and rapidly expanding warehousing capacity, but for its location in a Foreign-Trade Zone (FTZ).
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Transformative sale of two HMI Brands
-* Consolidated GPM grew to 25.6%
-* Impressive buzz around the upcoming Margaritaville launch
+Key Takeaways:* The Southern California Wine Country region is increasingly being recognized for its location in a Foreign-Trade Zone. Being located within an FTZ allows for deferred or reduced duty costs on imports.
+* The Inland Empire wine country region is emerging as a strategic logistical environment for commerce.
+* 
 
-[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-updates-coverage-on-hooker-furniture-corporation-nasdaq-hoft-q3-fy26)About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
+[Click image above to view full announcement.](https://southern-california-wine-country-edc.reportablenews.com/pr/tariff-shifts-and-the-future-of-southern-california-logistics)About Southern California Wine Country EDCThe Southern California Wine Country EDC is a nonprofit economic-development organization serving Temecula, Menifee, Lake Elsinore and southwestern Riverside County. For more than 30 years, the EDC has helped businesses relocate, expand or start up in one of Southern California’s fastest-growing and most strategic regions. Leveraging partnerships, incentives and a business-friendly environment, the EDC is committed to fostering sustainable growth, innovation and quality of life. SoCalWineCountryEDC.com
 
-Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
+Contacts:Liselle DeGrave, APR951-764-0865Liselle@DeGravePR.com
 
-Source: Stonegate, Inc.
+Source: Southern California Wine Country EDC
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-updates-coverage-on-hooker-furniture-corporation-nasdaq-hoft-q3-fy26)
+[Original/Source Press Release](https://southern-california-wine-country-edc.reportablenews.com/pr/tariff-shifts-and-the-future-of-southern-california-logistics)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hooker-furniture-posts-mixed-q3-results-amid-strategic-restructuring/a1b63b36ba67b15d2f47da55cdb8018d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inland-empire-wine-country-emerges-as-strategic-logistics-hub-amid-tariff-shifts/75a7e9d83024b7ce00fe9cd2aa0bd0c5) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/353788-faq-stonegates-q3-fy26-coverage-update-on-hooker-furniture-corporation-hoft)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/353930-faq-tariff-shifts-and-southern-california-wine-countrys-logistics-advantages)
+
+Pickup - [https://advos.io/en](https://advos.io/en/foreign-trade-zone-status-positions-inland-empire-wine-country-a/202525817)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/354003-southern-california-wine-country-emerges-as-strategic-logistics-hub-amid-tariff-changes)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/22/beanm3Dn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/22/wall1ASF.webp)
