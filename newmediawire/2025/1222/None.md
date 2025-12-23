@@ -1,34 +1,60 @@
-# A2Z Cust2Mate Solutions (AZ) Featured on Reboot Chronicles Discussing AI-Driven Transformation of Grocery Retail
+# National Law Review Names HelloPrenup's Julia Rodgers as Editor-In-Chief of Family Law Newsletter
 
-LOS ANGELES, CA - December 22, 2025 (NEWMEDIAWIRE) - A2Z Cust2Mate Solutions (NASDAQ: AZ) was recently featured on The Reboot Chronicles, where Chief Executive Officer Gadi Graus joined host Dean DeBias to discuss how artificial intelligence is reshaping supermarket shopping and modern leadership. During the episode, Graus shared his personal transition from a decades-long career in corporate law to leading a publicly traded retail technology company, emphasizing how embracing risk and adapting to constant change have informed both his leadership philosophy and the company’s growth strategy.
+The NLR has named Julia Rodgers, Esq. as Editor-In-Chief of The National Law Review’s family law newsletter, which debuted on December 5, 2025.
 
- The conversation highlighted A2Z Cust2Mate’s AI-powered smart cart platform, which is designed to transform the in-store shopping experience through personalized guidance, frictionless checkout, and real-time shopper engagement. Graus explained how the platform integrates AI, data, and retail media capabilities to help grocers deliver tailored promotions, improve operational efficiency, and generate actionable insights from shopper behavior while customers move through the store.
+ CHICAGO - December 22, 2025 (NEWMEDIAWIRE) - The National Law Review (NLR) and leading family law expert, Julia Rodgers, Esq., are proud to announce the launch of The Family Law Reporter, a monthly newsletter delivering expert insight into the ways family law intersects with business and financial matters.
 
- In addition to discussing retail innovation, Graus reflected on how AI is influencing executive decision-making and leadership practices. He noted that AI enables leaders to move more quickly from information gathering to interpretation and action, freeing time for higher-value conversations and strategic thinking, while reinforcing the importance of thriving in complexity and maintaining a culture that embraces experimentation and continuous improvement.
+ As Founder and CEO of the legal-tech company HelloPrenup, Rodgers brings her valuable experience as an entrepreneur to bear on her analysis of challenging issues which arise when business and personal relationships become entangled.
 
- To view the full interview, visit https://ibn.fm/PZO3t
+ “Family law doesn’t exist in a vacuum. It affects finances, businesses, and long-term planning in ways that are often overlooked,” said Rodgers. “With The Family Law Reporter, we’re excited to work with the National Law Review to bring cutting-edge family law content to our subscribers and help them stay informed on the family issues that shape both personal and business outcomes.”
 
- About A2Z Cust2Mate Solutions Corp.
+ The partnership combines the NLR’s extensive reach in the legal sector with Julia Rodgers’ thought leadership. Both sides recognize the expanding overlap between family law and business considerations, including asset protection, financial planning, entrepreneurial decision-making, and long-term wealth strategy.
 
- A2Z Cust2Mate Solutions Corp. creates innovative solutions for complex challenges that brings innovation, ease, excitement and value to retailers and shoppers. The company’s flagship innovative smart cart solutions are transforming brick-and-mortar retail, bridging online and in-store shopping through interactive technology that guides and informs customers. Cust2Mate’s AI-driven smart carts personalize every in-store journey, turning routine trips into engaging, rewarding experiences. They enable seamless in-cart scanning and payment, allowing shoppers to bypass checkout lines while receiving real-time customized offers and product recommendations. This enhanced customer experience boosts satisfaction and loyalty while helping retailers streamline operations and optimize merchandising through data-driven insights. The carts are equipped with multiple layers of security for accurate recognition and transaction integrity. Its modular, all-in-one detachable panels transform legacy shopping cart fleets into intelligent platforms that deliver a range of benefits.
+ About Julia Rodgers, Esq.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Julia Rodgers is a successful family law practitioner and the Founder and CEO of HelloPrenup, which was recently backed by a strategic investment from a leading venture capital fund. Her motivation came from watching couples struggle in her family law practice, not because of conflict, but because navigating the legal system was overwhelming and financially out of reach. Julia became the first legal tech founder to pitch on ABC’s hit television show Shark Tank in 2021, and has been featured in a Forbes cover story, as well as in Fortune, CNN, CNBC, among many others.
 
- Forward Looking Statements
+ About The National Law Review (NLR)
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ The National Law Review is a leading online platform for legal and business news and analysis, offering a curated selection of articles authored by attorneys and other thought leaders. With millions of monthly readers and a strong newsletter subscriber base, NLR provides valuable legal insights to business leaders, attorneys, investors, and those following the tax and accounting field. Visit natlawreview.com.
+
+ To subscribe to The Family Law Reporter, see the NLR’s Newsletter section.
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/a2z-cust2mate-solutions-az-featured-on-reboot-chronicles-discussing-ai-driven-transformation-of-grocery-retail-7084695)
+[Original/Source Press Release](https://www.newmediawire.com/news/national-law-review-names-helloprenup-s-julia-rodgers-as-editor-in-chief-of-family-law-newsletter-7084698)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-smart-carts-transform-grocery-shopping-leadership-insights/889f9c6d17fd1d89755d84d1dc020c2e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nlr-launches-family-law-reporter-with-helloprenup-s-julia-rodgers-as-editor/88b5d1652166e9afacbc1af3312bd0c0) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202512/354552-national-law-review-appoints-helloprenup-founder-julia-rodgers-as-editor-in-chief-of-new-family-law-newsletter)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335601-national-law-review-ernennt-helloprenup-grunderin-julia-rodgers-zur-chefredakteurin-des-neuen-familienrechts-newsletters)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335617-national-law-review-designa-a-julia-rodgers-fundadora-de-helloprenup-como-directora-editorial-de-su-nuevo-boletin-de-derecho-familiar)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336276-le-national-law-review-nomme-julia-rodgers-fondatrice-de-helloprenup-redactrice-en-chef-du-nouveau-bulletin-dinformation-sur-le-droit-de-la-famille)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335514-national-law-review-nomeia-julia-rodgers-fundadora-da-helloprenup-como-editora-chefe-do-novo-boletim-de-direito-de-familia)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/354495-faq-julia-rodgers-named-editor-in-chief-of-national-law-reviews-family-law-newsletter)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/354745-national-law-review-launches-family-law-newsletter-led-by-legal-tech-entrepreneur-julia-rodgers)
+
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202512/354768-national-law-review-launches-family-law-newsletter-led-by-legal-tech-entrepreneur-julia-rodgers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/22/airy6XKz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/22/lend8mYJ.webp)
