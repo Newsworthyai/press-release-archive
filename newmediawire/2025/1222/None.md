@@ -1,60 +1,70 @@
-# National Law Review Names HelloPrenup's Julia Rodgers as Editor-In-Chief of Family Law Newsletter
+# DiNAQOR Strengthens Group Leadership With Strategic Appointments
 
-The NLR has named Julia Rodgers, Esq. as Editor-In-Chief of The National Law Review’s family law newsletter, which debuted on December 5, 2025.
+Seasoned Biotech Entrepreneur Dr. Christian Thirion Appointed CEO of DiNATEQ AG and Group Chief Strategy & Business Development Officer; Dr. Josef El Andari Named Chief Scientific Officer of DiNAQOR AG as the Company Continues to Build and Scale Next-generation Life Science Ventures
 
- CHICAGO - December 22, 2025 (NEWMEDIAWIRE) - The National Law Review (NLR) and leading family law expert, Julia Rodgers, Esq., are proud to announce the launch of The Family Law Reporter, a monthly newsletter delivering expert insight into the ways family law intersects with business and financial matters.
+ ZURICH/SCHLIEREN, Switzerland - December 22, 2025 (NEWMEDIAWIRE) - DiNAQOR AG, an innovative health technology group advancing promising early-stage drug development, today announced a series of strategic leadership appointments that further strengthen its position as a life science company builder focused on creating, scaling, and partnering next-generation biotechnology ventures by enabling the use of advanced, human‑relevant nonclinical testing methods.
 
- As Founder and CEO of the legal-tech company HelloPrenup, Rodgers brings her valuable experience as an entrepreneur to bear on her analysis of challenging issues which arise when business and personal relationships become entangled.
+ Appointment of Dr. Christian Thirion as CEODr. Christian Thirion has been appointed Chief Executive Officer and Delegate of the Board of Directors of DiNATEQ AG, the recently established DiNAQOR spin-out focused on the clinical translation of the closed-loop loco-regional perfusion (LRP) delivery platform. In addition, Dr. Thirion assumes the newly created role of Chief Strategy and Business Development Officer of DiNAQOR AG, where he will lead group-wide corporate strategy, strategic partnerships, and M&A activities.
 
- “Family law doesn’t exist in a vacuum. It affects finances, businesses, and long-term planning in ways that are often overlooked,” said Rodgers. “With The Family Law Reporter, we’re excited to work with the National Law Review to bring cutting-edge family law content to our subscribers and help them stay informed on the family issues that shape both personal and business outcomes.”
+ Dr. Thirion brings more than two decades of entrepreneurial and executive leadership experience in the life sciences industry. He founded Sirion Biotech and led the company as its long-standing Chief Executive Officer, where he successfully built the company into a global market leader in viral vector engineering and AAV-based gene delivery. Under his leadership, Sirion Biotech became a preferred partner to leading pharmaceutical and biotechnology companies worldwide and was ultimately acquired by PerkinElmer in a landmark transaction, underscoring the strategic value of Sirion’s technology platform.
 
- The partnership combines the NLR’s extensive reach in the legal sector with Julia Rodgers’ thought leadership. Both sides recognize the expanding overlap between family law and business considerations, including asset protection, financial planning, entrepreneurial decision-making, and long-term wealth strategy.
+ Dr. Thirion earned his Ph.D. in Biochemistry from the Gene Center at Ludwig-Maximilians-Universitat Munchen. Following his doctoral work, he conducted postdoctoral research in gene therapy and molecular biology at leading German research institutions, including the Department of Gene Therapy at Universitätsklinikum Ulm and LMU Munich.
 
- About Julia Rodgers, Esq.
+ Johannes Holzmeister, Founder of the DiNAQOR Group and Chairman and CEO of DINAQOR AG, commented: “Christian is a rare combination of visionary entrepreneur, disciplined operator, and trusted partner to global pharmaceutical companies. His success in building Sirion Biotech from a pioneering start-up into a market-leading company speaks for itself. With Christian joining DiNAQOR as CEO of DiNATEQ and as Group Chief Strategy and Business Development Officer, we are significantly strengthening our ability to build companies, execute partnerships, and translate breakthrough technologies into clinical and commercial success.”
 
- Julia Rodgers is a successful family law practitioner and the Founder and CEO of HelloPrenup, which was recently backed by a strategic investment from a leading venture capital fund. Her motivation came from watching couples struggle in her family law practice, not because of conflict, but because navigating the legal system was overwhelming and financially out of reach. Julia became the first legal tech founder to pitch on ABC’s hit television show Shark Tank in 2021, and has been featured in a Forbes cover story, as well as in Fortune, CNN, CNBC, among many others.
+ Dr. Thirion added: “DiNAQOR has built an exceptional ecosystem for turning scientific innovation into impactful biotechnology companies. The closed-loop perfusion platform represents a truly differentiated delivery technology with the potential to unlock multiple therapeutic modalities across organs. I am excited to lead DiNATEQ at this pivotal stage and, at the group level, to help shape DiNAQOR’s long-term strategy, forge strong pharmaceutical partnerships, and continue building companies that address significant unmet medical needs.”
 
- About The National Law Review (NLR)
+ Appointment of Dr. Josef El Andari as Chief Scientific OfficerIn parallel, DiNAQOR Group AG announced the appointment of Josef El Andari, Ph.D., as Chief Scientific Officer of DiNAQOR AG.
 
- The National Law Review is a leading online platform for legal and business news and analysis, offering a curated selection of articles authored by attorneys and other thought leaders. With millions of monthly readers and a strong newsletter subscriber base, NLR provides valuable legal insights to business leaders, attorneys, investors, and those following the tax and accounting field. Visit natlawreview.com.
+ Dr. El Andari has been with DiNAQOR for more than four years and has played a central role in advancing the company’s scientific platforms, including the development of the closed-loop perfusion technology from early concept through publication in leading peer-reviewed journals. His expertise spans genomic medicine, translational research, and advanced viral vector technologies, with a particular focus on AAV design and bioengineering.
 
- To subscribe to The Family Law Reporter, see the NLR’s Newsletter section.
+ Dr. El Andari commented: “Over the past four years, DiNAQOR has evolved into a uniquely integrated innovation engine for advanced therapies. I am honored to take on the role of Chief Scientific Officer and to continue working with our teams and partners to translate rigorous science into therapies with real clinical impact. Our ambition is not only to innovate, but to do so in a way that is scalable, clinically relevant, and aligned with the highest scientific standards.”
+
+ About DiNAQORDiNAQOR AG is a biotechnology company pioneering precision delivery technologies for genetic and advanced therapies. Headquartered in Schlieren, Switzerland, DiNAQOR integrates proprietary delivery platforms, vector innovation, and translational expertise to enable safer, more effective therapies for organ-specific diseases.
+
+ DiNAQOR AG operates as a life science company builder, creating and scaling focused biotechnology companies around differentiated technology platforms. In addition to DiNATEQ AG, DINAQOR has demonstrated its company-building and value-creation capabilities through successful strategic transactions, including the recent M&A of DiNAMIQS, a specialized adeno-associated virus (AAV) manufacturing and development company.These milestones underscore DiNAQOR’s ability to identify high-impact technologies, build dedicated operating companies around them, and realize value through partnerships and strategic transactions with global industry leaders. For more information visit www.dinaqor.com.
+
+ Contact Nicolas WeidmannDynamics Group AGnwe@dynamicsgroup.ch +41 43 268 27 44+41 79 372 29 81 Mobil
+
+ Additional features: File: [Media Release DINAQOR_Leadership_2025 en](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=c784710a47f64dfafd2fd34708ebe0f9&application_id=2250276&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/national-law-review-names-helloprenup-s-julia-rodgers-as-editor-in-chief-of-family-law-newsletter-7084698)
+[Original/Source Press Release](https://www.newmediawire.com/news/dinaqor-strengthens-group-leadership-with-strategic-appointments-7084700)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nlr-launches-family-law-reporter-with-helloprenup-s-julia-rodgers-as-editor/88b5d1652166e9afacbc1af3312bd0c0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dinaqor-bolsters-leadership-with-key-appointments-to-scale-biotech-ventures/a3c4b57d28fba4d266537c5470715e40) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+Pickup - [https://advos.io/en](https://advos.io/en/dinaqor-bolsters-leadership-team-with-key-appointments-to-drive/202525831)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/354552-national-law-review-appoints-helloprenup-founder-julia-rodgers-as-editor-in-chief-of-new-family-law-newsletter)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/354970-dinaqor-bolsters-leadership-team-with-strategic-executive-appointments-to-drive-next-generation-biotech-ventures)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335601-national-law-review-ernennt-helloprenup-grunderin-julia-rodgers-zur-chefredakteurin-des-neuen-familienrechts-newsletters)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335602-dinaqor-verstarkt-fuhrungsteam-mit-strategischen-vorstandsernennungen-fur-biotech-unternehmen-der-nachsten-generation)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335617-national-law-review-designa-a-julia-rodgers-fundadora-de-helloprenup-como-directora-editorial-de-su-nuevo-boletin-de-derecho-familiar)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335631-dinaqor-refuerza-su-equipo-directivo-con-nombramientos-estrategicos-para-impulsar-empresas-biotecnologicas-de-nueva-generacion)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336276-le-national-law-review-nomme-julia-rodgers-fondatrice-de-helloprenup-redactrice-en-chef-du-nouveau-bulletin-dinformation-sur-le-droit-de-la-famille)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336284-dinaqor-renforce-son-equipe-de-direction-avec-des-nominations-strategiques-pour-piloter-les-futures-entreprises-biotechnologiques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335514-national-law-review-nomeia-julia-rodgers-fundadora-da-helloprenup-como-editora-chefe-do-novo-boletim-de-direito-de-familia)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335515-dinaqor-reforca-equipa-de-lideranca-com-nomeacoes-estrategicas-de-executivos-para-impulsionar-empreendimentos-biotecnologicos-de-nova-geracao)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/354495-faq-julia-rodgers-named-editor-in-chief-of-national-law-reviews-family-law-newsletter)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/354901-faq-dinaqors-strategic-leadership-appointments-and-company-expansion)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/dinaqor-bolsters-leadership-with-key-executive-appointments-to-a/202525831)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/national-law-review-appoints-helloprenup-founder-julia-rodgers-a/202525829)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/dinaqor-strengthens-leadership-team-to-advance-biotechnology-com/202525831)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/354745-national-law-review-launches-family-law-newsletter-led-by-legal-tech-entrepreneur-julia-rodgers)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202512/354941-dinaqor-strengthens-leadership-with-key-appointments-to-advance-biotechnology-ventures)
 
-Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202512/354768-national-law-review-launches-family-law-newsletter-led-by-legal-tech-entrepreneur-julia-rodgers)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/355181-dinaqor-ag-strengthens-leadership-with-strategic-appointments-to-advance-biotechnology-ventures)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/22/lend8mYJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/23/lilywD13.webp)
