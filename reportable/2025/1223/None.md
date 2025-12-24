@@ -1,52 +1,58 @@
-# 612-Injured Heimerl &amp; Lammers Injury Law Launches Redesigned Website to Improve Access for Injured Minnesotans
+# Stonegate Capital Partners Initiates Coverage on Armour Residential REIT, Inc. (NYSE: ARR)
 
-Minneapolis, MN - Tuesday Dec 23, 2025
+Dallas, TX. December 23rd, 2025
 
-Heimerl & Lammers announced today the launch of its redesigned website, 612Injured.com, created to help injured Minnesotans connect more quickly with experienced legal counsel during critical moments following a serious injury.
+DALLAS, TX -- December 23rd, 2025 -- Armour Residential REIT, Inc. (NYSE: ARR): Stonegate Capital Partners initiates their coverage on Armour Residential REIT, Inc. (NYSE: ARR). The Company ended the quarter with revenues, net income to common, and diluted EPS of $210.2M, $156.3M, and $1.49. This was a year over year increase of 65.4%, 148.5% and 23.2% respectively. This was primarily driven by the strong growth in average interest income on interest earning assets while interest cost on average interest-bearing liabilities declined. Given the current macro environment, we expect this performance to be sustainable.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Heimerl & Lammers launched a redesigned website, 612Injured.com, to help Minnesotans easily connect with legal counsel after injuries.
-* The site emphasizes clear information, direct attorney access, significant case results, and mobile accessibility for clients' convenience.
-* Heimerl & Lammers is a trusted Minnesota law firm known for trial-ready advocacy and practical guidance in injury cases.
+Key Takeaways:* Strong 19.3% annualized dividend yield, paid monthly
+* Value play trading at a discount to Book Value
+* 7.75% total economic return in the quarter
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/612-injured-heimerl-lammers-injury-law-launches-redesigned-website-to-improve-access-for-injured-minnesotans)About 612-Injured & Heimerl & LammersHeimerl & Lammers is a Minnesota-based law firm representing individuals and families in personal injury, wrongful death, workers’ compensation, and family law matters. Through its injury practice, 612-Injured, the firm represents clients in serious injury and wrongful death cases statewide. The firm is known for trial-ready advocacy, direct attorney involvement, and practical guidance for clients facing high-stakes legal decisions.
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-inc-nyse-arr)About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-Contacts:Laurel Kope612-238-3032laurelk@hllawfirm.com
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-Source: Newsworthy.ai
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/612-injured-heimerl-lammers-injury-law-launches-redesigned-website-to-improve-access-for-injured-minnesotans)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-inc-nyse-arr)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heimerl-lammers-launches-redesigned-612injured-com-for-minnesota-injury-victims/146389f11f0e76cbc28ca267a34353a7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stonegate-initiates-coverage-on-armour-reit-highlights-19-3-yield-strong-growth/619953730129049907919279f29bd9d7) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/minnesota-law-firm-launches-redesigned-website-to-enhance-legal/202525848)
+Pickup - [https://advos.io/en](https://advos.io/en/stonegate-capital-partners-initiates-coverage-on-armour-resident/202525885)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/355853-heimerl-lammers-launches-redesigned-website-to-enhance-legal-access-for-injured-minnesotans)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/356443-stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-highlighting-strong-financial-performance-and-dividend-yield)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335619-heimerl-lammers-startet-neu-gestaltete-website-zur-verbesserung-des-rechtszugangs-fur-verletzte-minnesotaner)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335572-stonegate-capital-partners-inicia-cobertura-sobre-a-armour-residential-reit-destacando-forte-desempenho-financeiro-e-rendimento-de-dividendos)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335658-heimerl-lammers-lanza-un-sitio-web-redisenado-para-mejorar-el-acceso-legal-de-los-minnesotanos-lesionados)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/356428-faq-stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-arr)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336302-heimerl-lammers-lance-un-site-web-repense-pour-ameliorer-lacces-a-la-justice-pour-les-minnesotains-blesses)
+Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202512/356469-stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-highlighting-strong-financial-growth)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335532-heimerl-lammers-lanca-site-redesenhado-para-melhorar-o-acesso-juridico-para-minnesotanos-lesados)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202512/335698-stonegate-capital-partners-inicia-cobertura-de-armour-residential-reit-destacando-un-solido-crecimiento-financiero)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/355851-faq-heimerl-lammers-redesigned-website-for-injured-minnesotans)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335655-stonegate-capital-partners-nimmt-armour-residential-reit-unter-die-lupe-und-hebt-starke-finanzperformance-und-dividendenrendite-hervor)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/minnesota-law-firm-heimerl-lammers-launches-redesigned-website-t/202525848)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335695-stonegate-capital-partners-inicia-cobertura-sobre-armour-residential-reit-destacando-su-solido-desempeno-financiero-y-rendimiento-de-dividendos)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heimerl-lammers-injury-law-launches-redesigned-website-to-improv/202525848)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336352-stonegate-capital-partners-lance-une-couverture-sur-armour-residential-reit-soulignant-une-solide-performance-financiere-et-un-rendement-de-dividende-attractif)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/356471-stonegate-capital-partners-initiates-coverage-on-armour-residential-reit-highlighting-strong-financial-growth)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/stonegate-capital-partners-initiates-coverage-on-armour-resident/202525885)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/stonegate-capital-partners-initiates-coverage-on-armour-resident/202525885)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/23/tallTDlD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2512/23/riftVw36.webp)
