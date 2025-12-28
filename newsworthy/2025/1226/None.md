@@ -1,71 +1,40 @@
-# Dueling Pianos debuts at Comedy Village comedy club
+# College Station at the Center of Texas Growth: Mayor John Nichols on Managing Expansion, Innovation, and Opportunity
 
-NEW YORK, NY (Newsworthy.ai) Friday Dec 26, 2025 @ 11:00 AM Eastern — Comedy Village is rolling out one of the most interactive live music events in New York City: Dueling Pianos, an all-request, high-energy party where the crowd controls the music.
+College Station, Texas (Newsworthy.ai) Friday Dec 26, 2025 @ 9:00 AM US/Central — College Station at the Center of Texas Growth: Mayor John Nichols on Managing Expansion, Innovation, and Opportunity
 
- This is not a sit-back-and-watch show. You choose the songs. You sing along. You become part of the performance.
+ 
 
- Located in the heart of the Broadway Theater District, this is the perfect pre-show plan. You can show up early, grab brunch, enjoy live music, and still make it to your Broadway curtain call just minutes away. No rushing across town. No guesswork. You start your day exactly where the action is.
+ College Station sits squarely in the middle of the Texas Triangle, but its influence reaches far beyond geography. In the latest episode of The Building Texas Show, host Justin McKenzie visits with John Nichols, Mayor of College Station, to explore how one of Texas’ most dynamic university cities is planning for its next decade of growth.
 
- Doors open at 12:30 PM. Showtime is 1:00 PM. Expect an afternoon built for escaping holiday stress with live music, strong drinks, and a brunch menu made for sharing. Mimosas and Bloody Marys will be flowing. The room stays loud, loose, and fun from the first note to the last chorus.
+ Home to nearly 80,000 students at Texas A&M University, College Station is a uniquely transient city—balancing the needs of long-term residents with a constantly renewing student population. Mayor Nichols describes a community that is growing by roughly 2,000 residents each year, fueled not only by students who choose to stay, but by faculty, researchers, biotech firms, and private-sector employers increasingly drawn to the region.
 
- Brunch menu highlights include:
+ “College Station was once known primarily as a bedroom community for the university,” Nichols explains. “Today, we are a net private-sector employment city for the first time in our history.”
 
- * The Great Escape Bagel with lox, chive cream cheese, capers, red onion, dill, and lemon
-* Caprese Bagel with mozzarella, tomato, and basil pesto
-* Everything Avocado Bagel
-* Wagyu sliders
+ That shift did not happen by accident. The conversation highlights how the city’s economic development strategy is intentionally diversifying beyond education, with a growing emphasis on entrepreneurship and innovation. Working alongside Texas A&M programs and external partners, the city is exploring adaptive reuse of existing facilities to create flexible startup and innovation hubs—lowering barriers for early-stage founders who need space, connectivity, and support to grow.
 
- Admission is $22 with a one-item minimum.
+ Mayor Nichols also addresses one of the city’s biggest structural challenges: access to capital. While talent and research flow freely through College Station, venture and growth capital remain concentrated in larger Texas metros. Regional collaboration, including partnerships that elevate the Brazos Valley’s profile, is central to the city’s long-term strategy.
 
- Now in its record-setting 15th consecutive sold-out year, this is the longest-running all-request dueling pianos show in NYC history. Couples, friends, birthday groups, and bachelorettes all land in the same place for one reason. It works every time.
+ Tourism plays a complementary role in College Station’s economic engine. From weekends that draw more than 100,000 visitors to Kyle Field, to sports tourism, midweek conferences, and cultural programming anchored by the George H.W. Bush Presidential Library, the city is leveraging hotel occupancy tax revenue to reinvest directly into marketing, infrastructure, and visitor services.
 
- Two elite piano entertainers take the stage and mix music, comedy, and crowd interaction into a nonstop sing-along. The playlist lives in the room. You might hear Billy Joel, Bon Jovi, Britney Spears, Bruno Mars, Elton John, Journey, Justin Bieber, or something you shout out that takes the room over.
+ Looking ahead, Mayor Nichols points to vertical development, infill projects, and infrastructure planning as defining themes for the next decade. With limited annexation opportunities, the future of College Station will be shaped by density, transportation investment, and continued excellence in core services—from public safety to utilities.
 
- This is two hours of live music built on audience energy. Sing. Drink. Laugh. Dance. Repeat.
+ The episode closes with a clear message: College Station’s growth story is not just about scale, but stewardship. As Texas A&M continues expanding its research footprint and attracting global talent, the city is positioning itself as a place where innovation, quality of life, and long-term planning move forward together.
 
- Dueling Pianos at Comedy Village is part concert, part comedy show, part cabaret, and the ideal way to kick off a Broadway day in Times Square.
-
- If you want a New York experience that actually feels like New York, this is it. 
+ The full interview with Mayor John Nichols is available now on The Building Texas Show on YouTube. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202512262000/dueling-piano-s-at-comedy-village-comedy-club)
+[Original/Source Press Release](https://newsworthy.ai/news/202512262004/college-station-at-the-center-of-texas-growth-mayor-john-nichols-on-managing-expansion-innovation-and-opportunity)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-s-dueling-pianos-nyc-s-interactive-music-party-hits-15-years/e461278ec5acc82bc777d7d16a5392e4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-station-transforms-into-texas-innovation-hub-under-mayor-s-vision/9f7bc706755257dda093bc4e0f992d8f) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/comedy-village-launches-dueling-pianos-show-in-broadway-theater/202525954)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202512/357445-comedy-village-launches-dueling-pianos-show-in-broadway-theater-district)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335721-comedy-village-startet-dueling-pianos-show-im-broadway-theaterdistrikt)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335766-comedy-village-lanza-espectaculo-de-pianos-duelistas-en-el-distrito-teatral-de-broadway)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336430-comedy-village-lance-un-spectacle-de-pianos-en-duel-dans-le-quartier-des-theatres-de-broadway)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/357446-faq-dueling-pianos-at-comedy-village-times-square-show-details)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedy-village-introduces-dueling-pianos-show-in-broadway-theate/202525954)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/comedy-village-launches-dueling-pianos-show-in-broadway-theater/202525954)
-
-Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202512/357456-comedy-villages-dueling-pianos-show-enters-15th-sold-out-year-as-interactive-broadway-district-experience)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335638-comedy-village-lanca-espetaculo-de-pianos-duelistas-no-distrito-teatral-da-broadway)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/357457-comedy-villages-dueling-pianos-show-celebrates-15th-sold-out-year-as-interactive-broadway-district-experience)
-
-Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202512/357458-comedy-villages-dueling-pianos-show-celebrates-15th-sold-out-year-as-interactive-broadway-district-experience)
-
-Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202512/357459-comedy-villages-dueling-pianos-show-celebrates-15th-sold-out-year-as-interactive-nyc-tradition)
-
-Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202512/357460-comedy-villages-dueling-pianos-show-marks-15th-sold-out-year-as-interactive-nyc-entertainment-staple)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/357599-faq-college-stations-growth-strategy-and-economic-development)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/26/calmf6SV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2512/28/fastUni4.webp)
