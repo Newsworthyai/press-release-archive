@@ -1,58 +1,32 @@
-# ADM Endeavors, Inc. Announces New Joint Venture With Ai CUSTOM
+# Datavault AI (DVLT) Announces Dream Bowl XIV Partnership Expansion and Dream Bowl Meme Coin II Dividend
 
-FORT WORTH, TX - December 29, 2025 (NEWMEDIAWIRE) - Just Right Products Inc., a wholly owned subsidiary of ADM Endeavors (OTCQB: ADMQ), is proud to announce a new strategic joint venture with Ai CUSTOM, a certified minority-owned company.
+LOS ANGELES, CA - December 29, 2025 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) announced two initiatives tied to Dream Bowl XIV, scheduled for Jan. 11, 2026, at AT&T Stadium, where the company serves as a licensing partner and co-sponsor, including a strategic collaboration with Dream Bowl XIV and NFL Alumni Health supporting the launch of Dream Bowl Meme Coin II and a board-approved dividend of the digital collectible to eligible record holders. The company said the initiatives highlight its application of artificial intelligence, tokenization, and digital engagement to support player health, talent evaluation, and shareholder value creation, with the record date for the Dream Bowl Meme Coin II dividend set for Jan. 7, 2026, subject to board discretion and customary conditions.
 
- This partnership is designed to open new opportunities in government contracting. Ai CUSTOM's certifications enables the new joint venture to pursue government contracts that were previously unavailable to Just Right Products. Combining Ai CUSTOM’s minority-business certifications and strong vendor relationships with Just Right Products’ proven manufacturing capabilities and reputation creates a powerful alliance built on trust, quality, and growth.The goal of this collaboration is to increase sales and profitability for both parties while expanding their market reach and strengthening their competitive position within the promotional products and custom apparel industry.
+ To view the full press release, visit https://ibn.fm/le7mB
 
- About ADM Endeavors
+ About Datavault AI Inc.
 
- ADM Endeavors is a diversified, direct marketing, and value-added manufacturing company specializing in customized promotional products and wearables. Since 2010, its wholly owned subsidiary Just Right Products, Inc. has steadily grown a recession-resistant customer base, achieving sales exceeding $5.3 million over the last reported 12 months.The company sells "Anything With A Logo" through its website www.JustRightProducts.com, offering everything from unique business cards to coffee mugs, T-shirts, boots, and tens of thousands of additional promotional items. Just Right Products operates a vertically integrated business model in the Dallas/Fort Worth area, with in-house divisions for retail sales, screen printing, embroidery, digital production, import sourcing, and uniforms.For more information, please visit:https://admendeavors.com/https://www.fwpromo.com/https://fortworth.academicoutfitters.com/https://www.facebook.com/groups/admqshareholders/
+ Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
 
- Forward-Looking Statements
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- This press release may contain forward-looking statements within the meaning of Section 21E of the Securities Exchange Act of 1934 and Section 27A of the Securities Act of 1933. These statements are made pursuant to the Safe Harbor Provisions of the Private Securities Litigation Reform Act of 1995 and include any statements that are not historical facts.
+ Forward Looking Statements
 
- Forward-looking statements often include words such as "strategy," "expects," "plans," "anticipates," "believes," "would," "will," "estimates," or similar expressions. Such statements are based on current expectations and assumptions that involve risks and uncertainties, including, but not limited to, changes in economic conditions, regulatory actions, vendor and supplier performance, management execution, and access to financing.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
- Actual results may differ materially from those projected. ADM Endeavors undertakes no obligation to publicly update or revise any forward-looking statements, except as required by law.
-
- Contact Information:Marc Johnson, CEOADM Endeavors, Inc.Phone: (817) 231-8048Email: info@admendeavors.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/adm-endeavors-inc-announces-new-joint-venture-with-ai-custom-7084729)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-announces-dream-bowl-xiv-partnership-expansion-and-dream-bowl-meme-coin-ii-dividend-7084731)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/adm-endeavors-just-right-products-forms-gov-t-contract-jv-with-ai-custom/5e84a68333c54725020ce22d450cde6c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-launches-dream-bowl-meme-coin-ii-digital-dividend/10b3a5fe5daca62a4a5d4ef28c825aa1) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/adm-endeavors-subsidiary-forms-joint-venture-to-access-governmen/202525992)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202512/357931-adm-endeavors-subsidiary-forms-joint-venture-with-ai-custom-to-pursue-government-contracts)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335758-adm-endeavors-tochtergesellschaft-grundet-joint-venture-mit-ai-custom-fur-regierungsauftrage)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335807-filial-de-adm-endeavors-forma-empresa-conjunta-con-ai-custom-para-obtener-contratos-gubernamentales)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336473-la-filiale-dadm-endeavors-forme-une-coentreprise-avec-ai-custom-pour-decrocher-des-marches-publics)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335681-subsidiaria-da-adm-endeavors-forma-joint-venture-com-a-ai-custom-para-buscar-contratos-governamentais)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/357941-faq-adm-endeavors-joint-venture-with-ai-custom-for-government-contracting)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/adm-endeavors-subsidiary-forms-joint-venture-to-pursue-governmen/202525992)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/adm-endeavors-subsidiary-forms-joint-venture-with-ai-custom-to-p/202525992)
-
-Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202512/357998-adm-endeavors-just-right-products-forms-joint-venture-with-minority-owned-ai-custom-to-pursue-government-contracts)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202512/335811-just-right-products-de-adm-endeavors-forma-empresa-conjunta-con-ai-custom-de-propiedad-minoritaria-para-acceder-a-contratos-gubernamentales)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/357999-just-right-products-forms-joint-venture-with-ai-custom-to-access-government-contracting-market)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/29/airyGxt5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/29/ellefQis.webp)

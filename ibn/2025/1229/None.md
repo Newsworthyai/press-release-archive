@@ -1,35 +1,39 @@
-# InvestorNewsBreaks – Nutriband Inc. (NASDAQ: NTRB) Sells 90% Stake in Pocono Pharmaceutical for $5 Million
+# Safe Pro Group Inc. (NASDAQ: SPAI) and Ondas Holdings’ 4M Defense Announce the Successful Completion of Pilot Program in the Middle East to Use AI to Identify Explosive Hazards
 
-Nutriband (NASDAQ: NTRB) announced that it has signed an agreement to sell a 90% interest in its subsidiary Pocono Pharmaceutical to EarthVision Bio for $5 million, while retaining a 10% ownership interest following the transaction. The company said proceeds from the sale will be used to support continued development of AVERSA Fentanyl, a transdermal opioid patch designed to deter abuse, misuse, and accidental exposure, which Nutriband believes has the potential to become the world’s first abuse-deterrent fentanyl patch and generate estimated annual U.S. sales of $80 million to $200 million.
+* Safe Pro Group and Ondas Holdings’ 4M Defense have successfully completed an eight-week pilot program in the Middle East, which demonstrated the strong performance of Safe Pro’s AI algorithms when it comes to analyzing high-resolution drone imagery.
+* The combined approach between Safe Pro’s AI detection and analysis and 4M Defense’s extensive land data gives a more complete operational picture for successful demining and reconstruction planning.
+* Leadership from both companies are excited about the partnership and what it means for the future of the industry.
 
- To view the full press release, visit https://ibn.fm/8dyfo
+ Safe Pro Group (NASDAQ: SPAI), a leader in AI defense and security solutions, and Ondas Holdings’ 4M Defense, recently announced the completion of a joint pilot program in the Middle East (https://ibn.fm/rPBJK).
 
- About Nutriband Inc.
+ The eight-week program evaluated the use of AI to identify and detect explosive hazards in support of humanitarian efforts like demining and reconstruction. It demonstrated the strong performance of Safe Pro’s AI algorithms in analyzing aerial imagery to identify landmines, unexploded…
 
- We are primarily engaged in the development of a portfolio of transdermal pharmaceutical products. Our lead product under development is an abuse-deterrent fentanyl patch incorporating our AVERSA(TM) abuse-deterrent technology. AVERSA(TM) technology can be incorporated into any transdermal patch to prevent the abuse, misuse, diversion, and accidental exposure of drugs with abuse potential.
+ Read More>>
 
- The Company’s website is www.nutriband.com. Any material contained in or derived from the Company’s websites or any other website is not part of this press release.
+ NOTE TO INVESTORS: The latest news and updates relating to SPAI are available in the company’s newsroom at https://ibn.fm/SPAI
 
- NOTE TO INVESTORS: The latest news and updates relating to NTRB are available in the company’s newsroom at https://ibn.fm/NTRB
+ About AINewsWire
 
- About InvestorWire
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ AINW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.InvestorWire.com
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ For more information, please visit www.AINewsWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- InvestorWire is powered by IBN 
+ AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
+
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nutriband-inc-nasdaq-ntrb-sells-90-stake-in-pocono-pharmaceutical-for-5-million/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/safe-pro-group-inc-nasdaq-spai-and-ondas-holdings-4m-defense-announce-the-successful-completion-of-pilot-program-in-the-middle-east-to-use-ai-to-identify-explosive-hazards/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-sells-subsidiary-stake-to-fund-breakthrough-abuse-deterrent-fentanyl-patch/cce206dfe1c00d22b07fba4ed7d67990) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-breakthrough-safe-pro-4m-defense-transform-demining-with-drone-technology/2783e501c20a441b88892a583a19fd22) 
 
  
 
@@ -37,4 +41,4 @@ Nutriband (NASDAQ: NTRB) announced that it has signed an agreement to sell a 90%
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/29/healcsPC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/29/milk1IQh.webp)
