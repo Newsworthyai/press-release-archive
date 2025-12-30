@@ -1,58 +1,64 @@
-# InvestorNewsBreaks – Safe &amp; Green Holdings Corp. (NASDAQ: SGBX) Adjourns 2025 Annual Meeting and Sets Virtual Reconvened Date
+# Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) Preps High-Grade Alaskan Projects for Rising Mineral Demand
 
-Safe & Green Holdings (NASDAQ: SGBX) announced that its 2025 Annual Meeting of Stockholders, originally convened Dec. 29, 2025, was adjourned due to the absence of a quorum, with no business conducted, and will reconvene virtually on Jan. 14, 2026, at 1:00 p.m. Eastern Time, when stockholders will vote on the proposals described in the Company’s definitive proxy statement filed with the U.S. Securities and Exchange Commission on Dec. 19, 2025; the record date remains Nov. 21, 2025, previously submitted proxies will be voted unless properly revoked, the Company will continue soliciting proxies during the adjournment period, and no changes have been made to the proposals or proxy materials, which remain available on the SEC’s website.
+Disseminated on behalf of Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/SOzrF
+ * Trilogy Metals is focused on advancing the Arctic and Bornite projects, part of the Upper Kobuk Mineral Projects located in northwest Alaska
+* The need for high-grade projects such as Arctic and Bornite is reinforced by macroeconomic trends
+* Beyond its project pipeline, Trilogy Metals has a clear vision focused on responsible resource development, community partnership and long-term value creation
 
- About Safe & Green Holdings Corp.
+ A global surge in demand for copper and critical minerals continues to reshape development priorities across the mining sector, driven by the accelerating transition to clean energy technologies and the build-out of modern infrastructure. The world’s need for reliable, ethically sourced copper, zinc and associated metals has never been greater, positioning advanced North American projects as increasingly strategic. Within this context, Trilogy Metals (NYSE American: TMQ) (TSX: TMQ) is emerging as a key player through its work to advance one of the most promising undeveloped copper districts in the United States.
 
- Safe & Green Holdings Corp., a leading modular solutions company, operates under core capabilities which include the development, design, and fabrication of modular structures, meeting the demand for safe and green solutions across various industries. The firm supports third-party and in-house developers, architects, builders, and owners in achieving faster execution, greener construction, and buildings of higher value.
+ Trilogy Metals is focused on advancing the Upper Kobuk Mineral Projects (“UKMP”), located in the Ambler Mining District – a large, high-grade copper-dominant mineral belt in northwest Alaska. The district is being developed by Ambler Metals LLC, a 50-50 joint venture between…
 
- NOTE TO INVESTORS: The latest news and updates relating to SGBX are available in the company’s newsroom at https://ibn.fm/SGBX
+ Read More>>
 
- About InvestorWire
+ NOTE TO INVESTORS: The latest news and updates relating to Trilogy Metals are available in the company’s newsroom at ibn.fm/TMQ
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ About BillionDollarClub
 
- For more information, please visit https://www.InvestorWire.com
+ BillionDollarClub (“BDC”) is a specialized communications platform with a focus on the biggest and brightest companies covered by IBN. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BDC is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, BDC brings its clients unparalleled recognition and brand awareness.
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ BDC is where breaking news, insightful content and actionable information converge.
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ To receive SMS alerts from BillionDollarClub, text “Billion” to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire is powered by IBN 
+ For more information, please visit https://www.BillionDollarClub.com
+
+ Please see full terms of use and disclaimers on the BillionDollarClub website applicable to all content provided by BDC, wherever published or re-published: https://www.BillionDollarClub.com/Disclaimer
+
+ BillionDollarClubLos Angeles, CAwww.BillionDollarClub.com310.299.1717 OfficeEditor@BillionDollarClub.com
+
+ BillionDollarClub is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-safe-green-holdings-corp-nasdaq-sgbx-adjourns-2025-annual-meeting-and-sets-virtual-reconvened-date/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/trilogy-metals-inc-nyse-american-tmq-tsx-tmq-preps-high-grade-alaskan-projects-for-rising-mineral-demand/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/safe-green-holdings-adjourns-2025-annual-meeting-sets-new-date-for-stockholder-votes/9983dedaf750bf1849928a7e372363a6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trilogy-metals-advances-key-alaskan-copper-projects-amid-surging-demand/c5d903952adef10df3671bd9a62ce33e) 
 
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/358676-safe-green-holdings-corp-adjourns-2025-annual-meeting-sets-virtual-reconvened-date-for-january-2026)
+Pickup - [https://advos.io/en](https://advos.io/en/trilogy-metals-advances-high-grade-alaskan-copper-projects-amid/202526058)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335816-safe-green-holdings-corp-vertagt-hauptversammlung-2025-und-setzt-virtuellen-wiederaufnahmetermin-fur-januar-2026-fest)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/358819-trilogy-metals-advances-high-grade-alaskan-copper-projects-amid-rising-global-mineral-demand)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335866-safe-green-holdings-corp-aplaza-la-junta-anual-de-2025-y-fija-fecha-de-reanudacion-virtual-para-enero-de-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335825-trilogy-metals-treibt-hochgradige-kupferprojekte-in-alaska-voran-angesichts-steigender-globaler-mineralnachfrage)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336529-safe-green-holdings-corp-reporte-son-assemblee-generale-annuelle-2025-et-fixe-une-date-de-reprise-virtuelle-pour-janvier-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335875-trilogy-metals-avanza-proyectos-de-cobre-de-alto-grado-en-alaska-ante-la-creciente-demanda-global-de-minerales)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335743-safe-green-holdings-corp-adia-reuniao-anual-de-2025-e-marca-nova-data-virtual-para-janeiro-de-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336539-trilogy-metals-fait-avancer-ses-projets-de-cuivre-a-haute-teneur-en-alaska-face-a-la-demande-mondiale-croissante-de-mineraux)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/358694-faq-safe-green-holdings-corp-sgbx-2025-annual-meeting-adjournment-and-reconvening)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335752-trilogy-metals-avanca-projetos-de-cobre-de-alto-teor-no-alasca-em-meio-a-crescente-demanda-global-por-minerais)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/safe-green-holdings-adjourns-annual-meeting-due-to-lack-of-quoru/202526049)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/358816-faq-trilogy-metals-incs-alaskan-mining-projects-and-strategic-positioning)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/safe-green-holdings-corp-adjourns-2025-annual-meeting-sets-virtu/202526049)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/trilogy-metals-advances-high-grade-alaskan-copper-projects-amid/202526058)
 
-Pickup - [https://advos.io/en](https://advos.io/en/safe-green-holdings-adjourns-annual-meeting-due-to-lack-of-quoru/202526049)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/358748-safe-green-holdings-adjourns-annual-meeting-due-to-lack-of-quorum-highlights-governance-challenges)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/trilogy-metals-advances-high-grade-alaskan-copper-projects-amid/202526058)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/30/keeptVBu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/30/envyoQFx.webp)
