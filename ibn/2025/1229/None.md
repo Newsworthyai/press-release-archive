@@ -1,44 +1,38 @@
-# Safe Pro Group Inc. (NASDAQ: SPAI) and Ondas Holdings’ 4M Defense Announce the Successful Completion of Pilot Program in the Middle East to Use AI to Identify Explosive Hazards
+# 420 with CNW — As Federal Drug Policy Evolves, Tennessee Lawmakers Mull Medical Marijuana Reforms
 
-* Safe Pro Group and Ondas Holdings’ 4M Defense have successfully completed an eight-week pilot program in the Middle East, which demonstrated the strong performance of Safe Pro’s AI algorithms when it comes to analyzing high-resolution drone imagery.
-* The combined approach between Safe Pro’s AI detection and analysis and 4M Defense’s extensive land data gives a more complete operational picture for successful demining and reconstruction planning.
-* Leadership from both companies are excited about the partnership and what it means for the future of the industry.
+Cannabis has been removed from the federal government’s most restrictive drug category following a recent executive order by President Donald Trump. The move shifts marijuana from Schedule I, a group reserved for substances deemed to have no accepted medical use, to Schedule III.
 
- Safe Pro Group (NASDAQ: SPAI), a leader in AI defense and security solutions, and Ondas Holdings’ 4M Defense, recently announced the completion of a joint pilot program in the Middle East (https://ibn.fm/rPBJK).
-
- The eight-week program evaluated the use of AI to identify and detect explosive hazards in support of humanitarian efforts like demining and reconstruction. It demonstrated the strong performance of Safe Pro’s AI algorithms in analyzing aerial imagery to identify landmines, unexploded…
+ Cannabis firms like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) will be tracking the debates around the U.S. in the wake of the federal change to the classification of…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to SPAI are available in the company’s newsroom at https://ibn.fm/SPAI
+ About CNW420
 
- About AINewsWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- AINW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- For more information, please visit www.AINewsWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
-
- AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/safe-pro-group-inc-nasdaq-spai-and-ondas-holdings-4m-defense-announce-the-successful-completion-of-pilot-program-in-the-middle-east-to-use-ai-to-identify-explosive-hazards/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-as-federal-drug-policy-evolves-tennessee-lawmakers-mull-medical-marijuana-reforms/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-breakthrough-safe-pro-4m-defense-transform-demining-with-drone-technology/2783e501c20a441b88892a583a19fd22) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-reclassifies-cannabis-to-schedule-iii-in-historic-policy-shift/891a6bd927803039c123edcd567a7ee9) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202512/358330-federal-cannabis-rescheduling-sparks-industry-attention-and-market-implications)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/29/milk1IQh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/29/ideaIeGv.webp)
