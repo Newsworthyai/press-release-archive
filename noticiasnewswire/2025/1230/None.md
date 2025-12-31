@@ -1,56 +1,88 @@
-# inGroup Named Top North American Agency by Costa Cruise Lines
+# Sandoval Law Firm Announces New Location in The Woodlands, Texas, and Launches Ask HEX! AI Legal Tool
 
-GUAYNABO, PR — December 30, 2025 — (NOTICIAS NEWSWIRE) — inGroup International, the parent company of inCruises, is proud to announce that it has been named the largest North American agency for Costa Cruises, receiving Costa’s prestigious “Over the Top” Award for 2026.
+THE WOODLANDS, TX (December 30, 2025) /Noticias Newswire/ — Sandoval Law Firm is proud to announce the opening of its new office location in The Woodlands, Texas, marking an important milestone in the firm’s continued growth and commitment to serving injured Texans with innovation, trust, and accessibility.
 
- The award recognizes inGroup International’s outstanding production, sustained growth, and the strong strategic alignment between the two organizations.
+ New Office Address:9709 Lakeside Blvd., Suite 525The Woodlands, Texas 77381United States (US)(View map)
 
- “We are very grateful to receive this recognition from Costa,” said Anthony Varvaro, COO & CFO of inGroup International. “Costa continues to be a popular choice among our rapidly expanding Member base, and we greatly value the relationship we continue to build and the meaningful value it delivers to our Members.”
+ As part of this expansion, the firm is also introducing Ask HEX!, a proprietary AI-powered legal information tool designed to help injured workers and accident victims find reliable answers faster—directly from the firm they can trust.
 
- Priscilla Reyes, Head of Sales, Costa Cruises North America, who presented the award to inGroup as a part of their Global Summit 2026 held aboard the Costa Smeralda, said:
+ We Are Living in a Technological Revolution Artificial intelligence (AI) is transforming how people search for information, including legal guidance. Today, many individuals turn to search engines and AI platforms for answers to questions about work injuries, car accidents, and their legal rights.
 
- “On behalf of the entire Costa Cruises family, I want to extend my deepest gratitude to the incredible team at InCruises for their unwavering partnership and exceptional contributions to our business throughout 2025. Your commitment to excellence and relentless dedication have truly made a remarkable impact on our success. We are beyond thrilled to honor InCruises with the prestigious Over the Top Producer Award.”
+ While AI can be useful for general research, the most accurate legal answers come from original, attorney-approved sources—not generic internet summaries. Recognizing this, Sandoval Law Firm created Ask HEX to provide trustworthy legal information grounded in real Texas law and real legal experience.
 
- Tatiana Wegzyn, Commercial Partnerships Manager at inCruises, accepted the award on behalf of inGroup, stated:
+ What Is Ask HEX? Ask HEX is an AI tool developed by Sandoval Law Firm to assist potential and current clients researching Texas personal injury law, including:
 
- “Our partnership with Costa is a great example of what happens when two companies share a focus on delivering real value. Our focus at inGroup continues to be helping Members explore more of the world for less—while creating measurable value for our world-class travel partners.”
+ * Non-subscriber work injury cases
+* Car wrecks and motor vehicle accidents
 
- About inGroup International and inCruises inCruises is a brand of inGroup International and the world’s largest subscription-based travel club. Since launching in 2016, inCruises has booked more than 630,000 guests and offers nearly 200,000 cruise, hotel, and resort options worldwide. Members earn and redeem Reward Points to save on travel through the inCruises platform, available in 17 languages.
+ When a user submits a question, Ask HEX generates responses based entirely on content written, reviewed, or approved by Hector Sandoval, founder and accident attorney at Sandoval Law Firm.
 
- inCruises continues to make a measurable difference in its Members’ lives while providing a world-class business opportunity to its growing Partner team. The company is deeply committed to being a positive global corporate citizen and actively supports Mercy Ships and other humanitarian efforts.
+ Ask HEX is designed to:
 
- For more information, visit in.Group and inCruises.com.
+ * Provide responses informed by Attorney Sandoval’s legal knowledge
+* Recommend related articles, videos, FAQs, and resources from the firm’s website
+* Help users find accurate, Texas-specific legal information quickly
 
- About Costa Cruises Costa Cruises, an Italian company based in Genoa, is part of Carnival Corporation & plc, the world’s largest cruise group. For more than 75 years, Costa ships have been plying the seas of the world, taking guests to more than 200 different destinations that can be discovered through unique experiences, both on board and ashore. Currently, the Costa fleet consists of nine ships, all flying the Italian flag, sailing in the Mediterranean, Northern Europe, Caribbean, Central America, South America and the United Arab Emirates — as well as “Around the World” and “Grand Cruises” that visit many continents on a single itinerary. 
+ How Ask HEX Helps Injured Workers and Accident Victims Before scheduling a consultation, visitors can use Ask HEX to better understand whether they may have:
+
+ * A strong non-subscriber work injury claim
+* A strong car wreck or motor vehicle accident case
+
+ Instead of searching through dozens of pages, Ask HEX pulls relevant information from across the Sandoval Law Firm website—including blogs, videos, infographics, FAQs, and case explanations—and presents it in one place.
+
+ Why We Call It “Ask HEX” “HEX” was Attorney Sandoval’s nickname during adolescence and early adulthood. The concept is simple: when you Ask HEX, you are essentially asking Attorney Sandoval himself.
+
+ Unlike generic AI tools, Ask HEX does not generate answers from random online sources. Every response is grounded in legal content that Attorney Sandoval has personally written, reviewed, or approved.
+
+ A Tool Built on Trust, Confidence, and Respect Ask HEX reflects Sandoval Law Firm’s long-term vision of combining technology with strong attorney-client relationships.
+
+ “I want the future of this firm to rest on a foundation of strong attorney-client relationships built on trust, confidence, and respect.”![Houston Personal Injury Lawyer Hector Sandoval](https://www.noticiasnewswire.com/wp-content/uploads/2025/05/sandoval-nn.jpg)
+
+ [Héctor L. Sandoval](https://sandovalpllc.com/personal-injury-attorney-sandoval/) Accident Attorney Hector L. Sandoval
+
+Try Ask HEX Today Visitors are encouraged to explore the Sandoval Law Firm website and look for the Ask HEX feature. Simply type a question to discover legal insights drawn directly from Attorney Sandoval’s experience representing injured Texans.
+
+ When you’re ready to discuss your specific case, contact Sandoval Law Firm to schedule a consultation. 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/ingroup-named-top-north-american-agency/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/sandoval-law-firm-opens-woodlands-office-launches-ask-hex-ai/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ingroup-international-wins-costa-cruises-top-award-as-largest-north-american-agency/d9fa42998a53569c1aa8e04191a6b8d9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sandoval-law-firm-expands-to-the-woodlands-launches-ai-tool-ask-hex/4e231bc5f4a7b810b4b7e8a295d914cc) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ingroup-international-named-costa-cruises-top-north-american-age/202526066)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/358955-faq-sandoval-law-firms-new-woodlands-office-and-ask-hex-ai-legal-tool)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202512/358938-ingroup-international-named-top-north-american-agency-by-costa-cruises-for-2026)
+Pickup - [https://advos.io/en](https://advos.io/en/sandoval-law-firm-expands-to-the-woodlands-with-ai-legal-tool-la/202526067)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335833-ingroup-international-von-costa-cruises-als-top-agentur-nordamerikas-fur-2026-ausgezeichnet)
+Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202512/358969-sandoval-law-firm-expands-to-the-woodlands-launches-ai-tool-ask-hex-for-texas-injury-law)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335883-ingroup-international-nombrada-la-principal-agencia-norteamericana-por-costa-cruises-para-2026)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202512/335885-el-bufete-de-abogados-sandoval-se-expande-a-the-woodlands-y-lanza-ask-hex-una-herramienta-de-ia-para-la-ley-de-lesiones-en-texas)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336549-ingroup-international-designee-meilleure-agence-nord-americaine-par-costa-croisieres-pour-2026)
+Pickup - [https://burstable.news](https://burstable.news/news/202512/358957-sandoval-law-firm-expands-to-the-woodlands-with-ai-legal-tool-ask-hex)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335760-ingroup-international-nomeada-melhor-agencia-norte-americana-pela-costa-cruises-para-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335834-sandoval-law-firm-expandiert-nach-the-woodlands-mit-ki-rechtstool-ask-hex)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/358936-faq-ingroup-named-top-north-american-agency-by-costa-cruise-lines)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335884-el-bufete-de-abogados-sandoval-se-expande-a-the-woodlands-con-la-herramienta-legal-de-ia-ask-hex)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/ingroup-international-named-top-north-american-agency-by-costa-c/202526066)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336550-le-cabinet-davocats-sandoval-setend-a-the-woodlands-avec-loutil-juridique-ia-ask-hex)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ingroup-international-named-largest-north-american-agency-for-co/202526066)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335761-escritorio-de-advocacia-sandoval-expande-para-the-woodlands-com-ferramenta-juridica-de-ia-ask-hex)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202512/358970-sandoval-law-firm-expands-to-the-woodlands-and-launches-proprietary-ai-tool-for-texas-injury-law)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/sandoval-law-firm-expands-to-the-woodlands-launches-ai-legal-inf/202526067)
+
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202512/358971-sandoval-law-firm-expands-to-the-woodlands-and-launches-ai-powered-legal-tool-ask-hex)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sandoval-law-firm-expands-to-the-woodlands-and-introduces-ai-leg/202526067)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202512/358959-sandoval-law-firm-expands-to-the-woodlands-with-ai-powered-legal-tool)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2512/30/wolfZ5Ri.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2512/31/gleeoBGi.webp)
