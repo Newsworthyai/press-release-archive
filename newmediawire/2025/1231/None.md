@@ -1,98 +1,127 @@
-# DRCR Enters a New Phase of Growth
+# SmartCard Marketing Systems Inc. (OTC: SMKG) Year in Review: 2025 A Year of Sustainability, Acceleration, Innovation, and Strategic Sector Expansion
 
-NEW YORK, NY - December 31, 2025 (NEWMEDIAWIRE) - Dear Cashmere Holding Company (OTC:DRCR), AKA Swifty Global, is a technology company focused on the development and delivery of innovative solutions for regulated online markets. Through proprietary platforms and specialized software, the Company provides mission-critical technology to participants in the global online gaming sector, supporting compliance, scalability, and performance across multiple jurisdictions.
+NEW YORK, NY - December 31, 2025 (NEWMEDIAWIRE) - SmartCard Marketing Systems Inc. (OTC: SMKG), a global PayTech, FinTech and Digital Assets solutions provider, is pleased to present its 2025 Year in Review. This year marked a period of sustainability coming off 2023-24, proofing our accelerated commercialization, expanded global deployments, and strategic entry into high‑growth sectors including mining resources, energy and utilities, and aerospace - further strengthening the company’s position as a leader in payment technology, banking and token‑based digital asset frameworks.
 
- Under the leadership of James Gibbons, Chief Executive Officer, DRCR has evolved from a small legacy operation into a strong and scalable technology company. The Company has executed a highly focused business plan centered on the development of advanced technology for the online gaming sector, which it has delivered successfully through disciplined execution and commercial deployment.
+ A Transformative Year for Platform Deployments
 
- The Company has now reached a new chapter in its growth trajectory. With the introduction of new regulatory frameworks and tax policies across Europe, compliance has become hyper-critical and increasingly sensitive. As a result, DRCR’s online gaming technology business will undergo a careful restructuring designed to maximize long-term growth opportunities, strengthen regulatory alignment, and enhance shareholder value.
+ Throughout 2025, SMKG advanced multiple enterprise‑grade deployments across banking, payments, and digital commerce. The company expanded its footprint with clients and partners in North America, Caribbean, India, China, Africa, and LATAM-solidifying its position as a global enabler of financial infrastructure and networks.
 
- The Board of Directors has approved a strategic restructuring designed to unlock shareholder value, improve capital-market alignment, and support a planned major-exchange initial public offering of the Company’s high-growth technology business.
+ Key achievements include:
 
- DRCR’s technology division has reached a scale and level of maturity where it can operate as a stand-alone global platform. At the same time, the Company’s current public structure reflects a historical corporate structure that no longer aligns optimally with the requirements of a modern technology IPO.
+ * New banking and fintech client acquisitions leveraging SMKG’s digital onboarding, KYC, KYT and transaction‑processing platforms.
+* Cloud‑native deployments with enhanced telemetry, monitoring, and operational resilience.
+* Integration of digital asset and stablecoin capabilities into select platforms, aligning with global trends in regulated digital finance.
 
- By separating these businesses into two focused entities, the Board believes DRCR can:
+ Strategic Expansion into Mining, Energy/Utilities, and Aerospace
 
- • Accelerate growth of the technology platform• Create a clean and efficient path to a major-exchange IPO• Preserve and enhance value for DRCR shareholders• Enable each business to pursue strategies best suited to its market
+ In 2025, SmartCard expanded into three high‑value, infrastructure‑critical sectors - mining resources, energy/utilities, and aerospace - introducing both payment technology, tokenization and token‑issuing frameworks tailored to the operational and financial needs of these industries.
 
- James Gibbons, CEO of DRCR, commented:
+ This expansion included:
 
- “This restructuring is designed to maximize shareholder value by allowing two strong businesses to pursue the strategies best suited to their growth. DRCR shareholders will have the opportunity to participate in the future technology IPO while continuing to benefit from DRCR’s public-company strategy. We are excited about the next phase of growth and deeply committed to building lasting value.”
+ * Mining & Natural Resources: Tokenized asset models, supply‑chain payment rails, and digital twin frameworks for inground assets.
+* Utilities & Energy: Payment orchestration, billing automation, and token‑based credit systems supporting distributed infrastructure.
+* Aerospace & Advanced Manufacturing: Secure payment modules, digital certification tokens, and operational telemetry integrations.
 
- Nicolas Link, Chairman of DRCR, added:
+ These initiatives broadened SMKG’s commercial reach and validated new proof concept models, accelerating revenue opportunities and positioning the company at the intersection of industrial operations and next‑generation financial technology.
 
- “We believe this structure creates the best possible alignment between founders, shareholders, and future investors. It gives DRCR the flexibility to execute strategic acquisitions while allowing the technology business to pursue the IPO.”
+ Strategic Banking Relationships, VISA Collaboration & Core Architecture Advancements
 
- The new company will focus on licensing proprietary sportsbook, casino, compliance, and risk-management software to regulated operators under a SaaS model, supporting international expansion across Europe, Africa, and other regulated markets.
+ 2025 was also a defining year for SmartCard’s strategic relationships in the financial sector. The company strengthened key banking relationships across the United States, advancing commercial opportunities and expanding access to regulated financial infrastructure. In parallel, SMKG deepened its collaboration with VISA, aligning its platform capabilities with global card‑network standards and enabling next‑generation payment experiences for small and medium banks and enterprise clients.
 
- At the close of business on December 7, the Company will spin out the majority of its online gaming technology business into a newly formed company. Initially, this entity will be privately held and will seek to complete an initial public offering on a major exchange as early as 2026, subject to market conditions and regulatory approvals.
+ These relationships were complemented by major advancements in SMKG’s core payments architecture, middleware and client-facing solutions, which now positions the company as a leader in proprietary, industry‑agnostic payment technology. The unified architecture integrates:
 
- Commitment to Shareholders
+ * Card Processing & Card Issuing under a single orchestration layer
+* Alternative Payment Channels including QR, Push2Card, Cash2Atm, Digital Vouchers and Digital Cash Cards
+* Cross‑Border Payment Rails with automated FX settlement workflows
+* Cryptocurrencies and stablecoins with OTC Desk on-ramp and off-ramp liquidity
+* Token‑based transaction models supporting digital assets and sector‑specific token issuance across global Crypto Exchanges
 
- DRCR shareholders of record as of the close of business on December 31 who hold at least 2,000 DRCR shares, will receive an equity interest in the new company while continuing to retain their existing DRCR shares, which will remain outstanding and continue to trade as normal.
+ This unified approach delivers scalable, modular, and globally deployable payments infrastructure - capable of serving any industry or sector, from banking and retail to mining, utilities, aerospace, and beyond. These advancements created significant enterprise value, accelerated commercialization, and reinforced SMKG’s position as a global leader in interoperable financial technology.
 
- A portal will be launched during January to provide DRCR shareholders with additional information and allow them to register for participation in the future IPO process. The Board believes this represents an exciting and value-creating opportunity for both shareholders and founders.
+ Strengthening the Proprietary Product Portfolio
 
- The decision to pursue an IPO through a newly formed company, rather than an uplisting of DRCR itself, reflects a strategic assessment of how best to position the technology business for a successful major-exchange listing. DRCR has evolved through several phases prior to the current growth platform, and establishing a purpose-built public company for the technology division allows for a simpler, more efficient SEC registration process aligned with its current operations. In addition, the business today generates and operates substantially all of its revenues outside the United States, creating an opportunity to design a regulatory, tax, and reporting structure optimized for international technology operations. This approach is intended to provide a clearer, faster, and more cost-effective path to a major-exchange IPO while maintaining continuity and value for DRCR shareholders.
+ SMKG continued to refine and commercialize its suite of 22+ proprietary platforms, focusing on interoperability with cryptocurrencies, vaulted custody, security, treasury with stablecoins, fiat-to-crypto, and enterprise‑grade scalability.
 
- A highly experienced and credible industry executive has already been appointed to serve as the Chief Executive Officer of the new IPO vehicle and will be formally announced in due course. James Gibbons will transition to the role of Chief Technology Officer for the new entity.
+ Notable advancements:
 
- Separately, DRCR will continue to operate as a publicly traded company under the leadership of James Gibbons and Nicolas Link and has identified a strategic acquisition that it expects to complete in early 2026. This transaction is intended to form the foundation of DRCR’s next phase of growth, with a focused plan to incubate and scale the acquired business into a major-exchange-ready platform. Additional independent board members are expected to be appointed following the completion of the acquisition to support this next stage of development.
+ * Enabling Digital Banking & Custody Wallets: Multi‑rail payment capabilities including card, ACH, QR, and blockchain rails.
+* E‑Commerce & Marketplace Solutions: Merchant tools, onboarding automation, and embedded payments.
+* AI‑Payments Driven Tools: Early-stage integration of AI for a deeper dive into relationship management, knowledge automation, and operational oversight.
+* Blockchain & Tokenization: Enhanced frameworks for asset tokenization, smart contracts, and compliance‑ready digital asset management.
 
- The Board remains committed to creating long-term, sustainable value for shareholders and founders.
+ Strategic Partnerships & Global Expansion
 
- Nicolas Link, Chairman of DRCR, stated:
+ 2025 marked a year of meaningful collaboration with financial institutions, telecom operators, government offices and enterprise partners. SMKG executed multiple LOIs, MOUs, and JV frameworks designed to accelerate market penetration and unlock new revenue channels.
 
- “I am extremely proud of what James and the DRCR team have achieved and congratulate them on reaching this important milestone. I look forward to the next chapters of both the DRCR journey and the gaming technology business.”
+ Highlights include:
 
- To date, the founders have taken minimal compensation and have not sold shares, maintaining a tightly controlled capitalization structure. In connection with the planned IPO, they will also be subject to customary lock-up arrangements. In line with SEC affiliate rules, the founders have completed routine regulatory filings that provide the ability, if ever required, to make limited sales within the strict volume and timing restrictions applicable to affiliates. These filings are standard practice and do not reflect any current intention to sell.
+ * Regional alliances supporting banking-as-a-service, merchant acquiring, cryptocurrencies and digital onboarding.
+* Joint ventures in emerging markets focused on digital payments, identity, and financial inclusion.
+* Sector‑specific partnerships in mining, energy/utilities, and aerospace to deploy token‑based financial models and operational payment systems.
 
- James Gibbons and Nicolas Link jointly stated:
+ Operational Excellence & Corporate Governance
 
- “While we have no intention to sell stock and are dedicated to the success of a future tech IPO and growth of the DRCR business, this is an appropriate time to complete the required filings given the significant changes ahead. We have all worked exceptionally hard over the past several years to build this business and will continue to do so.”
+ SMKG strengthened its operational backbone with:
 
- The Board expects to complete the appointment of the investment bank to lead the IPO process in January and will announce this as soon as practicable thereafter. Shareholders will receive further updates early in the new year regarding progress on the IPO, the formalities relating to their interest in the new company, and developments related to DRCR’s planned acquisition.
+ * Improved cloud architecture and cybersecurity posture.
+* Enhanced telemetry and real-time monitoring across platform environments.
+* Streamlined processes for compliance, reporting, and investor communications.
+* Deployment of Payments Modelling, Orchestration and Automation processes
 
- Website: https://www.swiftyglobal.com Twitter: https://twitter.com/SwiftyGlobal Email: hello@swifty.global
+ Positioning for 2026: A Year of Measurable Impact
 
- Related links:https://www.otcmarkets.com/stock/DRCR/profile
+ With a continued strong foundation built in 2025, SMKG enters 2026 with a clear focus on:
 
- Source: DRCR
+ * Accelerating client acquisition and platform go‑lives across key verticals.
+* Unlocking stakeholder value through strategic spin-offs of mature platform assets.
+* Expanding regulated alliances to support digital banking, payments, and digital asset integration.
+* Driving revenue growth through commercialization of its technology stack and global partnerships.
 
- Forward-Looking Statement
+ A Message from the CEO
 
- Certain information set forth in this press release contains “forward-looking information”, including “future-oriented financial information” and “financial outlook”, under applicable securities laws (collectively referred to herein as forward-looking statements). Except for statements of historical fact, the information contained herein constitutes forward-looking statements and includes, but is not limited to, the (i) projected financial performance of the Company; (ii) completion of, and the use of proceeds from, the sale of the shares being offered hereunder; (iii) the expected development of the Company’s business, projects, and joint ventures; (iv) execution of the Company’s vision and growth strategy, including with respect to future M&A activity and global growth; (v) sources and availability of third-party financing for the Company’s projects; (vi) completion of the Company’s projects that are currently underway, in development or otherwise under consideration; (vi) renewal of the Company’s current customer, supplier and other material agreements; and (vii) future liquidity, working capital, and capital requirements. Forward-looking statements are provided to allow potential investors the opportunity to understand management’s beliefs and opinions in respect of the future so that they may use such beliefs and opinions as one factor in evaluating an investment. These statements are not guarantees of future performance and undue reliance should not be placed on them. Such forward-looking statements necessarily involve known and unknown risks and uncertainties, which may cause actual performance and financial results in future periods to differ materially from any projections of future performance or result expressed or implied by such forward-looking statements. Although forward-looking statements contained in this presentation are based upon what management of the Company believes are reasonable assumptions, there can be no assurance that forward-looking statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. The Company undertakes no obligation to update forward-looking statements if circumstances or management’s estimates or opinions should change except as required by applicable securities laws. The reader is cautioned not to place undue reliance on forward-looking statements. The Securities and Exchange Commission (“SEC”) has provided guidance to issuers regarding the use of social media to disclose material non-public information. In this regard, investors and others should note that we announce material financial information via official Press Releases, in addition to SEC filings, press releases, Questions & Answers sessions, public conference calls and webcasts also may take time from time to time. We use these channels as well as social media to communicate with the public about our company, our services, and other issues. It is possible that the information we post on social media could be deemed to be material information. Therefore, in light of the SEC, we encourage investors, the media, and others interested in our company to review the information we post on the following social & media channels: Website https://www.swiftyglobal.com, Twitter: https://twitter.com/SwiftyGlobal.
+ "2025 was a structural validation year for SmartCard Marketing Systems. We strengthened our platforms, expanded our global reach, and entered new strategic sectors with both partners and clients that will define the next decade of digital finance. Most importantly, we proved that we offer “multiple commercial opportunities” validated through real-time deployments, paying clients, and collaboration with major industry partners - is the ultimate valuation model for our stakeholders. This is the foundation that drives sustainable growth, long‑term relevance, and measurable enterprise value.
+
+ As we move into 2026, our focus on execution: scaling deployments, accelerating commercialization, and deepening our partnerships across banking, payments, and emerging industries. We are entering the new year with momentum, clarity, and a commitment to excellence - positioned to deliver meaningful impact for our clients and significant value for our shareholders." Massimo Barone, CEO, SmartCard Marketing Systems Inc. (SMKG:OTC)
+
+ About SmartCard Marketing Systems Inc.
+
+ SmartCard Marketing Systems Inc. (OTC: SMKG) is a global leader in specialized e-Commerce, Cloud, and Mobility applications, delivering white-label solutions to the PayTech and FinTech markets. The company’s portfolio spans payment orchestration, digital banking, blockchain, and marketplace technologies, serving clients across multiple industries and geographies.
+
+ Keeping its core as a boutique technology company, providing Digital Transformation, Business Intelligence and Commerce Strategies with a proprietary portfolio of applications for Banking4.0, Web3.0 and Digital Payments4.0. With an established financial network and FX infrastructure, SMKG empowers its partners and clients to expand globally, offering secure, compliant, and connected digital payment ecosystems for financial growth.
+
+ For more info visit https://www.smartcardmarketingsystems.com
+
+ or visit our business applications marketplace at https://www.emphasispay.com
+
+ We seek a safe harbor.
+
+ For additional enquiries & Enterprise Program connect with:
+
+ CEO, Massimo Baronembarone@smartcardmarketingsystems.com
+
+ SmartCard Marketing Systems Inc.Dharmesh VoraPresident Enterprise SolutionsSmartCard Marketing Systems Inc.dvora@smartcardmarketingsystems.com
+
+ OTC:SMKG Ph: 1-844-843-7296news@smartcardmarketingsystems.com
+
+ Follow us on Social Media:
+
+ LinkedIn: https://www.linkedin.com/company/smartcard-marketing-systems-inc/Facebook: https://www.facebook.com/otcsmkgTwitter (X): https://twitter.com/OtcSmkgInstagram: https://www.instagram.com/smartcard_marketing_sys/YouTube: https://www.youtube.com/@smartcardmarketingsystemsIncTelegram: https://www.t.me/smkgotc Tiktok: $SMKG:OTC (@smartcard_marketing_sys) | TikTok
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/drcr-enters-a-new-phase-of-growth-7084750)
+[Original/Source Press Release](https://www.newmediawire.com/news/smartcard-marketing-systems-inc-otc-smkg-year-in-review-2025-a-year-of-sustainability-acceleration-innovation-and-strategic-sector-expansion-7084752)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/drcr-restructures-for-major-exchange-ipo-unlocks-gaming-tech-value/1619b26f34f789f6f74fd069cdcaab14) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smkg-s-2025-global-expansion-sector-innovation-payment-tech-leadership/998352d3b1a1df0e869dd83070d9b447) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/drcr-announces-strategic-restructuring-to-separate-gaming-techno/202526083)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202512/359193-drcr-announces-strategic-restructuring-to-separate-technology-business-for-planned-ipo)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202512/335850-drcr-kundigt-strategische-umstrukturierung-an-technologiegeschaft-wird-fur-geplanten-borsengang-ausgegliedert)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202512/335901-drcr-anuncia-reestructuracion-estrategica-para-separar-su-negocio-tecnologico-con-miras-a-una-opi-planificada)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202512/336567-drcr-annonce-une-restructuration-strategique-pour-separer-son-activite-technologique-en-vue-dune-introduction-en-bourse-planifiee)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202512/335777-drcr-anuncia-reestruturacao-estrategica-para-separar-negocio-de-tecnologia-com-vista-a-ipo-planeado)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/359180-drcr-strategic-restructuring-and-technology-business-spin-off-faq)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/drcr-announces-strategic-restructuring-to-pursue-major-exchange/202526083)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/drcr-announces-strategic-restructuring-to-pursue-major-exchange/202526083)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/359252-faq-smartcard-marketing-systems-inc-smkg-2025-year-in-review-sustainability-acceleration-innovation-expansion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/31/rushnLZt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/31/epicNQVM.webp)
