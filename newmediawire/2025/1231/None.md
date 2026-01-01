@@ -1,127 +1,36 @@
-# SmartCard Marketing Systems Inc. (OTC: SMKG) Year in Review: 2025 A Year of Sustainability, Acceleration, Innovation, and Strategic Sector Expansion
+# Fort Technology Inc. Announces Intention to Pursue Listing of Its Common Shares on Nasdaq Capital Market
 
-NEW YORK, NY - December 31, 2025 (NEWMEDIAWIRE) - SmartCard Marketing Systems Inc. (OTC: SMKG), a global PayTech, FinTech and Digital Assets solutions provider, is pleased to present its 2025 Year in Review. This year marked a period of sustainability coming off 2023-24, proofing our accelerated commercialization, expanded global deployments, and strategic entry into high‑growth sectors including mining resources, energy and utilities, and aerospace - further strengthening the company’s position as a leader in payment technology, banking and token‑based digital asset frameworks.
+VANCOUVER, BRITISH COLUMBIA - December 31, 2025 (NEWMEDIAWIRE) - Fort Technology Inc. (TSXV: FORT) (“Fort Technology” or the “Company”) is pleased to announce that its board of directors has approved a strategic initiative to pursue an uplisting of the Company’s common shares to the Nasdaq Capital Market (“Nasdaq”).
 
- A Transformative Year for Platform Deployments
+ The Company believes that a listing on Nasdaq will provide enhanced visibility, greater liquidity for its shareholders, and access to a broader pool of institutional and retail investors in the United States and internationally.
 
- Throughout 2025, SMKG advanced multiple enterprise‑grade deployments across banking, payments, and digital commerce. The company expanded its footprint with clients and partners in North America, Caribbean, India, China, Africa, and LATAM-solidifying its position as a global enabler of financial infrastructure and networks.
+ Management intends to commence the necessary preparations, including engaging advisors, preparing required filings with the U.S. Securities and Exchange Commission, and satisfying Nasdaq’s listing requirements. There can be no assurance that the uplisting will be completed or as to the timing of any such uplisting.
 
- Key achievements include:
+ About the Company
 
- * New banking and fintech client acquisitions leveraging SMKG’s digital onboarding, KYC, KYT and transaction‑processing platforms.
-* Cloud‑native deployments with enhanced telemetry, monitoring, and operational resilience.
-* Integration of digital asset and stablecoin capabilities into select platforms, aligning with global trends in regulated digital finance.
+ Fort Technology Inc. operates a business as an established manufacturer and seller specializing in a range of amateur and professional products for the pest control and remedial repair industry. Fort Technology Inc.’s material subsidiary, Fort Products Limited’s experience commenced since the establishment of its material subsidiary, in 2005 within the pest control industry and it prides itself on the technical knowledge received in nearly 20 years.
 
- Strategic Expansion into Mining, Energy/Utilities, and Aerospace
+ For further information, please contact:Gabi KabazoChief Executive OfficerFort Technology Inc.Telephone: (604) 833-6820Email: ir@impactacquisitions.net
 
- In 2025, SmartCard expanded into three high‑value, infrastructure‑critical sectors - mining resources, energy/utilities, and aerospace - introducing both payment technology, tokenization and token‑issuing frameworks tailored to the operational and financial needs of these industries.
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- This expansion included:
-
- * Mining & Natural Resources: Tokenized asset models, supply‑chain payment rails, and digital twin frameworks for inground assets.
-* Utilities & Energy: Payment orchestration, billing automation, and token‑based credit systems supporting distributed infrastructure.
-* Aerospace & Advanced Manufacturing: Secure payment modules, digital certification tokens, and operational telemetry integrations.
-
- These initiatives broadened SMKG’s commercial reach and validated new proof concept models, accelerating revenue opportunities and positioning the company at the intersection of industrial operations and next‑generation financial technology.
-
- Strategic Banking Relationships, VISA Collaboration & Core Architecture Advancements
-
- 2025 was also a defining year for SmartCard’s strategic relationships in the financial sector. The company strengthened key banking relationships across the United States, advancing commercial opportunities and expanding access to regulated financial infrastructure. In parallel, SMKG deepened its collaboration with VISA, aligning its platform capabilities with global card‑network standards and enabling next‑generation payment experiences for small and medium banks and enterprise clients.
-
- These relationships were complemented by major advancements in SMKG’s core payments architecture, middleware and client-facing solutions, which now positions the company as a leader in proprietary, industry‑agnostic payment technology. The unified architecture integrates:
-
- * Card Processing & Card Issuing under a single orchestration layer
-* Alternative Payment Channels including QR, Push2Card, Cash2Atm, Digital Vouchers and Digital Cash Cards
-* Cross‑Border Payment Rails with automated FX settlement workflows
-* Cryptocurrencies and stablecoins with OTC Desk on-ramp and off-ramp liquidity
-* Token‑based transaction models supporting digital assets and sector‑specific token issuance across global Crypto Exchanges
-
- This unified approach delivers scalable, modular, and globally deployable payments infrastructure - capable of serving any industry or sector, from banking and retail to mining, utilities, aerospace, and beyond. These advancements created significant enterprise value, accelerated commercialization, and reinforced SMKG’s position as a global leader in interoperable financial technology.
-
- Strengthening the Proprietary Product Portfolio
-
- SMKG continued to refine and commercialize its suite of 22+ proprietary platforms, focusing on interoperability with cryptocurrencies, vaulted custody, security, treasury with stablecoins, fiat-to-crypto, and enterprise‑grade scalability.
-
- Notable advancements:
-
- * Enabling Digital Banking & Custody Wallets: Multi‑rail payment capabilities including card, ACH, QR, and blockchain rails.
-* E‑Commerce & Marketplace Solutions: Merchant tools, onboarding automation, and embedded payments.
-* AI‑Payments Driven Tools: Early-stage integration of AI for a deeper dive into relationship management, knowledge automation, and operational oversight.
-* Blockchain & Tokenization: Enhanced frameworks for asset tokenization, smart contracts, and compliance‑ready digital asset management.
-
- Strategic Partnerships & Global Expansion
-
- 2025 marked a year of meaningful collaboration with financial institutions, telecom operators, government offices and enterprise partners. SMKG executed multiple LOIs, MOUs, and JV frameworks designed to accelerate market penetration and unlock new revenue channels.
-
- Highlights include:
-
- * Regional alliances supporting banking-as-a-service, merchant acquiring, cryptocurrencies and digital onboarding.
-* Joint ventures in emerging markets focused on digital payments, identity, and financial inclusion.
-* Sector‑specific partnerships in mining, energy/utilities, and aerospace to deploy token‑based financial models and operational payment systems.
-
- Operational Excellence & Corporate Governance
-
- SMKG strengthened its operational backbone with:
-
- * Improved cloud architecture and cybersecurity posture.
-* Enhanced telemetry and real-time monitoring across platform environments.
-* Streamlined processes for compliance, reporting, and investor communications.
-* Deployment of Payments Modelling, Orchestration and Automation processes
-
- Positioning for 2026: A Year of Measurable Impact
-
- With a continued strong foundation built in 2025, SMKG enters 2026 with a clear focus on:
-
- * Accelerating client acquisition and platform go‑lives across key verticals.
-* Unlocking stakeholder value through strategic spin-offs of mature platform assets.
-* Expanding regulated alliances to support digital banking, payments, and digital asset integration.
-* Driving revenue growth through commercialization of its technology stack and global partnerships.
-
- A Message from the CEO
-
- "2025 was a structural validation year for SmartCard Marketing Systems. We strengthened our platforms, expanded our global reach, and entered new strategic sectors with both partners and clients that will define the next decade of digital finance. Most importantly, we proved that we offer “multiple commercial opportunities” validated through real-time deployments, paying clients, and collaboration with major industry partners - is the ultimate valuation model for our stakeholders. This is the foundation that drives sustainable growth, long‑term relevance, and measurable enterprise value.
-
- As we move into 2026, our focus on execution: scaling deployments, accelerating commercialization, and deepening our partnerships across banking, payments, and emerging industries. We are entering the new year with momentum, clarity, and a commitment to excellence - positioned to deliver meaningful impact for our clients and significant value for our shareholders." Massimo Barone, CEO, SmartCard Marketing Systems Inc. (SMKG:OTC)
-
- About SmartCard Marketing Systems Inc.
-
- SmartCard Marketing Systems Inc. (OTC: SMKG) is a global leader in specialized e-Commerce, Cloud, and Mobility applications, delivering white-label solutions to the PayTech and FinTech markets. The company’s portfolio spans payment orchestration, digital banking, blockchain, and marketplace technologies, serving clients across multiple industries and geographies.
-
- Keeping its core as a boutique technology company, providing Digital Transformation, Business Intelligence and Commerce Strategies with a proprietary portfolio of applications for Banking4.0, Web3.0 and Digital Payments4.0. With an established financial network and FX infrastructure, SMKG empowers its partners and clients to expand globally, offering secure, compliant, and connected digital payment ecosystems for financial growth.
-
- For more info visit https://www.smartcardmarketingsystems.com
-
- or visit our business applications marketplace at https://www.emphasispay.com
-
- We seek a safe harbor.
-
- For additional enquiries & Enterprise Program connect with:
-
- CEO, Massimo Baronembarone@smartcardmarketingsystems.com
-
- SmartCard Marketing Systems Inc.Dharmesh VoraPresident Enterprise SolutionsSmartCard Marketing Systems Inc.dvora@smartcardmarketingsystems.com
-
- OTC:SMKG Ph: 1-844-843-7296news@smartcardmarketingsystems.com
-
- Follow us on Social Media:
-
- LinkedIn: https://www.linkedin.com/company/smartcard-marketing-systems-inc/Facebook: https://www.facebook.com/otcsmkgTwitter (X): https://twitter.com/OtcSmkgInstagram: https://www.instagram.com/smartcard_marketing_sys/YouTube: https://www.youtube.com/@smartcardmarketingsystemsIncTelegram: https://www.t.me/smkgotc Tiktok: $SMKG:OTC (@smartcard_marketing_sys) | TikTok
+ This news release contains forward looking information or statements within the meaning of applicable securities laws, which may include, without limitation, statements relating to expectations of any benefits that might be derived from the uplisting. All statements in this news release, other than statements of historical facts, that address events or developments that the Company expects to occur, are forward looking information or statements. Although the Company believes the expectations expressed in such forward-looking information or statements are based on reasonable assumptions, such statements are not guarantees of future performance and actual results may differ materially from those in the forward-looking information or statements. Such statements and information are based on numerous assumptions regarding present and future business strategies and the environment in which the Company will operate in the future, the ability to achieve its goals, expected costs and timelines to achieve the Company’s goals, that general business and economic conditions will not change in a material adverse manner, and that financing will be available if and when needed and on reasonable terms. Such forward looking information or statements reflects the Company’s views with respect to future events and is subject to risks, uncertainties and assumptions, including the risks and uncertainties included in in documents filed under the Company’s profile on SEDAR+ at www.sedarplus.ca. While such estimates and assumptions are considered reasonable by the management of the Company, they are inherently subject to significant business, economic, competitive, and regulatory uncertainties and risks. Factors that could cause actual results to differ materially from those in forward looking information or statements include, but are not limited to, obtaining the requisite regulatory and stock exchange approvals for the uplisting, continued availability of capital and financing and general economic, market or business conditions, failure to compete effectively with competitors, failure to maintain or obtain all necessary permits, approvals and authorizations, failure to comply with applicable laws, including environmental laws, risks relating to unanticipated operational difficulties. The Company does not undertake to update forward looking statements or forward-looking information, except as required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/smartcard-marketing-systems-inc-otc-smkg-year-in-review-2025-a-year-of-sustainability-acceleration-innovation-and-strategic-sector-expansion-7084752)
+[Original/Source Press Release](https://www.newmediawire.com/news/fort-technology-inc-announces-intention-to-pursue-listing-of-its-common-shares-on-nasdaq-capital-market-7084756)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/smkg-s-2025-global-expansion-sector-innovation-payment-tech-leadership/998352d3b1a1df0e869dd83070d9b447) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fort-technology-aims-for-nasdaq-uplisting-to-boost-global-investor-reach/1b994c4c25a874a200487349d5377b93) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/359252-faq-smartcard-marketing-systems-inc-smkg-2025-year-in-review-sustainability-acceleration-innovation-expansion)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/359267-faq-fort-technology-incs-planned-nasdaq-uplisting)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/31/epicNQVM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2512/31/ninoaJB5.webp)
