@@ -1,98 +1,62 @@
-# InvestorNewsBreaks – Why Search Minerals Inc. (TSX.V: SMY) (OTC: SHCMF) Is ‘One to Watch’
+# NetworkNewsBreaks – SuperCom Ltd. (NASDAQ: SPCB) Eyes Increased Adoption of Solutions Across Core Markets
 
-Disseminated on behalf of Search Minerals Inc. (TSX.V: SMY) (OTC: SHCMF) and may include paid advertising.
+SuperCom (NASDAQ: SPCB), a global provider of secured solutions for the e-Government, IoT, and cybersecurity sectors, recently announced its strongest financial performance to date. “The company recorded substantial gains across multiple metrics, reflecting increased adoption of its electronic monitoring (‘EM’) platform in the United States and abroad,” reads an article discussing this. “President and CEO Ordan Trabelsi described the results as evidence of the company’s operational scalability and increasing market traction. ‘Net income reached a record of $6.0 million, approximately 140% higher year over year,’ Trabelsi said, noting the scalability of the company’s expansion model… Trabelsi added that SuperCom has continued to expand its footprint with new EM contracts in the United States and in Germany, extending its reach into Europe’s largest economy. Many of these engagements, including recent wins in Alabama, Utah, and Virginia, involved replacing long-standing incumbent providers, an indication of market willingness to adopt newer, more flexible monitoring technology.”
 
- Search Minerals (TSX.V: SMY) (OTC: SHCMF) is a mineral exploration and development company focused on advancing critical rare earth element (“CREE”) resources in Labrador, Canada. “Since its establishment, the company has concentrated on systematic exploration supported by detailed geological work, extensive sampling, and disciplined technical evaluation across its landholdings,” reads a recent article. “The company operates with an emphasis on transparency, field-based science, and engagement with local communities and partners, including the NunatuKavut Community Council and municipal leaders in the surrounding region. Its technical programs and community initiatives reflect an ongoing commitment to responsible exploration and long-term regional collaboration… Through continued exploration, environmental review, and stakeholder dialogue, Search Minerals is working to advance its rare earth assets toward future development within a supportive and mining-friendly jurisdiction.”
+ To view the full article, visit https://nnw.fm/VMf8u
 
- To view the full article, visit https://ibn.fm/cVdhl
+ About SuperCom Ltd.
 
- About Search Minerals Inc.
+ Since 1988, SuperCom has been a global provider of traditional and digital identity solutions, providing advanced safety, identification and security solutions to governments and organizations, both private and public, worldwide. Through its proprietary e-Government platforms and innovative solutions for traditional and biometrics enrollment, personalization, issuance, and border control services, SuperCom has inspired governments and national agencies to design and issue secure Multi-ID documents and robust digital identity solutions to its citizens and visitors. SuperCom offers a unique all-in-one field-proven RFID & mobile technology and product suite, accompanied by advanced complementary services for various industries, including healthcare and homecare, security and safety, community public safety, law enforcement, electronic monitoring, and domestic violence prevention. For more information, visit the company’s website at www.SuperCom.com.
 
- Search Minerals is focused on exploring for and developing critical rare earth elements (“CREE”) as well as transition metals zirconium (“Zr”) and hafnium (“Hf”) within the emerging Port Hope Simpson – St. Lewis CREE District of South-East Labrador. The company controls two deposits (Foxtrot and Deep Fox), two drill ready prospects (Fox Meadow and Silver Fox) and numerous other CREE prospects, including Fox Valley, Foxy Lady and Awesome Fox, along a 64-kilometre-long belt forming a CREE District in Labrador. Search Minerals also controls additional CREE assets in the Red Wine CREE District of central Labrador. These include: the drill ready Two Tom Lake CREE-Be-Nb deposit, the Mann #1 CREE-Nb-Be prospect and Merlot CREE Prospect.
+ NOTE TO INVESTORS: The latest news and updates relating to SPCB are available in the company’s newsroom at https://nnw.fm/SPCB
 
- NOTE TO INVESTORS: The latest news and updates relating to SHCMF are available in the company’s newsroom at https://ibn.fm/SHCMF
+ About NetworkNewsWire
 
- About InvestorWire
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.InvestorWire.com
+ For more information, please visit https://www.NetworkNewsWire.com
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
 
- InvestorWire is powered by IBN 
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-why-search-minerals-inc-tsx-v-smy-otc-shcmf-is-one-to-watch/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-supercom-ltd-nasdaq-spcb-eyes-increased-adoption-of-solutions-across-core-markets/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/search-minerals-advances-critical-rare-earth-exploration-in-labrador/e12dcba18e7d8a0440206e2aab7568cb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-reports-record-growth-with-140-net-income-surge/9857df712c9c69efcee815865dcb10d8) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/search-minerals-advances-critical-rare-earth-element-projects-in/202626119)
+Pickup - [https://advos.io/en](https://advos.io/en/supercom-reports-record-financial-performance-amid-global-expans/202626127)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/362994-search-minerals-advances-critical-rare-earth-element-exploration-in-labradors-emerging-district)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/363207-supercom-reports-record-financial-performance-driven-by-electronic-monitoring-platform-expansion)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/335884-search-minerals-treibt-exploration-kritischer-seltenerdmetalle-im-aufstrebenden-distrikt-labradors-voran)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/335891-supercom-meldet-rekordergebnisse-dank-ausbau-der-elektronischen-uberwachungsplattform)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336045-search-minerals-avanza-en-la-exploracion-de-elementos-de-tierras-raras-criticas-en-el-distrito-emergente-de-labrador)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336052-supercom-reporta-un-rendimiento-financiero-record-impulsado-por-la-expansion-de-su-plataforma-de-monitoreo-electronico)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/336609-search-minerals-progresse-dans-lexploration-des-terres-rares-critiques-dans-le-district-emergent-du-labrador)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/336626-supercom-annonce-des-resultats-financiers-records-grace-a-lexpansion-de-sa-plateforme-de-surveillance-electronique)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/335812-search-minerals-avanca-na-exploracao-de-elementos-de-terras-raras-criticos-no-distrito-emergente-de-labrador)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/335819-supercom-reporta-desempenho-financeiro-recorde-impulsionado-pela-expansao-da-plataforma-de-monitoramento-eletronico)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/362987-faq-search-minerals-inc-critical-rare-earth-element-exploration-in-labrador)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/363215-faq-supercom-ltds-record-financial-performance-and-electronic-monitoring-platform-expansion)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/search-minerals-advances-critical-rare-earth-element-development/202626119)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/supercom-reports-record-financial-performance-amid-global-expans/202626127)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/search-minerals-advances-critical-rare-earth-element-development/202626119)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/supercom-reports-record-financial-performance-driven-by-electron/202626127)
 
-Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/202601/363065-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/363315-supercom-reports-record-financial-performance-fueled-by-electronic-monitoring-platform-adoption)
 
-Pickup - [https://news.calgaryobserver.com/les-informations](https://news.calgaryobserver.com/les-informations/202601/336612-search-minerals-developpe-les-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/202601/363066-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.edmontonobserver.com/les-informations](https://news.edmontonobserver.com/les-informations/202601/336610-search-minerals-developpe-les-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202601/363067-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202601/336615-search-minerals-developpe-methodiquement-les-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-rigoureuse)
-
-Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/202601/363068-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/202601/336611-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/202601/363069-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/202601/336614-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/202601/363070-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/202601/336613-search-minerals-developpe-les-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-methodique-dexploration)
-
-Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/202601/363091-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/202601/336616-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/202601/363092-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-approach)
-
-Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/202601/336617-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-approche-dexploration-methodique)
-
-Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/202601/363115-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-and-community-partnership)
-
-Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/202601/336619-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-exploration-methodique-et-a-des-partenariats-communautaires)
-
-Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/202601/363117-search-minerals-advances-critical-rare-earth-element-resources-in-labrador-through-methodical-exploration-and-community-partnership)
-
-Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/202601/336618-search-minerals-progresse-dans-le-developpement-des-ressources-en-terres-rares-critiques-au-labrador-grace-a-une-exploration-methodique-et-a-des-partenariats-communautaires)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/363317-supercom-reports-record-financial-performance-fueled-by-electronic-monitoring-expansion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/2/swimC5Il.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/2/boldOzI1.webp)

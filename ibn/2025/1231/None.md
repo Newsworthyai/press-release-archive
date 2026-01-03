@@ -1,40 +1,54 @@
-# 420 with CNW — Trump’s Cannabis Order Injects New Life into Hemp Industry
+# New Gene Regulator Could Revive Immune System Response in Cancer Management
 
-President Trump has offered a boost to the struggling hemp sector with his executive order that directs federal agencies to accelerate the reclassification of cannabis and explore Medicare coverage for CBD products. The move arrives as the industry prepares for a major policy fight in Congress over rules that could sharply restrict hemp-derived goods.
+A gene regulator best known for its role in bone development is now emerging as a potential lever to restore immune responses in cancer patients who stop benefiting from immunotherapy. New findings from Taiwan suggest that blocking this regulator, RUNX2, may help worn-down immune cells regain their ability to fight tumors.
 
- As the regulatory landscape for hemp and marijuana evolves over the coming months, firms like Trulieve Cannabis Corp. (CSE: TRUL) (OTCQX: TCNNF) will be keeping tabs to…
+ With immense human and financial resources being directed by firms like Calidi Biotherapeutics Inc. (NYSE American: CLDI) into studying how immunotherapy can be improved to help a lot more cancer patients, this study provides further proof that cancer treatment is set for a major transformation over…
 
  Read More>>
 
- About CNW420
+ About TinyGems
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.CannabisNewsWire.com
+ For more information, please visit https://www.TinyGems.com
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
 
- CannabisNewsWire is powered by IBN 
+ TinyGems is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-trumps-cannabis-order-injects-new-life-into-hemp-industry/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/new-gene-regulator-could-revive-immune-system-response-in-cancer-management/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-cannabis-order-boosts-hemp-industry-amid-regulatory-battle/51d5dca22ae6d11de6adf91eb96c9b30) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gene-regulator-runx2-could-revive-immune-response-in-cancer-patients/a4210baca086c1f08e84206420b51237) 
 
 
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202512/359271-executive-order-could-accelerate-cannabis-reclassification-and-cbd-medicare-coverage)
+Pickup - [https://advos.io/en](https://advos.io/en/runx2-gene-regulator-identified-as-potential-key-to-reviving-imm/202626128)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/359266-faq-trumps-executive-order-on-cannabis-reclassification-and-hemp-industry-impact)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/363297-runx2-gene-regulator-identified-as-potential-key-to-reviving-immune-response-in-cancer-patients)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/335820-regulador-genetico-runx2-identificado-como-potencial-chave-para-reviver-resposta-imunologica-em-pacientes-com-cancer)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/363275-faq-new-gene-regulator-runx2-and-its-potential-in-cancer-immunotherapy)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/335892-runx2-genregulator-als-potenzieller-schlussel-zur-wiederbelebung-der-immunantwort-bei-krebspatienten-identifiziert)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336053-el-regulador-genetico-runx2-identificado-como-posible-clave-para-revivir-la-respuesta-inmunitaria-en-pacientes-con-cancer)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/336627-le-regulateur-genetique-runx2-identifie-comme-une-cle-potentielle-pour-relancer-la-reponse-immunitaire-chez-les-patients-atteints-de-cancer)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gene-regulator-runx2-identified-as-potential-key-to-reviving-imm/202626128)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/runx2-gene-regulator-identified-as-potential-key-to-reviving-imm/202626128)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/31/taroBC4v.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/2/paveErJg.webp)
