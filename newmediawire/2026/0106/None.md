@@ -1,66 +1,38 @@
-# GeoVax Labs, Inc. to Review Progress and Strategic Priorities During Biotech Showcase 2026 and J.P. Morgan Healthcare Conference Week
+# D-Wave (QBTS) to Bring Commercial Quantum Computing to CES 2026
 
-ATLANTA, GA - January 6, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company advancing innovative immunotherapies and vaccines for cancer and infectious diseases, today announced that senior management will participate in investor and partner engagements during Biotech Showcase 2026 and the 44th Annual J.P. Morgan Healthcare Conference Week in San Francisco, January 12-15, 2026.
+LOS ANGELES, CA - January 6, 2026 (NEWMEDIAWIRE) - D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing systems, software, and services and the world’s first commercial supplier of quantum computers, announced it will participate in CES 2026 as a sponsor of the CES Foundry, a two-day event at the Fontainebleau Las Vegas, January 7 and 8, 2026. At the event, D-Wave will showcase its award-winning annealing quantum computing technology, hybrid quantum-classical solvers, and real-world customer use cases that are demonstrating measurable performance benefits, often beyond classical computing alone.
 
- During these premier investor forums, GeoVax leadership will highlight the Company’s 2025 operational achievements, clinical pipeline progress, and strategic priorities for 2026, including key clinical catalysts, regulatory milestones, and business development related to the following programs and initiatives:
+ Murray Thom, vice president of quantum technology evangelism at D-Wave, will present a masterclass and demo on Wednesday, January 7 from 1 p.m. to 1:30 p.m. PT, educating attendees about how to realize value from quantum computing today. Register for the masterclass here: https://www.ces.tech/schedule/how-quantum-computing-is-transforming-business-today/
 
- * CM04S1 (COVID-19): Clinical status, translational data, and regulatory pathways for high-risk and immunocompromised populations.
-* Gedeptin® (Solid Tumors): Translational and clinical data supporting development in head & neck cancer and other high-value solid tumor indications.
-* GEO-MVA (Mpox & Smallpox): Regulatory progress, clinical strategy, and potential registration pathways supporting civilian and biodefense use.
-* Manufacturing Platform: Advancements in continuous cell-line manufacturing enabling scalable, resilient, and domestic vaccine production.
-* Business Development: Partnership and collaboration opportunities to support pipeline advancement and long-term value creation.
+ “Showcasing quantum computing at CES, one of the world’s most influential technology stages, signals that the technology is quickly moving into the mainstream,” said Murray Thom. “D-Wave is uniquely positioned to demonstrate practical quantum in action, and we’re excited to show how our systems are helping customers solve complex problems now, often with greater speed, efficiency, and impact than classical computing alone.”
 
-Presentation Details:Presenter: David Dodd, Chairman & CEODate/Time: January 13, 2026, 2:30 pm PSTLocation: Hilton Union Square, 333 O’Farrell Street, Yosemite A (Ballroom Level), San Francisco, CA
+ To view the full press release, visit https://ibn.fm/i3JYB
 
- 
+ About D-Wave Quantum Inc.
 
- GeoVax’s presentation will be webcast live and may be accessed here or through the Events & Presentations section of the company’s website at www.geovax.com. The webcast will be archived and available for replay for approximately one month following the event.
+ D-Wave is a leader in the development and delivery of quantum computing systems, software, and services. We are the world’s first commercial supplier of quantum computers, and the only company building both annealing and gate-model quantum computers. Our mission is to help customers realize the value of quantum, today. Our quantum computers - the world’s largest - feature QPUs with sub-second response times and can be deployed on-premises or accessed through our quantum cloud service, which offers 99.9% availability and uptime. More than 100 organizations trust D-Wave with their toughest computational challenges. With over 200 million problems submitted to our quantum systems to date, our customers apply our technology to address use cases spanning optimization, artificial intelligence, research and more. Learn more about realizing the value of quantum computing today and how we’re shaping the quantum-driven industrial and societal advancements of tomorrow: www.dwavequantum.com.
 
- Management will also host one-on-one investor and partner meetings throughout the conference to discuss GeoVax’s progress across its diverse pipeline.
+ Forward Looking Statements
 
- “We are pleased to share GeoVax’s 2025 achievements with the global investor and biotech community at Biotech Showcase and the J.P. Morgan Healthcare Conference,” said David Dodd, President and CEO of GeoVax Labs, Inc. “Our team has delivered meaningful clinical and operational progress, strengthened our strategic position, and advanced multiple programs toward key inflection points in 2026. We look forward to engaging with shareholders, partners, and prospective collaborators on our differentiated pipeline and long-term growth strategy.”
+ Certain statements in this press release are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management’s control, including the risks set forth under the heading “Risk Factors” discussed under the caption “Item 1A. Risk Factors” in Part I of our most recent Annual Report on Form 10-K or any updates discussed under the caption “Item 1A. Risk Factors” in Part II of our Quarterly Reports on Form 10-Q and in our other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this press release in making an investment decision, which are based on information available to us on the date hereof. We undertake no duty to update this information unless required by law.
 
- About GeoVax
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- GeoVax Labs, Inc. is a clinical-stage biotechnology company developing novel vaccines against infectious diseases and therapies for solid tumor cancers. The Company’s lead clinical program is GEO-CM04S1, a next-generation COVID-19 vaccine currently in three Phase 2 clinical trials, being evaluated as (1) a primary vaccine for immunocompromised patients such as those suffering from hematologic cancers and other patient populations for whom the current authorized COVID-19 vaccines are insufficient, (2) a booster vaccine in patients with chronic lymphocytic leukemia (CLL) and (3) a more robust, durable COVID-19 booster among healthy patients who previously received the mRNA vaccines. In oncology the lead clinical program is evaluating a novel oncolytic solid tumor gene-directed therapy, Gedeptin®, having recently completed a multicenter Phase 1/2 clinical trial for advanced head and neck cancers. GeoVax is also developing a vaccine targeting Mpox and smallpox and, based on recent EMA regulatory guidance, anticipates progressing directly to a Phase 3 clinical evaluation, omitting Phase 1 and Phase 2 trials. GeoVax has a strong IP portfolio in support of its technologies and product candidates, holding worldwide rights for its technologies and products. For more information about the current status of our clinical trials and other updates, visit our website: www.geovax.com.
+ Forward Looking Statements
 
- Company Contact:info@geovax.com678-384-7220
-
- Media Contact:Jessica Starmanmedia@geovax.com
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-labs-inc-to-review-progress-and-strategic-priorities-during-biotech-showcase-2026-and-j-p-morgan-healthcare-conference-week-7084794)
+[Original/Source Press Release](https://www.newmediawire.com/news/d-wave-qbts-to-bring-commercial-quantum-computing-to-ces-2026-7084797)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-to-showcase-pipeline-progress-at-premier-investor-conferences/f2c650c8a29956026e3a9f79d326540b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-showcases-practical-quantum-computing-at-ces-2026/a8a8928fb12f40b2df685c54830d9f42) 
 
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/364841-faq-geovax-labs-participation-in-biotech-showcase-2026-and-jp-morgan-healthcare-conference)
-
-Pickup - [https://advos.io/en](https://advos.io/en/geovax-labs-to-outline-clinical-progress-and-2026-strategy-at-ke/202626206)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202601/364847-geovax-labs-to-outline-clinical-progress-and-strategic-priorities-at-major-2026-healthcare-conferences)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/335965-geovax-labs-wird-klinische-fortschritte-und-strategische-prioritaten-auf-bedeutenden-gesundheitskonferenzen-2026-vorstellen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336131-geovax-labs-presentara-su-progreso-clinico-y-prioridades-estrategicas-en-importantes-conferencias-de-salud-de-2026)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/336723-geovax-labs-presentera-ses-progres-cliniques-et-ses-priorites-strategiques-lors-des-grandes-conferences-sur-la-sante-de-2026)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/335894-geovax-labs-apresentara-progresso-clinico-e-prioridades-estrategicas-em-principais-conferencias-de-saude-de-2026)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-labs-to-outline-clinical-progress-and-strategic-prioritie/202626206)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-labs-to-outline-clinical-progress-and-strategic-prioritie/202626206)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/364956-geovax-labs-to-present-clinical-pipeline-progress-and-2026-strategy-at-major-healthcare-conferences)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/6/loftnv3m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/6/mildpqz8.webp)
