@@ -1,14 +1,12 @@
-# TechMediaBreaks – A2Z Cust2Mate Solutions Corp. (NASDAQ: AZ) Authorizes Up to $20 Million Share Repurchase Program
+# AI Use in Schools Explodes, But Guidance is Lagging
 
-A2Z Cust2Mate Solutions (NASDAQ: AZ) announced that its board of directors has approved a share repurchase program authorizing the company to repurchase up to $20 million of its outstanding common shares in the open market over a period of up to three months. The company stated that the repurchase program reflects its view that the current market price of its common shares does not fully reflect its underlying value and prospects and represents an appropriate use of financial resources to enhance shareholder value. Oppenheimer & Co. Inc. has been engaged as broker for the program, which may be executed through open market transactions or other permitted methods in compliance with applicable SEC rules, with shares repurchased to be returned to treasury and canceled.
+AI is no longer just an experiment in education. It has quietly become an everyday learning assistant used by students to unpack topics, condense notes, and craft assignments. Teachers use it to plan lessons, grade work faster, and reduce paperwork. While this rapid growth shows how powerful AI can be in education, it has also created a serious problem. The technology is moving much faster than the rules and guidance meant to control it.
 
- To view the press release, visit https://ibn.fm/0LqOL
+ The pace at which the uptake of AI is happening in schools shows the extent of the hunger that the population has for useful tools that help with daily tasks. If tech firms like D-Wave Quantum Inc. (NYSE: QBTS) continue to innovate at their…
 
- About A2Z Cust2Mate Solutions Corp.
+ Read More>>
 
- A2Z Cust2Mate Solutions Corp. (NASDAQ: AZ) creates innovative solutions for complex challenges that brings innovation, ease, excitement and value to retailers and shoppers. The company’s flagship innovative smart cart solutions are transforming brick-and-mortar retail, bridging online and in-store shopping through interactive technology that guides and informs customers. Cust2Mate’s AI-driven smart carts personalize every in-store journey, turning routine trips into engaging, rewarding experiences. They enable seamless in-cart scanning and payment, allowing shoppers to bypass checkout lines while receiving real-time customized offers and product recommendations. This enhanced customer experience boosts satisfaction and loyalty while helping retailers streamline operations and optimize merchandising through data-driven insights. The carts are equipped with multiple layers of security for accurate recognition and transaction integrity. Its modular, all-in-one detachable panels transform legacy shopping cart fleets into intelligent platforms that deliver a range of benefits.
-
- NOTE TO INVESTORS: The latest news and updates relating to AZ are available in the company’s newsroom at https://ibn.fm/AZ
+ NOTE TO INVESTORS: The latest news and updates relating to D-Wave Quantum Inc. (NYSE: QBTS) are available in the company’s newsroom at https://ibn.fm/QBTS
 
  About TechMediaWire
 
@@ -20,16 +18,16 @@ A2Z Cust2Mate Solutions (NASDAQ: AZ) announced that its board of directors has a
 
  Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ TechMediaWireLos Angeles, CAwww.TechMediaWire.com310.299.1717 OfficeEditor@TechMediaWire.com
 
  TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-a2z-cust2mate-solutions-corp-nasdaq-az-authorizes-up-to-20-million-share-repurchase-program/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/ai-use-in-schools-explodes-but-guidance-is-lagging/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a2z-cust2mate-launches-20m-share-buyback-to-boost-shareholder-value/93a7fc5968b7582be25bd088f346ba45) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-education-boom-outpaces-guidance-creating-critical-gaps/a54ec9145dfafa4e578d8d33188eb6aa) 
 
  
 
@@ -37,4 +35,4 @@ A2Z Cust2Mate Solutions (NASDAQ: AZ) announced that its board of directors has a
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/7/elleTG40.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/7/loftq5SY.webp)
