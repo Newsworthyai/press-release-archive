@@ -1,27 +1,33 @@
-# Rhug Wild Beauty Introduces a Fresh Start for the New Year with Clean, High-Efficacy Skincare from the UK
+# Building Del Rio, Texas: Mayor Al Arreola on Infrastructure, Border Growth, and a City Poised for Its Next Chapter
 
-Boerne, TX (Newsworthy.ai) Wednesday Jan 7, 2026 @ 3:00 AM Pacific — As the New Year invites reflection, renewal, and intention, Rhug Wild Beauty offers a refined approach to skincare rooted in nature, science, and sustainability. Drawing on the wild, organic landscape of the Rhug Estate in North Wales, the award-winning luxury British brand presents a collection of clean, high-efficacy formulations designed to restore balance and support long-term skin health.
+Del Rio, Texas (Newsworthy.ai) Wednesday Jan 7, 2026 @ 9:00 AM US/Central — In a new audio-only episode of The Building Texas Show, host Justin McKenzie sits down with Al Arreola, Mayor of Del Rio, for a candid, forward-looking conversation about the city’s economic momentum, infrastructure priorities, and the realities—and opportunities—of being a modern Texas border community.
 
- Founded on the principle that true beauty begins with wellbeing, Rhug Wild Beauty harnesses wild-foraged and organically grown botanicals, carefully selected for their proven performance. Each product is formulated to deliver visible results while respecting both the skin and the environment — free from unnecessary synthetics, yet uncompromising in efficacy. The range blends estate-grown ingredients with clinically validated natural actives, reflecting a modern approach to clean beauty that performs.
+ Recorded in Del Rio, the episode explores how the city is moving beyond national headlines to focus on long-term growth rooted in collaboration, safety, and strategic investment. Mayor Arreola outlines how population stability, inbound relocation from across the country, and strong coordination with state and federal partners are creating renewed confidence in Del Rio’s future
 
- At the heart of the collection is a commitment to results-led, sustainable skincare. Ingredients are grown and foraged on the Rhug Estate, where regenerative farming and land stewardship ensure traceability, integrity, and exceptional quality. This deep connection to place remains central to the brand’s philosophy: skincare that is as responsible as it is luxurious.
+ A cornerstone of Del Rio’s stability is Laughlin Air Force Base, which continues to anchor the local economy and attract highly skilled professionals. Many of those who arrive for military service ultimately choose to stay, drawn by Del Rio’s quality of life, affordability, and deep sense of community.
 
- The New Year also marks a growing presence for Rhug Wild Beauty within the luxury wellness and international skincare space. As the first five-star spa brand partner at Chuan Body + Soul at The Langham, London, Rhug Wild Beauty has been incorporated into exclusive spa treatments that unite Traditional Chinese Medicine–inspired techniques with the brand’s nourishing formulations. Beyond the spa, the brand continues to expand its global reach, with increasing availability in the United States through select luxury retail partners and online platforms.
+ The conversation also highlights Del Rio’s growing regional cooperation with Ciudad Acuña, Eagle Pass, and Piedras Negras. Rather than competing, border cities are aligning around shared goals: economic growth, secure ports of entry, and efficient cross-border commerce. Mayor Arreola emphasizes that what impacts one city ultimately impacts the entire region.
 
- New Year resolutions often focus on change,” says Lord Newborough. “At Rhug Wild Beauty, we believe in thoughtful, sustainable rituals — products that work with the skin over time, supporting resilience, radiance, and overall wellbeing.
+ Infrastructure emerges as the defining issue for the years ahead. From water and wastewater capacity to transportation and border crossings, Del Rio is focused on ensuring its systems can support future industry, residents, and trade. A proposed second international bridge—while controversial—represents a long-term investment in mobility, supply chains, and economic resilience.
 
- Whether experienced as part of a professional spa ritual or a daily at-home routine, Rhug Wild Beauty invites consumers to begin the year with intention — embracing skincare that is clean, effective, and deeply connected to nature.
+ Tourism and outdoor recreation remain vital components of the local economy as well. Lake Amistad continues to draw anglers, hunters, and visitors from across Texas, supporting events, hospitality, and seasonal tourism even amid fluctuating water levels.
 
- Where to Buy The Rhug Wild Beauty collection is available online at rhugwildbeauty.com and through select premium retailers in the UK and internationally, including the United States via Amazon and OneLavi.
+ Throughout the episode, Mayor Arreola returns to a central theme: Del Rio’s identity as a welcoming, relationship-driven community. From cross-border families and military households to entrepreneurs and visitors passing through, the city’s culture of hospitality remains one of its strongest assets.
 
- About Rhug Wild Beauty Rhug Wild Beauty is a luxury organic skincare brand born from the historic Rhug Estate in North Wales. Grounded in regenerative farming, wild-foraged botanicals, and proven natural actives, the collection embodies a modern approach to clean beauty—balancing heritage, science, and sustainability. For More Information visit https://www.rhugwildbeauty.com 
+ “This is a city built on friendship,” Arreola explains, referencing the enduring meaning of Amistad. “People come here and feel like they belong—and that’s what makes them stay”
+
+ The episode offers listeners a grounded, on-the-record look at how Del Rio is positioning itself for the next decade—focused not on rhetoric, but on infrastructure, cooperation, and measurable growth.
+
+ About The Building Texas Show The Building Texas Show is a statewide interview series hosted by Justin McKenzie that explores how cities, leaders, and builders across Texas are shaping the future of their communities. Through in-depth conversations with mayors, entrepreneurs, and civic leaders, the show highlights economic development, infrastructure, culture, and opportunity across urban and rural Texas.
+
+ Watch and listen to full episodes on YouTube and follow the show for ongoing coverage from across the state. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202601072021/rhug-wild-beauty-introduces-a-fresh-start-for-the-new-year-with-clean-high-efficacy-skincare-from-the-uk)
+[Original/Source Press Release](https://newsworthy.ai/news/202601072023/building-del-rio-texas-mayor-al-arreola-on-infrastructure-border-growth-and-a-city-poised-for-its-next-chapter)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rhug-wild-beauty-merges-luxury-skincare-with-regenerative-farming/a003397959a20eadf99038b9a2c5299f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/del-rio-mayor-outlines-border-city-s-growth-strategy-beyond-headlines/9f1fe5bcaf76ae42d2173b8ce278dfc7) 
 
  
 
@@ -29,4 +35,4 @@ Boerne, TX (Newsworthy.ai) Wednesday Jan 7, 2026 @ 3:00 AM Pacific — As the Ne
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/7/paleCv_I.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/7/pinktv9c.webp)

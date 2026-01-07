@@ -1,76 +1,40 @@
-# Movement Matters: Light Activity Led to Better Survival in Diabetes, Heart, Kidney Disease
+# Carolindica Expands THC Beverage Line With New Sodas and Seltzers
 
-Research Highlights:
+New THC-Infused Sodas and Seltzers Crafted With a Local North Carolina Brewery Offer Consumers an Alcohol-Free Way to Unwind and Socialize
 
- * Light physical activity was associated with lower risk of death for adults in stages 2, 3 and 4 of cardiovascular-kidney-metabolic (CKM) syndrome, a health condition that includes heart disease, kidney disease, diabetes and obesity.
-* A one hour increase in light physical activity each day was associated with a 14% to 20% lower risk of death.
-* The association between light physical activity and lower risk of death was most pronounced for people with advanced CKM syndrome.
+ RALEIGH, NORTH CAROLINA - January 7, 2026 (NEWMEDIAWIRE) - Carolindica, a North Carolina-based hemp industry leader of high-quality hemp-derived wellness products, today announced the expansion of its beverage collection with High Tide, a new line of THC-infused Sodas and Seltzers. Crafted in partnership with a local Raleigh brewery, these new offerings bring a fresh, creative twist to the growing THC beverage market that’s quickly becoming a preferred alternative to alcohol for social occasions.
 
- DALLAS - January 7, 2026 (NEWMEDIAWIRE) - Light intensity activities, like walking or household chores, were linked to a lower risk of death for people with cardiovascular-kidney-metabolic (CKM) syndrome, according to new research published today in the Journal of the American Heart Association, an open access, peer-reviewed journal of the American Heart Association.
+ The new line includes both carbonated Seltzers and THC Sodas, a richer, more nostalgic beverage experience that stands apart from typical cannabis drinks. Each product is carefully formulated to deliver a clean, balanced onset with precisely measured hemp-derived cannabinoids, providing consumers with a functional, social and enjoyable alternative to alcohol.
 
- Nearly 90% of U.S. adults have at least one component of CKM syndrome, which includes high blood pressure, abnormal cholesterol and lipids, high blood glucose (sugar), excess weight and reduced kidney function. When combined, these factors increase the risk for heart attack, stroke and heart failure more than any one of them alone. CKM stages range from 0 to 4, with the higher number indicating higher risk for heart disease and stroke.
+ “THC beverages are redefining the way people relax and connect,” said Chris Karazin, CEO and Founder of Carolindica. “Our new Sodas and Seltzers are designed for today’s consumer - someone who wants to unwind, enjoy flavor and feel good without the physical tax of dehydration and the headache of a hangover. Partnering with a prominent North Carolina-based brewery allows us to bring real craftsmanship to the beverage space, and we’re proud to deliver products that taste great and feel even better.”
 
- The new study suggests that light physical activity is the most common level of activity and that increasing time spent being active may provide meaningful health benefits, especially for people in CKM syndrome stage 2 and above.
+ The expanded beverage lineup includes:
 
- Physical activity, healthy eating habits and medication if appropriate are advised to slow the progression of CKM syndrome. However, write study authors, the moderate- to vigorous-intensity activity recommended in general physical activity guidelines may not be feasible for adults with advanced CKM syndrome.
+ * THC Seltzers - 10mg THC + 25mg CBD: Each blend features a crisp, light carbonation and natural fruit flavors for a smooth, uplifting experience. Flavors: Orange Cream, Rogue Berry Riot, and Lemon Lime
+* THC Sodas: A richer, more nostalgic take on THC beverages, these sodas pair bold flavor with Carolindica’s signature precision dosing for a fun, balanced experience. Offering two dosages:   Max Strength Tall Boy THC Soda - 60mg Nano THC (50mg D9 + 10mg THCP). Flavor: Lemon Lime Soda “Limelight”    Strong and Sweet Sodas - 25mg THC. Flavors: Blackberry Lemon Lime "Berry Blitz", Strawberries & Cream "Blush Rush", and Lemon Lime "Limelight"
 
- “There’s growing evidence that lighter activity like walking or gardening can be beneficial for heart health. However, studies have not examined the long-term benefits for those with heart disease or those at high risk for heart disease,” said study author Michael Fang, Ph.D., M.H.S., assistant professor of epidemiology at Johns Hopkins Bloomberg School of Public Health in Baltimore, Maryland.
+ Available now for nationwide shipping, Carolindica’s THC beverages are offered in a range of strengths and flavors, each produced in small batches to ensure purity, potency, and consistency. The seltzers offer a smooth, balanced flavor with low sugar content and effects that feel as light, bright, and refreshing as their taste, while the THC Soda delivers a bold, sweet finish reminiscent of classic favorites—perfect for sharing with friends or enjoying solo.
 
- Researchers used data from the 2003 to 2006 National Health and Nutrition Examination Survey (NHANES), which collected health and physical activity information from about 7,200 adults. NHANES includes information from participants’ physical examinations, blood samples and up to 7 days of activity levels measured with accelerometers - devices that measure a person’s movement over several days.
+ “With most cannabis beverages leaning toward the seltzer category, our High Tide THC Soda gives consumers something truly different,” said Ellen Marion, Creative Director of Carolindica. “It’s nostalgic, fun and crafted with care. High Tide brings people together in a lighter, more intentional way.”
 
- Using accelerometer readings, the study authors noted whether activity level was light, moderate or vigorous. “Light physical activity is something you can do without losing your breath,” said study lead author Joseph Sartini, B.S.E., a Ph.D. candidate in biostatistics at Johns Hopkins Bloomberg School of Public Health. “Common examples are yoga, casual walking, stretching and household chores.”
+ The expansion arrives amid a nationwide surge in THC beverage popularity, as more consumers turn to cannabis-infused drinks as a modern, hangover-free alternative to alcohol. Carolindica’s beverage line blends artistry, science and flavor innovation, offering a versatile way to unwind at home or socialize with loved ones.
 
- The researchers then compared light-intensity activity duration for each CKM syndrome stage. Participants’ health data determined their CKM syndrome stage. People with normal weight, blood pressure, lipids, blood sugar and kidney function are stage 0, and those with excess weight and/or pre-diabetes are stage 1. People with multiple components of CKM syndrome and/or moderate- to high-risk kidney disease are in stage 2. Individuals at very high-risk kidney disease, high risk for heart disease or stroke, or “subclinical” cardiovascular disease, meaning they don’t have many symptoms, are in stage 3. People with multiple CKM components or chronic kidney disease who have also had a heart attack or stroke or have atrial fibrillation (irregular heart rate) or peripheral artery disease (blocked arteries in the legs) are in stage 4.
+ For more information or to explore Carolindica’s full High Tide beverage line, visit www.carolindica.com.
 
- The investigators found:
+ About Carolindica
 
- * Light physical activity was significantly associated with lower risk of death in CKM syndrome stages 2, 3, and 4.
-* A one-hour increase in light physical activity each day was associated with a 14% to 20% lower risk of death over 14 years.
-* Increasing time spent doing light activity was associated with greater benefits at higher CKM stages. For example, increasing activity from 90 minutes to two hours a day was associated with a 2.2% risk reduction in stage 2 compared to a 4.2% risk reduction in stage 4.
+ Carolindica is a North Carolina-based hemp manufacturer and dispensary founded on a belief in the transformative power of cannabis. Headquartered in Raleigh, the company began as a grassroots operation handcrafting small-batch cannabinoid products and building trust with local customers through transparency, consistency, and care. Today, Carolindica controls every step of its in-house production process to ensure purity, potency, and reliable results. With a focus on education, science-backed formulations, and a personalized customer experience, Carolindica produces lab-tested hemp-derived products that support wellness goals like better sleep, pain relief, and anxiety reduction. The company leads with compliance, advocates for safe, legal access to cannabis, and continues to set the standard for responsible hemp manufacturing in an ever-changing regulatory landscape.
 
- “Light physical activity is an overlooked treatment tool that can help improve heart health for people with CKM syndrome,” Sartini said. “For those in later CKM syndrome stages, the potential health benefits of light activity are substantial.”
-
- Bethany Barone Gibbs, Ph.D., FAHA, an American Heart Association volunteer and member of the Association’s Council on Lifestyle and Cardiometabolic Health who was not involved in the study, said this is an important area to research.
-
- “We know less about the health impacts of light-intensity activities compared to more intense physical activity,” said Gibbs, who is also chair and professor of epidemiology and biostatistics at West Virginia University School of Public Health in Morgantown, West Virginia. “Light intensity activities provide a great opportunity to promote energy expenditure, movement and circulation - all healthy physiological processes that we assume are related to better health - but research in this area is limited.”
-
- A limitation of the study is that it is observational; therefore, it can only point to associations rather than cause and effect. Researchers cannot make conclusions about whether increasing light physical activity directly decreases risk of death. It is also possible that individuals with more advanced illness would have been pre-disposed to higher risk of death and less light intensity activity.
-
- Co-authors, disclosures and funding sources are listed in the manuscript.
-
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s institutional policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- Additional Resources:
-
- * Multimedia is available on the right column of release link.
-* After Wednesday, Jan. 7, 2026, view the manuscript online.
-* American Heart Association news release: About 9 in 10 haven’t heard of condition that affects nearly 90% of U.S. adults (Oct. 2025)
-* American Heart Association’s CKM Health Initiative
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association @JAHA_AHA
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries and AHA/ASA Expert Perspective: 214-706-1173
-
- Maggie Francis: Maggie.Francis@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
- 
+ Press ContactKyle PorterEVP, Virgo PRCarolindica@virgo-pr.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/movement-matters-light-activity-led-to-better-survival-in-diabetes-heart-kidney-disease-7084802)
+[Original/Source Press Release](https://www.newmediawire.com/news/carolindica-expands-thc-beverage-line-with-new-sodas-and-seltzers-7084803)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/light-activity-cuts-death-risk-in-heart-kidney-metabolic-syndrome/53c41ac09666eab6cce9dcc038e9b35e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carolindica-launches-high-tide-thc-infused-sodas-seltzers-redefine-social-drinking/ebb292f88b784006286eb054d9d3fbc8) 
 
  
 
@@ -78,4 +42,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/7/irisYt4i.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/7/envy__IF.webp)
