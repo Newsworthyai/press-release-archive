@@ -1,39 +1,35 @@
-# Fitzroy Minerals Appoints Victor Flores to Board of Directors
+# Onsetto, Inc. Raises $2.2 Million Series Seed Round Led by EJF Ventures to Accelerate Product Development and Go-to-Market Expansion
 
-VANCOUVER, BRITISH COLUMBIA - January 8, 2026 (NEWMEDIAWIRE) - Fitzroy Minerals Inc. (TSXV: FTZ, OTCQB: FTZFF) (“Fitzroy” or the “Company”) is pleased to announce the appointment of Mr. Victor Flores as a Non-Executive Director of the Company, effective January 6, 2026.
+MINNEAPOLIS, MN - January 8, 2026 (NEWMEDIAWIRE) - Onsetto, a fintech platform purpose-built to help financial institutions capture the core operating account and establish primacy with business customers, today announced it has raised $2.2 million in funding. The round was led by EJF Ventures, with participation from Idea Fund of La Crosse, The Perch Fund, and Minneapolis-based angel investors Daren Cotter and Bobby Astrup.
 
- Mr. Flores is a recognized expert in resource capital markets, with decades of experience in the sector. He has built a distinguished career, initially working as a resources analyst but later as a Portfolio Manager and Chief Investment Officer for United Services Advisors (now US Global Investors), before spending eleven years as a Managing Director and Senior Mining Analyst at HSBC. From 2009 he spent nine years as a portfolio manager for Paulson & Co and since 2018 he has been a mining sector consultant for both senior gold companies and investment advisors, including six years as Director of Strategic Projects for Orion Resource Partners.
+ The funding follows a strong quarter of commercial momentum for Onsetto, during which the company signed a double-digit number of financial institutions under contract, underscoring growing demand from banks and credit unions seeking a technology enabled solution for account switching.
 
- Mr. Flores has a Bachelor’s degree in Geological Sciences and a Master’s degree in Energy and Mineral Resources from the University of Texas at Austin. He has been a CFA charter holder since 1992.
+ The new funding will support continued investment in product development, including Onsetto’s AI-driven capabilities for switching, activation, and treasury identification, along with expanded sales and marketing efforts to meet rising demand from financial institutions.
 
- Campbell Smyth, Chairman of Fitzroy Minerals, commented: “We are very pleased to welcome Victor to Fitzroy Minerals. Victor has a deep understanding of the sector that encompasses both the bottom-up impact of geology and asset-level results as well as the top-down impact of capital flows and economic cycles, and everything in-between. His experience strengthens our governance as we continue to advance our portfolio in Chile.”
+ Onsetto’s platform automates the historically manual and fragmented process of business account switching, enabling banks and credit unions to identify core operating account components, move payroll and payments faster, and drive earlier deposit funding and treasury engagement.
 
- TSX-V Disclosure
+ “Financial institutions are under increasing pressure to win the primary banking relationship earlier in the customer lifecycle, but outdated switching processes continue to slow momentum and negatively impact the customer experience,” said Cale Johnston, Founder and CEO of Onsetto. “This funding allows us to deepen our product capabilities while scaling our go-to-market efforts so more institutions can turn newly opened business accounts into fully funded, primary operating relationships.”
 
- The appointment is subject to acceptance by the TSX Venture Exchange, as applicable. No security-based compensation has been granted in connection with this appointment.
+ EJF Venture’s investment reflects growing interest in solutions that support deposit growth and operational efficiency in business banking.
 
- About Fitzroy Minerals
+ “Onsetto is solving a meaningful problem for financial institutions by modernizing how business accounts are activated and funded,” said Jonathan Bresler, Managing Partner at EJF Ventures. “We’re excited to support the team as they continue to build a platform that strengthens core operating relationships and delivers measurable impact for banks and credit unions.”
 
- Fitzroy Minerals is focused on exploring and developing mineral assets with substantial upside potential in the Americas. The Company’s current property portfolio includes the Buen Retiro Copper Project located near Copiapo, Chile, the Caballos Copper and Polimet Gold-Copper-Silver projects located in Valparaiso, Chile, the Taquetren Gold Project located in Rio Negro, Argentina, and the Cariboo Project in British Columbia, Canada. Fitzroy Minerals’ shares are listed on the TSX Venture Exchange under the symbol FTZ and on the OTCQB under the symbol FTZFF.
+ As business deposits increasingly drive balance sheet growth, Onsetto is positioned to help financial institutions improve onboarding outcomes, shorten time-to-funding, and uncover treasury opportunities earlier in the lifecycle.
 
- On behalf of the board of Fitzroy Minerals Inc.
+ About Onsetto
 
- Merlin Marr-JohnsonPresident and CEO
+ Onsetto is a white-label, AI-enabled business banking platform that helps financial institutions activate and establish primary operating relationships. By identifying core operating account components and intelligently guiding businesses through payroll, AR/AP, and operating flow transitions, Onsetto enables banks and credit unions to accelerate funding, establish primacy, and expand treasury engagement. To learn more, visit www.onsetto.comAbout EJF Capital LP
 
- For further information, please contact:
+ EJF Capital LP is a global alternative asset management firm focused on regulatory event-driven investing within the financial sector. Founded in 2005 by Manny Friedman and Neal Wilson and headquartered just outside Washington, D.C., EJF Capital manages approximately $5.6 billion in assets as of September 30, 2025, including $3.0 billion in CDO assets through affiliates. EJF Ventures is the early-stage fintech platform of EJF Capital, investing in companies building bank technology, wealth technology, and other mission-critical financial services software.
 
- Merlin Marr-Johnsonmmj@fitzroyminerals.com+447803712280
-
- For more information on Fitzroy Minerals, please visit the Company's website: www.fitzroyminerals.com
-
-View the original release on www.newmediawire.com 
+ Contact: Lindsey Johnstonlindsey@joinroy.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fitzroy-minerals-appoints-victor-flores-to-board-of-directors-7084820)
+[Original/Source Press Release](https://www.newmediawire.com/news/onsetto-inc-raises-2-2-million-series-seed-round-led-by-ejf-ventures-to-accelerate-product-development-and-go-to-market-expansion-7084824)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fitzroy-minerals-appoints-mining-finance-veteran-victor-flores-to-board/b107771970f1e8a2e9a63363abf2679a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onsetto-raises-2-2m-to-revolutionize-business-banking-onboarding/1ff8881bd5c01bf9bd3d5acb7f3a93e4) 
 
  
 
@@ -41,4 +37,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/8/chefNkD4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/8/openw2fs.webp)
