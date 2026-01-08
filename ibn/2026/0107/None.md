@@ -1,33 +1,31 @@
-# AI Use in Schools Explodes, But Guidance is Lagging
+# 420 with CNW — Florida Could Again Vote on Recreational Marijuana in 2026 Polls
 
-AI is no longer just an experiment in education. It has quietly become an everyday learning assistant used by students to unpack topics, condense notes, and craft assignments. Teachers use it to plan lessons, grade work faster, and reduce paperwork. While this rapid growth shows how powerful AI can be in education, it has also created a serious problem. The technology is moving much faster than the rules and guidance meant to control it.
+Florida’s debate over recreational cannabis is resurfacing after a failed ballot initiative and renewed public support, setting the stage for a possible return to voters in 2026.
 
- The pace at which the uptake of AI is happening in schools shows the extent of the hunger that the population has for useful tools that help with daily tasks. If tech firms like D-Wave Quantum Inc. (NYSE: QBTS) continue to innovate at their…
+ The reform movement, as well as notable industry firms like Canopy Growth Corp. (NASDAQ: CGC) (TSX: WEED), will be hoping that the…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to D-Wave Quantum Inc. (NYSE: QBTS) are available in the company’s newsroom at https://ibn.fm/QBTS
+ About CNW420
 
- About TechMediaWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.TechMediaWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWireLos Angeles, CAwww.TechMediaWire.com310.299.1717 OfficeEditor@TechMediaWire.com
-
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/ai-use-in-schools-explodes-but-guidance-is-lagging/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-florida-could-again-vote-on-recreational-marijuana-in-2026-polls/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-education-boom-outpaces-guidance-creating-critical-gaps/a54ec9145dfafa4e578d8d33188eb6aa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-s-recreational-cannabis-debate-revives-for-2026-ballot/25cbaf3056d017b4ce600e40cb1aaeb1) 
 
  
 
@@ -35,4 +33,4 @@ AI is no longer just an experiment in education. It has quietly become an everyd
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/7/loftq5SY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/7/echopaBB.webp)
