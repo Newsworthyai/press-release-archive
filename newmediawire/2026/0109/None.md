@@ -1,38 +1,66 @@
-# Xalles Holdings Announces Management Changes
+# 45Drives Expands Canadian Footprint with New Kitchener-Waterloo Office, Reinforcing Commitment to National Innovation and Economic Growth
 
-WASHINGTON DC - January 9, 2026 (NEWMEDIAWIRE) - Xalles Holdings Inc. (“Xalles”) (OTCID: XALL) is pleased to announce management changes that were approved by the board of directors and aimed at jump starting the growth.
+SYDNEY, NOVA SCOTIA - January 9, 2026 (NEWMEDIAWIRE) - 45Drives, the leading provider of enterprise data storage and virtual compute solutions and a subsidiary of the Protocase Companies, today announced the opening of a new office in the Kitchener-Waterloo region of Ontario. The expansion marks a significant milestone in 45Drives’ continued growth and reinforces the Protocase Companies’ long-standing commitment to investing in Canadian innovation, advanced manufacturing, and high-growth technology sectors.
 
- The board, in collaboration with a strategic investor, has been working for the last several months on a strategy to revive growth and create more value for our shareholders. As a result of those strategic discussions, the board has decided to make major changes to the corporate structure and business model and will be taking a series of steps aimed at strengthening the balance sheet.
+ The new Kitchener-Waterloo office will be shared with parent company Protocase, which specializes in the manufacturing of custom electronic enclosures and precision parts for innovative and mission-critical industries, including aerospace, defense, advanced computing, and emerging technologies. Founded in Canada, the Protocase Companies have grown into a cross-border organization employing nearly 600 people across Canada and the United States, while maintaining deep roots in Canadian engineering, manufacturing, and R&D excellence.
 
- As part of the management changes, Thomas Nash will be stepping down from the CEO role. Mr. Nash has led the company for the last several years and the board thanks him for his service. Robert (Bob) Trevelyan has been appointed as the new CEO of Xalles Holdings. Mr. Nash will continue for a short transition period to ensure continuity.
+ An official grand opening celebration will take place on Tuesday, January 13, at 3:00 p.m., at the 45Drives headquarters within Catalyst Commons Limited Partnership, 137 Glasgow Street, Kitchener, ON, N2G 4X8. Employees, customers, and community partners will gather to mark this next chapter in the company’s evolution and to celebrate the opportunities this expansion brings to the region.
 
- Bob is a business builder and change agent with a record of accomplishment in leading startups and turnarounds, establishing new divisions, and building infrastructures that support profitable growth for Global 500 companies. He has repeatedly delivered leading-edge capabilities using technologies, methodologies, reengineering, consultative management approaches and change management to improve bottom-line performance across many global industries.
+ The Kitchener-Waterloo area holds particular significance for 45Drives. President and Co-Founder Dr. Douglas Milburn earned his PhD in Mechanical Engineering from the University of Waterloo, establishing deep personal and professional ties to the region’s globally recognized academic and technology communities.
 
- “I am excited about this role and opportunity, and I plan to leverage new strategies and the resources available to drive direct value to our shareholders," stated Bob Trevelyan.
+ “The Protocase Companies were founded in Canada, and that heritage continues to shape how we build, invest, and grow,” said Dr. Doug Milburn, President and Co-Founder of 45Drives and the Protocase Companies. “Establishing a stronger presence in Kitchener-Waterloo is both a strategic decision and a personal one. This region is a powerhouse for engineering and innovation, and expanding here strengthens our ability to serve enterprise and government customers nationwide while creating high-quality jobs and deepening our investment in Canadian talent.”
 
- One of the Xalles directors, Paul Erickson, has resigned from the board. The company thanks him for his years of service on the board of directors.
+ As an inherently Canadian company within the Protocase Companies portfolio, 45Drives designs and manufactures solutions that prioritize transparency, security, and performance for mission-critical enterprise and government environments. The new Kitchener-Waterloo office will enhance the company’s national reach, accelerate collaboration across engineering and manufacturing teams, and support continued economic growth through regional hiring and long-term investment.
 
- The company will be announcing additional corporate structure and strategy changes in the coming days to strengthen the balance sheet and position the company for growth in 2026.
+ **For media interested in attending/covering the launch event, please send an email to 45Drives@PhillComm.Global to RSVP and/or arrange a discussion with Dr. Milburn.**
 
- About Xalles Holdings Inc. (OTCID: XALL)Xalles Holdings Inc. is a leading holding company, specializing in innovative technology and financial service solutions. Focused on growth and diversification, Xalles Holdings is committed to developing cutting-edge technology-based solutions across various sectors, with an emphasis on supporting disruptive companies. The company actively seeks acquisition targets with solid management teams, robust business models, expansive total attainable markets (TAM), and enticing exit opportunities. Emphasizing cutting-edge technologies, Xalles provides industry-leading solutions, poised to capture recurring revenue streams over time. Discover more at Xalles.com.
+ About 45Drives
 
- Forward-Looking Statements Disclaimer:
+ 45Drives is a subsidiary of the Protocase Companies and designs and manufactures enterprise-grade data storage and virtual compute solutions built on open technologies. Headquartered in Sydney, Nova Scotia, with additional production and corporate facilities in Wilmington, North Carolina, 45Drives serves customers worldwide across enterprise, government, research, and high-performance computing environments.
 
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. In some cases, you can identify forward-looking statements by the following words: "anticipate," "believe," "continue," "could," "estimate," "expect," "intend," "may," "ongoing," "plan," "potential," "predict," "project," "should," "will," "would," or the negative of these terms or other comparable terminology, although not all forward-looking statements contain these words. Forward-looking statements are not a guarantee of future performance or results and will not necessarily be accurate indications of the times at, or by, which such performance or results will be achieved. Forward-looking statements are based on information available at the time the statements are made and involve known and unknown risks, uncertainty and other factors that may cause our results, levels of activity, performance, or achievements to be materially different from the information expressed or implied by the forward-looking statements in this press release. This press release should be considered in light of all filings of the Company that are contained in the Edgar Archives of the Securities and Exchange Commission at SEC.gov and in OTC Markets at OTCMarkets.com.
+ About the Protocase Companies
 
- Investor Relations Contact:IR@xalles.com202-595-1299Xalles.com 
+ Proudly founded in Sydney, Nova Scotia, the Protocase Companies are global leaders in custom electronic enclosure manufacturing, precision parts, and advanced computing infrastructure. Employing nearly 600 people across Canada and the United States, the Protocase Companies support innovative industries including aerospace, defense, research, and enterprise technology.
+
+ Contact:Jonathan Phillips45Drives@phillcomm.global
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/xalles-holdings-announces-management-changes-7084840)
+[Original/Source Press Release](https://www.newmediawire.com/news/45drives-expands-canadian-footprint-with-new-kitchener-waterloo-office-reinforcing-commitment-to-national-innovation-and-economic-growth-7084843)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/xalles-holdings-appoints-new-ceo-in-major-growth-revival-strategy/afdf7ef46c2fb4773309af456f408347) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/45drives-expands-canadian-footprint-with-new-kitchener-waterloo-office/5ae728b549f29c633b6e19026e0df43b) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/45drives-expands-to-kitchener-waterloo-strengthening-canadian-te/202626358)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/367106-45drives-expands-canadian-operations-with-new-kitchener-waterloo-office)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336116-45drives-erweitert-kanadische-geschaftsaktivitaten-mit-neuem-buro-in-kitchener-waterloo)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336298-45drives-amplia-sus-operaciones-en-canada-con-una-nueva-oficina-en-kitchener-waterloo)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/336879-45drives-etend-ses-operations-canadiennes-avec-un-nouveau-bureau-a-kitchener-waterloo)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336042-45drives-expande-operacoes-no-canada-com-novo-escritorio-em-kitchener-waterloo)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/367060-faq-45drives-new-kitchener-waterloo-office-expansion)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/45drives-expands-canadian-operations-with-new-kitchener-waterloo/202626358)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/45drives-expands-canadian-presence-with-kitchener-waterloo-offic/202626358)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/367280-45drives-expands-canadian-presence-with-new-kitchener-waterloo-office)
+
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202601/367298-45drives-expands-canadian-presence-with-new-kitchener-waterloo-office)
+
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202601/336889-45drives-etend-sa-presence-au-canada-avec-un-nouveau-bureau-a-kitchener-waterloo)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/9/paveLHEL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/9/hintRdMf.webp)
