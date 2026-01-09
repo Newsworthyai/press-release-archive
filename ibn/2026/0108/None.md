@@ -1,31 +1,31 @@
-# Data Centers Could Accelerate Africa’s Energy Transition
+# 420 with CNW — US Supreme Court Sets Dates to Hear Marijuana Users’ Gun Rights Case
 
-Data centers could become the unexpected catalyst that finally modernizes Africa’s energy infrastructure. The continent’s explosive digital growth is creating massive demand for reliable electricity, and that appetite is attracting the type of capital investment that has historically avoided African power grids.
+The United States Supreme Court has set a date to hear arguments in a closely watched case that could determine whether federal restrictions on gun ownership for people who use cannabis are constitutional.
 
- As the economic case for innovative renewable energy solutions in Africa gains traction, it won’t be surprising when American companies like GeoSolar Technologies Inc. move to establish a strong…
+ The marijuana industry, including entities like Curaleaf Holdings Inc. (CSE: CURA) (OTCQX: CURLF), will be watching how the Supreme Court rules in…
 
  Read More>>
 
- About GreenEnergyStocks
+ About CNW420
 
- GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.GreenEnergyStocks.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- GreenEnergyStocksLos Angeles, CAwww.GreenEnergyStocks.com310.299.1717 OfficeEditor@GreenEnergyStocks.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- GreenEnergyStocks is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/data-centers-could-accelerate-africas-energy-transition/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-us-supreme-court-sets-dates-to-hear-marijuana-users-gun-rights-case/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/data-centers-power-africa-s-energy-revolution/de6afbe43515ec7b91be45decd4fc722) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supreme-court-to-hear-landmark-case-on-cannabis-users-gun-rights/4626dede0847789ec388a899b6bba196) 
 
  
 
@@ -33,4 +33,4 @@ Data centers could become the unexpected catalyst that finally modernizes Africa
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/8/hike7HQ5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/8/coolpa_T.webp)
