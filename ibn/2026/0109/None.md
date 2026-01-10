@@ -1,38 +1,38 @@
-# InvestorNewsBreaks – Nightfood Holdings Inc. (NGTF) Brings Robotics to Beverage Service with BIM-E
+# 420 with CNW — Officials in New York Tout Successes Recorded in Legal Marijuana Program
 
-Nightfood Holdings (OTCQB: NGTF), dba as TechForce Robotics, recently announced that the company is developing and launching a proprietary beverage dispensing robotic system called BIM-E (Beverages in Motion – Everywhere). “The system is designed to optimize both beverage revenue and service efficiency and was created to address two major challenges faced by many venues: long wait times and lost revenue caused by insufficient staff during busy periods. It reduces beverage serve time and may help capture lost revenue that often occurs when there’s not enough human servers to meet consumer demand,” an article reads. “The Beverage Bot is engineered to dispense both carbonated beverages and beer with precision, and delivers cold beverages quickly, without sacrificing consistency or quality… The company expects the solution to be especially well-suited for environments where beverage serve speed and volume are required, such as at concerts, sporting events, conferences, festivals, airports, and many others.”
+New York regulators have published a series of year-end reports outlining how the state’s legal cannabis industry has developed, highlighting strong sales, growing tax revenue, progress on equity goals, and expanded access for medical patients.
 
- To view the full article, visit https://ibn.fm/TE9RC
+ This positive information coming after the hiccups that threatened to derail the program in its initial stages after the launch of legal sales comes as a welcome relief to industry players like Cresco Labs Inc. (CSE: CL) (OTCQX: CRLBF) that are happy to see…
 
- About Nightfood Holdings Inc.
+ Read More>>
 
- Nightfood is a forward-thinking holding company dedicated to identifying and capitalizing on explosive market trends within the hospitality, food services, consumer packaged goods and commercial real estate sectors. The company’s mission is to create unparalleled upside potential in industries ripe for innovation and growth by leading newly emerging categories and seizing opportunities in markets undergoing transformational upheaval. Nightfood is at the forefront of introducing and deploying artificial intelligence-enabled robotics products, revolutionizing operational efficiencies and customer experiences across the company’s focus areas. Additionally, the company is committed to developing and marketing wellness-focused consumer packaged goods, meeting the growing demand for healthier and functional options. Through these strategic initiatives, Nightfood endeavors to drive significant value and growth for its stakeholders. For more information, visit the company’s website at NightfoodHoldings.com.
+ About CNW420
 
- NOTE TO INVESTORS: The latest news and updates relating to NGTF are available in the company’s newsroom at http://ibn.fm/NGTF
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- About InvestorWire
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nightfood-holdings-inc-ngtf-brings-robotics-to-beverage-service-with-bim-e/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-officials-in-new-york-tout-successes-recorded-in-legal-marijuana-program/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/techforce-robotics-unveils-beverage-bot-to-revolutionize-high-volume-service/355f27430556cf03fb8359f32c2732f9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-york-s-legal-cannabis-hits-2-5b-in-sales-expands-equity/e84f287d4d639f8f86e5a41dd716abd2) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202601/367955-new-yorks-legal-cannabis-industry-shows-strong-growth-in-year-end-reports)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/9/rifton9Z.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/9/ulnasv9z.webp)
