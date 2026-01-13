@@ -1,39 +1,31 @@
-# NetworkNewsBreaks – Ucore Rare Metals Inc. (TSX.V: UCU) (OTCQX: UURAF) Positioning as Vital Player in Critical Mineral Supply Chain
+# 420 with CNW — GOP Congressmen are Fuming at Trump for Embracing Marijuana
 
-Disseminated on behalf of Ucore Rare Metals Inc. (TSX.V: UCU) (OTCQX: UURAF) and may include paid advertising.
+President Donald Trump has opened a rare rift within his party, and the issue driving it is marijuana policy. Last month, Trump announced plans to ease federal rules that govern cannabis, arguing that existing regulations have driven up taxes on marijuana businesses and hindered scientific research into potential medical benefits.
 
- Ucore Rare Metals (TSX.V: UCU) (OTCQX: UURAF) is emerging as a key figure in the critical mineral solution. According to a recent article, the company is “developing a North American supply chain for rare-earth separation using its proprietary RapidSX technology and advancing plans for a commercial facility designed to reduce reliance on Chinese processing… A 2022 study by the Congressional Research Service confirmed that a single F-35 fighter jet requires approximately 920 pounds of rare-earth materials, many of which must undergo separation and magnet-manufacturing processes that currently occur almost entirely in China. New Chinese restrictions could widen this gap by cutting off access to advanced magnet manufacturing know-how, potentially affecting everything from precision-guided munitions to next-generation naval and air-defense platforms.”
+ This ongoing debate and clash of opinions within the GOP ranks in Congress is likely to be of great interest to many licensed marijuana companies such as Green Thumb Industries Inc. (CSE: GTII) (OTCQX: GTBIF) that have for long wished to see…
 
- “This threat has placed renewed urgency on domestic companies, such as Ucore, that aim to rebuild processing infrastructure the U.S. allowed to atrophy over several decades… Ucore Rare Metals is central to this reshoring effort through its planned Strategic Metal Complex in Alexandria, Louisiana, where the company intends to separate mixed rare-earth concentrates into individual oxides needed for high-performance magnets. The facility is designed with a nameplate capacity of 7,500 metric tons per year of total rare-earth oxides, including up to 2,000 metric tons of neodymium-praseodymium (‘NdPr’) oxide, the primary feedstock for permanent magnets.”
+ Read More>>
 
- To view the full article, visit https://nnw.fm/UzHkR
+ About CNW420
 
- About Ucore Rare Metals Inc.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- Ucore is focused on rare- and critical-metal resources, extraction, beneficiation and separation technologies with the potential for production, growth and scalability. Ucore’s vision and plan is to become a leading advanced technology company, providing best-in-class metal separation products and services to the mining and mineral extraction industry. Through strategic partnerships, this plan includes disrupting the People’s Republic of China’s control of the North American REE supply chain through the near-term development of a heavy and light rare-earth processing facility in the U.S. state of Louisiana, subsequent strategic metals complexes (“SMCs”) in Canada and Alaska and the longer-term development of Ucore’s 100% controlled Bokan-Dotson Ridge Rare Heavy REE Project on Prince of Wales Island in Southeast Alaska, USA. For more information, visit the company’s website at www.Ucore.com.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- NOTE TO INVESTORS: The latest news and updates relating to UURAF are available in the company’s newsroom at https://nnw.fm/UURAF
+ For more information, please visit https://www.CannabisNewsWire.com
 
- About NetworkNewsWire
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
-
- For more information, please visit https://www.NetworkNewsWire.com
-
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-ucore-rare-metals-inc-tsx-v-ucu-otcqx-uuraf-positioning-as-vital-player-in-critical-mineral-supply-chain/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-gop-congressmen-are-fuming-at-trump-for-embracing-marijuana/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ucore-aims-to-break-china-s-grip-on-rare-earth-supply-with-us-processing-hub/c5bc07bb4e88b9e5babbe60db49dbac4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-marijuana-policy-shift-creates-gop-rift-impacts-cannabis-industry/3b4cf8cb9c3819ad30f69bc188a5391e) 
 
  
 
@@ -41,4 +33,4 @@ Disseminated on behalf of Ucore Rare Metals Inc. (TSX.V: UCU) (OTCQX: UURAF) and
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/12/yogaxVyp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/12/larkc5Pk.webp)
