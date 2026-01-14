@@ -1,101 +1,58 @@
-# Pregnancy-related High Blood Pressure Varied Among Asian, Pacific Islander Subgroups
+# With Patent Lawsuit Settlement In Its Favor, Birchtech CEO Shares Details On How It's Set Up For Growth In 2026
 
-Research Highlights:
+By Meg Flippin, Benzinga
 
- * The risk of pregnancy-related high blood pressure varied markedly among people of Asian American, Native Hawaiian and Pacific Islander descent, according to an analysis of California health records.
-* Pacific Islander and Filipino individuals were at two to three times higher risk than Chinese individuals, after adjusting for other factors.
-* Japanese, Korean and Vietnamese individuals were generally at lowest risk.
+ DETROIT, MICHIGAN - January 14, 2026 (NEWMEDIAWIRE) - Richard Macpherson, CEO of Birchtech Corp. (OTC: BCHT), was recently a guest on Benzinga All Access.
 
- DALLAS - January 14, 2026 (NEWMEDIAWIRE) - The risk of pregnancy-related high blood pressure varied markedly among subgroups of Asian American, Native Hawaiian and Pacific Islander people, highlighting the need for tailored prevention and treatment, according to research published today in the Journal of the American Heart Association, an open access, peer-reviewed journal of the American Heart Association.
+ Macpherson discussed the final judgment in the company’s patent lawsuit, which was settled in 2024. Birchtech was initially awarded $57 million, but expects the final judgment to be $78 million.
 
- “There are known ways to help prevent and treat high blood pressure during pregnancy. Our findings can help health care professionals identify those who are at higher risk,” said study lead author Jennifer Soh, M.S., who was a master’s student in Community Health and Prevention Research Program at Stanford University School of Medicine when she conducted the study. “Early identification and treatment can help prevent serious, downstream complications for both the pregnant individuals and their infants.”
+ “It adds great validity to our patented technologies. We still have a number of different outstanding situations where we are trying to move forward with licensing with folks who are unlicensed and using our technology,” Macpherson told Benzinga. “It also adds a great deal of capital to our resources as we go forward in building our water purification business.”
 
- Pregnancy-related high blood pressure increases the risk of heart attack and stroke and is one of the leading causes of maternal illness and death, according to the U.S. Centers for Disease Control and Prevention. In the United States, about 1 in 7 pregnancies are affected by a high blood pressure-related condition during pregnancy. These conditions can be managed and treated with medication or lifestyle changes, according to the  American Heart Association.
+ Overall, Macpherson said the settlement will put Birchtech in a position to maximize its growth strategy in 2026.
 
- Previous research has indicated that the risk of developing pregnancy-related high blood pressure differs among people of different races and ethnicities due to social determinants of health. Yet little is known about differences in risk between Asian American, Native Hawaiian and Pacific Islander populations as they are often studied together, despite the diversity found within these groups.
+ Watch the full video here:https://www.youtube.com/watch?v=NMZ3G0kDoQk
 
- To understand the risk by race and ethnicity, researchers in this study analyzed the risks of five hypertensive disorders of pregnancy in individuals of Asian American, Native Hawaiian and Pacific Islander descent. The conditions included chronic hypertension, gestational hypertension (high blood pressure during pregnancy), preeclampsia, eclampsia and chronic hypertension with preeclampsia. Preeclampsia is high blood pressure during pregnancy characterized by too much protein in the urine or other signs of organ damage. Eclampsia is a serious complication of preeclampsia that can cause seizures.
+ Featured image from Shutterstock.
 
- The analysis found:
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
 
- * The lowest frequency of pregnancy-related high blood pressure was found in the Chinese subgroup at 3.7%, while the Guamanian subgroup had the highest frequency at 13%.
-* Using the Chinese population as the reference point, the risk of the pregnancy-related high blood pressure conditions was elevated (two- to three-times higher) among Filipino and Pacific Islander populations: Hawaiian, Guamanian, Samoan and other Pacific Islander individuals, after adjusting for a variety of sociodemographic and maternal-health related factors.
-* Only Japanese, Korean and Vietnamese individuals tended to have risks that were not elevated compared to the Chinese reference group.
-
- “The observed racial-ethnic differences in risk highlight the variation in lived experiences of the individuals included in this study,” Soh said. “Future studies should examine more structural and social factors that could help explain the differences in the elevated risks found in this study.”
-
- The study had several limitations. It relied on medical diagnostic codes, which may be subject to underreporting or misclassification; the data only included individuals in California, so the results may not apply to other people living in different communities; and the study could not account for the effects of the COVID-19 pandemic, since the pandemic began after the study period. Finally, the study could not consider additional potential, yet important, factors that may impact high blood pressure during pregnancy, such as air pollution, neighborhood walkability and food access.
-
- Study details, background and design:
-
- * Researchers reviewed records from 2007-2019 from the California Department of Health Care Access and Information for 772,688 pregnant individuals who self-reported that they were of Asian American, Native Hawaiian and Pacific Islander descent, and they were divided into 15 subgroups: Chinese, Japanese, Korean, Vietnamese, Cambodian, Thai, Laotian, Hmong, Indian, Filipino, Other Asian, Hawaiian, Guamanian, Samoan and Other Pacific Islander.
-* The average age of individuals included in the study was 32 years.
-* Researchers reviewed infant and fetal birth and death certificates linked to maternal hospital discharge records for each of the five hypertensive disorders of pregnancy.
-* The researchers used statistical tools to determine the relative risks of the hypertensive disorders of pregnancy within each subgroup.
-
- Co-authors, disclosures and funding sources are listed in the manuscript.
-
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- Additional Resources:
-
- * Multimedia is available on the right column of release link.
-* After Jan. 14, 2026, view the manuscript online.
-* American Heart Association health information: Pregnancy and Maternal Health
-* American Heart Association news release: New high blood pressure guideline emphasizes prevention, early treatment to reduce CVD risk (Aug. 2025)
-* American Heart Association news release: National Preeclampsia Awareness Month recognized with special issue of Hypertension journal (April 2025)
-* American Heart Association news release: Chronic high blood pressure during pregnancy doubled between 2008 and 2021 in the U.S. (June 2024)
-* American Heart Association news release: Personalized screening early in pregnancy may improve preeclampsia detection (May 2024)
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association @JAHA_AHA
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries and American Heart Association Expert Perspective: 214-706-1173
-
- Bridgette McNeill: Bridgette.McNeill@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ This content was originally published on Benzinga. Read further disclosures here.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pregnancy-related-high-blood-pressure-varied-among-asian-pacific-islander-subgroups-7084894)
+[Original/Source Press Release](https://www.newmediawire.com/news/with-patent-lawsuit-settlement-in-its-favor-birchtech-ceo-shares-details-on-how-it-s-set-up-for-growth-in-2026-7084900)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/study-reveals-stark-pregnancy-blood-pressure-disparities-in-asian-pacific-islander-groups/c464d8d71dcf411287153b121a65b552) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/birchtech-wins-78m-patent-settlement-fuels-water-purification-growth/019ed5b23d3ca1b671a86fa0a3765451) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/study-reveals-significant-variation-in-pregnancy-related-high-bl/202626569)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/371648-faq-birchtechs-patent-lawsuit-settlement-and-2026-growth-strategy)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/371445-study-reveals-significant-variation-in-pregnancy-related-high-blood-pressure-risk-among-asian-pacific-islander-subgroups)
+Pickup - [https://advos.io/en](https://advos.io/en/birchtech-ceo-details-growth-strategy-following-78-million-paten/202626579)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336324-studie-zeigt-erhebliche-unterschiede-im-risiko-fur-schwangerschaftsbedingten-bluthochdruck-bei-asiatischen-und-pazifischen-untergruppen)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/371682-birchtech-ceo-details-growth-strategy-following-patent-lawsuit-settlement)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336532-estudio-revela-variacion-significativa-en-el-riesgo-de-hipertension-relacionada-con-el-embarazo-entre-subgrupos-asiaticos-y-de-las-islas-del-pacifico)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336333-birchtech-ceo-erlautert-wachstumsstrategie-nach-vergleich-in-patentstreit)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337158-une-etude-revele-des-variations-significatives-du-risque-dhypertension-arterielle-liee-a-la-grossesse-parmi-les-sous-groupes-asiatiques-et-insulaires-du-pacifique)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336545-ceo-de-birchtech-detalla-estrategia-de-crecimiento-tras-acuerdo-de-demanda-de-patentes)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336249-estudo-revela-variacao-significativa-no-risco-de-pressao-alta-relacionada-a-gravidez-entre-subgrupos-asiaticos-e-das-ilhas-do-pacifico)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337167-le-pdg-de-birchtech-detaille-la-strategie-de-croissance-apres-le-reglement-du-proces-en-brevet)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/371440-faq-pregnancy-related-high-blood-pressure-risks-among-asian-pacific-islander-subgroups)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336258-ceo-da-birchtech-detalha-estrategia-de-crescimento-apos-acordo-em-processo-de-patente)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/study-reveals-significant-variation-in-pregnancy-related-high-bl/202626569)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/birchtech-patent-settlement-provides-capital-and-validation-for/202626579)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/study-reveals-significant-variation-in-pregnancy-related-high-bl/202626569)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/birchtech-ceo-details-growth-strategy-following-patent-lawsuit-s/202626579)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/371508-study-reveals-significant-disparities-in-pregnancy-related-high-blood-pressure-risks-among-asian-american-native-hawaiian-and-pacific-islander-subgroups)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/371839-birchtech-corp-ceo-details-78-million-patent-settlement-impact-on-growth-strategy)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202601/371509-study-reveals-significant-disparities-in-pregnancy-related-high-blood-pressure-risks-among-asian-american-native-hawaiian-and-pacific-islander-subgroups)
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202601/371845-birchtech-ceo-details-78-million-patent-settlement-impact-on-growth-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/14/harppGFB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/14/kissliER.webp)
