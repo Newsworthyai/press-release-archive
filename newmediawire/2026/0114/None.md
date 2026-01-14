@@ -1,58 +1,32 @@
-# With Patent Lawsuit Settlement In Its Favor, Birchtech CEO Shares Details On How It's Set Up For Growth In 2026
+# GridAI Technologies (GRDX) Positions Itself at the Operating Layer of a Continuously Managed Electric Grid
 
-By Meg Flippin, Benzinga
+LOS ANGELES, CA - January 14, 2026 (NEWMEDIAWIRE) - GridAI Technologies (NASDAQ: GRDX) is aligning its platform with a structural shift in how the electric grid is operated as accelerating AI workloads, electrification, and distributed energy resources push grid management away from long-range planning and toward continuous, real-time operation. As demand volatility increases and the margin for error narrows, grid intelligence is moving from a periodic optimization function to an always-on control layer, where software-driven coordination and automation are required to manage live conditions at scale. GridAI’s approach reflects this reality, positioning the company not as a planning tool, but as an operational layer designed to support ongoing orchestration of demand, storage, and generation in a grid that must now be managed continuously rather than intermittently.
 
- DETROIT, MICHIGAN - January 14, 2026 (NEWMEDIAWIRE) - Richard Macpherson, CEO of Birchtech Corp. (OTC: BCHT), was recently a guest on Benzinga All Access.
+ To view the full press release, visit https://ibn.fm/v7M9i
 
- Macpherson discussed the final judgment in the company’s patent lawsuit, which was settled in 2024. Birchtech was initially awarded $57 million, but expects the final judgment to be $78 million.
+ About GridAI Technologies Corp.
 
- “It adds great validity to our patented technologies. We still have a number of different outstanding situations where we are trying to move forward with licensing with folks who are unlicensed and using our technology,” Macpherson told Benzinga. “It also adds a great deal of capital to our resources as we go forward in building our water purification business.”
+ GridAI Technologies Corp is a publicly listed company on the Nasdaq. The Company is a diversified technology and life sciences company advancing opportunities at the intersection of artificial intelligence and energy infrastructure following its acquisition of Grid AI, Inc. In addition to its GridAI operations, the Company (formerly Entero Therapeutics Inc.) continues to advance its late clinical-stage biopharmaceutical program focused on the development of targeted, non-systemic therapies for gastrointestinal (GI) diseases.
 
- Overall, Macpherson said the settlement will put Birchtech in a position to maximize its growth strategy in 2026.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Watch the full video here:https://www.youtube.com/watch?v=NMZ3G0kDoQk
+ Forward Looking Statements
 
- Featured image from Shutterstock.
-
- This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
-
- This content was originally published on Benzinga. Read further disclosures here.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/with-patent-lawsuit-settlement-in-its-favor-birchtech-ceo-shares-details-on-how-it-s-set-up-for-growth-in-2026-7084900)
+[Original/Source Press Release](https://www.newmediawire.com/news/gridai-technologies-grdx-positions-itself-at-the-operating-layer-of-a-continuously-managed-electric-grid-7084908)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/birchtech-wins-78m-patent-settlement-fuels-water-purification-growth/019ed5b23d3ca1b671a86fa0a3765451) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gridai-technologies-positions-itself-as-operational-layer-for-real-time-grid-management/2c2705f2e448537f60ea3a600241101e) 
 
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/371648-faq-birchtechs-patent-lawsuit-settlement-and-2026-growth-strategy)
-
-Pickup - [https://advos.io/en](https://advos.io/en/birchtech-ceo-details-growth-strategy-following-78-million-paten/202626579)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202601/371682-birchtech-ceo-details-growth-strategy-following-patent-lawsuit-settlement)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336333-birchtech-ceo-erlautert-wachstumsstrategie-nach-vergleich-in-patentstreit)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336545-ceo-de-birchtech-detalla-estrategia-de-crecimiento-tras-acuerdo-de-demanda-de-patentes)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337167-le-pdg-de-birchtech-detaille-la-strategie-de-croissance-apres-le-reglement-du-proces-en-brevet)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336258-ceo-da-birchtech-detalha-estrategia-de-crescimento-apos-acordo-em-processo-de-patente)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/birchtech-patent-settlement-provides-capital-and-validation-for/202626579)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/birchtech-ceo-details-growth-strategy-following-patent-lawsuit-s/202626579)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/371839-birchtech-corp-ceo-details-78-million-patent-settlement-impact-on-growth-strategy)
-
-Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202601/371845-birchtech-ceo-details-78-million-patent-settlement-impact-on-growth-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/14/kissliER.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/14/plum2V7U.webp)
