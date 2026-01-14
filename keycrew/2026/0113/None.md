@@ -1,76 +1,72 @@
-# Loodmy Jacques: What West Palm Beach Home Buyers and Sellers Should Expect in 2026
+# Former WeWork Executive Brings Hospitality-First Model to London’s Flex Workspace Market
 
-As we start 2026, I’m seeing South Florida real estate continue its transition from pandemic-era extremes toward more balanced market conditions. Inventory is up about 30% across Palm Beach County, and that’s changing the dynamics for both buyers and sellers.
+London’s Holborn district has a new player in flexible workspace, and it’s built on hard-won lessons from the WeWork era.
 
- The most important thing to understand is that South Florida is not one market. What happens in Delray Beach is different from what’s happening in Jupiter or West Palm Beach. Each area has its own buyer demographics and price movements.
+ Alex Passler, who previously led WeWork’s Northern Europe operations, has opened Vallist‘s flagship location at Finlaison House – a 30,000-square-foot space that challenges how the industry thinks about flex office economics.
 
- The Seller Mindset Challenge One pattern I’m seeing: sellers who remember what their neighbors got for similar homes in 2021 or 2022 are having a hard time adjusting to current pricing. Some are choosing not to sell at all rather than accept what feels like leaving money on the table.
+ The difference starts with the business model. Where traditional operators sign leases and absorb the associated risk, Vallist partners directly with landlords through white-label management agreements. It’s a structure that eliminates lease exposure while aligning incentives between property owners and operators.
 
- I understand that feeling, but here’s the reality. If you want to sell in 2026, you need proper pricing, professional marketing, and realistic timeline expectations. The immediate sales that characterized 2021-2022 aren’t happening anymore. That doesn’t mean homes aren’t selling; it just means they’re taking longer and require the right approach.
+ “The biggest lesson was that a flexible workspace only works when it’s built for the long term,” Passler explains. “At WeWork, the product was compelling, but the model often prioritized speed and scale over durability. With Vallist, we started from the opposite direction: slow down, partner with landlords, and design spaces that could still feel relevant and resilient ten or twenty years from now.”
 
- For Buyers: Understanding What’s Normal I talk to a lot of buyers who are nervous about timing. They’re asking: what if prices keep dropping? What if I buy now and lose value?
+ A Different Kind of First Impression Walk into most flex spaces, and you’re met with turnstiles, security gates, and visual noise. Finlaison House takes a deliberately different approach.
 
- Here’s what I tell them. Normal market appreciation is somewhere between 3% to 6% annually. During COVID, we saw 20% to 30%, which was never sustainable. What we’re experiencing now is a return to normal, not a crisis.
+ “Most flex spaces hit you with noise – both visually and acoustically,” says Passler. “At Finlaison House, the first impression is deliberately restrained. You feel the quality of materials, the acoustic separation, the natural light, and attention to detail. It feels closer to a private members’ building or a high-end headquarters than a flexible workspace.”
 
- If you plan to stay in a property for five to seven years, can afford the payments, and find a location that works for your life, current conditions actually favor you. You have negotiating power over repairs and closing-cost credits that didn’t exist a few years ago.
+ The space features premium private office suites alongside Vallist’s Work Club membership, which includes dedicated co-working areas, designer lounges, and bookable meeting rooms, without the commitment of a traditional office lease. Security and privacy are handled with the same restraint: robust and appropriate for professionals working with sensitive information, but without imposing barriers or distractions.
 
- The Interest Rate Question I’m not telling people to wait for interest rates to drop. If you find a property within your budget and it checks your boxes, buy it. You can always refinance later when rates improve.
+ The location matters too. Positioned near London’s Royal Courts of Justice and surrounded by major law firms, Finlaison House targets legal, financial services, and professional services sectors that demand both flexibility and quality.
 
- We work with lenders who offer programs that reduce your rate for the first couple of years, giving you time to adjust and position yourself for refinancing. The key is to remove interest rate anxiety from your decision and focus on whether the property and payment work for your situation.
+ The Landlord Proposition For property owners watching office occupancy rates fluctuate, Vallist‘s model offers an alternative to both traditional letting and lease-backed flex operators.
 
- Cash vs. Financing With nearly 45% of Palm Beach County sales being cash transactions, financed buyers sometimes worry they can’t compete. But there are ways to strengthen your financing offer.
+ “By partnering directly with landlords, we align incentives,” Passler notes. “We’re focused on building value into the asset, not just filling desks. That allows us to invest properly in design, soundproofing, technology, and service – and to operate with patience rather than pressure.”
 
- We help buyers get fully underwritten approval rather than just an introductory pre-approval letter. This eliminates financing contingencies and makes your offer much more attractive to sellers. Combined with a strong track record and quick response times, financed buyers can absolutely compete.
+ The partnership approach addresses persistent challenges in flexible workspace economics. Traditional lease-backed models force operators to maintain high occupancy rates to meet fixed rent obligations, a pressure that can compromise service quality and pricing discipline.
 
- Where I’m Seeing Opportunity Port St. Lucie continues to offer value to buyers seeking newer single-family homes at more affordable prices. The area is positioned for growth through planned development and job creation, making it attractive to both first-time buyers and investors.
+ Flight to Quality Continues The timing aligns with broader market trends. London’s premium office sector is seeing increased demand from firms seeking right-sized, amenitized workspace solutions. The pandemic didn’t kill office demand – it killed mediocre office space.
 
- The analysis always depends on individual return expectations and long-term goals, but it’s an area worth considering if you’re being priced out of closer-in markets.
+ “In 2026, professionals are spending fewer days in the office, but when they do go in, the environment has to earn that commute,” Passler observes. “Quality now means exceptional acoustics, generous space per person, privacy, hospitality-level service, and locations that feel central and considered.”
 
- My Approach for 2026 My goal is always education over transaction. Not everyone should buy right now. If you’re uncertain about your five-year plans or your job situation might change, renting may make more sense.
+ Beyond workspace fundamentals, Vallist emphasizes member experience. From thoughtfully designed shared areas to member-led events like cocktail evenings, the approach feels considered rather than programmed. It’s hospitality thinking applied to workspace operations.
 
- But if you’re ready and qualified, don’t let market noise paralyze you. Work with someone who will walk you through the numbers, show you comparable sales, and help you understand what you’re really getting into.
+ Building for the Long Term Passler’s vision for Vallist prioritizes sustainable growth over rapid expansion. The focus remains on selective development in buildings and locations where quality genuinely matters.
 
- The market has normalized, and while that’s less exciting than the frenzy, it’s actually healthier for everyone involved. It rewards preparation, strategy, and realistic expectations.
+ The test will be whether the hospitality-led, landlord-partnership model can deliver returns that satisfy both property owners and justify premium pricing to occupiers. Early market positioning suggests Vallist is betting on upmarket segments willing to pay for differentiated workspace experiences.
 
- Loodmy Jacques has worked in South Florida real estate for 17 years, serving Palm Beach County and surrounding areas.
+ For an industry still working through the lessons of WeWork’s spectacular rise and fall, Vallist represents a different kind of bet: that flexible workspace succeeds not by moving fast and breaking things, but by building slowly and doing things correctly.
+
+ Find out more about Vallist – vallist.com
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/loodmy-jacques-what-west-palm-beach-home-buyers-and-sellers-should-expect-in-2026/)
+[Original/Source Press Release](https://keycrew.co/journal/former-wework-executive-brings-hospitality-first-model-to-londons-flex-workspace-market/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/south-florida-real-estate-normalizes-in-2026-opportunities-emerge-for-buyers-and-sellers/a35de3f6ecdd3f298047df13f40d4ec6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vallist-opens-holborn-flagship-with-wework-learned-flexible-office-model/97614bdd1b99bd17b9c9e054c48e5b3f) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/370287-faq-west-palm-beach-real-estate-market-outlook-for-2026)
+Pickup - [https://advos.io/en](https://advos.io/en/former-wework-executive-launches-hospitality-focused-flex-worksp/202626549)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/south-florida-real-estate-market-normalizes-in-2026-offering-bal/202626514)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/370971-former-wework-executive-launches-hospitality-focused-flex-workspace-in-london-with-landlord-partnership-model)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/south-florida-real-estate-market-normalizes-in-2026-creating-new/202626514)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336305-ehemaliger-wework-manager-eroffnet-gastgewerbeorientierten-flex-arbeitsplatz-in-london-mit-vermieterpartnerschaftsmodell)
 
-Pickup - [https://advos.io/en](https://advos.io/en/south-florida-real-estate-normalizes-in-2026-with-balanced-marke/202626514)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336512-exejecutivo-de-wework-lanza-espacio-de-trabajo-flexible-centrado-en-la-hospitalidad-en-londres-con-modelo-de-asociacion-con-propietarios)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/370431-south-florida-real-estate-market-normalizes-in-2026-creating-new-opportunities-for-buyers-and-sellers)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337139-un-ancien-dirigeant-de-wework-lance-un-espace-de-travail-flexible-axe-sur-lhospitalite-a-londres-avec-un-modele-de-partenariat-avec-les-proprietaires)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336271-immobilienmarkt-in-sudflorida-normalisiert-sich-2026-und-schafft-neue-chancen-fur-kaufer-und-verkaufer)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336230-ex-executivo-da-wework-lanca-espaco-de-trabalho-flexivel-com-foco-em-hospitalidade-em-londres-com-modelo-de-parceria-com-proprietarios)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336475-el-mercado-inmobiliario-del-sur-de-florida-se-normaliza-en-2026-creando-nuevas-oportunidades-para-compradores-y-vendedores)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/370946-faq-vallists-hospitality-first-flexible-workspace-model-in-london)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337081-le-marche-immobilier-du-sud-de-la-floride-se-normalise-en-2026-creant-de-nouvelles-opportunites-pour-acheteurs-et-vendeurs)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/former-wework-executive-launches-hospitality-first-flexible-work/202626549)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336196-mercado-imobiliario-do-sul-da-florida-normaliza-em-2026-criando-novas-oportunidades-para-compradores-e-vendedores)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/370449-south-florida-real-estate-market-shifts-toward-balance-as-inventory-rises-30-in-palm-beach-county)
-
-Pickup - [https://realestateradarflorida.com/newsramp](https://realestateradarflorida.com/newsramp/202601/370480-south-florida-real-estate-shifts-toward-balanced-market-as-inventory-rises-30)
-
-Pickup - [https://realestateradarflorida.com/noticias](https://realestateradarflorida.com/noticias/202601/336480-el-mercado-inmobiliario-del-sur-de-florida-se-equilibra-con-un-aumento-del-30-en-el-inventario)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/former-wework-executive-launches-hospitality-focused-flex-worksp/202626549)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/261/13/fern3o4m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/261/13/wallb8lD.webp)
