@@ -1,38 +1,38 @@
-# Platinum and Palladium Face an Inflection Point in 2026
+# 420 with CNW — Some Changes Resulting from Marijuana Rescheduling Could Take Time
 
-Gold and silver dominated news in 2025 with their strong rallies, but in the background, other precious metals like platinum and palladium climbed. 2026 presents an inflection point at which these PGMs can either claim their slot in the spotlight or continue to suffer the relative obscurity that they have faced over recent years.
+President Trump’s executive order directing federal agencies to loosen restrictions on marijuana is being welcomed by cannabis businesses and researchers, but experts caution that the practical effects will unfold slowly and unevenly. While the move signals a shift in federal posture, it does not immediately dismantle decades of drug policy.
 
- So much depends on regulation and geopolitics, which is why predictions vary so much. You can be sure that firms like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) that are major players in the global production of these metals will be keeping close tabs on the different factors affecting the…
+ The entire marijuana industry, including leading companies like TerrAscend Corp. (TSX: TSND) (OTCQX: TSNDF), will be hoping that…
 
  Read More>>
 
- About Rocks & Stocks
+ About CNW420
 
- Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- R&S is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://RocksAndStocks.news
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- Rocks & StocksLos Angeles, CARocksAndStocks.news310.299.1717 OfficeEditor@RocksAndStocks.news
-
- Rocks & Stocks is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/platinum-and-palladium-face-an-inflection-point-in-2026/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-some-changes-resulting-from-marijuana-rescheduling-could-take-time/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/platinum-palladium-face-2026-inflection-point-after-gold-s-2025-rally/79461cdf9240ae23c287b3119abc5ecf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-marijuana-order-industry-welcomes-shift-but-changes-will-take-time/48cfbd87f3cc0997bd5884f7294e4f14) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202601/372310-federal-marijuana-policy-shift-met-with-cautious-optimism-by-industry)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/14/lambyZoX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/14/smog7u_W.webp)
