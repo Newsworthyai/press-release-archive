@@ -1,56 +1,52 @@
-# 2025 Biohacking Index Top 50 Report Released, Setting a New Standard for Trust and Transparency in Wellness
+# SPARC Health Announces Second Cohort Applications, Building on Inaugural Program Success
 
-New York, NY, Thursday Jan 15, 2026
+SALT LAKE CITY, UT -- January 15, 2026
 
-Wellness Eternal announced the release of the 2025 Biohacking Index Top 50 Report, an annual ranking of the most trusted and top performing biohacking, longevity, and wellness companies of the year. The report highlights the companies that earned the highest verified ratings and reviews from consumers and practitioners throughout 2025.
+SPARC Health, a collaborative effort between Park City Angels (PCA), BioUtah, BioHive, in partnership with Governor's Office of Economic Opportunity (GOEO), today announced applications are now open for its second cohort program. The announcement celebrates the impressive achievements of the inaugural cohort and the growing momentum of Utah's healthcare innovation ecosystem.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* The Biohacking Index Top 50 Report emphasizes verified user feedback and measurable impact in the industry.
-* Wellness Eternal promotes truth and efficacy in health solutions through data-driven education.
-* The Biohacking Index provides credibility and accountability in biohacking, longevity, and human performance sectors.
+Key Takeaways:* SPARC Health demonstrates the power of collaborative healthcare innovation within Utah's life sciences ecosystem. The Startup Platform for Advice, Resources, and Community bring together Park City Angels, BioUtah, BioHive, and the Governor's Office of Economic Opportunity to create a comprehensive support system that accelerates healthcare startup growth through targeted programming, mentorship, and capital access.
+* SPARC Health's inaugural cohort validates the accelerator's proven model for healthcare startup success. Nine health tech companies completed the comprehensive program, raising over $1M in funding, creating 14 jobs, and achieving notable milestones including competition wins and significant revenue growth.
+* Applications for the second cohort open this month, with the program launching February 5th, 2026. Building on lessons learned from the inaugural cohort, SPARC Health's proven 10-module curriculum continues to address the critical challenges that prevent startups from reaching their full potential: poor product-market fit, cash flow problems, and team assembly issues.
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/2025-biohacking-index-top-50-report-released-setting-a-new-standard-for-trust-and-transparency-in-wellness)About Wellness EternalWellness Eternal is a data driven health education company dedicated to advancing truth, safety, and efficacy in wellness and biohacking. Through research, verified ratings, and media amplification, Wellness Eternal helps individuals and practitioners make informed decisions about emerging health solutions.About the Biohacking IndexThe Biohacking Index is a verified ratings and reviews platform focused on biohacking, longevity, and human performance. It exists to bring clarity, credibility, and accountability to one of the fastest growing areas of health and wellness by elevating the companies that consistently deliver real world results.
+[Click image above to view full announcement.](https://sparchealth.reportablenews.com/pr/sparc-health-announces-second-cohort-applications-building-on-inaugural-program-success)About SPARC HealthSPARC Health, the "Startup Platform for Advice, Resources, and Community," accelerates healthcare startup growth through targeted programming, mentorship, and capital access. The organization supports entrepreneurs building scalable businesses that improve healthcare affordability, accessibility, provider work life, and population health.SPARC Health is a collaborative initiative between Park City Angels (PCA), BioUtah, BioHive, and the Governor's Office of Economic Opportunity (GOEO).For more information about SPARC Health or to learn about second cohort applications, visit SPARC Health on LinkedIn or contact Alex Wallberg at info@sparchealthutah.org.
 
-Contacts:Wellness Eternal PR Team 914-846-9444 we@wellnesseternal.com
+Contacts:Chelli Miller219-921-6823chelli@contentcarnivores.com
 
-Source: Newsworthy.ai
+Source: SPARC Health
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/2025-biohacking-index-top-50-report-released-setting-a-new-standard-for-trust-and-transparency-in-wellness)
+[Original/Source Press Release](https://sparchealth.reportablenews.com/pr/sparc-health-announces-second-cohort-applications-building-on-inaugural-program-success)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-eternal-s-2025-biohacking-index-reveals-top-50-trusted-companies/e1fe6165cad3f7f3f57d409f78e4415f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-health-opens-applications-for-second-healthcare-startup-cohort/d8ad9beba48de682e6accacba8cdbe2d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/wellness-eternal-releases-2025-biohacking-index-top-50-report-em/202626638)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/374073-faq-sparc-healths-second-cohort-applications-and-program-overview)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/373506-2025-biohacking-index-top-50-report-released-setting-new-standard-for-trust-in-wellness)
+Pickup - [https://advos.io/en](https://advos.io/en/sparc-health-opens-applications-for-second-healthcare-startup-co/202626676)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336390-2025-biohacking-index-top-50-report-veroffentlicht-und-setzt-neuen-standard-fur-vertrauen-im-wellness-bereich)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/374084-sparc-health-opens-applications-for-second-cohort-following-successful-inaugural-program)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336614-se-publica-el-informe-top-50-del-indice-de-biohacking-2025-estableciendo-un-nuevo-estandar-de-confianza-en-el-bienestar)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336428-sparc-health-nimmt-bewerbungen-fur-zweite-kohorte-nach-erfolgreichem-startprogramm-entgegen)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337243-publication-du-rapport-top-50-de-lindice-de-biohacking-2025-etablissant-une-nouvelle-norme-de-confiance-dans-le-bien-etre)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336654-sparc-health-abre-las-inscripciones-para-su-segunda-cohorte-tras-el-exito-de-su-programa-inaugural)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336315-relatorio-biohacking-index-top-50-de-2025-e-lancado-estabelecendo-novo-padrao-de-confianca-no-bem-estar)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337282-sparc-health-ouvre-les-candidatures-pour-sa-deuxieme-promotion-suite-au-succes-de-son-programme-inaugural)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/373498-faq-2025-biohacking-index-top-50-report-release)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336355-sparc-health-abre-inscricoes-para-segunda-turma-apos-sucesso-do-programa-inaugural)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/2025-biohacking-index-top-50-report-establishes-new-transparency/202626638)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/sparc-health-opens-applications-for-second-healthcare-startup-co/202626676)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/2025-biohacking-index-top-50-report-establishes-new-transparency/202626638)
-
-Pickup - [https://biohacker.news/curated-news](https://biohacker.news/curated-news/202601/373554-2025-biohacking-index-report-introduces-data-driven-approach-to-address-wellness-industry-credibility-gap)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/373574-wellness-eternal-releases-2025-biohacking-index-top-50-report-to-address-industry-credibility-gap)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sparc-health-opens-applications-for-second-cohort-following-succ/202626676)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/15/peart4eq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/15/diveFglr.webp)
