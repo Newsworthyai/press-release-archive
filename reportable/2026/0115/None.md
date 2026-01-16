@@ -1,52 +1,58 @@
-# SPARC Health Announces Second Cohort Applications, Building on Inaugural Program Success
+# Stonegate Capital Partners Initiates Research Coverage on Cassiar Gold Corp. (TSXV: GLDC)
 
-SALT LAKE CITY, UT -- January 15, 2026
+Dallas, tx - January 15, 2026
 
-SPARC Health, a collaborative effort between Park City Angels (PCA), BioUtah, BioHive, in partnership with Governor's Office of Economic Opportunity (GOEO), today announced applications are now open for its second cohort program. The announcement celebrates the impressive achievements of the inaugural cohort and the growing momentum of Utah's healthcare innovation ecosystem.
+Dallas, TX - January 15, 2026 - Cassiar Gold Corp. (TSXV: GLDC): Stonegate Capital Partners initiates their coverage on Cassiar Gold Corp. (TSXV: GLDC). Cassiar’s technical foundation has advanced materially, culminating in a June 2025 NI 43-101 technical report and updated mineral resource estimate for the Cassiar Gold Property. The pit-constrained Taurus MRE outlines Indicated Mineral Resources of 8.8 Mt at 1.43 g/t Au (410 koz) plus Inferred Mineral Resources of 63.2 Mt at 0.95 g/t Au (1.93 Moz) using a 0.4 g/t Au cut-off, with the Company highlighting that 91% of ounces occur within 150m of surface and that mineralization starts at surface. In parallel, Cassiar has continued active drilling and fieldwork to expand mineralization and improve continuity. During the 2024 drill program the Company drilled a total of 7,168m over 30 holes. This was followed by the 2025 drill program which comprised 7,308 meters over 20 drill holes, with positive early results
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* SPARC Health demonstrates the power of collaborative healthcare innovation within Utah's life sciences ecosystem. The Startup Platform for Advice, Resources, and Community bring together Park City Angels, BioUtah, BioHive, and the Governor's Office of Economic Opportunity to create a comprehensive support system that accelerates healthcare startup growth through targeted programming, mentorship, and capital access.
-* SPARC Health's inaugural cohort validates the accelerator's proven model for healthcare startup success. Nine health tech companies completed the comprehensive program, raising over $1M in funding, creating 14 jobs, and achieving notable milestones including competition wins and significant revenue growth.
-* Applications for the second cohort open this month, with the program launching February 5th, 2026. Building on lessons learned from the inaugural cohort, SPARC Health's proven 10-module curriculum continues to address the critical challenges that prevent startups from reaching their full potential: poor product-market fit, cash flow problems, and team assembly issues.
+Key Takeaways:* Infrastructure already in place
+* Updated Technical Reports
+* 100% owned gold project with historic production
 
-[Click image above to view full announcement.](https://sparchealth.reportablenews.com/pr/sparc-health-announces-second-cohort-applications-building-on-inaugural-program-success)About SPARC HealthSPARC Health, the "Startup Platform for Advice, Resources, and Community," accelerates healthcare startup growth through targeted programming, mentorship, and capital access. The organization supports entrepreneurs building scalable businesses that improve healthcare affordability, accessibility, provider work life, and population health.SPARC Health is a collaborative initiative between Park City Angels (PCA), BioUtah, BioHive, and the Governor's Office of Economic Opportunity (GOEO).For more information about SPARC Health or to learn about second cohort applications, visit SPARC Health on LinkedIn or contact Alex Wallberg at info@sparchealthutah.org.
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-research-coverage-on-cassiar-gold-corp-tsxv-gldc)About Stonegate: Stonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-Contacts:Chelli Miller219-921-6823chelli@contentcarnivores.com
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-Source: SPARC Health
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://sparchealth.reportablenews.com/pr/sparc-health-announces-second-cohort-applications-building-on-inaugural-program-success)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-research-coverage-on-cassiar-gold-corp-tsxv-gldc)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-health-opens-applications-for-second-healthcare-startup-cohort/d8ad9beba48de682e6accacba8cdbe2d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stonegate-initiates-coverage-on-cassiar-gold-highlights-major-near-surface-deposit/32c47400d002aa2e9608f262414b4aba) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/374073-faq-sparc-healths-second-cohort-applications-and-program-overview)
+Pickup - [https://advos.io/en](https://advos.io/en/stonegate-capital-partners-initiates-research-coverage-on-cassia/202626695)
 
-Pickup - [https://advos.io/en](https://advos.io/en/sparc-health-opens-applications-for-second-healthcare-startup-co/202626676)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/374396-stonegate-capital-partners-initiates-research-coverage-on-cassiar-gold-corp-following-technical-advancements)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/374084-sparc-health-opens-applications-for-second-cohort-following-successful-inaugural-program)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336447-stonegate-capital-partners-nimmt-research-berichterstattung-zu-cassiar-gold-corp-nach-technischen-fortschritten-auf)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336428-sparc-health-nimmt-bewerbungen-fur-zweite-kohorte-nach-erfolgreichem-startprogramm-entgegen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336675-stonegate-capital-partners-inicia-cobertura-de-investigacion-sobre-cassiar-gold-corp-tras-avances-tecnicos)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336654-sparc-health-abre-las-inscripciones-para-su-segunda-cohorte-tras-el-exito-de-su-programa-inaugural)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337303-stonegate-capital-partners-lance-une-couverture-de-recherche-sur-cassiar-gold-corp-suite-aux-avancees-techniques)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337282-sparc-health-ouvre-les-candidatures-pour-sa-deuxieme-promotion-suite-au-succes-de-son-programme-inaugural)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336374-stonegate-capital-partners-inicia-cobertura-de-pesquisa-sobre-a-cassiar-gold-corp-apos-avancos-tecnicos)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336355-sparc-health-abre-inscricoes-para-segunda-turma-apos-sucesso-do-programa-inaugural)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/374397-faq-stonegate-capital-partners-initiates-research-coverage-on-cassiar-gold-corp)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/sparc-health-opens-applications-for-second-healthcare-startup-co/202626676)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/stonegate-capital-partners-initiates-research-coverage-on-cassia/202626695)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sparc-health-opens-applications-for-second-cohort-following-succ/202626676)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/stonegate-capital-partners-initiates-research-coverage-on-cassia/202626695)
+
+Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202601/374440-stonegate-capital-partners-initiates-coverage-on-cassiar-gold-corp-highlighting-technical-advancements-at-cassiar-gold-property)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202601/336677-stonegate-capital-partners-inicia-cobertura-sobre-cassiar-gold-corp-destacando-avances-tecnicos-en-la-propiedad-cassiar-gold)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202601/374441-stonegate-capital-partners-initiates-research-coverage-on-cassiar-gold-corp-highlighting-technical-advancements-at-cassiar-gold-property)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/15/diveFglr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/15/moss5Uyj.webp)
