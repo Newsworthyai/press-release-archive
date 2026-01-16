@@ -1,44 +1,53 @@
-# InvestorNewsBreaks – OptimumBank Holdings, Inc. (NYSE American: OPHC) to Present at Emerging Growth Conference Jan. 21
+# LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) Gets Infusion of New Capital to Restart Gold Production Operations in Abitibi Gold Belt
 
-OptimumBank Holdings (NYSE American: OPHC) announced that it has been invited to present at the Emerging Growth Conference on Jan. 21, 2026, where Chairman Moishe Gubin will deliver a corporate presentation followed by a live question-and-answer session. The live, interactive online event will provide existing shareholders and the investment community with the opportunity to engage directly with management in real time. OptimumBank Holdings is scheduled to present at 9:40 a.m. Eastern time for approximately 30 minutes, and investors may submit questions in advance or during the event, with management addressing as many inquiries as time permits.
+Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/CNK43
+ * LaFleur Minerals is a Canadian near-term gold producer focused on restarting operations at its Beacon Gold Mill and Mine, and its nearby Swanson Gold Project, all located at the eastern edge of the renowned Abitibi gold belt in Val d’Or, Quebec
+* LaFleur recently completed oversubscribed placements to inject more than $7.8 million into its operations , paving the way for restarting production at their own mill, using an existing stockpile of gold ore at the site for a trial processing run
+* LaFleur can also provide custom milling as a secondary revenue stream, handling processing orders from regional operators, in addition to its own gold exploration project and source of mineralized material
+* The Beacon Gold Mill is capable of processing 750 metric tons per day of ore, is fully permitted to process up to 1.8 million metric tons of tailings, and is in a state of readiness pending the restart
 
- About OptimumBank Holdings, Inc.
+ The recent closing of a non-brokered hard-dollar private placement funding drive, a Listed Issuer Financing Exemption (“LIFE”) offering and a tax flow-through eligible offering have put gold explorer and near-term producer LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) in position to begin creating value in accordance with production plans for its wholly owned mill. LaFleur Minerals is a well-positioned gold play in a Tier 1 jurisdiction, headed for gold production restart and revenue generation, with a rare combination of district-scale exploration and processing infrastructure.
 
- OptimumBank Holdings, Inc. is the corporate parent company of OptimumBank, formed in 2004. OptimumBank was founded in 2000 in Ft. Lauderdale, Florida. Our customers found a bank that is strongly service oriented with reasonable fees, unseen at larger financial institutions. OptimumBank is committed to supporting economic development and social progress through responsible banking and community partnerships. OptimumBank’s business and financial solutions include: Business Banking, Business Lending, SBA Lending Solutions, Treasury Management, and Personal Banking.
+ LaFleur Minerals injected combined gross proceeds of more than $7.8 million into its operations through the three funding mechanisms (https://ibn.fm/B0qKe), announced as the company prepares to commission and restart gold production operations at the Beacon Gold Mine and Mill located in the renowned Abitibi Gold Belt (https://ibn.fm/OqYJZ), Canada’s largest gold producing region.
 
- NOTE TO INVESTORS: The latest news and updates relating to OPHC are available in the company’s newsroom at https://ibn.fm/OPHC
+ The Beacon Gold Mill is located on Route 117 in Val d’Or, Quebec, about 60 km south of LaFleur’s Swanson Gold Project…
 
- About InvestorWire
+ Read More>>
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
 
- For more information, please visit https://www.InvestorWire.com
+ Qualified Person Statement:
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ All scientific and technical information contained in this article has been reviewed and approved by Louis Martin, P.Geo. (OGQ), Exploration Manager and Technical Advisor of the company and considered a Qualified Person for the purposes of NI 43-101.
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ About MiningNewsWire
 
- InvestorWire is powered by IBN 
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+
+ MNW is where breaking news, insightful content and actionable information converge.
+
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+
+ For more information, please visit https://www.MiningNewsWire.com
+
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
+
+ MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
+
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-optimumbank-holdings-inc-nyse-american-ophc-to-present-at-emerging-growth-conference-jan-21/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/lafleur-minerals-inc-cse-lflr-otcqb-lflrf-gets-infusion-of-new-capital-to-restart-gold-production-operations-in-abitibi-gold-belt/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/optimumbank-to-present-at-2026-emerging-growth-conference/2c4cc9b8a1d858723de949eae8b00fb0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-secures-7-8m-to-restart-gold-production-in-abitibi-belt/e3ce1d051ec7858a80d56ce6aecb6813) 
 
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/375052-faq-optimumbank-holdings-presentation-at-emerging-growth-conference)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/optimumbank-holdings-to-present-at-emerging-growth-conference-on/202626734)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/optimumbank-holdings-to-present-at-emerging-growth-conference-on/202626734)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/16/rubyKFSP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/16/quizkHVB.webp)
