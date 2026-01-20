@@ -1,40 +1,65 @@
-# TechMediaBreaks – A2Z Cust2Mate Solutions Corp. (NASDAQ: AZ) Schedules Annual And Special Meeting For March 31, 2026
+# Beeline Holdings, Inc. (NASDAQ: BLNE) CEO Details 2025 Milestones and Strategic Priorities
 
-A2Z Cust2Mate Solutions (NASDAQ: AZ) announced that it will hold its next annual and special meeting on March 31, 2026. The company said the meeting location, exact time, and additional related disclosures will be provided in due course.
+* Beeline Holdings reported more than 100% revenue growth in 2025 compared with 2024.
+* The company ended 2025 with over $50 million in total equity and no corporate debt.
+* Proprietary AI and automation tools shortened mortgage closing times to 14-21 days.
+* Beeline introduced a blockchain-enabled home equity product and completed initial transactions.
+* Management outlined plans to scale core mortgage, title, and equity offerings in 2026.
+* The company is positioning its platform to serve millennials, gig-economy workers, and property investors.
 
- To view the press release, visit https://ibn.fm/NMjmK
+ Beeline Holdings (NASDAQ: BLNE),  a rapidly growing digital mortgage platform streamlining the path to homeownership, presented a series of operational and financial milestones from 2025 while setting out the company’s strategic priorities for the year ahead, according to a shareholder letter published by CEO Nick Liuzza on January 15, 2026. The letter provides investors with a detailed view of how the digital mortgage lender is now benefitting from a year of restructuring and platform development (https://ibn.fm/j7DxI).
 
- About A2Z Cust2Mate Solutions Corp.
+ Beeline operates a fully digital mortgage and title platform through its subsidiary Beeline Loans Inc. The company offers conventional mortgage products alongside alternative lending and equity solutions aimed at borrowers who may not meet traditional underwriting standards. Its strategy combines…
 
- A2Z Cust2Mate Solutions Corp. (NASDAQ: AZ) creates innovative solutions for complex challenges that brings innovation, ease, excitement and value to retailers and shoppers. The company’s flagship innovative smart cart solutions are transforming brick-and-mortar retail, bridging online and in-store shopping through interactive technology that guides and informs customers. Cust2Mate’s AI-driven smart carts personalize every in-store journey, turning routine trips into engaging, rewarding experiences. They enable seamless in-cart scanning and payment, allowing shoppers to bypass checkout lines while receiving real-time customized offers and product recommendations. This enhanced customer experience boosts satisfaction and loyalty while helping retailers streamline operations and optimize merchandising through data-driven insights. The carts are equipped with multiple layers of security for accurate recognition and transaction integrity. Its modular, all-in-one detachable panels transform legacy shopping cart fleets into intelligent platforms that deliver a range of benefits.
+ Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to AZ are available in the company’s newsroom at https://ibn.fm/AZ
+ NOTE TO INVESTORS: The latest news and updates relating to BLNE are available in the company’s newsroom at https://ibn.fm/BLNE
 
- About TechMediaWire
+ About AINewsWire
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ AINW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.TechMediaWire.com
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ For more information, please visit www.AINewsWire.com
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- TechMediaWire is powered by IBN 
+ AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
+
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-a2z-cust2mate-solutions-corp-nasdaq-az-schedules-annual-and-special-meeting-for-march-31-2026/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/beeline-holdings-inc-nasdaq-blne-ceo-details-2025-milestones-and-strategic-priorities/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a2z-cust2mate-sets-2026-annual-meeting-showcases-retail-transforming-smart-carts/1db1708542670e04c4b08843c6e0f9a7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-soars-100-revenue-growth-ai-powered-mortgages-in-14-days/93a219ccb1ac1c390d2e7b9bdd20e597) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/beeline-holdings-reports-100-revenue-growth-in-2025-unveils-bloc/202626838)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/376321-beeline-holdings-reports-record-2025-growth-unveils-blockchain-home-equity-product)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336582-beeline-holdings-meldet-rekordwachstum-fur-2025-und-stellt-blockchain-heimkapitalprodukt-vor)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336826-beeline-holdings-reporta-un-crecimiento-record-en-2025-y-presenta-un-producto-de-capital-inmobiliario-basado-en-blockchain)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337473-beeline-holdings-annonce-une-croissance-record-en-2025-et-devoile-un-produit-dequite-domiciliaire-base-sur-la-blockchain)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336508-beeline-holdings-relata-crescimento-recorde-em-2025-e-lanca-produto-de-equity-residencial-com-blockchain)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/376314-faq-beeline-holdings-2025-performance-and-2026-strategic-priorities)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/beeline-holdings-reports-100-revenue-growth-in-2025-unveils-bloc/202626838)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beeline-holdings-reports-2025-financial-growth-and-strategic-exp/202626838)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/20/pinkOMQM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/20/cool0qH0.webp)
