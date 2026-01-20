@@ -1,78 +1,113 @@
-# Ares Strategic Mining Awarded Multi-Year Pentagon Contract With Estimated Initial Award Value of Approx. $169M and Potential Task Orders Up to $250M Over Five Years
+# GeoVax Highlights 2026 as a Pivotal Year for Progress
 
-VANCOUVER, B.C. - January 20, 2026 (NEWMEDIAWIRE) - In a major development for the U.S. critical minerals industry, Ares Strategic Mining Inc. (CSE: ARS) (OTC: ARSMF) (FRA: N8I1) has been officially awarded a $168,938,267.30 contract by the U.S. Department of Defense (DoD) through the Defense Logistics Agency (DLA) - a significant initiative to help strengthen America’s domestic manufacturing and supply base and support the rebuilding of U.S. strategic mineral stockpiles.
+Management Highlights 2026 as a Portfolio-Wide Inflection Year Driven by Regulatory De-Risking, Clinical Readouts, and Scalable Manufacturing
 
- The award is part of a five-year Indefinite Delivery/Indefinite Quantity (IDIQ) agreement, with a total contract ceiling of up to $250 million. “This is the kind of contract that transforms companies, and secures the future of U.S. industry,” said James Walker, CEO of Ares Strategic Mining. “We’re not just producing fluorspar; we’re helping build a more resilient and secure domestic supply chain for critical minerals.”
+ ATLANTA, GA - January 20, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing vaccines and immunotherapies for infectious diseases and cancer, today provided a post-conference update following the J.P. Morgan Healthcare Conference Week in San Francisco, where, during investor, banker and partner engagements, the Company outlined 2026 as a pivotal inflection year driven by multiple late-stage clinical, regulatory, and manufacturing milestones across its diversified portfolio.
 
- This award represents a major milestone for Ares and further strengthens the Company’s positioning as a strategic domestic supplier of acid-grade fluorspar, a U.S. designated critical mineral essential to defense readiness, industrial manufacturing, clean energy supply chains, and high-tech applications.
+ “GeoVax enters 2026 with increasing clarity on execution, prioritization, and value creation,” said David Dodd, Chairman & CEO of GeoVax. “With GEO-MVA representing an expedited path to potential commercialization, alongside multiple clinical data readouts relative to GEO-CM04S1, our multi-antigen COVID-19 vaccine and, the anticipated initiation of the Phase 2 Gedeptin® trial, we believe that this year will provide a meaningful convergence of regulatory, clinical, and manufacturing catalysts for the Company.”
 
- Contract Highlights
+ Dodd added, “We were particularly encouraged by the level of interest and the quality of discussions we had during JP Morgan/Biotech Showcase with investors, potential strategic partners, and global health stakeholders. The feedback we received around GeoVax’s progress, our differentiated platforms, and our regulatory momentum, especially for GEO-MVA, reinforces our confidence that 2026 has the potential to be a pivotal breakout year for the Company.”
 
- * Award Value Locked In: $168.9 million
-* Potential Upside: Up to $250 million through future task orders
-* Customer: United States Department of Defense
-* Supplier: Ares Strategic Mining – the only U.S. producer of acid-grade fluorspar
-* Mission: Support replenishment of government stockpiles of strategic and critical minerals
+ GEO-MVA (Mpox & Smallpox): Expedited Path to Commercialization in a Currently Constrained Market
 
- This contract establishes Ares as a sole-source domestic supplier of acidspar to the U.S. government – and the only U.S.-based operation positioned to deliver this critical mineral supply at scale.
+ GEO-MVA is GeoVax’s most advanced program and represents the Company’s near-term opportunity for potential commercialization. The global Mpox and smallpox vaccine market remains constrained by reliance on a single foreign manufacturer whose production capacity has proven insufficient to meet sustained worldwide demand, particularly during periods of expanding or recurring outbreaks. This structural supply imbalance underscores both the commercial opportunity and the public health imperative for an additional, scalable MVA vaccine source.
 
- Strategic National Significance and A Major Step Forward for Domestic Critical Mineral Independence
+ Following receipt of supportive Scientific Advice from the European Medicines Agency (EMA), GeoVax has regulatory alignment on a single, pivotal Phase 3 immunobridging study versus the approved MVA vaccine. This guidance supports an expedited development pathway and meaningfully de-risks the regulatory route toward potential approval and revenue generation.
 
- Acid-grade fluorspar (“acidspar”) is a vital input used in the production of hydrofluoric acid and fluorine-based materials, supporting industries including:
+ Key 2026 milestones for GEO-MVA include:
 
- * Defense systems & missile tech
-* Steel & aluminum production
-* Fluorochemical manufacturing
-* Semiconductors, batteries, and next-gen electronics
-* National defense-related supply chain resilience
+ * Initiation of the pivotal Phase 3 immunobridging trial, expected in the second half of 2026
+* Continued engagement with European and global health authorities seeking to diversify Mpox and smallpox vaccine supply in light of ongoing global demand pressures
+* Advancement toward a U.S.-sourced vaccine supply model addressing both civilian public health needs and biodefense preparedness
 
- The United States has historically been 100% import-dependent for fluorspar, making the establishment of a domestic supply chain a critical national priority. This award marks a turning point. It not only validates the national importance of Ares’ Utah-based Lost Sheep Project, but also positions the Company at the heart of America’s effort to build a robust domestic sourcing network to ensure long-term self-sufficiency.
+ With GEO-MVA clinical material manufactured and fill-finish completed, the program is positioned to transition from development into Phase 3 execution in 2026, reinforcing its role as GeoVax’s lead value driver and shortest path to potential commercialization.
 
- With this award, Ares is positioned to support the U.S. government’s mission to invest in a more resilient and secure national supply chain and promote long-term growth by prioritizing domestic sourcing of critical minerals. James Walker added that, “This award reflects the U.S. government’s commitment to revitalizing a long-neglected critical mineral supply chain. We are proud to support the U.S. government’s strategic material reserves by supplying domestically sourced, high-grade acidspar. This contract confirms our leadership in rebuilding U.S. critical mineral capability and ensures our products directly contribute to national resilience, industrial strength, and long-term security. We are now a partner in America’s strategic future.”
+ Gedeptin® (Oncology): Advancing Toward Combination-Driven Value Inflection
 
- About Ares Strategic Mining
+ In oncology, GeoVax continues to advance Gedeptin®, its gene-directed enzyme prodrug therapy, following encouraging safety and tumor-response signals from prior clinical studies.
 
- Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure.
+ Key 2026 inflection points include:
 
- Lost Sheep Fluorspar Project - Delta, Utah
+ * Publication of results from the recently completed Gedeptin trial
+* Initiation of a Phase 2 study evaluating Gedeptin in combination with an immune checkpoint inhibitor as a potential first-line therapy for head and neck cancer by year-end
+* Updates on preclinical evaluations of Gedeptin in combination with immune checkpoint inhibitors, informing potential expansion into additional solid tumor indications.
 
- • 100% owned – 5,982 acres - 353 Claims
+ GeoVax continues to pursue a partnership-oriented development strategy for Gedeptin, designed to advance the program efficiently while preserving long-term upside.
 
- • Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
+ GEO-CM04S1 (COVID-19): Multiple Clinical Data Readouts
 
- • Fully Permitted - including mining permits.
+ GeoVax’s next-generation COVID-19 vaccine, GEO-CM04S1, continues to advance as a differentiated, multi-antigen (Spike + Nucleocapsid) candidate designed to address unmet needs in immunocompromised and high-risk populations inadequately served by current single-antigen vaccines.
 
- • NI 43-101 Technical Report identified extensive high-grade fluorspar with low levels of impurities.
+ During 2026, the Company expects:
 
- • Mining plan approved by BLM[1]
+ * Clinical data readouts from ongoing Phase 2 trials
+* Continued evaluation of GEO-CM04S1 as both a primary and booster vaccine in immunocompromised populations
+* Additional translational insights supporting future regulatory and partnering discussions
 
- First approved by Rex Rowley – Area Manager, Bureau of Land Management – 24th August 1992.
+ AGE1 Continuous Cell-Line Manufacturing: Advancing MVA Scalability and Supply
 
- Renewed by Paul B. Baker – Minerals Program Manager, Bureau of Land Management – 12th December 2016.
+ The AGE1 continuous avian cell-line manufacturing process has the potential to significantly improve how MVA-based vaccines are produced by addressing historical scalability and supply constraints. By enabling continuous, cell-line–based production, AGE1 provides a more reliable and scalable alternative to traditional chicken embryo fibroblast–dependent methods.
 
- ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING LTD.
+ AGE1 is directly integrated into the GEO-MVA program, strengthening GeoVax’s ability to support sustained commercial supply, rapid scale-up, and domestic manufacturing - capabilities increasingly critical as global demand for Mpox and smallpox vaccines exceeds available supply.
 
- James WalkerChief Executive Officer and President
+ Manufacturing progress anticipated during 2026 includes:
 
- For further information, please contact James Walker by email at info@aresmining.com
+ * Continued optimization of the AGE1 process to support commercial-scale GEO-MVA production
+* Advancement of AGE1 as a scalable, U.S.-based manufacturing solution aligned with pandemic preparedness and supply-chain resilience priorities
 
- DISCLOSURE AND FORWARD-LOOKING STATEMENTS:
+ Positioned for Execution
 
- Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
+ Collectively, these milestones reflect GeoVax’s transition into a catalyst-rich period where multiple programs are advancing in parallel toward late-stage development, regulatory decision points, and potential commercialization pathways.
 
- Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law. 
+ “As we emphasized during JP Morgan/Biotech Showcase Week, GeoVax has moved beyond platform validation,” Dodd added. “We are now executing against clearly defined milestones, with GEO-MVA leading the portfolio and multiple additional programs advancing toward value-inflection events in 2026 and beyond.”
+
+ Dodd concluded, “As we move through 2026, GeoVax is entering a phase where years of platform development, regulatory engagement, and manufacturing investment begin to translate into tangible outcomes. With GEO-MVA advancing along a clearly defined path toward commercialization, multiple clinical data readouts expected across our COVID-19 and oncology programs, and a scalable manufacturing foundation in place, we believe GeoVax is well positioned for a pivotal year of execution and value creation.”
+
+ About GeoVax
+
+ GeoVax Labs, Inc. is a clinical-stage biotechnology company developing novel vaccines against infectious diseases and therapies for solid tumor cancers. The Company’s lead clinical program is GEO-CM04S1, a next-generation COVID-19 vaccine currently in three Phase 2 clinical trials, being evaluated as (1) a primary vaccine for immunocompromised patients such as those suffering from hematologic cancers and other patient populations for whom the current authorized COVID-19 vaccines are insufficient, (2) a booster vaccine in patients with chronic lymphocytic leukemia (CLL) and (3) a more robust, durable COVID-19 booster among healthy patients who previously received the mRNA vaccines. In oncology the lead clinical program is evaluating a novel oncolytic solid tumor gene-directed therapy, Gedeptin®, having recently completed a multicenter Phase 1/2 clinical trial for advanced head and neck cancers. GeoVax is also developing a vaccine targeting Mpox and smallpox and, based on recent EMA regulatory guidance, anticipates progressing directly to a Phase 3 clinical evaluation, omitting Phase 1 and Phase 2 trials. GeoVax has a strong IP portfolio in support of its technologies and product candidates, holding worldwide rights for its technologies and products. For more information about the current status of our clinical trials and other updates, visit our website: www.geovax.com.
+
+ Forward-Looking Statements
+
+ This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
+
+ Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
+
+ Company Contact:info@geovax.com678-384-7220
+
+ Media Contact:Jessica Starmanmedia@geovax.com
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-awarded-multi-year-pentagon-contract-with-estimated-initial-award-value-of-approx-169m-and-potential-task-orders-up-to-250m-over-five-years-7084982)
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-highlights-2026-as-a-pivotal-year-for-progress-7084988)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-mining-wins-169m-dod-deal-to-secure-u-s-fluorspar-supply/4399258dfde61ccbd8e73c80ecfe7ffb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-targets-2026-as-breakout-year-with-key-vaccine-and-cancer-therapy-milestones/58c47f47ef1f20d5f3abad599fbba5e3) 
 
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/375971-faq-geovaxs-2026-strategic-milestones-and-portfolio-progress)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-identifies-2026-as-critical-inflection-year-with-multiple/202626811)
+
+Pickup - [https://advos.io/en](https://advos.io/en/geovax-identifies-2026-as-critical-inflection-year-with-multiple/202626811)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/375996-geovax-identifies-2026-as-critical-inflection-year-across-vaccine-and-oncology-portfolio)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336556-geovax-identifiziert-2026-als-entscheidendes-wendepunktjahr-fur-impfstoff-und-onkologieportfolio)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336799-geovax-identifica-2026-como-ano-critico-de-inflexion-en-su-cartera-de-vacunas-y-oncologia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337442-geovax-identifie-2026-comme-une-annee-charniere-critique-pour-son-portefeuille-vaccinal-et-oncologique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336483-geovax-identifica-2026-como-ano-de-inflexao-critica-em-seu-portfolio-de-vacinas-e-oncologia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-identifies-2026-as-critical-year-for-vaccine-development/202626811)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/20/rendPI3L.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/20/glueoOsR.webp)
