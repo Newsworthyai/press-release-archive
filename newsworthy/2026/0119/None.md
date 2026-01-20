@@ -1,68 +1,70 @@
-# SalesNexus Launches Revenue Enablement &amp; RevOps Webinar Series to Help B2B Sales Leaders Close Revenue Gaps
+# Building Texas Show Explores Growth, Public Safety, and the Future of Lakeway with Mayor Tom Kilgore
 
-Houston, TX (Newsworthy.ai) Monday Jan 19, 2026 @ 9:00 AM Central — SalesNexus, a leading provider of AI-powered CRM and marketing automation for B2B sales teams, today announced the launch of its Revenue Enablement & RevOps Webinar Series, a live, expert-led program designed to help sales leaders identify and fix the most common causes of stalled deals, missed forecasts, and revenue leakage.
+Lakeway, Texas (Newsworthy.ai) Monday Jan 19, 2026 @ 3:50 PM US/Central — As Texas communities face rapid growth, infrastructure pressure, and increasing public safety demands, The Building Texas Show turns its focus to Lakeway, a Hill Country city navigating change while doubling down on community values and civic pride.
 
- The series is built for CROs, VPs of Sales, RevOps leaders, and Sales Enablement teams at B2B organizations with complex, multi-stakeholder sales cycles. Each session focuses on the real operational breakdowns that occur between sales process, enablement, content, coaching, and CRM execution—and provides a practical framework for closing those gaps.
+ In a newly released episode, host Justin McKenzie sits down with Tom Kilgore for an in-depth conversation on leadership, long-term planning, emergency preparedness, and the behind-the-scenes work that keeps a growing Texas city strong.
 
- “Most revenue problems aren’t caused by a lack of effort or tools—they’re caused by misalignment,” said Craig Klein, CEO at SalesNexus. “This webinar series shows leaders exactly where revenue leaks happen, why more tools don’t fix readiness, and how to operationalize enablement inside the sales workflow—using data and AI to drive consistent execution.”
+ The episode explores how Lakeway has nearly doubled in population over the past decade and how city leadership is balancing private property rights, infrastructure investment, economic development, and quality of life—while preserving the community’s small-town character.
 
- What Attendees Will Learn Across the series, attendees will gain:
+ You can’t turn up the tap and pull up the drawbridge in Texas,” Mayor Kilgore says. “Growth brings opportunity, but it also requires discipline, planning, and cooperation.
 
- * A diagnostic framework for identifying revenue leakage
-* Insight into where enablement breaks down between strategy and execution
-* Why coaching, content, and CRM adoption often fail to reinforce each other
-* How AI can enforce focus, improve rep behavior, and surface deal-risk signals earlier
-* Practical steps to align RevOps, Sales Enablement, and frontline sales teams
+ A City Defined by Service and Volunteerism A central highlight of the episode is Lakeway’s long-standing role as host city for the Special Olympics of Texas Winter Games and Leadership Conference—an event Lakeway has proudly hosted for five consecutive years in partnership with neighboring communities, including Bee Cave.
 
- Each webinar will be presented by Marc McNamara, Founder of The Enablement Group and leading expert in B2B Revenue Enablement, as well as Craig Klein, SalesNexus CEO. Webinars will include real-world examples, actionable takeaways, and live Q&A with revenue operations and sales enablement experts.
+ Each year, the event brings more than 1,200 athletes, thousands of family members, coaches, and supporters to the area—filling hotel rooms, restaurants, and local businesses while showcasing the region’s hospitality and heart.
 
- Designed for Modern B2B Revenue Teams The Revenue Enablement & RevOps Webinar Series is ideal for organizations selling high-value products or services, managing long sales cycles, and navigating increasing pressure to forecast accurately while improving rep productivity.
+ “We get far more out of hosting the Special Olympics than the event itself,” Kilgore notes. “We get to cheer on incredible athletes, welcome families from across Texas, and see our community at its very best.”
 
- Registration is free, and sessions are available live and on-demand. The webinar series begins January 28th, 2026 with additional webinars every three weeks throughout 2026.
+ The episode emphasizes Lakeway’s deep volunteer culture, which consistently supplies hundreds of volunteers to support the Games—an effort city leaders say reflects the broader spirit of service that defines the community.
 
- Learn more and register here:https://salesnexus.com/revenue-enablement/
+ Planning for Growth, Safety, and the Future Beyond tourism and events, the conversation dives into Lakeway’s proactive approach to wildfire mitigation, emergency response coordination, and long-term comprehensive planning—much of which happens years before residents ever see a council vote.
 
- About SalesNexus SalesNexus is an AI-powered CRM and marketing automation platform built for B2B sales teams that need better execution—not more complexity. By combining CRM, marketing automation, contact enrichment, and AI-driven sales guidance in one system, SalesNexus helps revenue teams stay focused, follow the right process, and close more deals.
+ Mayor Kilgore also discusses the realities of volunteer city leadership in Texas, regional collaboration with surrounding cities, and why civic engagement is critical as Lakeway prepares for the future.
 
- For more information, visit https://salesnexus.com 
+ Looking ahead to 2026 and the nation’s 250th anniversary, the episode underscores how Lakeway’s community traditions—from its iconic Fourth of July parade to city-wide volunteerism—continue to anchor the city even as it evolves.
+
+ About The Building Texas Show The Building Texas Show is a long-form podcast and video series hosted by Justin McKenzie, featuring conversations with mayors, entrepreneurs, and civic leaders shaping the future of Texas communities. The show explores how growth, leadership, and local decision-making impact the places Texans call home.
+
+ The Lakeway episode is now available on YouTube and all major podcast platforms.
+
+ Website: www.buildingtexasshow.com
+
+ Media Contact
+
+ Justin McKenzieHost, The Building Texas ShowWebsite: www.buildingtexasshow.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202601192053/salesnexus-launches-revenue-enablement-revops-webinar-series-to-help-b2b-sales-leaders-close-revenue-gaps)
+[Original/Source Press Release](https://newsworthy.ai/news/202601192061/building-texas-show-explores-growth-public-safety-and-the-future-of-lakeway-with-mayor-tom-kilgore)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-launches-expert-webinar-series-to-fix-revenue-leaks-in-b2b-sales/27805391d666ac6b807d7edec13e115d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lakeway-balances-growth-community-values-on-the-building-texas-show/9a1dba7d12b796613df6241499b31ea0) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/salesnexus-launches-revenue-enablement-webinar-series-to-address/202626773)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/375591-faq-lakeways-growth-public-safety-and-community-values-with-mayor-tom-kilgore)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/375532-salesnexus-launches-revenue-enablement-webinar-series-to-address-b2b-sales-gaps)
+Pickup - [https://advos.io/en](https://advos.io/en/lakeway-mayor-discusses-balancing-growth-with-community-values-o/202626781)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336521-salesnexus-startet-webinar-reihe-zur-umsatzsteigerung-um-lucken-im-b2b-vertrieb-zu-schliessen)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/375600-lakeway-mayor-discusses-growth-management-and-community-values-on-building-texas-show)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336755-salesnexus-lanza-una-serie-de-seminarios-web-sobre-habilitacion-de-ingresos-para-abordar-las-brechas-en-ventas-b2b)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336528-lakeways-burgermeister-diskutiert-wachstumsmanagement-und-gemeinschaftswerte-in-der-sendung-building-texas-show)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337392-salesnexus-lance-une-serie-de-webinaires-sur-lactivation-des-revenus-pour-combler-les-lacunes-des-ventes-b2b)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336766-el-alcalde-de-lakeway-habla-sobre-gestion-del-crecimiento-y-valores-comunitarios-en-el-programa-building-texas-show)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336448-salesnexus-lanca-serie-de-webinars-sobre-habilitacao-de-receita-para-abordar-lacunas-nas-vendas-b2b)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337399-le-maire-de-lakeway-aborde-la-gestion-de-la-croissance-et-les-valeurs-communautaires-dans-lemission-building-texas-show)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/375529-faq-salesnexus-revenue-enablement-revops-webinar-series)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336455-prefeito-de-lakeway-discute-gestao-do-crescimento-e-valores-comunitarios-no-programa-building-texas)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/salesnexus-launches-revenue-enablement-webinar-series-to-address/202626773)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/lakeway-mayor-discusses-balancing-growth-with-community-values-o/202626781)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/salesnexus-launches-revenue-enablement-webinar-series-to-address/202626773)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lakeway-mayor-discusses-balancing-growth-community-values-and-pu/202626781)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/375531-salesnexus-launches-revenue-enablement-webinar-series-to-address-b2b-sales-challenges)
+Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202601/375626-lakeway-mayor-discusses-balancing-growth-and-community-values-on-building-texas-show)
 
-Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202601/375551-salesnexus-launches-revenue-enablement-webinar-series-to-address-sales-challenges-in-texas-businesses)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202601/336757-salesnexus-lanza-serie-de-webinars-de-habilitacion-de-ingresos-para-abordar-desafios-de-ventas-en-empresas-de-texas)
-
-Pickup - [https://news.salesnexus.com/sales-news](https://news.salesnexus.com/sales-news/202601/375552-salesnexus-launches-revenue-enablement-webinar-series-to-address-sales-process-gaps)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202601/336767-el-alcalde-de-lakeway-habla-sobre-equilibrar-el-crecimiento-y-los-valores-comunitarios-en-el-programa-building-texas-show)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/19/lark5gRq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/19/fineBumu.webp)
