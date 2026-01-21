@@ -1,64 +1,48 @@
-# The Midwife in Vienna Reinforces Its Midwife-Led Approach to Natural Mother and Baby Care
+# Nathan Macintosh Returns to Comedy Castle for Five-Show Run in Royal Oak, January 22–24
 
-Boca Raton, Florida (Newsworthy.ai) Tuesday Jan 20, 2026 @ 9:15 AM Pacific — As American parents increasingly seek trustworthy alternatives in maternal and baby wellness, The Midwife in Vienna, founded by Austrian midwife Sarah Lares, is reinforcing the philosophy that defines the brand: care guided by real-world experience, education, and simplicity.
+Royal Oak, MI (Newsworthy.ai) Tuesday Jan 20, 2026 @ 11:59 AM Pacific — Juno Award–nominated stand-up comedian Nathan Macintosh brings a five-show weekend run to Mark Ridley’s Comedy Castle from January 22 through January 24. Coming off recent sold-out runs in Chicago and San Diego, demand is expected to be high for this limited engagement.
 
- Unlike many wellness brands driven by trends or aggressive marketing, The Midwife in Vienna was born from nearly two decades of hands-on midwifery practice. Each product reflects Lares’ belief that mothers and babies benefit most from formulations rooted in knowledge, restraint, and respect for the body’s natural processes.
+ Macintosh is known for sharp, clean stand-up built on real-life storytelling and tight pacing. His comedy has generated more than 40 million views online, earning him a fast-growing national audience. Fans can preview his latest material through clips from his recent stand-up hour, available online.
 
- “As a midwife, my role has always been to educate, reassure, and support — not to overwhelm,” said Sarah Lares, founder of The Midwife in Vienna. “That same mindset shapes everything we create. Parents don’t need more products; they need better ones they can truly trust.”
+ This Royal Oak appearance carries special significance. Mark Ridley’s Comedy Castle was the first club Nathan Macintosh ever headlined, making this return a full-circle moment in his career. The weekend also coincides with his excitement to visit one of Detroit’s most talked-about landmarks, the Robocop statue, adding a local cultural note to the run.
 
- From Midwifery Practice to Purpose-Driven Products Lares began developing her formulations while supporting women through pregnancy, birth, and postpartum recovery in Vienna. The remedies she relied on most were gentle, time-tested, and free from unnecessary ingredients.
+ Coming back to the first club I ever headlined means a lot to me,” said Nathan Macintosh. “Comedy Castle played a huge role in my early career, and I can’t wait to bring this new hour back to that stage.
 
- That philosophy evolved into a curated line of organic, minimalist products for mothers and babies — all crafted in Austria using certified organic, food-grade ingredients. Each formulation is intentionally simple, designed to support rather than interfere with the body’s natural rhythms.
+ Show Details and Tickets Nathan Macintosh performs five shows at Mark Ridley’s Comedy Castle from January 22–24. Tickets are available for all performances through the official box office at Mark Ridley’s Comedy Castle ticket sales. Seating is limited and shows are expected to sell quickly.
 
- Meeting a New Generation of Informed Parents Today’s parents are more educated and discerning than ever. They ask where products are made, what ingredients are used, and whether claims are rooted in experience rather than marketing language. The Midwife in Vienna answers those questions through transparency, traceability, and consistency.
+ Macintosh’s recent momentum includes sold-out performances at Zanies Chicago and a sold-out run in San Diego. His ability to connect with audiences through smart, relatable material continues to translate into packed rooms across the country.
 
- By prioritizing education alongside product development, the brand helps parents feel confident in their choices — an increasingly important factor in the crowded wellness marketplace.
-
- The brand’s growing U.S. presence reflects this trust-based approach. Its products are currently available through OneLavi.com, with additional availability on Amazon.com coming soon, as the company continues expanding thoughtfully across the U.S. market.
-
- A Foundation Built for Long-Term Growth As The Midwife in Vienna continues expanding its presence in the United States, the company remains focused on sustainable growth grounded in trust and authenticity. Rather than rushing to scale, the brand emphasizes alignment — partnering with retailers and platforms that value quality, education, and long-term relationships with consumers.
-
- Our growth is guided by the same principle as our care,” Lares said. “Slow, thoughtful, and always centered on what’s best for families.
-
- Follow @diehebammeinwien on Instagram to stay updated on official launches and explore the full collection of products made with love in Austria.
-
- About [The Midwife in Vienna](https://www.diehebammeinwien-shop.at/) Founded by Austrian midwife Sarah Lares, The Midwife in Vienna is a wellness brand inspired by nearly 20 years of hands-on birth and postpartum experience. The company crafts organic, minimalist products for mothers and babies, blending time-honored midwifery knowledge with modern sustainability. Every product is made in Austria using certified organic ingredients—many vegan and food-grade—reflecting the brand’s core values of simplicity, trust, and natural care. 
+ For additional tour dates and information, visit http://nathanmacintosh.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202601202062/the-midwife-in-vienna-reinforces-its-midwife-led-approach-to-natural-mother-and-baby-care)
+[Original/Source Press Release](https://newsworthy.ai/news/202601202060/nathan-macintosh-returns-to-comedy-castle-for-five-show-run-in-royal-oak-january-22-24)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/austrian-midwife-s-organic-baby-brand-expands-in-us-with-trust-first-approach/a5768da3e5928bb0ff774c12c4a3c9b3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-macintosh-returns-to-comedy-castle-for-sold-out-weekend-run/8e617329fd204e7b904d3d2f0edba10b) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/376172-faq-the-midwife-in-viennas-natural-wellness-approach-for-mothers-and-babies)
+Pickup - [https://advos.io/en](https://advos.io/en/comedian-nathan-macintosh-returns-to-comedy-castle-for-limited-f/202626840)
 
-Pickup - [https://advos.io/en](https://advos.io/en/the-midwife-in-vienna-expands-us-presence-with-trust-based-appro/202626830)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/376349-nathan-macintosh-returns-to-mark-ridleys-comedy-castle-for-sold-out-weekend-run)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/376201-the-midwife-in-vienna-expands-us-presence-with-trust-based-approach-to-maternal-wellness)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336584-nathan-macintosh-kehrt-fur-ausverkaufte-wochenend-shows-zu-mark-ridleys-comedy-castle-zuruck)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336574-die-hebamme-in-wien-erweitert-ihre-prasenz-in-den-usa-mit-einem-vertrauensbasierten-ansatz-fur-die-gesundheit-von-muttern)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336828-nathan-macintosh-regresa-al-comedy-castle-de-mark-ridley-para-una-serie-de-funciones-de-fin-de-semana-con-entradas-agotadas)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336817-la-partera-de-viena-amplia-su-presencia-en-eeuu-con-un-enfoque-basado-en-la-confianza-para-el-bienestar-materno)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337475-nathan-macintosh-fait-son-retour-au-comedy-castle-de-mark-ridley-pour-un-week-end-complet-a-guichets-fermes)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337463-la-sage-femme-de-vienne-etend-sa-presence-aux-etats-unis-avec-une-approche-de-bien-etre-maternel-basee-sur-la-confiance)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336510-nathan-macintosh-retorna-ao-mark-ridleys-comedy-castle-para-temporada-de-fim-de-semana-esgotada)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336500-a-parteira-de-viena-amplia-presenca-nos-eua-com-abordagem-baseada-em-confianca-para-o-bem-estar-materno)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/376348-faq-nathan-macintoshs-return-to-mark-ridleys-comedy-castle-in-royal-oak)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-midwife-in-vienna-expands-us-presence-with-trust-based-appro/202626830)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/nathan-macintosh-returns-to-comedy-castle-for-five-show-run-in-r/202626840)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-midwife-in-vienna-strengthens-natural-care-philosophy-amid-g/202626830)
-
-Pickup - [https://beauty.in-focus.news/beauty-news](https://beauty.in-focus.news/beauty-news/202601/376295-the-midwife-in-vienna-brings-trust-based-maternal-wellness-to-us-market-through-experience-driven-philosophy)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/376297-the-midwife-in-vienna-brings-trust-based-maternal-wellness-to-us-market-through-experience-driven-philosophy)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/376303-the-midwife-in-vienna-gains-us-traction-with-philosophy-of-simplicity-and-trust-in-maternal-wellness)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nathan-macintosh-returns-to-mark-ridleys-comedy-castle-for-five/202626840)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/20/icyODHo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/261/20/daveHzzE.webp)
