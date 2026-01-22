@@ -1,38 +1,18 @@
-# Greenlanders and Supporters enlist Claude Cowork, ChatGPT 5.2, Gemini 3 to Showcase their Resilience by Writing Mythical Odes
+# Billy Johnson Law Firm Expands Access to Legal Services Across Pikeville, KY
 
-COPENHAGEN, DENMARK, January 22, 2026 /24-7PressRelease/ -- Calling 2026 a year of 'flux' for Greenland hardly captures the scale of the shifts currently on the horizon. NGO Greenland Rising is celebrating the character, culture, and toughness of the Arctic island's Kalaallit people by mounting a Piseq (traditional song-poem) contest. According to co-founders Ivalu Kajussen and John Toomey, this is a way to spotlight the actual accomplishments of the native Kalaallit culture, currently overshadowed by the machinations of Europe and America.  Twice a week the group elicits the help of ChatGPT, Vibe, Pond5, Gemini, and Claude Cowork to create a video of native peoples going through a life transition: birth, wedding, return from a fishing trip, Mitaartut (Greenland's 'Halloween'), funeral, tribal conclave around a campfire, Meeting of the Elders, or Arctic Palerfik (dogsled race).  Contestants write 2 or 3 sentences expressing in their own style the emotional and psychological essence of the video. Greenland Rising translates these into Kalaallisut and formats them as Piseqs, with the aid of AI. They are then posted in both languages to the group's Substack and to siku.org, the indigenous website for Inuit in Greenland, Canada, and the U.S.  Judges evaluate the submissions, and winners are honored with the Angakkoq Prize, named after the Kalaallit word for Shaman.  Historically, some of the most powerful piseqs emerged from song-poem 'duels'. Traditionally, when two Kalaallit had a dispute, rather than solve it with violence, the tribe arranged for a poetry stand-off. The two disputants faced each other, sometimes inches apart, and voiced insults, each trying to top the other. The rival who 'lost his cool' first, according to a vote of the observing tribal members, won the dispute. The result had permanent legal standing, and became an oft-quoted piseq, part of the tribe's oral tradition.  Greenland Rising would like to see Europe and the U.S. solve their disagreements in this way.  https://theheroaward.substack.com/p/helping-greenland-and-you-too  siku.org  For more about Piseqs and Greenland's literature, see Collections of Ammassalik Songs by Knud Rassmussen, Greenlandic Oral Traditions: Collection, Reframing, and Reinvention, by Kirsten Thisted, and Inuit: the Story of the Inuit Circumpolar Conference, by Aqqaluk Lynge. 
+PIKEVILLE, KY, January 22, 2026 /24-7PressRelease/ -- Billy Johnson Law Firm today announced an expanded effort to improve access to high-quality personal injury legal services for individuals and families throughout Pikeville and surrounding communities in Eastern Kentucky. The expansion reinforces the firm's long-standing commitment to providing trusted, client-focused representation at the local level.  Conveniently located in Pikeville, Kentucky, Billy Johnson Law Firm represents individuals who have been injured in vehicle accidents, workplace injuries, nursing home neglect, premises liability matters such as slip-and-fall incidents, and other cases involving negligence and personal injury. The firm's central location allows clients to work closely with a dedicated legal team that understands both the legal and community landscape.  Attorney Billy Johnson and his firm focus solely on representing individuals. The firm does not work for large corporations, big businesses, or insurance companies, a distinction that allows every case to be handled with undivided loyalty to the client. This approach ensures that legal strategies are driven entirely by what is best for the injured individual, not outside interests.  At Billy Johnson Law Firm, clients are treated with respect and care from the moment they reach out. The legal team takes time to listen to each client's concerns, explain legal options clearly, and advocate aggressively on their behalf. The firm has established a strong track record of thoroughly investigating complex accident and injury cases and securing favorable outcomes through diligent preparation and skilled representation.  Each case is supported by detailed evidence collection, witness interviews, and collaboration with qualified experts who help document and explain injuries and liability. The firm works to present claims effectively in negotiations and, when necessary, in court, pursuing fair and full compensation for medical expenses, lost wages, pain and suffering, and other damages.  As a locally rooted firm, Billy Johnson Law Firm is deeply connected to the Pikeville community. Its attorneys and staff live and work in the area, giving them a personal investment in the people they serve. This community-first mindset, combined with modern legal resources and technology, enables the firm to deliver high-level representation while remaining accessible and approachable.  Injured individuals are encouraged to contact Billy Johnson Law Firm for a free consultation to discuss their case and next steps. The firm remains committed to expanding access to reliable, personalized legal services across Pikeville, KY.  About Billy Johnson Law Firm  Billy Johnson Law Firm is a Pikeville, Kentucky–based personal injury law firm dedicated exclusively to representing injured individuals and their families. Led by Attorney Billy Johnson, the firm handles cases involving vehicle accidents, workplace injuries, nursing home neglect, premises liability, and other negligence-related claims. Known for its client-first philosophy, thorough case preparation, and strong local presence, the firm proudly serves Pikeville and the surrounding Eastern Kentucky region. 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/530998/greenlanders-and-supporters-enlist-claude-cowork-chatgpt-52-gemini-3-to-showcase-their-resilience-by-writing-mythical-odes)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/531018/billy-johnson-law-firm-expands-access-to-legal-services-across-pikeville-ky)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-rising-s-piseq-contest-blends-ai-with-indigenous-tradition/e2e24b77c14f1da79abad3b8338dfc5e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/billy-johnson-law-firm-expands-access-to-personal-injury-services-in-eastern-kentucky/4e7571226e69e641206b48fa549fe1e4) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/greenland-ngo-uses-ai-to-revitalize-indigenous-piseq-tradition-t/202626938)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/377325-faq-greenland-risings-piseq-contest-using-ai-to-showcase-kalaallit-resilience)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202601/377394-greenland-rising-ngo-uses-ai-and-traditional-piseq-contest-to-spotlight-kalaallit-culture-amid-global-attention)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/greenland-ngo-uses-ai-to-revitalize-traditional-song-poems-amid/202626938)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/greenland-ngo-uses-ai-to-revitalize-traditional-song-poems-amid/202626938)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/377615-greenland-rising-ngo-uses-ai-and-traditional-piseq-contest-to-spotlight-kalaallit-culture-amid-global-attention)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336677-ngo-greenland-rising-nutzt-ki-und-traditionellen-piseq-wettbewerb-um-kalaallit-kultur-ins-rampenlicht-zu-rucken)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336930-la-ong-greenland-rising-utiliza-ia-y-el-concurso-tradicional-piseq-para-destacar-la-cultura-kalaallit-ante-la-atencion-global)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337568-long-greenland-rising-utilise-lia-et-un-concours-traditionnel-de-piseq-pour-mettre-en-lumiere-la-culture-kalaallit-sous-les-projecteurs-mondiaux)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336603-ong-greenland-rising-utiliza-ia-e-concurso-tradicional-de-piseq-para-destacar-cultura-kalaallit-em-meio-a-atencao-global)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/261/22/navygT7a.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/261/22/chip68VR.webp)
