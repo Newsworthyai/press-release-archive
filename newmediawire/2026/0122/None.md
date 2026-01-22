@@ -1,91 +1,64 @@
-# Critical Infrastructure Technologies: Acquisition and Financing Update
+# Metavesco Congratulates DeFi Dev Corp on Becoming the Second Publicly Traded Company to Launch a Memecoin
 
-* DUE DILIGENCE COMPLETED TO ACQUIRE STATE OF THE ART ENGINEERING BUSINESS WITH STRONG DEFENCE AND MINING CONNECTIONS, WESTERN AUSTRALIA
-* SHARE SALE AGREEMENT IN THE FINAL STAGES OF COMPLETION
-* FINANCING DISCUSSIONS WELL UNDERWAY
-* ACQUISITION FORWARD OUTLOOK AND PROJECTIONS FOR FY2026 - FY2028 EXCEPTIONALLY GOOD
-* STRATEGICALLY PLACED TO TAKE ADVANTAGE OF AUKUS (the Australian, UK and USA defence pact)
+CUMMING, GA - January 22, 2026 (NEWMEDIAWIRE) - Metavesco, Inc. (OTC: MVCO), a diversified holding company and the architect of the growing OTCfi ecosystem, today congratulated DeFi Dev Corp on the launch of its DONT memecoin, marking DeFi Dev Corp as the second publicly traded company to launch a memecoin.
 
- Key Highlights
+ Metavesco made history in September 2025 when it became the first publicly traded company to launch a memecoin, OTCfi, via Pump.fun on the Solana blockchain. The company also became the first public company to claim creator rewards on Pump.fun and the first to execute a community token airdrop to retail traders.
 
- * Due diligence completed successfully for the 100% acquisition of a leading Western Australian precision manufacturer with strong defence and industrial connections
-* Acquisition adds state-of-the-art fabrication facilities, strengthening sovereign manufacturing capability in Australia
-* Establishes vertically integrated production capacity, improving speed, cost efficiency, and scalability
-* Provides immediately AUD $7.4M+ revenue and AUD $1.9M+ EBITDA contribution (FY2025)
-* Revenue and EBITDA expected to double over the next 3 years
-* Provides immediate DISP accreditation, enabling CiTech participation in classified Defence programs
-* Moneta Securities, a specialist capital markets advisory and corporate finance firm, continues financing discussions
+ "We welcome DeFi Dev Corp to the public company memecoin space," said Ryan Schadel, CEO of Metavesco. "Competition validates the thesis. When a Nasdaq company follows the path we pioneered on the OTC, it proves that innovation doesn't require a big board listing, it just requires vision and execution. We were first, and we're proud of that."
 
- VANCOUVER, BC - January 22, 2026 (NEWMEDIAWIRE) - Critical Infrastructure Technologies Ltd. (CSE: CTTT) (OTC: CITLF) (FRA: X9V) (“CiTech” or the “Company”), a leading developer of autonomous, high-capacity mobile communications and security platforms, is pleased to provide an update on its acquisition of 100% of the issued shares in a Western Australian precision manufacturing company, to expand its advanced production capabilities and secure local sovereign manufacturing capacity for its Nexus 20 and future product lines.
+ A Legacy of Web3 Firsts
 
- Under the agreement, CiTech will acquire the company from founders for a total consideration of AUD $7.7 million, plus standard net debt and working capital adjustments.
+ Metavesco has established a consistent track record as a first mover in the intersection of public markets and blockchain innovation:
 
- The acquisition will add a profitable and well-established business to CiTech, with revenue exceeding AUD$7.4 million and EBITDA of more than AU $1.9 million. This provides a robust earnings base to support accelerated growth in sovereign defence manufacturing, enabling CiTech to scale production, strengthen supply chain control, and advance delivery of its Nexus 20 and future autonomous communication systems.
+ * First fully reporting public company to launch liquidity pools on Uniswap
+* First public company to recognize revenue from an airdrop (ApeCoin)
+* First public company to own a Bored Ape Yacht Club NFT (the source of the ApeCoin airdrop)
+* First public company to launch a memecoin (OTCfi via Pump.fun, September 2025)
+* First public company to claim creator rewards on Pump.fun
+* First public company to airdrop a token to the trading community
 
- Key Benefits of the Acquisition:
+ "And of course yesterday, as announced, Metavesco became the first public company to have its memecoin listed on CoinGecko. Innovation happens everywhere, not just on the big boards," Schadel added. "The OTC has over 10,000 securities and a passionate retail trading community. We've proven that companies down here can lead, not follow. We'll keep building, and we'll keep being first."
 
- 1. Certified to ISO 9001 (Quality), ISO 14001 (Environment), and ISO 45001 (Safety) standards, and operates a fully equipped in-house manufacturing facility featuring state-of-the-art laser cutting systems, CNC folding and bending machines, robotic welding technology, and advanced CAD/CAM integration.
-2. Provides CiTech with direct access to a highly skilled workforce and modern fabrication systems, enabling faster prototyping, improved cost control, and scalable manufacturing for its defence and communications technologies.
-3. This combination of modern equipment, skilled personnel, and a robust quality management system enables it to produce defence-grade components and assemblies with precision, repeatability, and efficiency.
-4. The business has successfully achieved DISP accreditation (Defence Industry Security Program), a critical credential administered by the Australian Department of Defence. DISP membership ensures that companies meet rigorous security, governance, and information protection standards required to work with Defence and its supply chain partners.
-5. The acquisition reinforces CiTech’s commitment to building a sovereign Australian manufacturing ecosystem capable of supporting rapid-deployment systems for defence, emergency response, and secure communications.
-6. It complements CiTech’s growing network of international partnerships, including collaborations with Babcock International, Terma, and the establishment of an EU presence in Latvia, and therefore further expanding its reach across NATO’s Eastern Flank and allied markets.
+ Key Dates in Metavesco's Memecoin Timeline:
 
- Integration & Timeline
+ * August 26, 2025: Metavesco releases white paper "Tokenizing the OTC: A Vision for Transparency, Liquidity, and Growth" ahead of SEC roundtable with Commissioner Hester Peirce
+* August 29, 2025: Metavesco announces historic announcement forthcoming
+* September 3, 2025: Metavesco makes history with first token airdrop by a public company
+* September 9, 2025: Metavesco becomes first public company to claim creator rewards on Pump.fun
 
- The acquisition remains subject to:
+ About OTCfi
 
- * Finalisation of the Share Sale Agreement (expected within the next 5 days)
-* Securing the required funding (underway)
-* Standard closing conditions
+ OTCfi is the Community Token of the OTC, uniting traders, holders, and issuers to bring transparency, liquidity, and social energy on chain. OTCfi is built on Solana and designed to become the digital asset treasury token of choice for OTC issuers. Metavesco is developing a suite of tools within the OTCfi Ecosystem for OTC issuers and investors. Learn more at otcfi.io.
 
- On Behalf of the Board of Directors:
+ Contract Address: 66MH83n3jRqZMni87niTyKRoGbh9HxBkTm73sTRKpump
 
- Brenton ScottDirector & Chief Executive OfficerCritical Infrastructure Technologies Ltd.Brenton.s@citech.com.au+61 411 751 191
+ About Metavesco, Inc.
 
- About Critical Infrastructure Technologies Ltd.
+ Metavesco, Inc. is a diversified holding company engaged in developing and operating businesses across both traditional and digital sectors. The Company is actively building the OTCfi ecosystem, a suite of software tools and digital platforms intended to support issuer engagement, market intelligence, and blockchain-based applications for the OTC markets and its participants.
 
- Listed on the CSE with operations in Perth, Western Australia, CiTech is creating autonomous, high capacity, rapidly deployable technology that delivers essential services to where they are needed most. CiTech is targeting the mining, defence, border security/surveillance and emergency services sectors in relation to its first product release, the Nexus 16, which aims to provide critical mobile telecommunications for such sectors. Using patented technologies, CiTech’s self-deploying platform (SDP) provides a solution for two of the greatest limitations of current rapidly deployable communication solutions, strength of the tower and ability to rapidly self-deploy and operate, in numerous situations. The SDP is designed to support radio equipment including LTE (Long Term Evolution) and several other technological payloads, such as surveillance and anti-drone systems. CiTech has completed the research and development phase and is currently commercialising the first of many products that will be released. To learn more about the Company, visit www.citech.com.au.
+ Safe Harbor Statement
 
- Neither the CSE nor its Regulation Services Provider (as that term is defined in the policies of the CSE) accepts responsibility for the adequacy or accuracy of this release.
+ This press release contains statements that constitute forward-looking statements. These statements appear in a number of places in this press release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its officers with respect to, among other things: (i) financing plans; (ii) trends affecting its financial condition or results of operations; and (iii) growth strategy and operating strategy. The words "may", "would", "will", "expect", "estimate", "can", "believe", "potential", and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company's ability to control, and that actual results may differ materially from those projected in the forward-looking statements as a result of various factors. More information about the potential factors that could affect the business and financial results is included in the Company's filings on otcmarkets.com.
 
- FORWARD-LOOKING INFORMATION
-
- This news release contains “forward-looking information” and “forward-looking statements” (collectively, “forward-looking information”) within the meaning of applicable securities laws. Forward-looking information is generally identifiable by use of the words “believes,” “may,” “plans,” “will,” “anticipates,” “intends,” “could”, “estimates”, “expects”, “forecasts”, “projects” and similar expressions, and the negative of such expressions. Forward-looking information in this news release.
-
- Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the Company’s actual results, level of activity, performance or achievements to be materially different from those expressed or implied by such forward-looking information. Forward-looking information is based on the reasonable assumptions, estimates, analysis and opinions of management made in light of its experience and perception of trends, current conditions and expected developments, and other factors that management believes are relevant and reasonable in the circumstances at the date such statements are made. Although the Company has attempted to identify important factors that could cause actual results to differ materially from those contained in forward-looking information, there may be other factors that cause results not to be as anticipated. There can be no assurance that such information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such information. All forward-looking information herein is qualified in its entirety by this cautionary statement, and the Company disclaims any obligation to revise or update any such forward-looking information or to publicly announce the result of any revisions to any of the forward-looking information contained herein to reflect future results, events or developments, except as required by law.
+ MEDIA CONTACT:Ryan Schadel678-341-5898info@metavesco.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/critical-infrastructure-technologies-acquisition-and-financing-update-7085032)
+[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-congratulates-defi-dev-corp-on-becoming-the-second-publicly-traded-company-to-launch-a-memecoin-7085036)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/citech-acquires-wa-precision-manufacturer-to-boost-defence-capabilities/0a48b98eed8a9d23a3d6bc807c2bf0a1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-welcomes-defi-dev-corp-as-second-public-company-to-launch-memecoin/d2e749a001828f16258c1c83b1df9134) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/critical-infrastructure-technologies-advances-acquisition-of-aus/202626949)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/defi-dev-corp-becomes-second-publicly-traded-company-to-launch-m/202626967)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/377870-critical-infrastructure-technologies-advances-acquisition-of-western-australian-precision-manufacturer-to-bolster-sovereign-defence-capabilities)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336688-critical-infrastructure-technologies-schliesst-ubernahme-eines-westaustralischen-prazisionsherstellers-ab-um-nationale-verteidigungsfahigkeiten-zu-starken)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336941-critical-infrastructure-technologies-avanza-en-la-adquisicion-de-un-fabricante-de-precision-de-australia-occidental-para-reforzar-las-capacidades-de-defensa-soberana)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337591-critical-infrastructure-technologies-progresse-dans-lacquisition-dun-fabricant-de-precision-daustralie-occidentale-pour-renforcer-les-capacites-de-defense-souveraine)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336614-critical-infrastructure-technologies-avanca-na-aquisicao-de-fabricante-de-precisao-da-australia-ocidental-para-reforcar-capacidades-de-defesa-soberana)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/377850-faq-critical-infrastructure-technologies-acquisition-of-western-australian-precision-manufacturer)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/critical-infrastructure-technologies-advances-acquisition-of-aus/202626949)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/critical-infrastructure-technologies-advances-acquisition-of-wes/202626949)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/metavesco-celebrates-defi-dev-corps-memecoin-launch-as-validatio/202626967)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/22/coolM2tg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/22/ellefomb.webp)
