@@ -1,46 +1,38 @@
-# NetworkNewsBreaks – ShelfieTech Ltd. (CSE: SHLF) (OTCQB: SHLFF) Advancing Robotic System on Heels of Significant Progress
+# 420 with CNW — New Study Says No Science Supports Federal Categorization of Marijuana
 
-Disseminated on behalf of ShelfieTech Ltd. (CSE: SHLF) (OTCQB: SHLFF) and may include paid advertising.
+A new scientific review is challenging the foundations of U.S. drug law, arguing that the legal system governing controlled substances no longer reflects modern scientific understanding of risk.
 
- ShelfieTech (CSE: SHLF) (OTCQB: SHLFF) recently outlined a series of accomplishments in 2025 that reflect both strategic execution and momentum in deploying its next-generation retail automation technology. “From financing success to dual exchange listings and product development advancements, the company’s update highlights a year of meaningful corporate progress,” reads a recent article. “In terms of product development, ShelfieTech has reached a foundational milestone by concluding the first stage of research and development for its Robotic Retail Shelf Monitoring System. This robotic platform, designed to automate the capture of shelf-level data and enable more accurate, real-time visibility of in-store conditions, marks a key innovation in the company’s technology roadmap. With this stage complete, ShelfieTech plans to begin beta installations in supermarket environments, a crucial step that will allow the company to validate system performance in real-world settings and collect operational data ahead of broader commercial rollout.”
+ This study is likely to trigger plenty of discussion within the scientific community and in marijuana firms like Canopy Growth Corp. (NASDAQ: CGC) (TSX: WEED) due to the important questions raised…
 
- To view the full article, visit https://nnw.fm/DmOFP
+ Read More>>
 
- About ShelfieTech Ltd.
+ About CNW420
 
- ShelfieTech is focused on providing shelf inventory management technological solutions for the retail industry, in particular for large grocery stores and supermarkets. Using patent-pending technology, ShelfieTech’s solution includes a robotic retail shelf monitoring system, which uses its self-developed proprietary software that utilizes machine learning and image processing algorithms to automatically optimize shelf inventory management.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- NOTE TO INVESTORS: The latest news and updates relating to SHLFF are available in the company’s newsroom at https://ibn.fm/SHLFF
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- About NetworkNewsWire
+ For more information, please visit https://www.CannabisNewsWire.com
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- For more information, please visit https://www.NetworkNewsWire.com
-
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-shelfietech-ltd-cse-shlf-otcqb-shlff-advancing-robotic-system-on-heels-of-significant-progress/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-new-study-says-no-science-supports-federal-categorization-of-marijuana/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/shelfietech-advances-robotic-retail-system-with-beta-launch-plans/8fa5f317231c3ad8a9cba5a9faf94f24) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-challenges-marijuana-s-federal-status-sparks-industry-debate/d99eacf403d8413feb72f04861daac1b) 
 
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/shelfietech-advances-robotic-retail-system-following-key-develop/202626966)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/shelfietech-advances-robotic-retail-system-following-key-develop/202626966)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202601/378230-scientific-review-challenges-us-drug-law-foundations-sparking-industry-discussion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/22/calm_Q0h.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/22/zeal5mwz.webp)

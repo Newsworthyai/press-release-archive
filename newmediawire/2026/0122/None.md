@@ -1,64 +1,56 @@
-# Metavesco Congratulates DeFi Dev Corp on Becoming the Second Publicly Traded Company to Launch a Memecoin
+# HeartBeam (BEAT) Appoints Bryan Humbarger as Chief Commercial Officer
 
-CUMMING, GA - January 22, 2026 (NEWMEDIAWIRE) - Metavesco, Inc. (OTC: MVCO), a diversified holding company and the architect of the growing OTCfi ecosystem, today congratulated DeFi Dev Corp on the launch of its DONT memecoin, marking DeFi Dev Corp as the second publicly traded company to launch a memecoin.
+LOS ANGELES, CA - January 22, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT), a medical technology company focused on advancing cardiac care through actionable cardiac insights, announced the appointment of Bryan Humbarger as chief commercial officer, effective Jan. 22, 2026. In the newly created role, Humbarger will lead commercial strategy and execution across key growth initiatives, including the limited launch of the recently cleared HeartBeam System for arrhythmia assessment, heart attack detection indication and a 12-lead ECG extended wear patch monitor, while expanding outreach to cardiology partners to validate real-world performance and establish reference sites for broader adoption.
 
- Metavesco made history in September 2025 when it became the first publicly traded company to launch a memecoin, OTCfi, via Pump.fun on the Solana blockchain. The company also became the first public company to claim creator rewards on Pump.fun and the first to execute a community token airdrop to retail traders.
+ To view the full press release, visit https://ibn.fm/9YzeT
 
- "We welcome DeFi Dev Corp to the public company memecoin space," said Ryan Schadel, CEO of Metavesco. "Competition validates the thesis. When a Nasdaq company follows the path we pioneered on the OTC, it proves that innovation doesn't require a big board listing, it just requires vision and execution. We were first, and we're proud of that."
+ About HeartBeam, Inc.
 
- A Legacy of Web3 Firsts
+ HeartBeam, Inc. is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar directions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024 and the 12-Lead ECG synthesis software in December 2025*.
 
- Metavesco has established a consistent track record as a first mover in the intersection of public markets and blockchain innovation:
+ *Cleared Indications for Use
 
- * First fully reporting public company to launch liquidity pools on Uniswap
-* First public company to recognize revenue from an airdrop (ApeCoin)
-* First public company to own a Bored Ape Yacht Club NFT (the source of the ApeCoin airdrop)
-* First public company to launch a memecoin (OTCfi via Pump.fun, September 2025)
-* First public company to claim creator rewards on Pump.fun
-* First public company to airdrop a token to the trading community
+ The HeartBeam System with 12-Lead ECG synthesis software for arrhythmia assessment received FDA clearance in December 2025. Refer to the Company’s Cleared Indications for Use at https://www.heartbeam.com/indications for details on the intended use of its technology.
 
- "And of course yesterday, as announced, Metavesco became the first public company to have its memecoin listed on CoinGecko. Innovation happens everywhere, not just on the big boards," Schadel added. "The OTC has over 10,000 securities and a passionate retail trading community. We've proven that companies down here can lead, not follow. We'll keep building, and we'll keep being first."
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Key Dates in Metavesco's Memecoin Timeline:
+ The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
- * August 26, 2025: Metavesco releases white paper "Tokenizing the OTC: A Vision for Transparency, Liquidity, and Growth" ahead of SEC roundtable with Commissioner Hester Peirce
-* August 29, 2025: Metavesco announces historic announcement forthcoming
-* September 3, 2025: Metavesco makes history with first token airdrop by a public company
-* September 9, 2025: Metavesco becomes first public company to claim creator rewards on Pump.fun
+ Forward Looking Statements
 
- About OTCfi
-
- OTCfi is the Community Token of the OTC, uniting traders, holders, and issuers to bring transparency, liquidity, and social energy on chain. OTCfi is built on Solana and designed to become the digital asset treasury token of choice for OTC issuers. Metavesco is developing a suite of tools within the OTCfi Ecosystem for OTC issuers and investors. Learn more at otcfi.io.
-
- Contract Address: 66MH83n3jRqZMni87niTyKRoGbh9HxBkTm73sTRKpump
-
- About Metavesco, Inc.
-
- Metavesco, Inc. is a diversified holding company engaged in developing and operating businesses across both traditional and digital sectors. The Company is actively building the OTCfi ecosystem, a suite of software tools and digital platforms intended to support issuer engagement, market intelligence, and blockchain-based applications for the OTC markets and its participants.
-
- Safe Harbor Statement
-
- This press release contains statements that constitute forward-looking statements. These statements appear in a number of places in this press release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its officers with respect to, among other things: (i) financing plans; (ii) trends affecting its financial condition or results of operations; and (iii) growth strategy and operating strategy. The words "may", "would", "will", "expect", "estimate", "can", "believe", "potential", and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company's ability to control, and that actual results may differ materially from those projected in the forward-looking statements as a result of various factors. More information about the potential factors that could affect the business and financial results is included in the Company's filings on otcmarkets.com.
-
- MEDIA CONTACT:Ryan Schadel678-341-5898info@metavesco.com
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-congratulates-defi-dev-corp-on-becoming-the-second-publicly-traded-company-to-launch-a-memecoin-7085036)
+[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-appoints-bryan-humbarger-as-chief-commercial-officer-7085038)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-welcomes-defi-dev-corp-as-second-public-company-to-launch-memecoin/d2e749a001828f16258c1c83b1df9134) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-appoints-commercial-chief-to-drive-cardiac-tech-expansion/dd5c29304db6296a3926ed1d9067cd25) 
 
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/defi-dev-corp-becomes-second-publicly-traded-company-to-launch-m/202626967)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/378139-faq-heartbeams-appointment-of-bryan-humbarger-as-chief-commercial-officer-and-company-overview)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/metavesco-celebrates-defi-dev-corps-memecoin-launch-as-validatio/202626967)
+Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-appoints-bryan-humbarger-as-chief-commercial-officer-t/202626970)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/378173-heartbeam-appoints-bryan-humbarger-as-chief-commercial-officer-to-drive-commercialization-of-fda-cleared-cardiac-technology)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336709-heartbeam-ernennt-bryan-humbarger-zum-chief-commercial-officer-um-die-kommerzialisierung-der-fda-zugelassenen-herztechnologie-voranzutreiben)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/336963-heartbeam-designa-a-bryan-humbarger-como-director-comercial-para-impulsar-la-comercializacion-de-su-tecnologia-cardiaca-aprobada-por-la-fda)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337615-heartbeam-nomme-bryan-humbarger-au-poste-de-directeur-commercial-pour-piloter-la-commercialisation-de-sa-technologie-cardiaque-approuvee-par-la-fda)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336638-heartbeam-nomeia-bryan-humbarger-como-diretor-comercial-para-impulsionar-a-comercializacao-da-tecnologia-cardiaca-aprovada-pela-fda)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-appoints-bryan-humbarger-as-chief-commercial-officer-t/202626970)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-appoints-bryan-humbarger-as-chief-commercial-officer-t/202626970)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/378214-heartbeam-appoints-chief-commercial-officer-to-drive-cardiac-technology-commercialization)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/22/ellefomb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/22/loftBd2r.webp)
