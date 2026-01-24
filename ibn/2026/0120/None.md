@@ -1,38 +1,60 @@
-# 420 with CNW — Survey Finds Americans More Likely to Quit Tobacco, Alcohol Than Cannabis
+# TechMediaBreaks – Nightfood Holdings Inc. (NGTF) Scales AI Service Robotics to Meet Rising Commercial Demand
 
-As the new year begins, many Americans are once again setting personal goals, but a new survey suggests cutting back on cannabis is low on the list compared with other habits. According to recent polling, people are more likely to resolve to drink less alcohol, stop using tobacco, or even spend less time on social media than to scale back cannabis use.
+Nightfood Holdings (OTCQB: NGTF), operating under its TechForce Robotics platform, was featured in a recent article that discussed its intensified efforts in the AI-driven service robotics sector as automation adoption expands across foodservice, hospitality, and commercial environments. “Manufacturing readiness is a vital aspect of TechForce’s broader operational vision, especially as flagship programs mature into larger fleet deployment. The company’s Robotics-as-a-Service (‘RaaS’) model is created to catalyze scalable rollouts, recurring revenue, and ongoing support, positioning the company to meet the needs of customers across locations,” reads the article.
 
- Entities like Trulieve Cannabis Corp. (CSE: TRUL) (OTCQX: TCNNF) are likely to…
+ “A key strategic development for TechForce Robotics is its recent efforts to expand manufacturing capacity in anticipation of increased demand. Although NGTF’s current manufacturing partner in China has helped early product rollouts and delivered initial units to market, the company is now focusing on a parallel manufacturing strategy targeted at onboarding a larger, globally viable manufacturing partner. This move is aimed at supporting higher-volume deployments, quicker delivery timelines, and better supply-chain resilience as interest from multi-location and enterprise customers rises.”
 
- Read More>>
+ To view the full article, visit https://ibn.fm/D5MYa
 
- About CNW420
+ About Nightfood Holdings Inc.
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ Nightfood is a forward-thinking holding company dedicated to identifying and capitalizing on explosive market trends within the hospitality, food services, consumer packaged goods and commercial real estate sectors. The company’s mission is to create unparalleled upside potential in industries ripe for innovation and growth by leading newly emerging categories and seizing opportunities in markets undergoing transformational upheaval. Nightfood is at the forefront of introducing and deploying artificial intelligence-enabled robotics products, revolutionizing operational efficiencies and customer experiences across the company’s focus areas. Additionally, the company is committed to developing and marketing wellness-focused consumer packaged goods, meeting the growing demand for healthier and functional options. Through these strategic initiatives, Nightfood endeavors to drive significant value and growth for its stakeholders. For more information, visit the company’s website at NightfoodHoldings.com.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ NOTE TO INVESTORS: The latest news and updates relating to NGTF are available in the company’s newsroom at http://ibn.fm/NGTF
 
- For more information, please visit https://www.CannabisNewsWire.com
+ About TechMediaWire
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- CannabisNewsWire is powered by IBN 
+ For more information, please visit https://www.TechMediaWire.com
+
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-survey-finds-americans-more-likely-to-quit-tobacco-alcohol-than-cannabis/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-nightfood-holdings-inc-ngtf-scales-ai-service-robotics-to-meet-rising-commercial-demand/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-americans-prioritize-quitting-tobacco-alcohol-over-cannabis-in-2026-resolutions/7d18aa6efc958bfafe89a4cb23890b12) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nightfood-s-techforce-robotics-expands-ai-service-robotics-with-manufacturing-push/654654439bca8cf9ec00c2d564cca837) 
 
 
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202601/376398-survey-shows-cannabis-reduction-low-priority-among-new-years-resolutions)
+Pickup - [https://advos.io/en](https://advos.io/en/nightfood-holdings-expands-ai-robotics-manufacturing-to-meet-gro/202627035)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/379042-nightfood-holdings-expands-ai-robotics-manufacturing-to-meet-growing-commercial-automation-demand)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336772-nightfood-holdings-erweitert-ki-roboterfertigung-um-wachsende-nachfrage-nach-gewerblicher-automatisierung-zu-decken)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337028-nightfood-holdings-amplia-su-fabricacion-de-robotica-con-ia-para-satisfacer-la-creciente-demanda-de-automatizacion-comercial)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337691-nightfood-holdings-etend-sa-fabrication-robotique-ia-pour-repondre-a-la-demande-croissante-dautomatisation-commerciale)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336700-nightfood-holdings-expande-a-fabricacao-de-robotica-com-ia-para-atender-a-crescente-demanda-por-automacao-comercial)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/379036-faq-nightfood-holdings-ai-service-robotics-expansion-and-manufacturing-strategy)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/nightfood-holdings-expands-ai-robotics-manufacturing-to-meet-gro/202627035)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nightfood-holdings-expands-ai-robotics-manufacturing-to-meet-gro/202627035)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/20/camcHXsT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/23/quaynRZx.webp)

@@ -1,82 +1,52 @@
-# Hot Tips for Cold Weather Heart Health
+# Datavault AI (DVLT) Closes Acquisition of API Media Innovation
 
-DALLAS - January 23, 2026 (NEWMEDIAWIRE) - While grocery store shelves may be empty, firewood piles filled and cell phones charged, there may be a few more items to check off on your prep list for the upcoming winter storms. Along with the many other hazards of cold weather: it can pose some unique concerns when it comes to heart health. The American Heart Association, a global force changing the future of health for all, offers some important information for staying heart-safe when temperatures drop:
+LOS ANGELES, CA - January 23, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), a leader in data monetization, credentialing, digital engagement and real-world asset tokenization technologies, announced that it has closed its previously announced acquisition of API Media Innovation Inc., a New Jersey–headquartered provider of media infrastructure and event technology solutions serving high-profile sports, media and entertainment clients, a transaction the company expects to strengthen its proprietary data-monetization ecosystem through expanded capabilities in multi-channel engagement, data overlay integration, digital media operations, audience intelligence and revenue analytics, while positioning Datavault AI to enhance enterprise value delivery across data, advertising and AI-as-a-Service verticals.
 
- Know the cold weather health dangers
+ To view the full press release, visit https://ibn.fm/AscmN
 
- * The cold causes blood vessels to contract and coronary arteries to constrict, which can raise blood pressure, increasing the risk of heart attack, stroke or even cardiac arrest.
-* Strenuous activities can add stressors to the heart that people aren’t normally used to. Our hearts also have to work extra hard in cold weather to keep a healthy body temperature.
-* Hypothermia occurs when your body can't produce enough energy to keep the internal body temperature warm enough. It can kill you. Symptoms include lack of coordination, mental confusion, slowed reactions, shivering and sleepiness.
-* People with heart disease often suffer angina pectoris (chest pain or discomfort) when they're in cold weather.
-* Cold weather is also associated with cold and flu season, but be careful about the cold medicines you take, especially if you have high blood pressure. It’s best to check with your health care professional or pharmacist before taking any over-the-counter medications, supplements or substances.
+ About Datavault AI Inc.
 
- Take precautions to stay heart-healthy
+ Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
 
- * Your mom was right – bundle up! If you must go out, wear layers to avoid hypothermia and frostbite. Layering clothing traps air between the layers, forming protective insulation. Also, wear a hat or head scarf. Heat can be lost through your head. And ears are especially prone to frostbite. Keep your hands and feet warm, too, as they tend to lose heat rapidly.
-* Don’t overdo it. Walking through heavy snow - or climbing up the sledding hill - isn’t a walk in the park. Your body is already using extra energy to stay warm, so go slow, take breaks and don’t exert yourself.
-* Shovel safely. If you have to clear off the sidewalks and driveway, start gradually and pace yourself. Ideally, push or sweep the snow rather than lifting and throwing it, that action involves a little less exertion. Pay attention to your body and if something doesn’t feel right, stop.
-* Stay hydrated. Just because it’s cold and you may not feel thirsty, but thirst isn’t the best indicator that you need to drink, even if you aren't sweating as much you still need to hydrate.
-* Watch out for the added calories in cold weather drinks. Comforting drinks like pumpkin spiced lattes and hot chocolate can be loaded with unwanted sugar and fat.
-* Limit the alcohol. Alcohol may increase a person’s sensation of warmth and may cause them to underestimate the extra strain their body is under in the cold.
-* Check on your loved ones: Elderly people may also have lower subcutaneous fat and a diminished ability to sense temperature so they can suffer hypothermia without knowing they're in danger
-* Learn the heart attack warning signs and listen to your body. Even if you’re not sure it’s a heart attack, have it checked out. Minutes matter! Fast action can save lives - maybe your own. Don’t wait to call 911.
-* Learn CPR: EMS response times can be slower in bad weather. More than 350,000 cardiac arrests happen outside the hospital each year. Hands-Only CPR can double or triple a person’s chance of survival. Save a life in two steps: Call 9-1-1; Push hard and fast in the center of the chest.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Learn more about cold weather and cardiovascular disease at heart.org.
+ Forward Looking Statements
 
- Additional Resources:
-
- * AHA health information: Cold Weather and Cardiovascular Disease
-* AHA health information: How to Stay Active in Cold Weather
-* Follow us on X @HeartNews
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: Cathy Lewis: cathy.lewis@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hot-tips-for-cold-weather-heart-health-7085053)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-closes-acquisition-of-api-media-innovation-7085057)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aha-warns-cold-weather-poses-serious-heart-attack-stroke-risks/671941eba1dcb7f0f9d3e7899eb2bc87) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-acquires-api-media-innovation-to-boost-data-monetization-ecosystem/e6573844dc5646ad3b7d3b99b7b06a9c) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-warns-of-cold-weather-cardiovascular/202627018)
+Pickup - [https://advos.io/en](https://advos.io/en/datavault-ai-acquires-api-media-innovation-to-strengthen-data-mo/202627028)
 
-Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202601/378821-american-heart-association-issues-critical-cold-weather-guidance-for-cardiovascular-health)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/378928-datavault-ai-completes-acquisition-of-api-media-innovation-to-expand-data-monetization-ecosystem)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202601/337012-la-asociacion-americana-del-corazon-emite-orientacion-critica-sobre-salud-cardiovascular-en-clima-frio)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336766-datavault-ai-schliesst-ubernahme-von-api-media-innovation-ab-um-sein-datenmonetarisierungs-okosystem-zu-erweitern)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/378814-american-heart-association-issues-cold-weather-heart-health-guidelines-as-winter-storms-approach)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337022-datavault-ai-finaliza-la-adquisicion-de-api-media-innovation-para-expandir-su-ecosistema-de-monetizacion-de-datos)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336756-american-heart-association-gibt-herzgesundheits-leitlinien-fur-kaltes-wetter-heraus-wahrend-wintersturme-nahen)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337684-datavault-ai-finalise-lacquisition-dapi-media-innovation-pour-etendre-son-ecosysteme-de-monetisation-des-donnees)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337011-la-asociacion-americana-del-corazon-emite-pautas-de-salud-cardiaca-para-el-clima-frio-ante-la-llegada-de-tormentas-invernales)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336694-datavault-ai-conclui-aquisicao-da-api-media-innovation-para-expandir-ecossistema-de-monetizacao-de-dados)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337663-lassociation-americaine-de-cardiologie-publie-des-recommandations-pour-la-sante-cardiaque-en-periode-de-froid-alors-que-les-tempetes-hivernales-approchent)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/378952-faq-datavault-ais-acquisition-of-api-media-innovation)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336684-associacao-americana-do-coracao-emite-diretrizes-de-saude-cardiaca-para-tempo-frio-com-aproximacao-de-tempestades-de-inverno)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/datavault-ai-completes-acquisition-of-api-media-innovation-to-st/202627028)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/378812-cold-weather-heart-health-risks-and-protective-measures-faq)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/datavault-ai-completes-acquisition-of-api-media-innovation-to-st/202627028)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/american-heart-association-warns-of-cold-weather-heart-risks-off/202627018)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/378956-datavault-ai-completes-acquisition-of-api-media-innovation-to-strengthen-data-monetization-ecosystem)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/378822-american-heart-association-issues-critical-cold-weather-cardiovascular-health-guidance)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-heart-association-issues-cold-weather-heart-health-guid/202627018)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/378824-american-heart-association-issues-critical-cold-weather-cardiovascular-guidance)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/379009-datavault-ai-acquires-api-media-innovation-to-strengthen-data-monetization-ecosystem)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/23/zero26Px.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/23/jazzV432.webp)
