@@ -1,80 +1,58 @@
-# Critical Infrastructure Technologies and AIRmarket Inc. Execute a Memorandum of Understanding (MOU)
+# BridgeCore Capital Finances Grease Monkey Property in Auburndale, Florida
 
-VANCOUVER, BC - January 26, 2026 (NEWMEDIAWIRE) - Critical Infrastructure Technologies Ltd. (CSE: CTTT) (OTC: CITLF) (FRA: X9V) (“CiTech” or the “Company”), a leading developer of autonomous, high-capacity mobile communications and security platforms and AIRmarket Inc. (AIRmarket) today announced the signing of a Memorandum of Understanding (MOU) to collaboratively explore pilot, and potentially commercialise solutions supporting drone-enabled airspace, remotely piloted aircraft system (RPAS) traffic management (RTM), and related digital and infrastructure services.
+BEVERLY HILLS, CALIF. - January 26, 2026 (NEWMEDIAWIRE) - BridgeCore Capital, Inc. today announced it has closed a $1,500,000 acquisition financing of a Grease Monkey property in Auburndale, Florida.
 
- The MOU establishes a non-binding framework for cooperation between the two companies, with a focus on bi-national (Australia–Canada), defence-inclusive government and emergency services use cases.
+ The borrower required a quick closing on the sale-leaseback of a car-wash and oil service property given an unexpected delay with the borrower’s bank financing. It was critical to the borrower that the acquisition be completed by 2025 year-end due to needed tax benefits and at the same leverage as the bank had offered - 70% of the purchase price. BridgeCore underwrote, completed its due diligence, and funded the transaction within seven business days from the term sheet signing.
 
- Under the MOU, CiTech and AIRmarket will work together to assess opportunities that enhance the safe, sovereign, and compliant integration of drones into national airspace, supporting defence, public safety, and critical infrastructure operations.
+ BridgeCore coordinated closely with the exceptional broker team, the borrower, and the title company to close the transaction within the needed time-frame and enable the borrower to secure the acquisition.
 
- Strategic Collaboration
+ BridgeCore harnessed its comprehensive resources and experience to solve a critical timing challenge and provide highly competitive loan terms.
 
- The collaboration brings together complementary capabilities:
+ About BridgeCore Capital
 
- - AIRmarket contributes expertise in RPAS traffic management, airspace utilities, aviation safety, and regulatory engagement.
+ BridgeCore provides bridge loans on commercial and non-owner occupied residential real estate in the U.S., including origination of senior, junior and mezzanine debt, preferred equity. Additionally, borrowers throughout the nation can take advantage of BridgeCore’s “Bridge Loan Program,” provides flexible pre-pay, interest only, non-recourse, and floating-rate financing with one-to three-year terms for loan sizes ranging from $15M to $50M+.
 
- - CiTech contributes secure digital platforms, systems integration, data and AI capabilities, and the manufacture of autonomous communications infrastructure required to operationalise drones in regulated environments.
+ For more information, visit www.bridgecorecapital.com.
 
- Together, the parties aim to improve situational awareness, operational efficiency, and response capability for defence forces, emergency services, and government agencies.
-
- Focus Areas
-
- The collaboration will include:
-
- - Defence and border security operations
-
- - Drone as First Responder (DFR) programs
-
- - Wildfire, search and rescue, and disaster response
-
- - Critical infrastructure protection across energy, transport, and utilities
-
- - Technical integration of RTM platforms with secure communications infrastructure
-
- - Government-led pilots, trials, and regulatory engagement
-
- Governance and Next Steps
-
- The MOU provides for the appointment of points of contact and the potential establishment of a joint working group to guide collaboration activities. Any pilots, deployments, or commercial arrangements will be governed by separate definitive agreements and will be subject to applicable regulatory, security, and export control requirements.
-
- “This MOU provides a structured foundation for CiTech and AIRmarket to explore how our combined capabilities can support government and defence stakeholders,” said Brenton Scott, CEO of CiTech. “It reflects a shared commitment to safety, sovereignty, and the practical deployment of drone-enabled infrastructure.”
-
- Lindsay Mohr, CEO of AIRmarket, added, “AIRmarket enables the airspace – monitoring it and helping drones operate safely. CiTech enables the remote operations with autonomous infrastructure that brings communications and surveillance in hard-to-reach areas. Together, this MOU builds a dual-use foundation for critical infrastructure, from mines and industrial plants to borders and wildfire response. This aligns Canada’s national interest and the growing investment in resilience, sovereignty, and public safety”.
-
- On Behalf of the Board of Directors:
-
- Brenton ScottDirector & Chief Executive OfficerCritical Infrastructure Technologies Ltd.Brenton.s@citech.com.au+61 411 751 191
-
- About AIRmarket Inc.
-
- AIRmarket is a Canadian company delivering RPAS Traffic Management and drone-enabled airspace solutions, supporting the safe and compliant growth of commercial and government drone operations. It’s mission: to provide its customers with the tools and services required to operate UAV fleets safely and efficiently.
-
- www.airmarket.io
-
- About Critical Infrastructure Technologies Ltd.
-
- Listed on the CSE with operations in Perth, Western Australia, CiTech is creating autonomous, high capacity, rapidly deployable technology that delivers essential services to where they are needed most. CiTech is targeting the mining, defence, border security/surveillance and emergency services sectors in relation to its first product release, the Nexus 16, which aims to provide critical mobile telecommunications for such sectors. Using patented technologies, CiTech’s self-deploying platform (SDP) provides a solution for two of the greatest limitations of current rapidly deployable communication solutions, strength of the tower and ability to rapidly self-deploy and operate, in numerous situations. The SDP is designed to support radio equipment including LTE (Long Term Evolution) and several other technological payloads, such as surveillance and anti-drone systems. CiTech has completed the research and development phase and is currently commercialising the first of many products that will be released. To learn more about the Company, visit www.citech.com.au.
-
- Neither the CSE nor its Regulation Services Provider (as that term is defined in the policies of the CSE) accepts responsibility for the adequacy or accuracy of this release.
-
- FORWARD-LOOKING INFORMATION
-
- This news release contains “forward-looking information” and “forward-looking statements” (collectively, “forward-looking information”) within the meaning of applicable securities laws. Forward-looking information is generally identifiable by use of the words “believes,” “may,” “plans,” “will,” “anticipates,” “intends,” “could”, “estimates”, “expects”, “forecasts”, “projects” and similar expressions, and the negative of such expressions. Forward-looking information in this news release.
-
- Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the Company’s actual results, level of activity, performance or achievements to be materially different from those expressed or implied by such forward-looking information. Forward-looking information is based on the reasonable assumptions, estimates, analysis and opinions of management made in light of its experience and perception of trends, current conditions and expected developments, and other factors that management believes are relevant and reasonable in the circumstances at the date such statements are made. Although the Company has attempted to identify important factors that could cause actual results to differ materially from those contained in forward-looking information, there may be other factors that cause results not to be as anticipated. There can be no assurance that such information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such information. All forward-looking information herein is qualified in its entirety by this cautionary statement, and the Company disclaims any obligation to revise or update any such forward-looking information or to publicly announce the result of any revisions to any of the forward-looking information contained herein to reflect future results, events or developments, except as required by law.
-
-View the original release on www.newmediawire.com 
+ Company Contact:Elliot Shirwo, BridgeCore Capital424-285-6365, elliot@bridgecorecapital.comMedia Contact: Roger Pondel, PondelWilkinson Inc.310-279-5965, rpondel@pondel.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/critical-infrastructure-technologies-and-airmarket-inc-execute-a-memorandum-of-understanding-mou-7085081)
+[Original/Source Press Release](https://www.newmediawire.com/news/bridgecore-capital-finances-grease-monkey-property-in-auburndale-florida-7085082)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/citech-airmarket-partner-to-advance-drone-airspace-management-solutions/037586962ec6551b4e42811d6620e053) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgecore-closes-1-5m-deal-in-7-days-saving-grease-monkey-acquisition/31a8ec6e94aef73d4f77427ca6953dcf) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/bridgecore-capital-provides-15m-acquisition-financing-for-florid/202627089)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/379717-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-grease-monkey-property)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336827-bridgecore-capital-stellt-15-millionen-us-dollar-akquisitionsfinanzierung-fur-grease-monkey-immobilie-in-florida-bereit)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337089-bridgecore-capital-proporciona-15-millones-en-financiamiento-de-adquisicion-para-propiedad-de-grease-monkey-en-florida)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337747-bridgecore-capital-accorde-un-financement-dacquisition-de-15-million-de-dollars-pour-une-propriete-grease-monkey-en-floride)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336757-bridgecore-capital-fornece-financiamento-de-aquisicao-de-us-15-milhao-para-propriedade-da-grease-monkey-na-florida)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/379715-faq-bridgecore-capitals-15m-acquisition-financing-for-grease-monkey-property-in-florida)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/bridgecore-capital-provides-15-million-acquisition-financing-for/202627089)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bridgecore-capital-provides-15-million-acquisition-financing-for/202627089)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/379730-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-grease-monkey-property)
+
+Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202601/379731-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-commercial-property)
+
+Pickup - [https://realestateradarflorida.com/newsramp](https://realestateradarflorida.com/newsramp/202601/379732-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-commercial-property)
+
+Pickup - [https://realestateradarflorida.com/noticias](https://realestateradarflorida.com/noticias/202601/337090-bridgecore-capital-proporciona-financiamiento-de-adquisicion-de-15-millones-para-propiedad-comercial-en-florida)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/26/apex88t3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/26/zero3WvD.webp)

@@ -1,38 +1,62 @@
-# InvestorNewsBreaks – National Investment Banking Association to Host 152nd Investment Conference in Fort Lauderdale
+# Nevada Organic Phosphate Inc. (CSE: NOP) (OTCQB: NOPFF) Positive Assay Results Point to Organic Fertilizer Certification
 
-The National Investment Banking Association (“NIBA”)announced it will host its 152nd Investment Conference on March 11-12, 2026, at The Westin Fort Lauderdale Beach Resort, bringing together registered investment advisors, private equity groups, family offices, investment bankers, broker-dealers, venture capital firms, fund managers, investors, and industry service providers. The conference will feature concise 10-minute presentations from participating companies, followed by one-on-one meetings designed to facilitate deeper engagement, evaluate strategic alignment, and foster long-term partnerships. As a nonprofit investment association now in its fifth decade, NIBA positions the event as a flagship forum for productivity, collaboration, and capital formation, leveraging its extensive network of investment professionals and industry services to support companies navigating diverse market environments.
+Disseminated on behalf of Nevada Organic Phosphate Inc. (CSE: NOP) (OTCQB: NOPFF) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/9JYom
+ * Heavy metal assays from Murdock Mountain fall well below limits typically used for highly sought U.S. organic fertilizer certification, clearly supporting eligibility under USDA National Organic Program standards applied by certifiers.
+* Independent laboratory testing followed ISO-accredited and NI 43-101–aligned QA/QC protocols, with assays confirming consistency of phosphate grades and thickness in the Upper Phosphatic Zone.
+* Murdock Mountain represents a rare North American sedimentary phosphate deposit suited to direct application, and ongoing drilling is planned to further define scale and continuity of the resource.
 
- About National Investment Banking Association (NIBA)
+ Nevada Organic Phosphate (CSE: NOP) (OTCQB: NOPFF), a Canadian based leader in organic sedimentary phosphate exploration, reported assay results on January 12 that address one of the central questions facing its Murdock Mountain project in northeast Nevada: whether the phosphate-bearing rock meets the contaminant thresholds required for organic fertilizer certification in the United States. According to the company’s news release, heavy metal contaminant assays from the Upper Phosphatic Zone at Murdock Mountain were well below the limits typically applied by certifying bodies when evaluating mineral fertilizers for organic use (https://ibn.fm/DSelU).
 
- Since 1982, The National Investment Banking Association (NIBA) has been a not-for-profit association for the micro-cap and small-cap investment community and has hosted 151 investment conferences featuring public and private micro-cap and small-cap companies seeking access to the financial industry. NIBA’s network has a 40-year track record of successfully completing thousands of transactions totaling over $100 billion in new capital for emerging growth companies, are responsible for 90% of all IPOs under $20 million and represent over 60 key industries.
+ For organic producers in the U.S., certification is governed by the USDA National Organic Program (“USDA-NOP”). While the USDA-NOP does not publish specific numeric limits for heavy metals in mineral fertilizers such as rock phosphate, certifiers rely on a combination of USDA-NOP rules and state…
 
- For more information, please visit https://nibanet.org/
+ Read More>>
 
- About InvestorWire
+ NOTE TO INVESTORS: The latest news and updates relating to NOP are available in the company’s newsroom at https://ibn.fm/NOP
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ About Rocks & Stocks
 
- For more information, please visit https://www.InvestorWire.com
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ R&S is where breaking news, insightful content and actionable information converge.
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire is powered by IBN 
+ For more information, please visit https://RocksAndStocks.news
+
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-national-investment-banking-association-to-host-152nd-investment-conference-in-fort-lauderdale/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/nevada-organic-phosphate-inc-cse-nop-otcqb-nopff-positive-assay-results-point-to-organic-fertilizer-certification/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/niba-announces-152nd-investment-conference-for-2026-financial-networking/977bb329310763c90e0088186c2d8f31) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-organic-phosphate-assays-show-promise-for-rare-u-s-organic-fertilizer-source/36576174cf322a521f6bacadd6c5818c) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/nevada-organic-phosphate-assay-results-support-organic-fertilize/202627097)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/379787-nevada-organic-phosphate-assay-results-support-organic-fertilizer-certification-eligibility)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336836-assay-ergebnisse-von-nevada-organic-phosphate-unterstutzen-zulassung-als-organischer-dunger)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337098-resultados-de-ensayos-de-nevada-organic-phosphate-respaldan-la-elegibilidad-para-certificacion-de-fertilizante-organico)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337756-les-resultats-danalyse-du-phosphate-organique-du-nevada-confirment-leligibilite-a-la-certification-dengrais-organique)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/379772-faq-nevada-organic-phosphate-inc-assay-results-and-organic-fertilizer-certification)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/nevada-organic-phosphate-assay-results-support-organic-fertilize/202627097)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nevada-organic-phosphate-assay-results-support-organic-fertilize/202627097)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/26/echo_sCm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/26/jokesrDk.webp)
