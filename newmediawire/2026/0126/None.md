@@ -1,58 +1,62 @@
-# BridgeCore Capital Finances Grease Monkey Property in Auburndale, Florida
+# Dr. Christian Schlogel Nominated as New Member of the Board of Directors
 
-BEVERLY HILLS, CALIF. - January 26, 2026 (NEWMEDIAWIRE) - BridgeCore Capital, Inc. today announced it has closed a $1,500,000 acquisition financing of a Grease Monkey property in Auburndale, Florida.
+ALLSCHWIL, SWITZERLAND - January 26, 2026 (NEWMEDIAWIRE) - The Board of Directors of SKAN Group AG proposes Dr. Christian Schlogel as a new member for election at the Annual General Meeting on May 7, 2026. Patrick Schar will not stand for re-election after 16 years on the Board of Directors.
 
- The borrower required a quick closing on the sale-leaseback of a car-wash and oil service property given an unexpected delay with the borrower’s bank financing. It was critical to the borrower that the acquisition be completed by 2025 year-end due to needed tax benefits and at the same leverage as the bank had offered - 70% of the purchase price. BridgeCore underwrote, completed its due diligence, and funded the transaction within seven business days from the term sheet signing.
+ Dr. Christian Schlogel (born 1964, German citizen) is a proven expert in software, digital transformation and artificial intelligence with 30 years of leadership experience in global technology, software and industrial companies. From 2018 to 2025, he was Group Chief Digital Officer and member of the Executive Board of Korber AG, where he was responsible for the digital transformation of the group with around 14,000 employees. From 2014 to 2018, he was Group Chief Technology & Digital Officer at KUKA AG, an international automation and robotics group with around 15,000 employees. He currently contributes his expertise as a member of administrative and advisory boards at various companies. Christian Schlogel started his professional career at SAP AG. He holds a degree in computer science from the Karlsruhe Institute of Technology and a doctorate in business administration from the University of Passau.
 
- BridgeCore coordinated closely with the exceptional broker team, the borrower, and the title company to close the transaction within the needed time-frame and enable the borrower to secure the acquisition.
+ Beat Lüthi, Chairman of the Board of Directors of the SKAN Group, explained: "SKAN expands its offering to include software and digital integration services, for which we acquired a majority stake in Metronik last year. In parallel, we are driving forward the digital transformation of the company and our services. Christian Schlögel can significantly support these initiatives, which are core elements of the strategy for future sales and margin growth, with his expertise. The Board of Directors is therefore delighted to be able to propose him for election to the shareholders.
 
- BridgeCore harnessed its comprehensive resources and experience to solve a critical timing challenge and provide highly competitive loan terms.
+ Patrick Schär has decided not to stand for re-election to the Board of Directors for professional reasons. Beat Lüthi added: "Patrick Schär has been on the Board of Directors for 16 years. With his professional background and experience as a financial expert, he has made a significant contribution to the development of the SKAN Group. We would like to thank him sincerely for his many years of commitment and the excellent collaboration and wish him all the best for his professional and personal future."
 
- About BridgeCore Capital
+ Contacts:
 
- BridgeCore provides bridge loans on commercial and non-owner occupied residential real estate in the U.S., including origination of senior, junior and mezzanine debt, preferred equity. Additionally, borrowers throughout the nation can take advantage of BridgeCore’s “Bridge Loan Program,” provides flexible pre-pay, interest only, non-recourse, and floating-rate financing with one-to three-year terms for loan sizes ranging from $15M to $50M+.
+ Thomas Balmer, ir@skan.com, +41 79 703 87 28Alexandre Muller, ir@skan.com, +41 79 635 64 13
 
- For more information, visit www.bridgecorecapital.com.
+ Financial calendar:
 
- Company Contact:Elliot Shirwo, BridgeCore Capital424-285-6365, elliot@bridgecorecapital.comMedia Contact: Roger Pondel, PondelWilkinson Inc.310-279-5965, rpondel@pondel.com 
+24 March 2026 Publication Annual Results 20257 May 2026 Annual General Meeting 2026
+
+ SKAN - together always one step aheadSKAN is a pioneer in the field of aseptic and aseptic-toxic manufacturing processes for the (bio)pharmaceutical industry. The company is the market and technology leader for high-quality, process-critical isolator systems for filling drugs according to strict sterility standards. In addition, the company offers its customers process support, services and consumables. Innovative solutions and an efficient life-cycle support organisation make SKAN an important partner for the pharmaceutical and biotech industry, CMOs (Contract Manufacturing Organisations) and research laboratories worldwide. Founded in 1968, SKAN today employs close to 1700 people. More than half of them work at the Allschwil headquarters in the Life Sciences Hub of the Basel region. The other employees are located among the subsidiaries in Switzerland, Germany, Belgium, France, Slovenia, Croatia, Japan, the USA and Brazil.
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bridgecore-capital-finances-grease-monkey-property-in-auburndale-florida-7085082)
+[Original/Source Press Release](https://www.newmediawire.com/news/dr-christian-schlogel-nominated-as-new-member-of-the-board-of-directors-7085098)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgecore-closes-1-5m-deal-in-7-days-saving-grease-monkey-acquisition/31a8ec6e94aef73d4f77427ca6953dcf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skan-proposes-digital-expert-schlogel-to-board-amid-strategic-shift/9d14c74d95660989ee0d782e6f1378de) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/bridgecore-capital-provides-15m-acquisition-financing-for-florid/202627089)
+Pickup - [https://advos.io/en](https://advos.io/en/skan-group-nominates-digital-transformation-expert-to-board-amid/202627107)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/379717-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-grease-monkey-property)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/379943-skan-group-ag-nominates-digital-transformation-expert-dr-christian-schlogel-to-board-of-directors)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336827-bridgecore-capital-stellt-15-millionen-us-dollar-akquisitionsfinanzierung-fur-grease-monkey-immobilie-in-florida-bereit)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336845-skan-group-ag-nominiert-digitalisierungsexperten-dr-christian-schlogel-fur-den-verwaltungsrat)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337089-bridgecore-capital-proporciona-15-millones-en-financiamiento-de-adquisicion-para-propiedad-de-grease-monkey-en-florida)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337107-skan-group-ag-propone-al-experto-en-transformacion-digital-dr-christian-schlogel-para-su-consejo-de-administracion)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337747-bridgecore-capital-accorde-un-financement-dacquisition-de-15-million-de-dollars-pour-une-propriete-grease-monkey-en-floride)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337767-skan-group-ag-propose-lexpert-en-transformation-numerique-dr-christian-schlogel-au-conseil-dadministration)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336757-bridgecore-capital-fornece-financiamento-de-aquisicao-de-us-15-milhao-para-propriedade-da-grease-monkey-na-florida)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336776-skan-group-ag-nomeia-especialista-em-transformacao-digital-dr-christian-schlogel-para-o-conselho-de-administracao)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/379715-faq-bridgecore-capitals-15m-acquisition-financing-for-grease-monkey-property-in-florida)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/379941-faq-dr-christian-schlogels-nomination-to-skan-group-ag-board-of-directors)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/bridgecore-capital-provides-15-million-acquisition-financing-for/202627089)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/skan-group-ag-nominates-digital-transformation-expert-dr-christi/202627107)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bridgecore-capital-provides-15-million-acquisition-financing-for/202627089)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/skan-group-ag-nominates-digital-transformation-expert-dr-christi/202627107)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/379730-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-grease-monkey-property)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/379951-skan-group-ag-proposes-digital-transformation-expert-to-board-amid-strategic-shift)
 
-Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202601/379731-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-commercial-property)
-
-Pickup - [https://realestateradarflorida.com/newsramp](https://realestateradarflorida.com/newsramp/202601/379732-bridgecore-capital-provides-15-million-acquisition-financing-for-florida-commercial-property)
-
-Pickup - [https://realestateradarflorida.com/noticias](https://realestateradarflorida.com/noticias/202601/337090-bridgecore-capital-proporciona-financiamiento-de-adquisicion-de-15-millones-para-propiedad-comercial-en-florida)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/379955-skan-group-ag-nominates-digital-transformation-expert-to-board-amid-strategic-shift)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/26/zero3WvD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/26/lushf_lm.webp)
