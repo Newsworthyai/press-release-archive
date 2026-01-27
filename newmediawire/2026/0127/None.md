@@ -1,58 +1,72 @@
-# Mitesco, Inc. Announces RoboAgent Prototype Ready for Live Demo and Releases New Investor Introduction Video
+# Dr. Nicole Dolan, Depth Psychologist and Author, Signs With CMP Agent Alan Morell for Her Book THE ART OF CHAOS
 
-VERO BEACH, FL - January 27, 2026 (NEWMEDIAWIRE) - Mitesco, Inc. (OTC-QB: MITI) today announced that the Company’s RoboAgent™ platform prototype is now ready for live demonstration, marking a significant milestone in Mitesco’s product development roadmap. In conjunction with this progress, Mitesco has also released a new RoboAgent Investor Introduction Video designed to provide shareholders and prospective investors with a clear overview of the platform, target market opportunity, and planned commercialization strategy.
+CMP Will Represent Dr. Dolan Commercial Rights Across All Platforms
 
- RoboAgent is an AI-powered real estate productivity platform being developed to help agents and teams streamline lead follow-up, improve response times, and drive higher conversion rates through automation and intelligent workflows.
+ BEVERLY HILLS, CA - January 27, 2026 (NEWMEDIAWIRE) - Announced today, Dr. Nicole Dolan, psychologist and recognized expert in trauma-informed, integrative mental health, signs with CMP Agent Alan Morell for her book THE ART OF CHAOS, as well as her commercial rights monetized revenue streams. These include literary works, including a sequel to THE ART OF CHAOS, broadcast, adaptation of her book to a docuseries, speaking engagements, endorsements, advisory roles with online courses, and licensing of her Sacred Path Holistic Therapy model to wellness centers.
 
- “With the prototype ready for demo, we’re taking a major step forward in moving RoboAgent from development into market validation,” said Mack Leath, Chief Executive Officer of Mitesco, Inc. “Releasing our Investor Introduction Video is part of our commitment to transparent communication as we advance this initiative and build momentum toward commercialization.”
+ ABOUT DR. NICOLE DOLAN:
 
- The newly released Investor Introduction Video summarizes RoboAgent’s purpose, how it is expected to create value for real estate professionals, and how Mitesco views the opportunity to scale the platform through partnerships, integrations, and a recurring revenue model.
+ Dr. Nicole Dolan is a depth psychologist whose work explores how life’s disruptions, including trauma, identity loss, motherhood, neurodivergence, and major life transitions, serve as catalysts for deeper psychological integration and healing. Working at the intersection of trauma studies, nervous system science, and depth psychology, she approaches symptoms not as isolated pathology, but as meaningful signals pointing toward unmet needs, unresolved grief, and disowned or exiled aspects of the self seeking reintegration into wholeness.
 
- Prototype Demonstration Availability
+ Through her clinical practice, teaching, and writing, Dr. Dolan develops frameworks that help individuals and families move beyond survival toward greater coherence, capacity, and self-understanding. Her work emphasizes the importance of stabilizing the nervous system before engaging deeper psychological inquiry, allowing insight, meaning, and lasting change to emerge over time.
 
- Mitesco will begin scheduling controlled demo sessions with select stakeholders and prospective partners. The Company expects these sessions to help guide feature prioritization, validate user workflows, and support investor communications as the platform advances toward production readiness.
+ Dr. Dolan is the founder of Sacred Path Holistic Therapy, a multi-state nonprofit collective of more than 30 clinicians providing integrative, trauma-informed psychotherapy and clinical supervision. Through Sacred Path, she has developed and implemented models of care that translate depth psychology into practical, scalable systems supporting both clients and clinicians within contemporary mental health settings.
 
- Investor Introduction Video Now Available
+ Dr. Dolan holds a PhD in Depth Psychology and a Master’s degree in Counseling Psychology. She maintains clinical practices in Northern and Southern CA, provides professional training and direction, and is the author of the forthcoming memoir THE ART OF CHAOS.
 
- The RoboAgent Investor Introduction Video has been published as part of Mitesco’s investor communications initiative, offering a concise overview of the platform and its role within Mitesco’s broader growth strategy.
+ Relevant Links:
 
- https://www.youtube.com/watch?v=e_gxpk59oyU&list=UU04QHf_-M9QT12DX2hyfg4A
+ www.drnicoledolan.comhttps://www.drnicoledolan.com/abouthttps://www.sacredpathholistictherapy.com/about
 
- About Mitesco, Inc.
+ Said Author Dr. Nicole Dolan:“I am very excited about signing with CMP and Agent Alan Morell for my book and career commercial rights across CMP platforms. THE ART OF CHAOS is deeply meaningful to me because it is rooted in lived experience, both personal and clinical, and explores how experiences we are often taught to minimize or pathologize can instead serve as pathways into truth, meaning, and wholeness. The book reframes chaos not as something to fix or escape, but as an intelligent signal that invites deeper listening at the level of the nervous system, the psyche, and the soul. Whether the experience is trauma, loss, or raising a neurodivergent child, chaos becomes a universal pathway to the self and a guide for growth that is relevant across cultures and around the world.
 
- Mitesco (OTC-QB: MITI) is a growth-oriented technology company focused on platforms that improve efficiency, access, and affordability. With deep experience in business transformation, the company deploys capital toward both organic initiatives and strategic acquisitions that enhance shareholder value.
+ "Sacred Path Holistic Therapy represents the applied expression of this work in the world. Through Sacred Path, I have translated these principles into practical, scalable models of care that integrate mind, body, and soul while maintaining clinical rigor, accessibility, and depth.”
 
- Investor Contact:Jimmy CaplanEmail: jimmycaplan@me.comPhone: (512) 329-9505
+ Said Agent Alan Morell:“I am honored to represent Dr. Nicole Dolan. At CMP we represent over 200 Doctors in our 700+ roster across Ent. Sports, Arts, Music, Military, Medical Wellness, Business and Politics. In Medical Wellness we represent across every platform and many consider us the most powerful Medical Wellness Messaging company due to this Management of all the top Doctors of value in every profession and discipline. I was impressed with Dr. Dolan’s on camera Celebrity persona, which is a very important element here at CMP and her unique Book THE ART OF CHAOS which CMP will be bidding out to Publishers and positioning it to be a BEST Seller. Her work in Holistic Therapy is cutting edge and since we Advise multiple Medical Wellness Centers worldwide, it’s an ideal Licensing fit for our Agency.”
 
- About Centcore Data Center
+ About Alan Morell, CEO, Creative Management Partners LLC (CMP)
 
- Centcore, a division of Mitesco, Inc., provides secure, scalable cloud services tailored to modern enterprise and public sector needs. Located in Melbourne, FL, Centcore is a trusted provider across industries, offering certified infrastructure and high-availability solutions. See www.centcoreusa.com or contact:
+ Mr. Morell has over 40 years of global experience managing more than 3,700 campaigns in the development and management of talent, literary works, television and film packaging, commercial rights, corporate consulting, media positioning, sponsorship of live events, and intellectual property rights. He is among the few industry leaders whose clients have received prestigious awards including Grammy, Tony, Clio, Oscar, Emmy, ESPY, Telly, Victors, and New York Times Bestselling author recognition.
 
- Brian ValaniaEmail: bvalania@centcoreusa.comPhone: (610) 888-7509
+ Contact Information
 
- About Vero Technology Ventures
-
- Our venture arm invests in productivity-driven cloud technologies designed for business and government applications. Areas of focus include infrastructure, process automation, analytics, and data center tooling. Entrepreneurs seeking capital and collaboration are invited to connect at info@mitescoinc.com.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements, including, but not limited to, statements related to the expansion into new operations and software application development and managed services. Words such as "expects," "anticipates," "aims," "projects," "intends," "plans," "believes," "estimates," "seeks," "assumes," "may," "should," "could," "would," "foresees," "forecasts," "predicts," "targets," "commitments," and variations of such words and similar expressions are intended to identify such forward-looking statements. We caution you that the foregoing may not include all the forward-looking statements made in this press release.
-
- These forward-looking statements are based on the Company's current plans, assumptions, beliefs, and expectations. Forward-looking statements are subject to the occurrence of many events outside of the Company's control. Actual results and the timing of events may differ materially from those contemplated by such forward-looking statements due to numerous factors that involve substantial known and unknown risks and uncertainties. These risks and uncertainties include, among other things, the ability to obtain additional financing; the risk that commenced and threatened litigation may result in material judgments against the Company; and other risks and uncertainties included in the Company's reports on Forms 10-K, 10-Q, and 8-K and in other filings the Company makes with the Securities and Exchange Commission from time to time, available at www.sec.gov.
-
-View the original release on www.newmediawire.com 
+ Creative Management Partners LLC (CMP)Beverly Hills Gardens Building9440 Santa Monica Blvd., Suite 301Beverly Hills, CA 90210Direct Dial: 508-292-7900www.creativemanagementpartners.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/mitesco-inc-announces-roboagent-prototype-ready-for-live-demo-and-releases-new-investor-introduction-video-7085106)
+[Original/Source Press Release](https://www.newmediawire.com/news/dr-nicole-dolan-depth-psychologist-and-author-signs-with-cmp-agent-alan-morell-for-her-book-the-art-of-chaos-7085108)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mitesco-s-roboagent-ai-platform-hits-demo-milestone-unveils-investor-video/61fb20c32bacbabb2c23646a1cd2c504) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-nicole-dolan-signs-with-cmp-to-globalize-trauma-informed-mental-health-message/4c10eb77876a84f716f018adeabf369d) 
 
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/380731-faq-dr-nicole-dolan-signs-with-cmp-agent-alan-morell-for-the-art-of-chaos-and-commercial-rights)
+
+Pickup - [https://advos.io/en](https://advos.io/en/psychologist-dr-nicole-dolan-signs-with-cmp-for-book-and-commerc/202627148)
+
+Pickup - [https://news.bookretreat.com/book-news](https://news.bookretreat.com/book-news/202601/380826-cmp-secures-commercial-rights-for-psychologist-dr-nicole-dolans-work-across-multiple-platforms)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/380847-dr-nicole-dolan-signs-with-cmp-for-the-art-of-chaos-and-commercial-rights-representation)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336886-dr-nicole-dolan-unterzeichnet-vertrag-mit-cmp-fur-die-kunst-des-chaos-und-kommerzielle-rechtevertretung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337150-la-dra-nicole-dolan-firma-con-cmp-para-el-arte-del-caos-y-la-representacion-de-derechos-comerciales)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337809-la-dre-nicole-dolan-signe-avec-cmp-pour-lart-du-chaos-et-la-representation-de-ses-droits-commerciaux)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336817-dra-nicole-dolan-assina-com-a-cmp-para-a-arte-do-caos-e-representacao-de-direitos-comerciais)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/psychologist-dr-nicole-dolan-signs-with-cmp-for-book-and-commerc/202627148)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/depth-psychologist-dr-nicole-dolan-signs-with-cmp-for-book-and-c/202627148)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202601/380904-trauma-psychologists-representation-deal-expands-holistic-mental-health-approaches)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/380906-depth-psychologist-dr-nicole-dolan-signs-with-creative-management-partners-for-book-and-commercial-rights-representation)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/27/echoQJIp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/27/chefQs3T.webp)

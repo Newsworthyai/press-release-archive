@@ -1,33 +1,41 @@
-# DefenseNewsBreaks – ParaZero Technologies Ltd. (NASDAQ: PRZO) Expands European Footprint With New NATO-Aligned Reseller Agreement
+# Lahontan Gold Corp. (TSX.V: LG) (OTCQB: LGCXF) Is Advancing a Portfolio of Gold and Silver Assets in One of the Most Productive Regions
 
-ParaZero Technologies (NASDAQ: PRZO), an aerospace defense company focused on smart, autonomous solutions for manned and unmanned aerial systems, announced it has signed a new reseller agreement with a prominent Western European partner, including an initial purchase order for DefendAir training kits, further expanding its presence across NATO-aligned defense markets. The agreement builds on recent European momentum, including prior distribution partnerships and live demonstrations for senior NATO officers, and will support promotion and deployment of ParaZero’s DefendAir counter-drone system, a rapidly deployable, net-based C-UAS platform designed to neutralize hostile drones in battlefield, critical infrastructure and urban environments while accelerating operator training and operational readiness.
+Disseminated on behalf of Lahontan Gold Corp. (TSX.V: LG) (OTCQB: LGCXF) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/jVYtA
+ * Lahontan Gold Corp. holds multiple top-tier gold and silver exploration properties, including the company’s flagship property, the Santa Fe Mine project
+* The company recently announced the first results from the 2025 Phase Two drilling program at the Santa Fe project
+* Led by Founder, CEO, and President Kimberly Ann, the company has a strong management team and Board of Directors
 
- About ParaZero Technologies
+ Lahontan Gold (TSX.V: LG) (OTCQB: LGCXF), a mine exploration and development company that holds and controls a portfolio of gold and silver assets in one of the most mining-friendly parts of the world, the Walker Lane District in Nevada.
 
- ParaZero Technologies Ltd. (Nasdaq: PRZO) is an aerospace defense company pioneering smart, autonomous solutions for the global manned and unmanned aerial systems (UAS) industry. Founded in 2014 by aviation professionals and drone industry veterans, ParaZero is a recognized leader in advanced drone technologies, supporting commercial, industrial, and governmental operations worldwide. The company’s product portfolio includes SafeAir, an autonomous parachute recovery system designed for aerial safety and regulatory compliance; DefendAir, a counter-UAS net-launching platform for protection against hostile drones in both battlefield and urban environments; and DropAir, a precision aerial delivery system. ParaZero’s mission is to redefine the boundaries of aerial operations with intelligent, mission-ready systems that enhance safety, scalability, and security.
+ It focuses on unlocking oxide gold and silver value from infrastructure-rich projects that have produced in the past. Lahontan also aims to responsibly develop and expand these oxide resources and maximize…
 
- NOTE TO INVESTORS: The latest news and updates relating to PRZO are available in the company’s newsroom at https://ibn.fm/PRZO
+ Read More>>
 
- About DefenseWireNews
+ NOTE TO INVESTORS: The latest news and updates relating to LGCXF are available in the company’s newsroom at ibn.fm/LGCXF
 
- DefenseWireNews (“DWN”) is a specialized communications platform with a focus on defense contractors, aerospace firms, cybersecurity leaders, advanced manufacturing innovators, and other mission-critical companies operating at the intersection of public markets and government demand. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, DWN is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, DWN brings its clients unparalleled recognition and brand awareness. DWN is where breaking news, insightful content and actionable information converge.
+ About Rocks & Stocks
 
- To receive SMS alerts from DefenseWireNews, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://www.DefenseWireNews.com Please see full terms of use and disclaimers on the DefenseWireNews website applicable to all content provided by DWN, wherever published or re-published: https://www.DefenseWireNews.com/Disclaimer
+ R&S is where breaking news, insightful content and actionable information converge.
 
- DefenseWireNewsAustin, TXwww.DefenseWireNews.com512.354.7000 OfficeEditor@DefenseWireNews.com
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- DefenseWireNews is powered by IBN 
+ For more information, please visit https://RocksAndStocks.news
+
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/dwn/defensenewsbreaks-parazero-technologies-ltd-nasdaq-przo-expands-european-footprint-with-new-nato-aligned-reseller-agreement/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/lahontan-gold-corp-tsx-v-lg-otcqb-lgcxf-is-advancing-a-portfolio-of-gold-and-silver-assets-in-one-of-the-most-productive-regions/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/parazero-expands-nato-reach-with-european-defendair-deal/9a5ac62d7a28f8faea3ee74259bcd2cb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-announces-2025-drilling-results-at-santa-fe-project/88d2810d089123af299db4e24e5774dc) 
 
  
 
@@ -35,4 +43,4 @@ ParaZero Technologies (NASDAQ: PRZO), an aerospace defense company focused on sm
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/27/lunapkRQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/27/roamBs9s.webp)
