@@ -1,82 +1,30 @@
-# Virtuix (VTIX) Debuts On Nasdaq As It Brings Physical Movement To AI Worlds, Following Triple-Digit Revenue Growth
+# Datavault AI (DVLT) Explores Sports Illustrated Partnership for NIL Digital Asset Exchange
 
-DETROIT, MICHIGAN - January 28, 2026 (NEWMEDIAWIRE) - Virtuix Inc. (NASDAQ: VTIX), the developer of full-body virtual reality systems that’s taking the gaming, fitness and defense markets by storm, just debuted on Nasdaq.
+LOS ANGELES, CA - January 28, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), a provider of data monetization, credentialing, digital engagement, and real-world asset tokenization technologies, announced an agreement with Sports Illustrated to explore a potential collaboration on a digital asset exchange focused on athlete name, image and likeness monetization. The parties will evaluate development of a platform powered by Datavault AI proprietary, quantum-secure technology stack, including its patented Data Vault(R), DataScore(R), and DataValue(R) AI agents, smart contracts, and the Nasdaq Financial Framework-compatible Information Data Exchange(R), with the goal of a potential commercial launch in the second half of 2026. Datavault AI said the initiative aligns with accelerating regulatory clarity in the U.S. digital asset market and growing NIL and global sports endorsement opportunities, positioning the company to pursue compliant, scalable tokenization and trading of NIL assets for athletes, brands, agencies, and investors.
 
- Virtuix, which hails from Austin, TX, started nearly 13 years ago when founder and CEO Jan Goetgeluk, driven by a desire to walk naturally in virtual worlds instead of pushing buttons on a controller, began developing the “Omni” 360-degree treadmill. $50 million and lots of technological advancements later, the company is now publicly traded, and sports a market capitalization of $250 million.
+ To view the full press release, visit https://ibn.fm/clpdX
 
- It also reported that revenue for the six months ended September 30, 2025, was up 138% year-over-year after the company launched Omni One, its next-generation in-home gaming system. It doesn’t hurt that the company makes money from both the hardware as well as software for it. To date, Virtuix has brought three generations of products to market, generating over $20 million in sales.
+ About Datavault AI Inc.
 
- Just The Beginning
+ Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
 
- “We’re only getting started,” said Goetgeluk. “In a world where AI-powered 3D reconstruction techniques can rapidly generate photorealistic virtual environments, the missing piece is the ability to move through those worlds naturally. We pioneer the technology to make that possible. Going public provides us with access to capital to fund our growth and develop new products.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Alongside the Nasdaq listing, Virtuix secured an $11 million investment from Chicago Venture Partners and a $50 million equity line of credit dependent on certain conditions. Proceeds from these capital raises will go to scale the sales and marketing of Omni One. With production capacity in place to produce 3,000 units of Omni One per month, Virtuix says it has the potential to generate $100 million in annual revenue.
+ Forward Looking Statements
 
- Breaking Barriers With Advanced AI Tech
-
- Virtuix is breaking barriers by leveraging AI-driven 3D reconstruction techniques like Gaussian splatting to create digital twins of the real world. As an advanced 3D rendering and reconstruction technique, Gaussian splatting creates extremely realistic digital replicas by representing environments as millions of colored 3D Gaussians rather than traditional meshes.
-
- This enables super-fast creation of high-fidelity virtual worlds. By capturing aerial drone footage or 3D camera footage and uploading it to a computer, Virtuix can quickly generate a 1:1 digital replica of any area, as they demonstrated in this video.
-
- https://www.youtube.com/watch?v=xgP98l6VmHc
-
- Omni One is Virtuix’s in-home gaming system that is already resonating with consumers, as evidenced by the company’s 138% year-over-year revenue growth after officially launching the product in September 2024. This VR treadmill is designed to give players a fully immersive experience, allowing them to physically move through any virtual world. Omni One features a specialized surface and vest-like harness that lets you walk, run, crouch and jump in 360 degrees without ever moving from the center.
-
- The system replicates your real-world movements directly in the game, providing a level of physical freedom that traditional controllers can’t give users, says Virtuix. As a bonus, users get a workout. Omni One can turn a sedentary pastime like video gaming into a legitimate cardio workout without having to hit the gym, and the company claims one user has even been able to lose 40lbs in four months. By getting players to physically walk, run and crouch to play the game, the device helps players get exercise, and in many cases, a lot of it. The company likes to bill its device as the “Peloton of gaming.” The global VR gaming market is a big opportunity for Virtuix – one forecast has it growing from $50.71 billion in 2025 to $194.17 billion by 2030 – but that’s not the only area Virtuix is focused on. The company is also going after the defense industry, which is ideally suited for Virtuix’s Omni technology.
-
- Defense On The Menu
-
- Virtual Terrain Walk or VTW, which is currently in production, is one example. VTW lets commanders and their units walk through terrain before they are on the battlefield so they can get a lay of the land, plan reconnaissance missions and rehearse before they land on the battlefield. Test units are already in use at Yokota Air Force Base and the U.S. Air Force Academy, reports Virtuix.
-
- Virtuix said VTW overcomes the limitations of current simulation products that are expensive, limited to a few users or don’t allow for the ability to move around and deliver full immersion in 360 degrees. VTW allows for more than 12 soldiers to walk virtual terrain together with no physical boundaries and with full freedom of movement in 360 degrees.
-
- By leveraging AI-driven 3D reconstruction techniques, Virtuix is bringing physical movements to digital worlds. From its capital raise to its 138% revenue growth thanks to Omni One, Virtuix is transitioning from a visionary startup to a scalable powerhouse. With Virtuix, investors are getting in at the ground floor of a tech company that’s bringing reality to the virtual world through a two-pronged approach, targeting the mass market for volume and the defense industry for margins. To learn more about Virtuix, click here.
-
- Featured image courtesy of Virtuix Inc.
-
- This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
-
- This content was originally published on Benzinga. Read further disclosures here.
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/virtuix-vtix-debuts-on-nasdaq-as-it-brings-physical-movement-to-ai-worlds-following-triple-digit-revenue-growth-7085124)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-explores-sports-illustrated-partnership-for-nil-digital-asset-exchange-7085135)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/virtuix-debuts-on-nasdaq-revolutionizing-vr-with-full-body-movement-tech/c0b4343be3d74cb9d4c70f3f715ed48f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-sports-illustrated-partner-on-athlete-digital-asset-exchange/664c0a23376780ea02cbb5bdb569d069) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202601/381784-virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from-vr-treadmill-systems)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336940-virtuix-geht-nach-138-umsatzwachstum-mit-vr-laufbandsystemen-an-die-nasdaq)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337205-virtuix-se-hace-publica-en-nasdaq-tras-un-crecimiento-del-138-en-ingresos-por-sus-sistemas-de-cintas-de-correr-para-realidad-virtual)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337874-virtuix-entre-en-bourse-sur-le-nasdaq-apres-une-croissance-de-138-de-ses-revenus-grace-a-ses-tapis-roulants-vr)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336870-virtuix-entra-na-nasdaq-apos-crescimento-de-138-na-receita-com-sistemas-de-esteira-vr)
-
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381772-faq-virtuix-vtix-nasdaq-debut-omni-one-vr-system-and-ai-powered-virtual-worlds)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/381817-virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from-immersive-vr-treadmill)
-
-Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/202601/381888-virtuix-goes-public-on-nasdaq-expanding-vr-technology-across-gaming-fitness-and-defense)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/381893-virtuix-goes-public-on-nasdaq-driving-growth-in-full-body-vr-technology)
-
-Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/202601/381900-virtuixs-nasdaq-debut-signals-growth-in-ai-driven-vr-technology-with-gaming-and-defense-applications)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/apex1HAE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/lossUFLj.webp)

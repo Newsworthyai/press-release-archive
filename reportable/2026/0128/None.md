@@ -1,50 +1,52 @@
-# First Orion Named Gold Winner by Juniper Research for Best Robocalling Mitigation Solution in the 2025 Future Digital Awards
+# UGI Requests Increase in Natural Gas Base Rates
 
-NORTH LITTLE ROCK, Ark., Jan. 28, 2026
+for immediate release - january 28, 2026
 
-First Orion, a leading provider of branded communications solutions, today announced it has been named a Gold Winner in the Juniper Research Future Digital Awards for Telco Innovation in the Best Robocalling Mitigation Solution category. The annual Future Digital Awards recognize organizations that have made outstanding contributions to the advancement of digital technologies and demonstrated a proven ability to deliver meaningful impact to customers.
+UGI Utilities, Inc. - Gas Division (UGI) filed a request today with the Pennsylvania Public Utility Commission (PUC) to increase its base rates for residential, commercial, and industrial customers by $99.4 million annually. The proposed increase would recover UGI’s investment in system upgrades and maintain safe and reliable natural gas service.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* First Orion, a leading provider of branded communications solutions, today announced it has been named a Gold Winner in the Juniper Research Future Digital Awards for Telco Innovation in the Best Robocalling Mitigation Solution category.
-* The annual Future Digital Awards recognize organizations that have made outstanding contributions to the advancement of digital technologies and demonstrated a proven ability to deliver meaningful impact to customers.
-* First Orion earned this top honor for its SENTRY® Call Blocking solution, which detects and blocks robocalls, spoofed calls, and emerging fraud attempts in real time.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-requests-increase-in-natural-gas-base-rates)UGI Utilities, Inc. - Gas Division serves more than 700,000 customers in 46 counties across Pennsylvania. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-About First OrionAs a market leader in branded communication solutions, First Orion elevates the phone call and messaging experiences for businesses, carriers, and consumers. First Orion offers a comprehensive suite of branded communications solutions to improve customer engagement, enhance security and transparency, and provide actionable insights. In addition to branded calling and messaging, First Orion empowers businesses with advanced analytics to optimize call programs, real-time fraud detection to protect their customers, and other innovative solutions that enable enterprises to provide trust and transparency at scale. First Orion is a valued partner to Fortune 500 companies and is integrated into the largest U.S. mobile carriers. For more information, firstorion.com.
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Contacts:Katherine Waite katherine@triercompany.com
-
-Source: First Orion
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://first-orion.reportablenews.com/pr/first-orion-named-gold-winner-by-juniper-research-for-best-robocalling-mitigation-solution-in-the-2025-future-digital-awards)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-requests-increase-in-natural-gas-base-rates)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/first-orion-wins-gold-for-robocall-mitigation-solution/6467c327eaf8940b4dd07a08c63c5e85) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-seeks-99-4-million-rate-hike-for-pa-gas-customers/c00193e70e8e27e70601b26161b4ae86) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/first-orion-wins-gold-award-for-robocall-mitigation-technology/202627210)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381961-faq-ugis-proposed-natural-gas-base-rate-increase-in-pennsylvania)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/381870-first-orion-wins-gold-in-juniper-research-awards-for-robocall-mitigation-solution)
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-seeks-994-million-annual-rate-increase-for-pennsylvania-natu/202627216)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336947-first-orion-gewinnt-gold-bei-den-juniper-research-awards-fur-robocall-minderungslosung)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/381985-ugi-utilities-seeks-994-million-annual-rate-increase-for-pennsylvania-natural-gas-customers)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337213-first-orion-gana-el-oro-en-los-premios-juniper-research-por-su-solucion-de-mitigacion-de-llamadas-automatizadas)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336953-ugi-utilities-beantragt-jahrliche-tariferhohung-von-994-millionen-us-dollar-fur-erdgaskunden-in-pennsylvania)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337881-first-orion-remporte-lor-aux-juniper-research-awards-pour-sa-solution-de-mitigation-des-appels-automatises)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337219-ugi-utilities-solicita-un-aumento-anual-de-994-millones-en-las-tarifas-para-los-clientes-de-gas-natural-en-pensilvania)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381842-faq-first-orions-gold-award-for-robocall-mitigation-solution)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337888-ugi-utilities-demande-une-augmentation-annuelle-de-994-millions-de-dollars-des-tarifs-pour-les-clients-gaziers-de-pennsylvanie)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/first-orion-wins-gold-award-for-robocall-mitigation-technology/202627210)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336885-ugi-utilities-solicita-aumento-anual-de-us-994-milhoes-nas-tarifas-para-clientes-de-gas-natural-na-pensilvania)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/first-orion-wins-gold-award-for-robocall-mitigation-technology/202627210)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ugi-files-994-million-rate-increase-request-with-pennsylvania-re/202627216)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ugi-utilities-seeks-994-million-annual-rate-increase-for-pennsyl/202627216)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/382016-ugi-utilities-seeks-994-million-annual-rate-increase-in-pennsylvania)
+
+Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/202601/382018-ugi-utilities-seeks-994-million-annual-rate-increase-in-pennsylvania)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/28/archos9q.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/261/28/facerrml.webp)

@@ -1,38 +1,64 @@
-# InvestorNewsBreaks – Solowin Holdings (NASDAQ: AXG) Subsidiary Receives In-Principle Stablecoin License Approval From Bahrain Central Bank
+# MissionIRNewsBreaks – POET Technologies Inc. (NASDAQ: POET) Announces $150 Million Registered Direct Offering
 
-Solowin (NASDAQ: AXG), a financial technology company bridging traditional and digital assets, announced that AX Coin, the stablecoin issuance entity under its AlloyX Group subsidiary, has received an in-principle approval letter for a stablecoin license from the Central Bank of Bahrain, subject to final regulatory approval. The company said the approval follows several months of regulatory engagement and positions AlloyX Group to pursue the launch of a compliant stablecoin within Bahrain’s regulatory framework, supporting the expansion of its stablecoin ecosystem across the Middle East and Africa region and internationally
+POET Technologies (NASDAQ: POET), a provider of highly integrated optical engines and light sources for artificial intelligence networks, announced that it has entered into securities purchase agreements with institutional investors for a registered direct offering of 20,689,656 common shares, expected to generate approximately $150 million in gross proceeds before expenses. The offering is expected to close on or about Jan. 23, 2026, subject to customary closing conditions, and is being conducted pursuant to an automatic shelf registration statement on Form F-3 that became effective Jan. 22, 2026. The company said it intends to use the net proceeds for corporate development initiatives, including targeted acquisitions, expanded research and development, acceleration of its high-speed optical module and light source businesses, operational expansion, and general working capital, with Titan Partners, a division of American Capital Partners, acting as sole placement agent.
 
- To view the full press release, visit https://ibn.fm/9cdZb
+ To view the full press release, visit https://ibn.fm/MIiUx
 
- About Solowin Holdings
+ About POET Technologies Inc.
 
- Solowin Holdings (NASDAQ: AXG) is a global leading financial technology firm focused on digital currency payments and asset tokenization. Founded in 2016, it has dedicated to bridging traditional and decentralized finance by building a secure, efficient and compliant financial infrastructure that provides integrated digital asset solutions for global investors and institutions. Leveraging its Hong Kong Securities and Futures Commission (SFC)-licensed subsidiary Solomon JFZ (Asia) Holdings Limited, along with other key subsidiaries such as AlloyX Group and AX Coin, the Company has developed a multi-jurisdictional, vertically integrated, enterprise-grade new financial platform encompassing global stablecoin payments, corporate treasury and private wealth management and tokenization as a service. Backed by leading international institutional investors, the Company manages compliant and transparent digital assets that are closely connected to the real economy. The Company is committed to establishing itself as a leading global digital asset financial platform, driving the seamless convergence of traditional finance and the digital assets ecosystem.
+ POET is a design and development company offering high-speed optical engines, light source products and custom optical modules to the artificial intelligence systems market and to hyperscale data centers. POET’s photonic integration solutions are based on the POET Optical Interposer(TM), a novel, patented platform that allows the seamless integration of electronic and photonic devices into a single chip using advanced wafer-level semiconductor manufacturing techniques. POET’s Optical Interposer-based products are lower cost, consume less power than comparable products, are smaller in size and are readily scalable to high production volumes. In addition to providing high-speed (800G, 1.6T and above) optical engines and optical modules for AI clusters and hyperscale data centers, POET has designed and produced novel light source products for chip-to-chip data communication within and between AI servers, the next frontier for solving bandwidth and latency problems in AI systems. POET’s Optical Interposer platform also solves device integration challenges across a broad range of communication, computing and sensing applications. POET is headquartered in Toronto, Canada, with operations in Singapore, Penang, Malaysia and Shenzhen, China. More information about POET is available on our website at www.poet-technologies.com.
 
- NOTE TO INVESTORS: The latest news and updates relating to AXG are available in the company’s newsroom at https://ibn.fm/SWIN
+ For more information, visit https://www.poet-technologies.com/
 
- About InvestorWire
+ About MissionIR
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://www.InvestorWire.com
+ MIR is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ For more information, please visit www.MissionIR.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
 
- InvestorWire is powered by IBN 
+ MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
+
+ MissionIR is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-solowin-holdings-nasdaq-axg-subsidiary-receives-in-principle-stablecoin-license-approval-from-bahrain-central-bank/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-poet-technologies-inc-nasdaq-poet-announces-150-million-registered-direct-offering/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solowin-s-ax-coin-gains-bahrain-stablecoin-license-approval-expanding-digital-finance/1e158536e507ab5610c22bdf73a6b22d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/poet-technologies-secures-150m-in-direct-offering-to-fuel-ai-optical-innovation/9f95ce7d659c93049134dab9079aeee3) 
 
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/382019-faq-poet-technologies-150-million-registered-direct-offering)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/382036-poet-technologies-secures-150-million-in-registered-direct-offering-for-ai-optical-technology-expansion)
+
+Pickup - [https://advos.io/en](https://advos.io/en/poet-technologies-secures-150-million-in-institutional-funding-t/202627220)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/382041-poet-technologies-announces-150-million-registered-direct-offering-to-accelerate-ai-optical-technology-development)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336957-poet-technologies-kundigt-registrierte-direktplatzierung-in-hohe-von-150-millionen-us-dollar-an-um-die-entwicklung-von-ki-optiktechnologie-zu-beschleunigen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337224-poet-technologies-anuncia-oferta-directa-registrada-de-150-millones-de-dolares-para-acelerar-el-desarrollo-de-tecnologia-optica-para-ia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337892-poet-technologies-annonce-une-offre-directe-enregistree-de-150-millions-de-dollars-pour-accelerer-le-developpement-de-sa-technologie-optique-pour-lia)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336889-poet-technologies-anuncia-oferta-direta-registrada-de-us-150-milhoes-para-acelerar-o-desenvolvimento-de-tecnologia-optica-para-ia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/poet-technologies-secures-150-million-in-institutional-funding-t/202627220)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/poet-technologies-announces-150-million-registered-direct-offeri/202627220)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202601/382048-poet-technologies-secures-150-million-in-direct-offering-to-advance-ai-optical-integration)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/382065-poet-technologies-secures-150-million-in-registered-direct-offering-to-advance-ai-optical-integration)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/28/mint66BN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/28/mendgfOZ.webp)
