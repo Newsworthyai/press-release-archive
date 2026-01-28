@@ -1,46 +1,40 @@
-# Lahontan Gold Corp. (TSX.V: LG) (OTCQB: LGCXF) Is Advancing a Portfolio of Gold and Silver Assets in One of the Most Productive Regions
+# 420 with CNW — Medical Cannabis Sales Set New Arkansas Record in 2025
 
-Disseminated on behalf of Lahontan Gold Corp. (TSX.V: LG) (OTCQB: LGCXF) and may include paid advertising.
+Medical cannabis sales in Arkansas reached a new high in 2025. According to data released by the state finance department, patients spent $291.1 million at licensed dispensaries during the year. That total represents a 5.5% increase from 2024 and surpasses the prior record of $283 million achieved in 2023.
 
- * Lahontan Gold Corp. holds multiple top-tier gold and silver exploration properties, including the company’s flagship property, the Santa Fe Mine project
-* The company recently announced the first results from the 2025 Phase Two drilling program at the Santa Fe project
-* Led by Founder, CEO, and President Kimberly Ann, the company has a strong management team and Board of Directors
-
- Lahontan Gold (TSX.V: LG) (OTCQB: LGCXF), a mine exploration and development company that holds and controls a portfolio of gold and silver assets in one of the most mining-friendly parts of the world, the Walker Lane District in Nevada.
-
- It focuses on unlocking oxide gold and silver value from infrastructure-rich projects that have produced in the past. Lahontan also aims to responsibly develop and expand these oxide resources and maximize…
+ The success being witnessed in Arkansas is welcome to the entire marijuana industry in and outside the country, including firms like Green Thumb Industries Inc. (CSE: GTII) (OTCQX: GTBIF)…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to LGCXF are available in the company’s newsroom at ibn.fm/LGCXF
+ About CNW420
 
- About Rocks & Stocks
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- R&S is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- For more information, please visit https://RocksAndStocks.news
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
-
- Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
-
- Rocks & Stocks is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/lahontan-gold-corp-tsx-v-lg-otcqb-lgcxf-is-advancing-a-portfolio-of-gold-and-silver-assets-in-one-of-the-most-productive-regions/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-medical-cannabis-sales-set-new-arkansas-record-in-2025/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-announces-2025-drilling-results-at-santa-fe-project/88d2810d089123af299db4e24e5774dc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arkansas-medical-cannabis-sales-hit-record-291m-in-2025/386b3845f21859cf3357555a51a68185) 
 
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381153-faq-arkansas-medical-cannabis-sales-record-in-2025-and-cnw420-coverage)
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202601/381184-arkansas-medical-cannabis-sales-reach-record-2911-million-in-2025)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/27/roamBs9s.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/27/hintaBcE.webp)
