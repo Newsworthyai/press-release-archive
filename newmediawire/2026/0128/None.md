@@ -1,132 +1,102 @@
-# The 19th Asian Financial Forum Concludes Successfully
+# Being a Night Owl may Increase Your Heart Risk
 
-AFF Draws 4,000+ Global Political and Business Leaders, Inaugural Global Business Summit Showcases Hong Kong's Strengths in Financially Empowering Industry
+Research Highlights:
 
- HONG KONG - January 27, 2026 (NEWMEDIAWIRE) - The 19th Asian Financial Forum (AFF), jointly organised by the Hong Kong SAR (HKSAR) Government and Hong Kong Trade Development Council (HKTDC), concluded successfully today. The forum attracted an enthusiastic response, drawing over 4,000 leaders from governments and business sectors across over 60 countries and regions. Over the two-day forum, over 150 financial officials, leaders of multilateral organisations, representatives from financial institutions and enterprises took the stages as speakers. The forum also launched the inaugural Global Business Summit to further integrate finance with key industries, driving innovation and economic development, while injecting strong momentum into Hong Kong as it embarks on a new chapter in the year ahead by strengthening its role through financial empowerment.
+ * Middle-aged and older adults - particularly women - who are naturally more active in the evenings may have worse cardiovascular health, as measured by the American Heart Association’s Life’s Essential 8 metric, in comparison to peers without a strong morning or evening preference.
+* Unhealthy behaviors among the night owls, such as poor diet quality, insufficient sleep and smoking, may account for their lower cardiovascular health profile, according to the analysis of data from the UK Biobank.
+* Helping night owls improve their lifestyle habits may lower their risk for heart attack and stroke, researchers said.
 
- The Asian Financial Forum kicked off International Financial Week 2026, marking the first significant financial event in the region this year. AFF’s various sessions, including Plenary Sessions, Keynote Luncheons, a Breakfast Panel and thematic workshops, were all well attended. Guests engaged actively in exchanges on a wide range of trending topics, offering valuable insights and forward-looking perspectives.
+ DALLAS - January 28, 2026 (NEWMEDIAWIRE) - Middle-aged and older adults who were more active in the evenings had poorer cardiovascular health compared to their peers who were more active during the day. This may be especially true among women, according to new research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
 
- At the Keynote Luncheon on the first day of AFF, Dr Jose Manuel Barroso, Former President of the European Commission, Former Prime Minister of Portugal, and the Chairman of the Advisory Board of Goldman Sachs International, delivered a keynote speech on Hong Kong’s pivotal role in fostering regional cooperation and how Asia can draw on Europe’s experience to deepen economic integration. Dr Barroso said: “What we are seeing now is a technological race. This creates instability. And so, the major companies in the world - American, European, but also in Asia - the leaders want to see how they can position their corporations in a favourable position facing the geopolitical risk and the technological risk.”
+ Researchers reviewed health data for more than 300,000 adults (average age of about 57 years) participating in the UK Biobank to assess how chronotypes - an individual’s natural preference for sleep-wake timing - impacted their cardiovascular health.
 
- Furthermore, at the Panel Discussion on Global Economic Outlook, Dr Zhu Min, Member of the Senior Expert Advisory Committee of the China Center for International Economic Exchanges (CCIEE), spoke about the opportunities that renminbi internationalisation will bring to Hong Kong. He said: “I see competition among the three major currencies. RMB internationalisation requires liquidity and a bond market - Hong Kong is perfectly positioned to provide this service.”
+ About 8% of participants said they were “definitely evening people,” which was characterized by having a late-night bedtime (for example 2 a.m.) and peak activity later in the day. Self-reported “definitely morning people,” who were more active earlier in the day and had earlier bedtimes (for example 9 p.m.), made up about 24% of participants. About 67% of participants were classified as “intermediate” chronotype if they said they were unsure, or if said they were neither a morning person nor an evening person.
 
- At the forum yesterday, the Financial Services and the Treasury Bureau signed a cooperation agreement with the Shanghai Gold Exchange, marking a significant milestone in strengthening collaboration between the Hong Kong and Shanghai gold markets. The agreement established a high-level cooperative governance framework for Hong Kong’s central gold clearing system, explored opportunities for coordinated development of physical infrastructure, and enhanced market connectivity. This initiative represented an important step forward in Hong Kong’s development as an international gold trading hub.
+ Cardiovascular health was measured according to the American Heart Association’s Life’s Essential 8™ metrics, which note health behaviors and health factors associated with optimal cardiovascular health. The metrics include a healthy diet, regular physical activity, not smoking, good sleep quality, as well as healthy levels for weight, cholesterol, blood sugar and blood pressure.
 
- The inaugural Global Business Summit, co-organised by the Financial Services and the Treasury Bureau of the HKSAR Government, HKTDC and the Office for Attracting Strategic Enterprises (OASES), was held today as part of AFF. The summit opened with welcome remarks delivered by Paul Chan, Financial Secretary of the HKSAR Government, and Prof Frederick Ma, Chairman of the HKTDC.
+ The analysis found:
 
- Prof Ma said: “Financial services help industries and investors maximise their investments and their impact. This will have far-reaching benefits, supporting continued technological breakthroughs, as well as closer integration and sustainable development. In this sense, the Global Business Summit reflects the greater emphasis we are placing on co-creation at this year’s AFF. In these unpredictable times, working together on shared goals adds to the agility and resilience of our economies, our industries and businesses, and our communities. Hong Kong, under the “One Country, Two Systems” arrangement, is perfectly suited to host these conversations and promote cross-sector collaboration, as a superconnector, super value-adder and supercollaborator. Our city is home to businesses from around the world. It is a bustling two-way gateway between the Chinese Mainland and the rest of the world - helping high-growth enterprises from the Chinese Mainland to go global, while enabling high-growth foreign enterprises to enter China.”
+ * Compared to intermediate chronotypes, “evening people” or night owls had a 79% higher prevalence of having an overall poor cardiovascular health score.
+* Night owls had a 16% higher risk of having a heart attack or stroke over a median of about 14 years follow-up, compared to people within the intermediate category.
+* Evening chronotype was more strongly related to low cardiovascular health scores in women than in men.
+* Much of the increased risk of heart disease among evening people was due to poor heart health habits and factors, especially nicotine use and inadequate sleep.
+* In contrast, “morning people,” or early birds, had a 5% lower prevalence of low heart health scores compared with those without a strong morning or evening chronotype.
 
- A Pledging Ceremony today demonstrated the commitment of HKSAR Government, the HKTDC and AFF Partners in working together to assist Chinese Mainland enterprises in going global via the Hong Kong platform and to integrate into overall national development. AFF Partners included EY, HSBC, Bank of China (Hong Kong), Standard Chartered, UBS, CICC, Huatai Securities, Bank of Communication (Hong Kong) and China CITIC Bank International. During the summit, a series of plenary sessions were held, including Business Plenary I - Chinese Mainland Enterprises Going Global, and Business Plenary II - Strategic Collaboration for Shared Growth, focusing on the latest opportunities in global market expansion and inbound foreign investment.
+ “‘Evening people’ often experience circadian misalignment, meaning their internal body clock may not match the natural day-to-night light cycle or their typical daily schedules,” said lead study author Sina Kianersi, Ph.D., D.V.M.; a research fellow in the division of sleep and circadian disorders at Brigham and Women’s Hospital and Harvard Medical School, both in Boston. “Evening people may be more likely to have behaviors that can affect cardiovascular health, such as poorer diet quality, smoking and inadequate or irregular sleep.”
 
- In Business Plenary I - Chinese Mainland Enterprises Going Global, chaired by Victor Chu, Chairman and Chief Executive Officer, First Eastern Investment Group, and prominent business leaders from XPENG, Zhejiang Geely Holding Group, LONGi Green Energy, Wusawa Advisory, Alibaba Group, Seres Group, and Shanghai Industrial Investment (Holdings), discussed how Chinese Mainland enterprises are formulating global expansion strategies amid shifts in the macroeconomic landscape. The speakers explored challenges these companies face and emerging opportunities in their pursuit of international growth.
+ The study finding are not all bad news for night owls, according to Kristen Knutson, Ph.D., FAHA, volunteer chair of the 2025 American Heart Association statement, Role of Circadian Health in Cardiometabolic Health and Disease Risk. Knutson was not involved in this research.
 
- Leading global investment institutions and business executives shared their observations and strategies for entering the Chinese Mainland market in Business Plenary II - Strategic Collaboration for Shared Growth. With national policies promoting stronger domestic demand and high-quality development, the Chinese Mainland offers abundant opportunities for international enterprises to expand cross-border collaboration and deepen their positions along industry value chains. The session featured remarks by Liu Haoling, President, China Investment Corporation and was chaired by Lincoln Pan, Chief Executive Officer, Jardine Matheson. Speakers included representatives from Banking Circle, Infineon AG, Investcorp, JP Morgan, Revolut and Triton Partners. They engaged in an in-depth discussion on how international companies can develop new business roadmaps in the Chinese Mainland through investment, partnerships and joint ventures. They examined Hong Kong’s critical role as a gateway for international enterprises entering the Chinese Mainland market.
+ “These findings show that the higher heart disease risks among evening types are partly due to modifiable behaviors such as smoking and sleep. Therefore, evening types have options to improve their cardiovascular health,” she said. “Evening types aren’t inherently less healthy, but they face challenges that make it particularly important for them to maintain a healthy lifestyle.”
 
- During the session, Mohammed Alardhi, Executive Chairman, Investcorp, said: “The China-Gulf Cooperation Council corridor is vital. We’re connecting companies throughout the corridor, implementing Chinese technology there, and buying Chinese vehicles for logistics. It bridges the world’s second-largest economy and the Gulf region, which is transforming with vast opportunities and capital. When you compare the valuations of Chinese companies and technologies with those from the West, there’s no comparison. There is a significant appetite in the Gulf region to partner with them.”
+ The American Heart Association scientific statement Knutson led suggests that individual chronotype should be considered in guiding the timing of interventions or treatment.
 
- The summit featured a series of discussion sessions covering high-growth, high-value sectors, including biomedicine and healthcare, green energy, new consumer trends, artificial intelligence and robotics. The speaker lineup was powerful. In the session titled “Biomedicine 2026: Trends, Challenges and Opportunities”, Amgen and Merck highlighted key challenges facing the industry; notably the high cost and lengthy cycles of R&D. They emphasised the need to build diversified and internationalised financing channels, enabling financial services to play an empowering, multiplier role in accelerating technological translation and commercialisation.
+ “Some medications or therapies work best when they align with a specific time of relevant circadian rhythms, and this time will vary depending on whether you are a morning, intermediate, or evening chronotype,” she said. “Targeted programs for people who naturally stay up late could help them improve their lifestyle behaviors and reduce their risk of cardiovascular disease.”
 
- The sessions “AI Infrastructure: Powering the Intelligent Supply Chain” and “AI Driven Robotics and Autonomous Technologies Revolutionising Industry” featured a who’s who of business leaders with speakers from DexForce Technology, JD.com and Pictet Group discussing scalable application strategies, key investment priorities and growth momentum generated through ecosystem collaboration. The latter session, chaired by Dr Allan Wong, Chairman and Group Chief Executive Officer, VTech Holdings Limited; leaders from AI² Robotics, Galbot and Tencent offered forward looking insights into how AI driven robotics can integrate into the real economy, transforming sectors such as healthcare, manufacturing and services, while creating entirely new investment opportunities.
+ Main limitations of the study include that most UK Biobank participants were white people and generally healthier than the broader population, which may limit how well the findings apply to other groups. In addition, evening vs. morning preference was measured only once and was self-reported.
 
- Polling on Future Technology Trends and Asset Allocation Strategies
+ Co-authors, disclosures and funding sources are listed in the manuscript. The study was partially funded by the American Heart Association.
 
- AFF conducted real-time polling across multiple sessions to gauge participants’ views on the global economic outlook, their expectations for future financial and technological trends, and their asset-allocation strategies. More than 70% of attendees were neutral to optimistic about the global economic outlook for this year. Meanwhile, 51.2% of participants believed that in today’s rapidly evolving international landscape, priority should be given to developing artificial intelligence and AI-driven applications, followed by energy transition and sustainable development (20.3%).
+ Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
 
- Onsite deal-making sessions and online platform extend outcomes
+ Additional Resources:
 
- The HKTDC has long positioned AFF as a vital platform for facilitating international investment and driving substantive cooperation, proactively connecting enterprises with potential partners and providing business-matching opportunities. During the forum, HKTDC and the Hong Kong Venture Capital and Private Equity Association continued to co-organise AFF Deal-making. This year, AFF Deal-making attracted over 280 investors and over 600 investment projects, resulting in more than 800 one-on-one meetings that successfully connected global capital with investment opportunities. Among them, a returning participant from Thailand, who joined the event to explore new funding sources and co-investment opportunities, said he was pleased to have met several promising potential partners. An Australian food processing project owner also reported positive outcomes, noting that the platform helped identify potential partners who can provide support beyond financial investment, including practical expertise and technical guidance. The matching services will move online on Wednesday 28 and Thursday 29 January, allowing investors and project owners to continue connecting via the online platform.
+ * Multimedia is available on the right column of release link.
+* Access the full manuscript here.
+* American Heart Association health information: How healthy are you? Use the Life’s Essential 8™ My Life Check Calculator to find out and get personalized tips to set your own health goals
+* American Heart Association initiative: Join the Movement to be Healthy for Good™
+* American Heart Association news release: Body clocks matter for heart health (Oct. 2025)
+* American Heart Association news release: Adults with heart-healthy metrics had better health from head to toe (July 2025)
+* American Heart Association news release: Following “Life’s Essential 8” checklist may slow biological aging by 6 years (Nov. 2023)
+* Follow American Heart Association/American Stroke Association news on X @HeartNews
+* Follow news from the Journal of the American Heart Association @JAHA_AHA
 
- This year’s Project Investment Sessions highlighted several strategically essential development initiatives in Hong Kong. These included the Northern Metropolis, which drives cross-sector collaboration and industry upgrading; SKYTOPIA, the Airport City development shaping the future international aviation hub at Hong Kong International Airport; and the Hong Kong–Shenzhen Innovation and Technology Park, which accelerates the growth of the I&T ecosystem in the Guangdong-Hong Kong-Macao Greater Bay Area. Representatives of the respective organisations presented the latest project updates and investment opportunities on-site, offering participants deeper insights into Hong Kong’s long-term plans for regional connectivity, innovation-driven development and infrastructure enhancement, underscoring the city’s unique strengths as a premier international investment destination.
+ About the American Heart Association
 
- In addition, on the first day of this year’s AFF, Hong Kong food-tech company Techvalue International and Australia’s Gryph Holdings signed a Memorandum of Understanding to establish a joint venture that will launch innovative plant-based products that can be prepared instantly with either cold or hot water. The collaboration was facilitated by the HKTDC Sydney Office, building on business connections the two parties developed through previous editions of AFF. The joint venture will first introduce its products in Papua New Guinea before gradually expanding into the Australian and New Zealand markets. It demonstrates Hong Kong’s pivotal role in enabling cross-border collaboration in food-tech innovation.
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- Four zones showcase new opportunities in innovation, sustainability and investment
+ For Media Inquiries and American Heart Association Perspective: 214-706-1173
 
- This year’s AFF featured four key thematic zones - the FutureGreen Showcase, FintechHK Start-up Salon, InnoVenture Salon and Global Investment Zone - bringing together some 150 exhibitors, including EY (AFF’s Knowledge Partner), HSBC, Bank of China (Hong Kong), Standard Chartered, CICC and Huatai Securities. The newly introduced FutureGreen Showcase highlighted the latest applications in green finance and green technology, fostering capital matching and collaboration with sustainable development projects. Exhibitors showcased solutions spanning green certification and standards, climate-risk assessment and reporting, carbon-credit trading and management, regulatory compliance and ESG monitoring, demonstrating robust market demand for green transformation across different sectors.
+ Bridgette McNeill: bridgette.mcneill@heart.org
 
- Two roundtable meetings were also held during AFF. The Hong Kong International Fundraising Roundtable 2026, held today, brought together senior executives from Chinese Mainland and overseas enterprises, as well as leaders from Hong Kong’s financial and professional services sectors, to discuss how to meet financing needs across various industries. The Attracting Strategic Enterprises: Roundtable on Hong Kong Opportunities held on the first day of the AFF was co-organised for the first time by the HKTDC and the OASES. The session provided a dedicated platform for key Chinese Mainland and international enterprises interested in establishing or expanding their presence in Hong Kong to connect with local financial and professional service providers.
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
- 2026 International Financial Week kicks off, showcasing Hong Kong as a leading international financial centre
-
- International Financial Week 2026 officially commenced on 26 January, featuring 14 industry events that span a wide range of globally watched financial and business topics, including ASEAN opportunities, digital finance, green finance, family offices, private equity and alternative investments. Together, these events underscore Hong Kong’s unique role as the region’s most comprehensive and diversified international financial centre.
-
- WebsitesAsian Financial Forum: https://www.asianfinancialforum.com/aff/
-
- Photos Download: https://bit.ly/3M8fWBl
-
- Media enquiries
-
- Yuan Tung Financial Relations
-
- Lousie Song
-
-Tel: (852) 3428 5690
-
-Email: lsong@yuantung.com.hk
-
- Tiffany Leung
-
-Tel: (852) 3428 2361
-
-Email: tleung@yuantung.com.hk
-
- HKTDC’s Communications & Public Affairs Department:
-
- Johnny Tsui
-
-Tel: (852) 2584 4395
-
-Email: johnny.cy.tsui@hktdc.org
-
- Jane Cheung
-
-Tel: (852) 2584 4137
-
-Email: jane.mh.cheung@hktdc.org
-
- Serena Cheung
-
-Tel: (852) 2584 4272
-
-Email: serena.hm.cheung.hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-19th-asian-financial-forum-concludes-successfully-7085114)
+[Original/Source Press Release](https://www.newmediawire.com/news/being-a-night-owl-may-increase-your-heart-risk-7085118)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-s-aff-2026-unites-global-leaders-launches-business-summit-for-financial-empowerment/f4fbf6d0b774e0a7895f7dcd59557cfe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/night-owls-face-higher-heart-risks-especially-women-study-finds/ec40485ce82e2733a6a86401fc9dcdaa) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381301-faq-the-19th-asian-financial-forum-aff-and-inaugural-global-business-summit)
+Pickup - [https://advos.io/en](https://advos.io/en/night-owl-chronotype-linked-to-higher-cardiovascular-risk-especi/202627192)
 
-Pickup - [https://advos.io/en](https://advos.io/en/19th-asian-financial-forum-concludes-highlighting-hong-kongs-rol/202627165)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381606-faq-night-owls-and-cardiovascular-health-risks)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/381313-19th-asian-financial-forum-concludes-with-focus-on-hong-kongs-role-in-global-finance-and-industry-integration)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/381610-evening-chronotype-linked-to-higher-cardiovascular-risk-particularly-among-women)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336902-19-asian-financial-forum-schliesst-mit-fokus-auf-hongkongs-rolle-in-globaler-finanzwelt-und-branchenintegration)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336929-abend-chronotyp-mit-hoherem-herz-kreislauf-risiko-verbunden-insbesondere-bei-frauen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337167-el-19o-foro-financiero-asiatico-concluye-centrandose-en-el-papel-de-hong-kong-en-las-finanzas-globales-y-la-integracion-industrial)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337194-cronotipo-vespertino-vinculado-a-mayor-riesgo-cardiovascular-especialmente-en-mujeres)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337826-le-19e-forum-financier-asiatique-sacheve-en-mettant-laccent-sur-le-role-de-hong-kong-dans-la-finance-mondiale-et-lintegration-industrielle)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337853-le-chronotype-du-soir-associe-a-un-risque-cardiovasculaire-plus-eleve-particulierement-chez-les-femmes)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336833-19o-forum-financeiro-asiatico-conclui-com-foco-no-papel-de-hong-kong-na-integracao-financeira-e-industrial-global)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336860-cronotipo-noturno-associado-a-maior-risco-cardiovascular-especialmente-em-mulheres)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/381332-asian-financial-forum-2026-strengthens-hong-kongs-role-as-global-financial-hub-through-strategic-agreements-and-innovation-focus)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/evening-chronotype-linked-to-poorer-cardiovascular-health-especi/202627192)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/19th-asian-financial-forum-concludes-showcases-hong-kongs-role-i/202627165)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/381656-evening-chronotype-linked-to-poorer-cardiovascular-health-particularly-in-women)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/19th-asian-financial-forum-concludes-showcasing-hong-kongs-role/202627165)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/night-owls-face-higher-cardiovascular-risk-particularly-women-st/202627192)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/381689-evening-chronotype-linked-to-poorer-cardiovascular-health-particularly-in-women)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/gleec8tE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/waitN7Tv.webp)
