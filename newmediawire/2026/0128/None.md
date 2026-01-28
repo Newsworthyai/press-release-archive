@@ -1,102 +1,82 @@
-# Being a Night Owl may Increase Your Heart Risk
+# Virtuix (VTIX) Debuts On Nasdaq As It Brings Physical Movement To AI Worlds, Following Triple-Digit Revenue Growth
 
-Research Highlights:
+DETROIT, MICHIGAN - January 28, 2026 (NEWMEDIAWIRE) - Virtuix Inc. (NASDAQ: VTIX), the developer of full-body virtual reality systems that’s taking the gaming, fitness and defense markets by storm, just debuted on Nasdaq.
 
- * Middle-aged and older adults - particularly women - who are naturally more active in the evenings may have worse cardiovascular health, as measured by the American Heart Association’s Life’s Essential 8 metric, in comparison to peers without a strong morning or evening preference.
-* Unhealthy behaviors among the night owls, such as poor diet quality, insufficient sleep and smoking, may account for their lower cardiovascular health profile, according to the analysis of data from the UK Biobank.
-* Helping night owls improve their lifestyle habits may lower their risk for heart attack and stroke, researchers said.
+ Virtuix, which hails from Austin, TX, started nearly 13 years ago when founder and CEO Jan Goetgeluk, driven by a desire to walk naturally in virtual worlds instead of pushing buttons on a controller, began developing the “Omni” 360-degree treadmill. $50 million and lots of technological advancements later, the company is now publicly traded, and sports a market capitalization of $250 million.
 
- DALLAS - January 28, 2026 (NEWMEDIAWIRE) - Middle-aged and older adults who were more active in the evenings had poorer cardiovascular health compared to their peers who were more active during the day. This may be especially true among women, according to new research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
+ It also reported that revenue for the six months ended September 30, 2025, was up 138% year-over-year after the company launched Omni One, its next-generation in-home gaming system. It doesn’t hurt that the company makes money from both the hardware as well as software for it. To date, Virtuix has brought three generations of products to market, generating over $20 million in sales.
 
- Researchers reviewed health data for more than 300,000 adults (average age of about 57 years) participating in the UK Biobank to assess how chronotypes - an individual’s natural preference for sleep-wake timing - impacted their cardiovascular health.
+ Just The Beginning
 
- About 8% of participants said they were “definitely evening people,” which was characterized by having a late-night bedtime (for example 2 a.m.) and peak activity later in the day. Self-reported “definitely morning people,” who were more active earlier in the day and had earlier bedtimes (for example 9 p.m.), made up about 24% of participants. About 67% of participants were classified as “intermediate” chronotype if they said they were unsure, or if said they were neither a morning person nor an evening person.
+ “We’re only getting started,” said Goetgeluk. “In a world where AI-powered 3D reconstruction techniques can rapidly generate photorealistic virtual environments, the missing piece is the ability to move through those worlds naturally. We pioneer the technology to make that possible. Going public provides us with access to capital to fund our growth and develop new products.”
 
- Cardiovascular health was measured according to the American Heart Association’s Life’s Essential 8™ metrics, which note health behaviors and health factors associated with optimal cardiovascular health. The metrics include a healthy diet, regular physical activity, not smoking, good sleep quality, as well as healthy levels for weight, cholesterol, blood sugar and blood pressure.
+ Alongside the Nasdaq listing, Virtuix secured an $11 million investment from Chicago Venture Partners and a $50 million equity line of credit dependent on certain conditions. Proceeds from these capital raises will go to scale the sales and marketing of Omni One. With production capacity in place to produce 3,000 units of Omni One per month, Virtuix says it has the potential to generate $100 million in annual revenue.
 
- The analysis found:
+ Breaking Barriers With Advanced AI Tech
 
- * Compared to intermediate chronotypes, “evening people” or night owls had a 79% higher prevalence of having an overall poor cardiovascular health score.
-* Night owls had a 16% higher risk of having a heart attack or stroke over a median of about 14 years follow-up, compared to people within the intermediate category.
-* Evening chronotype was more strongly related to low cardiovascular health scores in women than in men.
-* Much of the increased risk of heart disease among evening people was due to poor heart health habits and factors, especially nicotine use and inadequate sleep.
-* In contrast, “morning people,” or early birds, had a 5% lower prevalence of low heart health scores compared with those without a strong morning or evening chronotype.
+ Virtuix is breaking barriers by leveraging AI-driven 3D reconstruction techniques like Gaussian splatting to create digital twins of the real world. As an advanced 3D rendering and reconstruction technique, Gaussian splatting creates extremely realistic digital replicas by representing environments as millions of colored 3D Gaussians rather than traditional meshes.
 
- “‘Evening people’ often experience circadian misalignment, meaning their internal body clock may not match the natural day-to-night light cycle or their typical daily schedules,” said lead study author Sina Kianersi, Ph.D., D.V.M.; a research fellow in the division of sleep and circadian disorders at Brigham and Women’s Hospital and Harvard Medical School, both in Boston. “Evening people may be more likely to have behaviors that can affect cardiovascular health, such as poorer diet quality, smoking and inadequate or irregular sleep.”
+ This enables super-fast creation of high-fidelity virtual worlds. By capturing aerial drone footage or 3D camera footage and uploading it to a computer, Virtuix can quickly generate a 1:1 digital replica of any area, as they demonstrated in this video.
 
- The study finding are not all bad news for night owls, according to Kristen Knutson, Ph.D., FAHA, volunteer chair of the 2025 American Heart Association statement, Role of Circadian Health in Cardiometabolic Health and Disease Risk. Knutson was not involved in this research.
+ https://www.youtube.com/watch?v=xgP98l6VmHc
 
- “These findings show that the higher heart disease risks among evening types are partly due to modifiable behaviors such as smoking and sleep. Therefore, evening types have options to improve their cardiovascular health,” she said. “Evening types aren’t inherently less healthy, but they face challenges that make it particularly important for them to maintain a healthy lifestyle.”
+ Omni One is Virtuix’s in-home gaming system that is already resonating with consumers, as evidenced by the company’s 138% year-over-year revenue growth after officially launching the product in September 2024. This VR treadmill is designed to give players a fully immersive experience, allowing them to physically move through any virtual world. Omni One features a specialized surface and vest-like harness that lets you walk, run, crouch and jump in 360 degrees without ever moving from the center.
 
- The American Heart Association scientific statement Knutson led suggests that individual chronotype should be considered in guiding the timing of interventions or treatment.
+ The system replicates your real-world movements directly in the game, providing a level of physical freedom that traditional controllers can’t give users, says Virtuix. As a bonus, users get a workout. Omni One can turn a sedentary pastime like video gaming into a legitimate cardio workout without having to hit the gym, and the company claims one user has even been able to lose 40lbs in four months. By getting players to physically walk, run and crouch to play the game, the device helps players get exercise, and in many cases, a lot of it. The company likes to bill its device as the “Peloton of gaming.” The global VR gaming market is a big opportunity for Virtuix – one forecast has it growing from $50.71 billion in 2025 to $194.17 billion by 2030 – but that’s not the only area Virtuix is focused on. The company is also going after the defense industry, which is ideally suited for Virtuix’s Omni technology.
 
- “Some medications or therapies work best when they align with a specific time of relevant circadian rhythms, and this time will vary depending on whether you are a morning, intermediate, or evening chronotype,” she said. “Targeted programs for people who naturally stay up late could help them improve their lifestyle behaviors and reduce their risk of cardiovascular disease.”
+ Defense On The Menu
 
- Main limitations of the study include that most UK Biobank participants were white people and generally healthier than the broader population, which may limit how well the findings apply to other groups. In addition, evening vs. morning preference was measured only once and was self-reported.
+ Virtual Terrain Walk or VTW, which is currently in production, is one example. VTW lets commanders and their units walk through terrain before they are on the battlefield so they can get a lay of the land, plan reconnaissance missions and rehearse before they land on the battlefield. Test units are already in use at Yokota Air Force Base and the U.S. Air Force Academy, reports Virtuix.
 
- Co-authors, disclosures and funding sources are listed in the manuscript. The study was partially funded by the American Heart Association.
+ Virtuix said VTW overcomes the limitations of current simulation products that are expensive, limited to a few users or don’t allow for the ability to move around and deliver full immersion in 360 degrees. VTW allows for more than 12 soldiers to walk virtual terrain together with no physical boundaries and with full freedom of movement in 360 degrees.
 
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ By leveraging AI-driven 3D reconstruction techniques, Virtuix is bringing physical movements to digital worlds. From its capital raise to its 138% revenue growth thanks to Omni One, Virtuix is transitioning from a visionary startup to a scalable powerhouse. With Virtuix, investors are getting in at the ground floor of a tech company that’s bringing reality to the virtual world through a two-pronged approach, targeting the mass market for volume and the defense industry for margins. To learn more about Virtuix, click here.
 
- Additional Resources:
+ Featured image courtesy of Virtuix Inc.
 
- * Multimedia is available on the right column of release link.
-* Access the full manuscript here.
-* American Heart Association health information: How healthy are you? Use the Life’s Essential 8™ My Life Check Calculator to find out and get personalized tips to set your own health goals
-* American Heart Association initiative: Join the Movement to be Healthy for Good™
-* American Heart Association news release: Body clocks matter for heart health (Oct. 2025)
-* American Heart Association news release: Adults with heart-healthy metrics had better health from head to toe (July 2025)
-* American Heart Association news release: Following “Life’s Essential 8” checklist may slow biological aging by 6 years (Nov. 2023)
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association @JAHA_AHA
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
 
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries and American Heart Association Perspective: 214-706-1173
-
- Bridgette McNeill: bridgette.mcneill@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ This content was originally published on Benzinga. Read further disclosures here.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/being-a-night-owl-may-increase-your-heart-risk-7085118)
+[Original/Source Press Release](https://www.newmediawire.com/news/virtuix-vtix-debuts-on-nasdaq-as-it-brings-physical-movement-to-ai-worlds-following-triple-digit-revenue-growth-7085124)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/night-owls-face-higher-heart-risks-especially-women-study-finds/ec40485ce82e2733a6a86401fc9dcdaa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virtuix-debuts-on-nasdaq-revolutionizing-vr-with-full-body-movement-tech/c0b4343be3d74cb9d4c70f3f715ed48f) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/night-owl-chronotype-linked-to-higher-cardiovascular-risk-especi/202627192)
+Pickup - [https://advos.io/en](https://advos.io/en/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381606-faq-night-owls-and-cardiovascular-health-risks)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/381784-virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from-vr-treadmill-systems)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/381610-evening-chronotype-linked-to-higher-cardiovascular-risk-particularly-among-women)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336940-virtuix-geht-nach-138-umsatzwachstum-mit-vr-laufbandsystemen-an-die-nasdaq)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/336929-abend-chronotyp-mit-hoherem-herz-kreislauf-risiko-verbunden-insbesondere-bei-frauen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337205-virtuix-se-hace-publica-en-nasdaq-tras-un-crecimiento-del-138-en-ingresos-por-sus-sistemas-de-cintas-de-correr-para-realidad-virtual)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337194-cronotipo-vespertino-vinculado-a-mayor-riesgo-cardiovascular-especialmente-en-mujeres)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337874-virtuix-entre-en-bourse-sur-le-nasdaq-apres-une-croissance-de-138-de-ses-revenus-grace-a-ses-tapis-roulants-vr)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337853-le-chronotype-du-soir-associe-a-un-risque-cardiovasculaire-plus-eleve-particulierement-chez-les-femmes)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336870-virtuix-entra-na-nasdaq-apos-crescimento-de-138-na-receita-com-sistemas-de-esteira-vr)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336860-cronotipo-noturno-associado-a-maior-risco-cardiovascular-especialmente-em-mulheres)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/381772-faq-virtuix-vtix-nasdaq-debut-omni-one-vr-system-and-ai-powered-virtual-worlds)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/evening-chronotype-linked-to-poorer-cardiovascular-health-especi/202627192)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202601/381656-evening-chronotype-linked-to-poorer-cardiovascular-health-particularly-in-women)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from/202627203)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/night-owls-face-higher-cardiovascular-risk-particularly-women-st/202627192)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202601/381817-virtuix-goes-public-on-nasdaq-following-138-revenue-growth-from-immersive-vr-treadmill)
 
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202601/381689-evening-chronotype-linked-to-poorer-cardiovascular-health-particularly-in-women)
+Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/202601/381888-virtuix-goes-public-on-nasdaq-expanding-vr-technology-across-gaming-fitness-and-defense)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/381893-virtuix-goes-public-on-nasdaq-driving-growth-in-full-body-vr-technology)
+
+Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/202601/381900-virtuixs-nasdaq-debut-signals-growth-in-ai-driven-vr-technology-with-gaming-and-defense-applications)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/waitN7Tv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/28/apex1HAE.webp)
