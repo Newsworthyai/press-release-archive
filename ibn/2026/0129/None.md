@@ -1,60 +1,64 @@
-# RockBreaks – McEwen Inc. (NYSE: MUX) (TSX: MUX) to Acquire Golden Lake Exploration, Expanding Nevada Gold Bar Mine Complex
+# BioMedNewsBreaks — Soligenix Inc. (NASDAQ: SNGX) Targets Critical Gaps in CTCL Treatment with HyBryte(TM)
 
-This article has been disseminated on behalf of McEwen Inc. and may include paid advertising.
+Cutaneous T-cell lymphoma, or CTCL, is recognized by clinicians as one of the most difficult cancers to diagnose accurately in its early stages. A recent article discussed Soligenix’s (NASDAQ: SNGX) efforts to develop therapies aimed at addressing critical gaps in rare disease treatment, including CTCL.
 
- McEwen Inc. (NYSE: MUX) (TSX: MUX) on Wednesday announced that it has entered into a definitive agreement to acquire all issued and outstanding shares of Golden Lake Exploration Inc. (CSE: GLM) by way of a court-approved plan of arrangement, under which Golden Lake would become a wholly owned subsidiary of McEwen. Golden Lake’s principal assets are the 100%-owned Jewel Ridge and Jewel Ridge West projects in Nevada’s Eureka Mining District, adjacent to McEwen’s Windfall and Lookout Mountain discoveries within the Gold Bar Mine Complex. Under the proposed transaction, Golden Lake shareholders would receive 0.003876 McEwen shares per Golden Lake share, representing an implied price of C$0.12 per share and a 60% premium to Golden Lake’s 20-day VWAP as of Jan. 26, 2026, with Golden Lake shareholders expected to own approximately 0.5% of the combined company upon completion. The transaction is subject to shareholder, court, and regulatory approvals, with closing targeted following a special meeting expected in March 2026.
+ The publication reads, “Within a challenging diagnostic and treatment landscape, Soligenix is advancing a novel therapeutic approach for CTCL through its development of HyBryte(TM), also known as synthetic hypericin. HyBryte is a visible light-activated photodynamic therapy designed for the treatment of early-stage CTCL. Unlike traditional ultraviolet-based phototherapies, which can carry long-term safety risks with cumulative exposure, HyBryte is activated by visible light in the red-yellow spectrum, allowing targeted treatment of malignant T-cells in the skin while minimizing damage to surrounding healthy tissue… Clinical data reported by Soligenix indicate that HyBryte has demonstrated statistically significant efficacy in reducing CTCL lesions in patients with early-stage disease.”
 
- To view the full press release, visit https://ibn.fm/2uHsW
+ To view the full article, visit https://ibn.fm/pnI2N
 
- About McEwen Inc.
+ About Soligenix Inc.
 
- McEwen Inc. is a gold and silver producer with operations in Nevada, Canada, Mexico and Argentina. In addition, the company owns approximately 47.7% of McEwen Copper, which is developing the large, advanced-stage Los Azules copper project in Argentina. The company’s goal is to improve the productivity and life of its assets with the objective of increasing the share price and providing a yield. Rob McEwen, chair and chief owner, has a personal investment in the company of $220 million and takes an annual salary of $1. For more information, visit the company’s website at www.McEwenMining.com
+ Soligenix is a late-stage biopharmaceutical company focused on developing and commercializing products to treat rare diseases where there is an unmet medical need. Its Specialized BioTherapeutics business segment is developing and moving toward potential commercialization of HyBryte(TM) (“SGX301” or synthetic hypericin) as a novel photodynamic therapy utilizing safe visible light for the treatment of cutaneous T-cell lymphoma (“CTCL”). With successful completion of the second Phase 3 study, regulatory approvals will be sought to support potential commercialization worldwide. Development programs in this business segment also include expansion of synthetic hypericin (“SGX302”) into psoriasis, the company’s first-in-class innate defense regulator (“IDR”) technology, dusquetide (“SGX942”) for the treatment of inflammatory diseases, including oral mucositis in head and neck cancer, and (“SGX945”) in Behçet’s disease.
 
- NOTE TO INVESTORS: The latest news and updates relating to MUX are available in the company’s newsroom at http://ibn.fm/MUX
+ The company’s Public Health Solutions business segment includes development programs for RiVax(R), its ricin toxin vaccine candidate, as well as its vaccine programs targeting filoviruses (such as Marburg and Ebola) and CiVax(TM), the company’s vaccine candidate for the prevention of COVID-19 (caused by SARS-CoV-2). The development of Soligenix’s vaccine programs incorporates the use of its proprietary heat stabilization platform technology, known as ThermoVax(R). To date, this business segment has been supported with government grants and contract funding from the National Institute of Allergy and Infectious Diseases (“NIAID”), the Defense Threat Reduction Agency (“DTRA”) and the Biomedical Advanced Research and Development Authority (“BARDA”).
 
- About Rocks & Stocks
+ For further information, visit the company’s website at www.Soligenix.com.
 
- Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
+ NOTE TO INVESTORS:The latest news and updates relating to SNGX are available in the company’s newsroom at https://ibn.fm/SNGX
 
- R&S is where breaking news, insightful content and actionable information converge.
+ About BioMedWire
 
- To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
+ BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://RocksAndStocks.news
+ BMW is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+ To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+ For more information, please visit https://www.BioMedWire.com
 
- Rocks & Stocks is powered by IBN 
+ Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
+
+ BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
+
+ BioMedWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-mcewen-inc-nyse-mux-tsx-mux-to-acquire-golden-lake-exploration-expanding-nevada-gold-bar-mine-complex/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-soligenix-inc-nasdaq-sngx-targets-critical-gaps-in-ctcl-treatment-with-hybrytetm/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-inc-to-acquire-golden-lake-exploration-in-strategic-nevada-mining-deal/638c622f81a08c07a66f3d121e911a15) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-advances-novel-light-therapy-for-hard-to-diagnose-skin-cancer/b57f557ed3e779b12b38f033b939c911) 
 
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/mcewen-inc-announces-acquisition-of-golden-lake-exploration-to-e/202627276)
+Pickup - [https://advos.io/en](https://advos.io/en/soligenix-advances-novel-photodynamic-therapy-for-early-stage-cu/202627292)
 
-Pickup - [https://advos.io/en](https://advos.io/en/mcewen-inc-announces-acquisition-of-golden-lake-exploration-to-e/202627276)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/382878-soligenix-advances-hybryte-therapy-for-early-stage-cutaneous-t-cell-lymphoma-treatment)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/382690-mcewen-inc-announces-acquisition-of-golden-lake-exploration-to-expand-nevada-gold-bar-mine-complex)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337026-soligenix-schreitet-mit-hybryte-therapie-zur-behandlung-von-kutane-t-zell-lymphome-im-fruhstadium-voran)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337011-mcewen-inc-kundigt-ubernahme-von-golden-lake-exploration-an-um-gold-bar-minenkomplex-in-nevada-zu-erweitern)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337300-soligenix-avanza-con-la-terapia-hybryte-para-el-tratamiento-del-linfoma-cutaneo-de-celulas-t-en-etapas-tempranas)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337283-mcewen-inc-anuncia-la-adquisicion-de-golden-lake-exploration-para-expandir-el-complejo-minero-gold-bar-en-nevada)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337972-soligenix-progresse-dans-le-developpement-de-la-therapie-hybryte-pour-le-traitement-du-lymphome-cutane-a-cellules-t-a-un-stade-precoce)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337946-mcewen-inc-annonce-lacquisition-de-golden-lake-exploration-pour-etendre-le-complexe-minier-gold-bar-au-nevada)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336959-soligenix-avanca-terapia-hybryte-para-tratamento-de-linfoma-cutaneo-de-celulas-t-em-estagio-inicial)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336944-mcewen-inc-anuncia-aquisicao-da-golden-lake-exploration-para-expandir-o-complexo-mineiro-gold-bar-em-nevada)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/soligenix-advances-novel-photodynamic-therapy-for-early-stage-cu/202627292)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/mcewen-inc-announces-acquisition-of-golden-lake-exploration-to-e/202627276)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/soligenix-advances-hybryte-therapy-for-early-stage-cutaneous-t-c/202627292)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/29/mildn5O9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/29/openDMaq.webp)
