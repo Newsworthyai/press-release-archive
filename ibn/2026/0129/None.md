@@ -1,64 +1,66 @@
-# BioMedNewsBreaks — Soligenix Inc. (NASDAQ: SNGX) Targets Critical Gaps in CTCL Treatment with HyBryte(TM)
+# MiningNewsBreaks – Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) Advances Atikokan on Heels of ‘Robust Technical Dataset’
 
-Cutaneous T-cell lymphoma, or CTCL, is recognized by clinicians as one of the most difficult cancers to diagnose accurately in its early stages. A recent article discussed Soligenix’s (NASDAQ: SNGX) efforts to develop therapies aimed at addressing critical gaps in rare disease treatment, including CTCL.
+Disseminated on behalf of Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) and may include paid advertising.
 
- The publication reads, “Within a challenging diagnostic and treatment landscape, Soligenix is advancing a novel therapeutic approach for CTCL through its development of HyBryte(TM), also known as synthetic hypericin. HyBryte is a visible light-activated photodynamic therapy designed for the treatment of early-stage CTCL. Unlike traditional ultraviolet-based phototherapies, which can carry long-term safety risks with cumulative exposure, HyBryte is activated by visible light in the red-yellow spectrum, allowing targeted treatment of malignant T-cells in the skin while minimizing damage to surrounding healthy tissue… Clinical data reported by Soligenix indicate that HyBryte has demonstrated statistically significant efficacy in reducing CTCL lesions in patients with early-stage disease.”
+ Powermax Minerals (CSE: PMAX) (OTCQB: PWMXF), a Canadian mineral exploration company, recently completed its 2025 field exploration program at the Atikokan Rare Earth Elements property, marking a key technical milestone as the company advances its portfolio of REE-focused assets. “The property is located in the Atikokan–Ignace–White Otter Lake district of northwestern Ontario, a region with established infrastructure and a history of mineral exploration,” reads an article discussing this. “Details of the completed program were outlined in a December 17, 2025, announcement which described a systematic exploration campaign designed to evaluate the geological and geochemical potential of the Atikokan property. The 2025 field program combined geological mapping, prospecting, ground-based radiometric surveys, and geochemical sampling across several priority target areas… Geological mapping identified three principal lithological domains across the property. Block A is dominated by granodiorite to granite, while Block B consists mainly of gneissic tonalite, with granodiorite and granite appearing in its northern portion. Block C is also largely gneissic tonalite, with granodiorite and granite becoming more prominent toward the north-northeast.”
 
- To view the full article, visit https://ibn.fm/pnI2N
+ To view the full article, visit https://ibn.fm/Erq45
 
- About Soligenix Inc.
+ About Powermax Minerals Inc.
 
- Soligenix is a late-stage biopharmaceutical company focused on developing and commercializing products to treat rare diseases where there is an unmet medical need. Its Specialized BioTherapeutics business segment is developing and moving toward potential commercialization of HyBryte(TM) (“SGX301” or synthetic hypericin) as a novel photodynamic therapy utilizing safe visible light for the treatment of cutaneous T-cell lymphoma (“CTCL”). With successful completion of the second Phase 3 study, regulatory approvals will be sought to support potential commercialization worldwide. Development programs in this business segment also include expansion of synthetic hypericin (“SGX302”) into psoriasis, the company’s first-in-class innate defense regulator (“IDR”) technology, dusquetide (“SGX942”) for the treatment of inflammatory diseases, including oral mucositis in head and neck cancer, and (“SGX945”) in Behçet’s disease.
+ Powermax Minerals is a Canadian mineral exploration company focused on advancing rare earth element projects. The company holds an option to acquire the Cameron REE Property, comprising three mineral claims totaling approximately 2,984 hectares in British Columbia. Powermax also optioned to acquire the Atikokan REE Property, consisting of 455 unpatented mining claims in NW Ontario. Powermax also owns a 100% interest in the Ogden Bear Lodge Project, in Crook County, Wyoming.
 
- The company’s Public Health Solutions business segment includes development programs for RiVax(R), its ricin toxin vaccine candidate, as well as its vaccine programs targeting filoviruses (such as Marburg and Ebola) and CiVax(TM), the company’s vaccine candidate for the prevention of COVID-19 (caused by SARS-CoV-2). The development of Soligenix’s vaccine programs incorporates the use of its proprietary heat stabilization platform technology, known as ThermoVax(R). To date, this business segment has been supported with government grants and contract funding from the National Institute of Allergy and Infectious Diseases (“NIAID”), the Defense Threat Reduction Agency (“DTRA”) and the Biomedical Advanced Research and Development Authority (“BARDA”).
+ NOTE TO INVESTORS: The latest news and updates relating to PWMXF are available in the company’s newsroom at https://ibn.fm/PWMXF
 
- For further information, visit the company’s website at www.Soligenix.com.
+ About MiningNewsWire
 
- NOTE TO INVESTORS:The latest news and updates relating to SNGX are available in the company’s newsroom at https://ibn.fm/SNGX
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
 
- About BioMedWire
+ MNW is where breaking news, insightful content and actionable information converge.
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
 
- BMW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.MiningNewsWire.com
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
 
- For more information, please visit https://www.BioMedWire.com
+ MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
 
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
-
- BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
-
- BioMedWire is powered by IBN 
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-soligenix-inc-nasdaq-sngx-targets-critical-gaps-in-ctcl-treatment-with-hybrytetm/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-powermax-minerals-inc-cse-pmax-otcqb-pwmxf-advances-atikokan-on-heels-of-robust-technical-dataset/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-advances-novel-light-therapy-for-hard-to-diagnose-skin-cancer/b57f557ed3e779b12b38f033b939c911) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powermax-minerals-completes-key-2025-ree-exploration-program-in-ontario/b90f9b0e788b611f773b921a467e8953) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/soligenix-advances-novel-photodynamic-therapy-for-early-stage-cu/202627292)
+Pickup - [https://advos.io/en](https://advos.io/en/powermax-minerals-advances-atikokan-rare-earth-elements-explorat/202627322)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/382878-soligenix-advances-hybryte-therapy-for-early-stage-cutaneous-t-cell-lymphoma-treatment)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/382917-powermax-minerals-advances-atikokan-ree-property-following-2025-field-program-completion)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337026-soligenix-schreitet-mit-hybryte-therapie-zur-behandlung-von-kutane-t-zell-lymphome-im-fruhstadium-voran)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/powermax-minerals-advances-atikokan-ree-exploration-following-20/202627322)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337300-soligenix-avanza-con-la-terapia-hybryte-para-el-tratamiento-del-linfoma-cutaneo-de-celulas-t-en-etapas-tempranas)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/powermax-minerals-advances-atikokan-ree-property-following-2025/202627322)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/337972-soligenix-progresse-dans-le-developpement-de-la-therapie-hybryte-pour-le-traitement-du-lymphome-cutane-a-cellules-t-a-un-stade-precoce)
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202601/383100-powermax-minerals-completes-2025-field-exploration-program-at-atikokan-ree-property)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336959-soligenix-avanca-terapia-hybryte-para-tratamento-de-linfoma-cutaneo-de-celulas-t-em-estagio-inicial)
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202601/337991-powermax-minerals-acheve-son-programme-dexploration-sur-le-terrain-2025-sur-la-propriete-delements-de-terres-rares-datikokan)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/soligenix-advances-novel-photodynamic-therapy-for-early-stage-cu/202627292)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202601/383112-powermax-minerals-completes-2025-field-exploration-program-at-atikokan-ree-property)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/soligenix-advances-hybryte-therapy-for-early-stage-cutaneous-t-c/202627292)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337335-powermax-minerals-avanza-en-la-propiedad-de-tierras-raras-atikokan-tras-la-finalizacion-del-programa-de-campo-2025)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337058-powermax-minerals-schreitet-mit-atikokan-see-projekt-nach-abschluss-des-feldprogramms-2025-voran)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/338004-powermax-minerals-progresse-sur-la-propriete-atikokan-des-terres-rares-apres-lachevement-du-programme-de-terrain-2025)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336991-powermax-minerals-avanca-na-propriedade-de-etrs-de-atikokan-apos-conclusao-do-programa-de-campo-de-2025)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/29/openDMaq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/29/numbZcUM.webp)
