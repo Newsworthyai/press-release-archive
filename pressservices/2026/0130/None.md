@@ -1,129 +1,92 @@
-# Customizable Genomics: A Game Changer for Health Providers
+# The Green Nugget's 11th Anniversary Celebration
 
-GeneMetrics: Tailored Solutions for Precision Health
+Celebrate with The Green Nugget: 11 Years of Quality Service
 
- Austin, United States - January 28, 2026 / GeneMetrics /
+ Spokane, United States - January 29, 2026 / The Green Nugget /
 
- In the fast-changing health and wellness sector, businesses require more than generic solutions. They need adaptable platforms that align with their specific vision, brand identity, and clinical philosophy. GeneMetrics was developed with this goal in mind: to equip health companies, practitioners, and researchers with fully customizable testing solutions that extend far beyond white-label.
+ The Green Nugget Commemorates 11 Years of Excellence with Founder's Day Promotion on February 21, 2026
 
-The Challenge: A Disjointed Genetics MarketThe genetics marketplace is saturated with options, yet none provide a comprehensive solution.
+Spokane, WA - The Green Nugget, a cherished cannabis dispensary chain recognized for its outstanding service and premium products, is excited to announce its annual Founder's Day Promotion on Friday, February 21, 2026, at all store locations. This year's celebration marks 11 years of delivering exceptional cannabis experiences to customers throughout Washington State, including their Spokane, Pullman, and Mead branches.
 
-* Consumer-oriented kits lack depth, designed primarily for entertainment or superficial wellness insights.
-* Clinical platforms tend to be inflexible, excessively technical, or tailored solely for specialists.
-* Diagnostic and advanced testing solutions are frequently black-boxed, utilizing algorithms that clients cannot control or verify.
-* Practitioners and companies are often forced to choose between consumer-friendly or clinically robust options, but never both.
+To celebrate this significant milestone, The Green Nugget will provide special $11 deals throughout the day at every location, allowing loyal customers to join the team in commemorating a brand that has become a local favorite. From top-shelf flower to carefully selected cannabis products, this promotion is The Green Nugget's way of expressing gratitude to the community that has supported them for over a decade.
 
-Most critically, no platform integrates lifestyle, clinical, diagnostic, and advanced genetics under one umbrella. Clients are left to assemble incomplete solutions from various providers, each with its own constraints.
+A Celebration of Community and QualitySince its inception in 2015, The Green Nugget has transformed from a single store into a trusted cannabis destination, widely acknowledged for its friendly, knowledgeable staff, clean and inviting spaces, and dedication to quality products. Founder's Day is more than just a promotional occasion-it's a celebration of the relationships, trust, and community ties that have driven the company's success over the past eleven years.
 
-This leads to a marketplace filled with inadequate solutions. They may be too simplistic for practitioners, too confusing for patients, and too fragmented for anyone seeking flexibility.
+"Our incredible customers and community are the reason we are where we are today," stated the Founder and CEO of The Green Nugget. "Founder's Day is our opportunity to give back and show appreciation for everyone who has been part of our journey. We've put together some fantastic $11 deals to ensure the celebration is enjoyable, accessible, and memorable for everyone who visits our stores."
 
-The Challenge: A Disjointed Patient ExperienceThis fragmentation within the industry negatively impacts the patient experience.
+Exclusive $11 Deals for One Day OnlyOn February 21, 2026, The Green Nugget will unveil a selection of $11 deals on various cannabis products, offering both long-time patrons and new visitors a chance to enjoy some of the dispensary's most sought-after items at an unbeatable price. While specific deals may differ by location, customers can anticipate offers across categories such as:
 
-* Multiple tests spanning genetics, epigenetics, bloodwork, and microbiome.
-* Numerous registration portals and login requirements.
-* A variety of PDFs, each with different formats that are difficult to interpret.
-* Contradictory interpretations that create confusion.
+* Premium Flower - Hand-picked strains celebrated for their potency and flavor
+* Pre-Rolls - Convenient, high-quality selections for a quick experience
+* Edibles - Tasty treats infused with precise cannabis dosages
+* Vape Cartridges - Smooth, flavorful options for discreet enjoyment
+* Accessories - A selection of merchandise to enhance your cannabis experience
 
-Patients often feel overwhelmed, while practitioners waste precious time. This undermines trust in personalized health solutions.
+Whether shopping in Spokane, Pullman, or Mead, customers can take advantage of these limited-time offers throughout the day, making February 21 an ideal occasion to stock up on favorites or explore something new.
 
-The Solution: A Cohesive, Customizable PlatformGeneMetrics was designed to address both sides of this issue. It is the first platform to unify lifestyle, clinical, diagnostic, and advanced genetic testing in one location. Clients are no longer required to choose between extremes or manage multiple disconnected vendors.
+A Tradition of Service and ExcellenceWhat distinguishes The Green Nugget is not solely the products it offers but also the exceptional service experience fostered across all locations. Staff members are trained to provide personalized recommendations, educational insights, and friendly guidance to ensure every customer leaves feeling satisfied, informed, and welcomed. This commitment to service has cultivated a loyal customer base and earned The Green Nugget a reputation as a community-oriented dispensary where both quality and customer care are paramount.
 
-More importantly, GeneMetrics enables clients to combine reports in meaningful ways. A single patient report can integrate genetics, bloodwork, and lifestyle factors into one cohesive, actionable narrative. Each component is tailored to the practitioner's philosophy and the patient's specific needs.
+Over the past 11 years, The Green Nugget has celebrated numerous milestones, from expanding its product offerings to opening additional locations, but Founder's Day remains one of the most treasured events of the year. It's a day when staff, customers, and the broader cannabis community unite to celebrate a shared passion, growth, and love for cannabis.
 
-Other "white-label" or "private-label" solutions available in the market typically provide a one-size-fits-all model. They fail to recognize that practitioners have varying philosophies, methodologies, product strategies, or EHR systems that need integration. GeneMetrics takes these differences into account. From sequencing options to report design, from recommendation logic to software integrations, every aspect can be customized to align with a practitioner's unique care philosophy.
+Community Engagement and Local ImpactIn addition to providing outstanding cannabis products, The Green Nugget has consistently emphasized the importance of giving back to the communities it serves. Through local partnerships, sponsorships, and events, the dispensary has supported Spokane-area initiatives, educational programs, and local charitable efforts. Founder's Day exemplifies this philosophy by focusing on community celebration, inviting customers to partake in a collective expression of gratitude and joy.
 
-Rather than offering a generic black-box reporting system, GeneMetrics restores control to clients. This results in an ideal hybrid solution: scientifically sound yet patient-friendly, highly technical yet clear, flexible yet cohesive.
+"We consider our customers to be part of our family," remarked the General Manager of The Green Nugget's Spokane location. "Founder's Day is more than just discounted deals-it's about celebrating 11 years of incredible experiences, friendships, and connections we've forged along the way. Witnessing our customers enter with smiles and excitement reminds us why we do what we do every day."
 
-A Platform Designed for Limitless CustomizationUnlike private-label services that merely rebrand existing products, GeneMetrics is a custom testing product development company. Every aspect, from kit design and packaging to wet-lab testing and data reporting, can be tailored to meet the client's specifications.
+Why February 21, 2026, is a Date to RememberThe selection of February 21 for Founder's Day holds symbolic importance, representing the ongoing growth and evolution of The Green Nugget brand. From its modest beginnings in 2015 to becoming a cornerstone of the local cannabis scene, the dispensary has continually adapted to meet the evolving needs of its customers. Founder's Day serves as a reminder that success is founded on trust, quality, and community-and that celebrating together strengthens those connections.
 
-GeneMetrics' fundamental promise is limitless customization. Currently, there is no report or testing category for which the company does not offer coverage. With one of the largest libraries of report elements and scientific topics available, featuring thousands of validated options, clients can create offerings that range from simple to highly advanced.
+Customers can anticipate:
 
-Advanced Sequencing and Testing CapabilitiesGeneMetrics provides one of the most extensive selections of sequencing and laboratory technologies, including:
+* All-day $11 deals on select products
+* Opportunities to discover new strains and edibles
+* Special surprises and promotions in-store
+* Celebratory activities at select locations
 
-* Bead-chip genotyping arrays (approximately 1 million SNPs per chip)
-* Clinical-grade Whole Exome Sequencing (WES)
-* Clinical-grade Whole Genome Sequencing (WGS)
-* PCR and PGx panels
-* Testing for epigenetics, blood, urine, saliva, and microbiomes
+This one-day event offers a unique opportunity for both new and returning customers to experience the best of The Green Nugget at an accessible price point, all while participating in a cherished tradition of appreciation and celebration.
 
-Clients can sequence and report on anything from a single SNP to hundreds of millions of variants. This guarantees complete flexibility across consumer lifestyle kits, clinical diagnostics, and enterprise research.
+How to ParticipateGetting involved is easy. Customers are encouraged to visit any of The Green Nugget's locations on Friday, February 21, 2026, to take advantage of the $11 deals and enjoy the festive atmosphere. While supplies last, the promotion is designed to ensure as many customers as possible can partake in the celebrations.
 
-Actionable Recommendations That Emphasize ClarityInsights are only useful if they lead to actionable steps. GeneMetrics features a fully customizable recommendation engine that can prioritize supplements, diet, lifestyle modifications, or medications.
+For those who wish to plan ahead:
 
-Unlike platforms that inundate users with endless bullet points, GeneMetrics adheres to the belief that clarity is more important than quantity. This approach ensures that patients receive actionable, prioritized recommendations, practitioners save valuable time on interpretation, and brands achieve meaningful outcomes instead of overwhelming noise.
+* Spokane Location: 322 E Francis Ave, Spokane, WA 99208
+* Pullman Location: 1340 SE Bishop Blvd, Pullman, WA 99163
+* Mead Location: 11414 N Newport Hwy, Spokane, WA 99218
 
-Demonstrated ImpactClients of GeneMetrics are already experiencing tangible results.
+We will be open all day, and staff will be available to assist with any questions or product recommendations.
 
-* Clinic efficiency: A U.S.-based functional medicine practice reduced practitioner analysis time by 70 percent after implementing GeneMetrics' recommendation engine.
-* Scaling success: A European health AI firm expanded from a 500-patient pilot to 50,000 users in less than six months by utilizing GeneMetrics' scalability features.
-* Patient engagement: A Canadian wellness company reported a threefold increase in repeat kit orders after consolidating fragmented tests into a single, unified GeneMetrics-powered platform.
-* Research readiness: A global genomics organization utilized GeneMetrics' auditing system to secure a government contract that demanded the highest compliance standards.
+Looking Ahead: The Next Chapter for The Green NuggetWhile Founder's Day is a moment to reflect on 11 years of achievements, it also presents an opportunity to look forward. The Green Nugget continues to seek innovative cannabis products, enhanced customer experiences, and expanded community outreach. Upcoming initiatives include:
 
-Science That Withstands ScrutinyAt GeneMetrics, scientific integrity is paramount. Every methodology, from polygenic and monogenic risk assessments to pharmacogenomics, imputation, ancestry analysis, methylation studies, and multi-omic bioinformatics, is thoroughly validated and fully auditable.
+* New product lines emphasizing quality, sustainability, and wellness
+* Educational workshops aimed at helping customers make informed choices
+* Community-driven events that celebrate local culture and creativity
 
-The platform features a dedicated auditing system, making it the most transparent and audit-ready scientific solution available. GeneMetrics also incorporates machine learning capabilities, with algorithms referencing over 140,000 peer-reviewed studies to enhance next-generation interpretations.
+Through these initiatives, The Green Nugget is dedicated to maintaining its reputation as a trusted cannabis provider while remaining connected to the communities that have supported it since its inception.
 
-Supporting this innovation is a team of over 80 professionals, including more than 40 MDs, PhDs, bioinformaticians, and data scientists, all guided by a Medical and Science Advisory Board.
+About The Green NuggetEstablished in 2015, The Green Nugget has evolved into a leading cannabis dispensary chain in Washington State, providing high-quality cannabis products, knowledgeable staff, and an inviting shopping atmosphere. With locations in Spokane, Pullman, and Mead, The Green Nugget is committed to helping customers explore, enjoy, and appreciate cannabis responsibly and creatively. The dispensary prides itself on exceptional customer service, a carefully curated product selection, and a commitment to community engagement.
 
-Unyielding Data Security and Client ControlGeneMetrics adheres to the highest compliance standards in the industry, including:
+Whether a seasoned cannabis enthusiast or a newcomer, The Green Nugget offers an inclusive, educational, and celebratory environment for all customers. Founder's Day is just one example of how the dispensary merges product excellence with meaningful community experiences.
 
-* HIPAA
-* GDPR
-* SOC 2 Type 2
-* ISO27001
+Join the CelebrationThe Green Nugget encourages everyone to mark their calendars for February 21, 2026, and join in celebrating 11 years of outstanding cannabis and community-focused service. With $11 deals available all day at Spokane, Pullman, and Mead locations, Founder's Day promises a fun, festive, and rewarding experience for all.
 
-Data is protected through multi-layer encryption: AES-256 for data at rest, TLS for data in transit, and compartmentalized databases.
+For further details about the Founder's Day Promotion, including store hours, deal specifics, and additional event information, visit  www.thegreennugget.com.
 
-Most importantly, clients maintain 100 percent ownership of their data. GeneMetrics does not sell or utilize client data, and clients establish their own privacy policies and storage options. Many opt to transparently transfer ownership directly to patients, fostering trust at every level.
+Celebrate with The Green Nugget on February 21, 2026-11 Years Strong and Growing!
 
-For transparency, GeneMetrics provides live compliance policies and monitoring at trust.genemetrics.com.
+ [](https://press-releases-production.s3.amazonaws.com/images/Nl0Xmk9AshnvLH42K5BEVyzLYd6S49tdIvaQvdXG.jpg) [](https://thegreennugget.com) Contact Information:
 
-Confidentiality as a ServiceGeneMetrics intentionally remains out of the limelight. It does not compete with its clients and does not operate a consumer-facing brand. Instead, it offers confidentiality as a service, empowering clients to launch unique products without the concern of competition or overlap.
-
-Beyond White-Label: What GeneMetrics Represents (and What It Does Not)To clarify its role, GeneMetrics is:
-
-* Not B2C: it never directly competes with clients.
-* Not private-label: it does not simply apply a logo to generic products.
-* Not wholesale: it is not a bulk reseller.
-
-Instead, GeneMetrics is the industry's sole fully auditable, infinitely customizable backend genomics platform. It provides complete brand ownership and comprehensive innovation.
-
-Competitive Pricing and Scalable EconomicsDepending on selections, unit costs can start below 100 dollars, with final pricing influenced by materials, logistics, laboratory technologies, and analysis options.
-
-When compared on a like-for-like basis, GeneMetrics' wholesale rates consistently outperform market competitors, delivering clients stronger margins alongside superior science.
-
-Engineered for Rapid ScalabilityFrom boutique clinics to large-scale genomics initiatives, GeneMetrics is designed for effortless scalability. Its infrastructure supports turn-key logistics management, including kit manufacturing, co-packing, fulfillment, and data analysis.
-
-Capacity can scale almost overnight, ensuring clients never outgrow the platform.
-
-Leadership and Founding VisionGeneMetrics was established by a team of clinicians, scientists, and legal experts committed to resolving a fragmented industry. CEO Benji Rabhan, one of the co-founders, leads a mission-driven team that prioritizes science, confidentiality, and client empowerment above all else.
-
-The company's culture reflects its origins: scientists and data experts working behind the scenes to enable clients to shine.
-
-Globally TrustedWhile confidentiality agreements prevent the disclosure of client names or numbers, GeneMetrics is a trusted backend provider for leading genomics and health companies around the globe. Its influence extends to clinics, health AI firms, research institutions, and laboratories across multiple continents.
-
-The Future of Precision HealthGeneMetrics is striving towards a future where precision health is proactive, integrated, and accessible on a large scale. By merging genetics, epigenetics, blood, microbiome, and lifestyle data into one cohesive ecosystem driven by AI and multi-omic bioinformatics, the company is facilitating a transition from reactive medicine to personalized, preventive care for all.
-
-Ready to Move Beyond White-Label?GeneMetrics is more than just a testing platform. It serves as a partner in innovation. For those eager to launch precision health products that are seamless, trusted, and genuinely their own, the next step is straightforward:
-
-Schedule a confidential call with our team to learn more.
-
- [](https://press-releases-production.s3.amazonaws.com/images/RxBYlSBXReuJnrmo6Gdu7qmH2N9PLuO0L9qMq8Lm.jpg) [](https://genemetrics.com) Contact Information:
-
- GeneMetrics
+ The Green Nugget
 
  
 
-6507 Jester Blvd  Austin, Texas 78750United States
+322 E Francis Ave  Spokane, Washington 99208United States
 
- Chris Haas +1 898202601 https://genemetrics.com 
+ The Green Nugget +1 (509) 309-2130 https://thegreennugget.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/customizable-genomics-a-game-changer-for-health-providers-408729)
+[Original/Source Press Release](https://mediawiretoday.com/the-green-nuggets-11th-anniversary-celebration-409075)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/genemetrics-launches-fully-customizable-platform-to-unify-fragmented-genetics-market/864c7136c3bb2e232eef84aaf7185733) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-green-nugget-celebrates-11-years-with-11-founder-s-day-deals/d7aa2659f20fef8d878bad957c8d8ff3) 
 
  
 
@@ -131,4 +94,4 @@ Schedule a confidential call with our team to learn more.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/261/30/smogGEwr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/261/30/xenoetOu.webp)
