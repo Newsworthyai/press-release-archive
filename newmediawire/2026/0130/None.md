@@ -1,40 +1,58 @@
-# Royalty Management Holding Corporation First Quarter 2026 Cash Dividend
+# With Fresh Capital From Its IPO, Virtuix (VTIX) Looks All Set To Chase Further Growth
 
-The Fourth in a Series of Quarterly Cash Dividend Payments by the Company in the Amount of $0.0025 Per Share is Set for a Record Date of March 31, 2026, and a Payment Date of April 10, 2026
+By Meg Flippin, Benzinga
 
- FISHERS, IN - January 30, 2026 (NEWMEDIAWIRE) - Royalty Management Holding Corporation (Nasdaq: RMCO) (“Royalty Management” “RMCO”, or the “Company”), a forward leaning royalty company building shareholder value by acquiring and developing high value assets in a variety of resource-driven and emerging technology industries, is pleased to announce that the Company has set the record date of March 31, 2026 for its next quarterly cash dividend payment to shareholders. Shareholders of the Company as of this record date will receive a cash dividend of $0.0025 per share, payable on April 10, 2026.
+ DETROIT, MICHIGAN - January 30, 2026 (NEWMEDIAWIRE) - Jan Goetgeluk, CEO of Virtuix Inc. (NASDAQ: VTIX), was recently a guest on Benzinga’s All Access.
 
- Thomas Sauve, Chief Executive Officer of the Company, commented, “Cash dividends are another tool in our toolbox to provide investment returns to our shareholders. Our first annual cash dividend of $0.01 per share, which was divided to occur over the course of 12 months in calendar quarterly increments, has been a great success as this mechanism to provide investors additional returns. This is the last quarterly dividend under this 2025 board approved plan and due to the success, we look forward to making the case for approval from the board of directors to extend the payment of this dividend another 12 months through the balance of 2026 and first quarter of 2027. Furthermore, as revenues from our investments expand, we will see if there is justification to increase this cash dividend amount, balanced against the Company’s pipeline of investments in royalty-bearing projects.”
+ Goetgeluk discussed the company’s recent IPO and Omni One, its VR treadmill gaming system, which is behind the company’s triple-digit growth.
 
- About Royalty Management Holding Corporation
+ “It's an exciting time for us,” Goetgeluk told Benzinga. “We reported 138% year-over-year growth. So we’re growing and we are ready to scale.”
 
- Royalty Management Holding Corporation (NASDAQ: RMCO) is a royalty company building shareholder value to benefit both its shareholders and communities by acquiring and developing high value assets in a variety of market environments. The model is to acquire and structure cash flow streams around assets that can support the communities by monetizing the current existing cash flow streams while identifying transitionary cash flow from the assets for the future.
+ The CEO said Omni One resonates with consumers because it creates an immersive experience in which players physically move through virtual worlds. In addition to giving them a unique gaming experience, the system keeps customers active and burning calories; one customer even lost 40 pounds in four months.
 
- For more information visit www.royaltymgmtcorp.com.
+ As for the IPO, Goetgeluk said proceeds from that, as well as an $11 million investment from Chicago Venture Partners and a $50 million equity line of credit, will be used to fund growth and enter new markets, including the defense sector.
 
- Forward-Looking Statements
+ Watch the full interview here:
 
- This press release contains statements that constitute “forward-looking statements,” including with respect to the initial public offering. No assurance can be given that the matters discussed above will be completed on the terms described, or at all. Forward-looking statements are subject to numerous conditions, many of which are beyond the control of the Company, including those that will be set forth in the “Risk Factors” section of the Company’s filings with the SEC. The information contained in this release is as of the date first set forth above. The Company undertakes no obligation to update these statements for revisions or changes after the date of this release, except as required by law.
+ https://www.youtube.com/watch?v=D5KeCXvFqlE
 
- Royalty Management Holding Corporation Contact:
+ Featured image from Shutterstock.
 
- Thomas SauveChief Executive Officerwww.royaltymgmtcorp.com(646) 245-2465
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
 
- SOURCE: Royalty Management Holding Corporation
-
-View the original release on www.newmediawire.com 
+ This content was originally published on Benzinga. Read further disclosures here. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/royalty-management-holding-corporation-first-quarter-2026-cash-dividend-7085173)
+[Original/Source Press Release](https://www.newmediawire.com/news/with-fresh-capital-from-its-ipo-virtuix-vtix-looks-all-set-to-chase-further-growth-7085182)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/royalty-management-announces-final-2025-dividend-eyes-extension-through-2027/02e24897aafcb2c45772a0939e7e4c27) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virtuix-soars-138-on-omni-one-vr-treadmill-eyes-defense-market/fe4c3a54fc54e4b82107b69f05552804) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/virtuix-ceo-details-post-ipo-growth-strategy-following-138-reven/202627390)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202601/383851-virtuix-secures-growth-capital-through-ipo-and-investments-expands-into-defense-sector)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337117-virtuix-sichert-sich-wachstumskapital-durch-borsengang-und-investitionen-und-expandiert-in-den-verteidigungssektor)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337397-virtuix-obtiene-capital-de-crecimiento-mediante-opi-e-inversiones-se-expande-al-sector-de-defensa)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/338084-virtuix-obtient-des-capitaux-de-croissance-grace-a-son-introduction-en-bourse-et-a-des-investissements-et-se-developpe-dans-le-secteur-de-la-defense)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/337049-virtuix-obtem-capital-de-crescimento-por-meio-de-ipo-e-investimentos-expandindo-se-para-o-setor-de-defesa)
+
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/383848-faq-virtuixs-ipo-growth-strategy-and-omni-one-vr-treadmill)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/virtuix-secures-growth-capital-through-ipo-targets-defense-secto/202627390)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/virtuix-ceo-details-post-ipo-growth-strategy-following-triple-di/202627390)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/384060-virtuix-ceo-details-post-ipo-growth-strategy-and-defense-sector-expansion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/30/smogTTAv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/261/30/jazzYXPg.webp)

@@ -1,66 +1,58 @@
-# Texas State University’s New Program Helps ‘LIFT’ Small Business Growth
+# Rom Com ‘Say a Little Prayer’ Celebrates Valentine’s Day and Galentine’s Day
 
-AUSTIN, TX — January 29, 2026 — (NOTICIAS NEWSWIRE) — More than 300 small business leaders recently completed Texas State University’s Learning and Insights for Forward Traction (LIFT) accelerator, a six-week program designed to strengthen marketing skills and help small businesses grow. LIFT was developed by Texas State’s Sustainable Cultivation and Advancement of Local Enterprises with University Partnerships (SCALEUP) initiative and delivered in collaboration with the Texas Association of Mexican American Chambers of Commerce (TAMACC) and other community partners.
+LOS ANGELES, CA — January 30, 2026 — (NOTICIAS NEWSWIRE) — Samuel Goldwyn Films’ romantic comedy Say a Little Prayer is celebrating Valentine’s Day and Galentine’s Day!
 
- Results from the inaugural LIFT cohort show gains in marketing confidence. After completing the program, 98% of participants reported actively setting social media goals—an increase of 52 percentage points. Confidence using social media for business growth increased by 45 percentage points. The share reporting “good” or “expert” social media knowledge increased by 92 percentage points, from 5% to 97%.
+ This heartwarming romantic comedy is now widely available for digital release on major video-on-demand platforms, including Comcast, Apple TV, Amazon Prime, Google Play, Tubi, Roku, YouTube Movies, and Fandango at Home.
 
- Small businesses are a driver of the economy. “The economic strength of Texas and other states depends on small businesses having practical tools they can use now,” said Pauline E. Anton, President and CEO of TAMACC. “Through our statewide chamber network, TAMACC shares resources, like the LIFT program, with entrepreneurs across Texas to advance their businesses and enhance economic prosperity.”
+ “Valentine’s Day is the perfect time to watch a romantic comedy and fall in love!” said screenwriter Nancy De Los Santos. “And since our movie celebrates friendship, it’s also the best movie to watch with your amigas and besties on Galentine’s Day.”
 
- SCALEUP developed LIFT by pairing research with applied training. “SCALEUP conducts research to better understand the challenges small businesses face when growing. Then, we use those insights to develop practical tools small business leaders can use,” said Dr. Josh Daspit, director of SCALEUP and associate professor at Texas State University.
+ The film marks the feature film debut of Grammy Award-winning international recording artist Luis Fonsi (“Despacito” and “Cambiaré”) and his first English-language song, “The Prayer in Your Eyes”.
 
- To broaden access, SCALEUP and its partners attracted more than 3,000 applicants. The first LIFT cohort included over 350 business owners, most based in Texas (82%), with 24 additional states also represented. Participants advanced from foundational marketing principles to topics such as platform analytics, content strategy, and goal setting.
+ Say a Little Prayer follows three friends who, in their quest for true love, recite an ancient prayer to the patron saint of “all things lost.” This ritual triggers a series of unpredictable events that test their friendship and transform their lives in unexpected ways.
 
- “LIFT helped me realize that your brand is more than a logo. It’s what customers feel,” said Rebecca Acosta-Ojeda, owner of Salon One 12 in Buda, Texas. Participants also had access to an AI Business Coach trained to address growth-related challenges with guidance tailored to each participant’s business and goals.
+ In addition to Luis Fonsi the film features a talented cast which includes Vannessa Vásquez (“Divorce Bait”), Jackie Cruz (“Orange is the New Black”), and Vivian Lamolli (“Queen of Manhattan”). The ensemble cast also includes Latin American legend Angélica María (“House of Flowers”), Tatanka Means (“Killers of the Flower Moon”), and comedian Chris Kattan (“Saturday Night Live”).
 
- “When business owners have practical tools to improve customer access, they’re better positioned to grow revenue, create jobs, and stabilize local economies,” said Dr. Marlene Orozco, LIFT program lead and SCALEUP research fellow.
+ Also featured are songs by Tejana artist Shelly Lares, Los Angeles musician Nancy Sanchez, and The Last Bandoleros.
 
- LIFT was developed with financial support from the Ewing Marion Kauffman Foundation. Future opportunities are currently being planned. To receive updates on upcoming programs, visit https://scaleup.txst.edu/.
+ To celebrate the holidays, the filmmakers are offering a promotion on the movie’s social media, giving fans a chance to win a special box of Valentine’s / Galentine’s candy.
 
- Media Note: Assets Available
+ Academy Award nominee Edward James Olmos and Luis Fonsi serve as Executive Producers. Directed by Patrick Perez Vidauri and produced by Cristina Nava of Migrant Filmworks. The film is written by Nancy De Los Santos (WGA).
 
- Access SCALEUP’s Media Resources here: https://scaleup.txst.edu/media-lift.html. The Available resources include downloadable assets (e.g., logos, headshots, and photographs), an overview of program facts, outcome highlights, and contact information for questions/interviews.
+ About Migrant Filmworks
 
- About TAMACC
-
- Founded in 1975, the Texas Association of Mexican American Chambers of Commerce (TAMACC) is a statewide nonprofit business organization that promotes business leadership, creates economic opportunity, and provides legislative advocacy for the Hispanic business community in Texas through its statewide network and convening power.
-
- About Texas State University’s SCALEUP Initiative
-
- SCALEUP (Sustainable Cultivation and Advancement of Local Enterprises with University Partnerships) is an initiative of Texas State University. Through research, partnerships, and evidence-based programming, the aim of SCALEUP is to help small businesses grow. Learn more at https://scaleup.txst.edu/. 
+ Migrant Filmworks Inc. produces movies and series that feature inclusive characters, appeal to worldwide audiences, and target the fastest-growing cohort of moviegoers in the country today, the English-speaking US-born Latino audience. 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/texas-university-helps-lift/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/rom-com-say-a-little-prayer-celebrates-valentines-day-and-galentines-day/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-state-s-lift-program-boosts-small-business-marketing-confidence-by-92/1c6650c05b4f22799ccf1776c1654406) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/say-a-little-prayer-debuts-digitally-for-valentine-s-galentine-s-day/1348ec186fa33bae090da0fe8693415b) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/texas-state-universitys-lift-program-boosts-small-business-marke/202627338)
+Pickup - [https://advos.io/en](https://advos.io/en/romantic-comedy-say-a-little-prayer-launches-digitally-for-valen/202627378)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202601/383200-texas-state-universitys-lift-program-boosts-small-business-marketing-confidence)
+Pickup - [https://burstable.news](https://burstable.news/news/202601/383666-romantic-comedy-say-a-little-prayer-launches-digitally-for-valentines-and-galentines-day-celebrations)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337065-lift-programm-der-texas-state-university-starkt-marketingvertrauen-von-kleinunternehmen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337104-romantische-komodie-say-a-little-prayer-startet-digital-zu-valentins-und-galentinstag)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337344-el-programa-lift-de-la-universidad-estatal-de-texas-aumenta-la-confianza-en-el-marketing-de-pequenas-empresas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337384-la-comedia-romantica-say-a-little-prayer-se-estrena-digitalmente-para-las-celebraciones-de-san-valentin-y-el-dia-de-la-amistad-femenina)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/338011-le-programme-lift-de-luniversite-detat-du-texas-renforce-la-confiance-des-petites-entreprises-en-matiere-de-marketing)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/338050-la-comedie-romantique-say-a-little-prayer-disponible-en-numerique-pour-la-saint-valentin-et-la-galentines-day)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336998-programa-lift-da-texas-state-university-aumenta-a-confianca-de-pequenas-empresas-no-marketing)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/337037-comedia-romantica-say-a-little-prayer-estreia-digitalmente-para-celebracoes-de-dia-dos-namorados-e-galentines-day)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/texas-state-universitys-lift-program-boosts-small-business-marke/202627338)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/romantic-comedy-say-a-little-prayer-releases-digitally-for-valen/202627378)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/texas-state-universitys-lift-program-boosts-small-business-marke/202627338)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202601/383794-romantic-comedy-say-a-little-prayer-releases-digitally-for-valentines-and-galentines-day)
 
-Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202601/383206-texas-state-universitys-lift-accelerator-boosts-marketing-confidence-for-small-businesses)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/romantic-comedy-say-a-little-prayer-launches-digitally-for-valen/202627378)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202601/337345-el-acelerador-lift-de-la-universidad-estatal-de-texas-impulsa-la-confianza-en-marketing-para-pequenas-empresas)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202601/383207-texas-state-universitys-lift-accelerator-boosts-marketing-confidence-for-small-businesses)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202601/383873-faq-say-a-little-prayer-romantic-comedy-release-for-valentines-and-galentines-day)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/261/30/quipKa_S.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/261/30/lendXfSC.webp)
