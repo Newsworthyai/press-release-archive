@@ -1,60 +1,45 @@
-# HR.com Relaunches Prime HR Memberships Powered by VirgilHR’s Attorney-Validated Compliance Platform
+# Ricky Gleason Champions Community-Driven Leadership Model for Kendall County Judge
 
-Jacksons Point, Ontario, Canada (Newsworthy.ai) Monday Feb 2, 2026 @ 8:00 AM Eastern — HR.com, the world’s largest global community and resource site for human resources (HR) professionals, today announced a strategic partnership with VirgilHR to relaunch and elevate its lineup of Prime HR Memberships. The enhanced Prime experience brings together HR.com’s trusted learning ecosystem with VirgilHR’s attorney-validated compliance technology to help HR professionals stay current and compliant across the complex landscape of U.S. employment laws.
+Comfort, Texas (Newsworthy.ai) Monday Feb 2, 2026 @ 12:30 PM Central — As Kendall County faces intensifying growth and public safety challenges, County Judge candidate Ricky Gleason is advocating for a fundamental shift in leadership—one that listens to residents first and treats county government as a partner, not an adversary.
 
- With this upgrade, Prime HR members gain instant access to real-time, jurisdiction-specific guidance across federal, state, and local laws — eliminating hours of manual research and helping HR teams make confident, well-informed decisions.
+ Gleason points to Comfort Vision 2050, a community-crafted roadmap developed by Comfort residents, as proof that collaborative, ground-up planning works. The plan, created across generations and professions, highlights decentralized decision-making, transparency, and coordination, principles Gleason says must guide county governance.
 
- “HR professionals are dealing with unprecedented complexity,” said Jocelyn King, CEO of VirgilHR. “By integrating our attorney-validated guidance into HR.com’s Prime memberships, we’re giving HR leaders a powerful resource they can trust to make compliant decisions in real time.”
+ “At its best, county government should be a partner to its citizens—not an adversary,” said Gleason. “The County Judge sets the tone. That tone should bring people together, not push them apart.”
 
- Prime HR Membership Details: HR.com/Prime
+ Listening as LeadershipGleason’s platform centers on proactive listening to residents, first responders, businesses, school districts, and municipalities. He believes leadership is about creating conditions where local ideas can thrive, especially in critical areas like:
 
- Prime HR now includes access to VirgilHR’s Chatbot, a powerful decision-support tool built on intelligent automation and legal expertise. The chatbot delivers instant answers, step-by-step guidance, and employment law insights across key topics such as leave, wage and hour, classification, accommodations, terminations, pay transparency, and more.
+ * Road & Bridge Planning: Coordinated, long-term infrastructure strategy.
+* Emergency Management: Unified response to flash floods and wildfire risks.
+* Fire & EMS Services: Strengthening volunteer capacity and interagency trust.
+* Economic Development: Fostering growth that preserves community character.
 
- Compliance Guidance
+ Why It Matters NowKendall County lacks a unified strategic vision, even as pressures from growth, environmental hazards, and strained infrastructure increase. Gleason argues that the County Judge must convene voices, align partners, and ensure innovation happens with the people, not to them.
 
- * Real-time, attorney-validated guidance on employment and labor law questions
-* Multi-state, multi-jurisdiction support
-* Prescriptive decision workflows that reduce legal risk
+ “Leadership starts with service,” Gleason added. “It means listening first, communicating clearly, and remembering that authority exists to help people succeed - not to control them.”
 
- Policy & Document Support
+ A Blueprint from ComfortWhile Comfort Vision 2050 is not a county plan, Gleason sees it as a “proof of concept” for engaged, resident-led planning. The process demonstrated that when invited into the conversation, citizens willingly define shared priorities and practical solutions.
 
- * Legally aligned policy templates
-* State addendums and compliant handbook content
-* Upload-and-analyze handbook functionality (Plus & Elite)
+ “A unified county is a stronger county,” Gleason stated. “When government works alongside its people, we solve problems faster, make better decisions, and preserve what makes Kendall County special.”
 
- Tools & Resources
+ About Ricky Gleason:Ricky Gleason is a candidate for Kendall County Judge focused on transparent, resident-first governance. His campaign emphasizes listening, coordination, and practical solutions to growth and public safety challenges.
 
- * Compliance modules covering leave, wage and hour, EEO, ADA, pay equity, and more
-* Salary benchmarking, attrition tracking, and HR calculators
-* Comprehensive Resource Library with attorney-reviewed HR documents, forms, and checklists
+ Media Contact:
 
- Beyond compliance, Prime HR members also gain access to HR.com’s exclusive learning resources, professional tools, and community opportunities — including preferred pricing on certification prep, volunteer and advisory opportunities, and continuing education pathways.
-
- “Today’s HR leaders need more than information—they need insight they can act on,” stated Debbie McGrath, Founder and CEO of HR.com. “This enhanced platform gives them the support to navigate compliance with confidence, improve daily efficiency, and continue growing as trusted advisors in their organizations.”
-
- 
-
- About VirgilHR
-
- VirgilHR delivers the next generation of HR compliance technology, giving HR professionals real-time, attorney-validated guidance on federal, state, and local employment laws.With instant answers, automated compliance workflows, and always-current legal updates, VirgilHR empowers HR teams to reduce risk, streamline complex decisions, and stay compliant everywhere they operate — all in one simple platform.
-
- About HR.com
-
- HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
-
- HR.com Newsroom 
+ Ricky Gleasongleason4judge@gmail.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602022086/hr-com-relaunches-prime-hr-memberships-powered-by-virgilhrs-attorney-validated-compliance-platform)
+[Original/Source Press Release](https://newsworthy.ai/news/202602022089/ricky-gleason-champions-community-driven-leadership-model-for-kendall-county-judge)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-partners-with-virgilhr-to-revolutionize-hr-compliance-technology/ac2ff1dc0db0c22988dcc59d7820e8d8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gleason-champions-resident-led-governance-for-kendall-county-growth/ba4ae35712b0a3e10e7597f39312b11a) 
 
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202602/384948-kendall-county-judge-candidate-advocates-for-resident-first-governance-amid-growth-challenges)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/2/lossv6n_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/2/tarov73S.webp)
