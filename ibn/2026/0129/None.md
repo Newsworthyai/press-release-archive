@@ -1,66 +1,44 @@
-# MiningNewsBreaks – Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) Advances Atikokan on Heels of ‘Robust Technical Dataset’
+# NetworkNewsBreaks – Numa Numa Resources Inc. Positioned at Nexus of Copper Supply Shift
 
-Disseminated on behalf of Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) and may include paid advertising.
+Disseminated on behalf of Numa Numa Resources Inc. and may include paid advertisements.
 
- Powermax Minerals (CSE: PMAX) (OTCQB: PWMXF), a Canadian mineral exploration company, recently completed its 2025 field exploration program at the Atikokan Rare Earth Elements property, marking a key technical milestone as the company advances its portfolio of REE-focused assets. “The property is located in the Atikokan–Ignace–White Otter Lake district of northwestern Ontario, a region with established infrastructure and a history of mineral exploration,” reads an article discussing this. “Details of the completed program were outlined in a December 17, 2025, announcement which described a systematic exploration campaign designed to evaluate the geological and geochemical potential of the Atikokan property. The 2025 field program combined geological mapping, prospecting, ground-based radiometric surveys, and geochemical sampling across several priority target areas… Geological mapping identified three principal lithological domains across the property. Block A is dominated by granodiorite to granite, while Block B consists mainly of gneissic tonalite, with granodiorite and granite appearing in its northern portion. Block C is also largely gneissic tonalite, with granodiorite and granite becoming more prominent toward the north-northeast.”
+ As copper emerges as a silent champion of the global energy transition, Numa Numa Resources, focused on developing the Panguna Mine, sits at the crossroads of a supply-driven decarbonization push. Amid surging demand and limited supply, Numa Numa Resources is advancing development efforts on a project on Bougainville Island in the South Pacific. “According to Numa Numa, the Panguna Mine holds known copper reserves of approximately 5.3 million metric tons. That figure represents roughly 5.3% of all currently identified copper reserves globally, placing Panguna in league with the copper endowments of entire countries,” reads a recent article. “These reserves are substantial not only in absolute terms but also as a potential contributor to broadening the world’s supply base at a time when industry analysts argue for at least one new large-scale copper mine per year to keep pace with demand.”
 
- To view the full article, visit https://ibn.fm/Erq45
+ To view the full article, visit https://nnw.fm/j9O5Z
 
- About Powermax Minerals Inc.
+ About Numa Numa Resources Inc.
 
- Powermax Minerals is a Canadian mineral exploration company focused on advancing rare earth element projects. The company holds an option to acquire the Cameron REE Property, comprising three mineral claims totaling approximately 2,984 hectares in British Columbia. Powermax also optioned to acquire the Atikokan REE Property, consisting of 455 unpatented mining claims in NW Ontario. Powermax also owns a 100% interest in the Ogden Bear Lodge Project, in Crook County, Wyoming.
+ Numa Numa is a mining and infrastructure development company focused on unlocking transformational opportunities in the Autonomous Region of Bougainville, where the company is headquartered and where its management has lived and worked for 10 years.
 
- NOTE TO INVESTORS: The latest news and updates relating to PWMXF are available in the company’s newsroom at https://ibn.fm/PWMXF
+ Bougainville, a resource-rich archipelago in the South Pacific, is perhaps best known as the home of the Panguna Mine. Developed by Rio Tinto, the Panguna Mine was the largest open cut copper and gold mine in the world when it operated from 1972 to 1989 before being shuttered due to a civil war, called “the Crisis,” between Bougainville and its parent government Papua New Guinea. In 2001, the Bougainville Peace Agreement ended the war and awarded Bougainville limited autonomy, including its own constitution, by which ownership of the mine reverted to its customary landowners. A majority of the Panguna Mine’s copper, gold, and silver ore resources remain within its walls, making the fully explored and developed Panguna Mine one of the largest ore bodies in the world, today worth approximately $100 billion. Most geologists who have studied Bougainville believe that other nearby locations such as Mainoki and Karato are highly prospective and may contain ore deposits similar in size and scale to those of the Panguna Mine.
 
- About MiningNewsWire
+ NOTE TO INVESTORS: The latest news and updates relating to Numa Numa are available in the company’s newsroom at https://nnw.fm/NUMA
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ About NetworkNewsWire
 
- MNW is where breaking news, insightful content and actionable information converge.
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.MiningNewsWire.com
+ For more information, please visit https://www.NetworkNewsWire.com
 
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
 
- MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
 
- MiningNewsWire is powered by IBN 
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-powermax-minerals-inc-cse-pmax-otcqb-pwmxf-advances-atikokan-on-heels-of-robust-technical-dataset/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-numa-numa-resources-inc-positioned-at-nexus-of-copper-supply-shift/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/powermax-minerals-completes-key-2025-ree-exploration-program-in-ontario/b90f9b0e788b611f773b921a467e8953) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/numa-numa-s-panguna-mine-5-3-of-global-copper-reserves-for-energy-transition/0362894229d24e3c5bffaff8ad0b0694) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/powermax-minerals-advances-atikokan-rare-earth-elements-explorat/202627322)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202601/382917-powermax-minerals-advances-atikokan-ree-property-following-2025-field-program-completion)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/powermax-minerals-advances-atikokan-ree-exploration-following-20/202627322)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/powermax-minerals-advances-atikokan-ree-property-following-2025/202627322)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202601/383100-powermax-minerals-completes-2025-field-exploration-program-at-atikokan-ree-property)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202601/337991-powermax-minerals-acheve-son-programme-dexploration-sur-le-terrain-2025-sur-la-propriete-delements-de-terres-rares-datikokan)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202601/383112-powermax-minerals-completes-2025-field-exploration-program-at-atikokan-ree-property)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202601/337335-powermax-minerals-avanza-en-la-propiedad-de-tierras-raras-atikokan-tras-la-finalizacion-del-programa-de-campo-2025)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202601/337058-powermax-minerals-schreitet-mit-atikokan-see-projekt-nach-abschluss-des-feldprogramms-2025-voran)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202601/338004-powermax-minerals-progresse-sur-la-propriete-atikokan-des-terres-rares-apres-lachevement-du-programme-de-terrain-2025)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202601/336991-powermax-minerals-avanca-na-propriedade-de-etrs-de-atikokan-apos-conclusao-do-programa-de-campo-de-2025)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/261/29/numbZcUM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/2/irisLhed.webp)
