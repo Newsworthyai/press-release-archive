@@ -1,38 +1,38 @@
-# Amazon Lays Off Thousands as it Deepens its Use of AI
+# 420 with CNW — Virginia Lawmakers Pass Bill Enabling Recreational Cannabis Sales
 
-Amazon has announced another major round of job cuts as it continues to reshape its business around artificial intelligence. The company is laying off 16,000 corporate employees, marking the second wave of layoffs in just three months. This comes after 14,000 workers were let go in October, showing how fast and serious Amazon’s restructuring plans have become.
+Virginia legislators have advanced legislation that would legalize and oversee adult-use marijuana sales in the state. The proposal is one of several drug policy measures being debated during the 2026 legislative session.
 
- With more tech advances being championed by firms like D-Wave Quantum Inc. (NYSE: QBTS), the employment landscape could be…
+ If this legislation is eventually implemented, it could create opportunities for entrepreneurs to form companies like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) focused on providing…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to D-Wave Quantum Inc. (NYSE: QBTS) are available in the company’s newsroom at https://ibn.fm/QBTS
+ About CNW420
 
- About TechMediaWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.TechMediaWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
-
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/amazon-lays-off-thousands-as-it-deepens-its-use-of-ai/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-virginia-lawmakers-pass-bill-enabling-recreational-cannabis-sales/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/amazon-cuts-16000-jobs-in-major-ai-driven-restructuring/d3048ed00dddc9b8bdc9ff122e662a9d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virginia-advances-bill-to-legalize-recreational-marijuana-sales/9ea6b801b9495e6d38dce1f9281b370e) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202602/384962-virginia-advances-adult-use-marijuana-sales-legislation-potentially-opening-market-for-companies-like-tilray-brands)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/2/fileqDAo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/2/quitweAm.webp)
