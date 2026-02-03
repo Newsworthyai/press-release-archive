@@ -1,72 +1,87 @@
-# Golden Cariboo Resources Intersects 0.42 g/t Gold over 47.01m (154.2 ft) From Surface and 0.76 g/t Au over 20.45m at Depth
+# EAGLE Trial Shows Olympus® CADDIE™ AI Solution Aids in the Detection of High-Risk and Hard-to-Detect Colorectal Lesions
 
-VANCOUVER, BC - February 3, 2026 (NEWMEDIAWIRE) - Golden Cariboo Resources Ltd. (the “Company”) (CSE:GCC) (OTC:GCCFF) (WKN:A402CQ) (FSE:3TZ) announces results from its Quesnelle Gold Quartz Mine property (‘the Property’, located 4 km northeast of Hixon British Columbia, south of Prince George. It has intersected 0.42 g/t gold over 47.01m (154.2 ft) from surface in diamond drill hole QGQ25-25 within a broader anomalous interval of 0.26 g/t Au over 190.2m and additional gold mineralization deeper in the hole, including 0.76 g/t gold over 20.45m from 324.88m. The drill hole ended in mineralization, yielding 1.00 g/t gold over 1.91m.
+Cloud-based AI Application for Colorectal Cancer Prevention: Enhancing Detection of Clinically Significant Lesions Without Compromising Safety and Workflow Efficiency
 
- Click here to see Drill Hole results table
+ TOKYO, JAPAN - February 3, 2026 (NEWMEDIAWIRE) - Olympus Corporation (Olympus), a global MedTech company committed to making people’s lives healthier, safer and more fulfilling, today announced publication of the EAGLE Trial1 - a multicenter randomized controlled study evaluating the CADDIE™ device, the first cloud-based Computer-Aided Detection (CADe) application for real-time polyp detection during colonoscopy that is both FDA-cleared and CE-marked. The CADDIE software is the first solution introduced as part of the OLYSENSE™ Intelligent Endoscopy Ecosystem.
 
- Diamond drill hole QGQ25-25 is a step out in the Halo zone, with the collar being 96m to the north-northeast of QGQ24-20, which returned 0.99 g/t Au and 9.77 g/t Ag over 236.88m (LINK). QGC25-28, an 80m step north of diamond drill hole QGQ25-25, is currently being extended to target depth, intersecting extensive quartz-carbonate veins as seen in Photo 1 below.
+ The trial indicates that cloud-deployed AI can help endoscopists detect the lesions that matter most in preventing progression to cancer2-5 - large adenomas, particularly those flat in morphology, and sessile serrated lesions (SSLs) - without disrupting safety or workflow. The study has been published in npj Digital Medicine.1
 
- Golden Cariboo Resources Ltd. President and CEO Frank Callaghan states: “We continue to drive forward with intersections of mineralization from surface, extending the deposit along strike at our Halo zone. Our excellent infrastructure and proximity to the community of Hixon in Central British Columbia allows our team to drill year around. We’re excited to be drilling in the winter and look forward to an active year in the Cariboo Gold Corridor.”
+ EAGLE Trial Overview
 
- QA/QC samples, including blanks, standards and coarse reject duplicates, constitute 5% of the total number of samples. The reported drilling has all been NQ core, which has been logged then split in half before being sent to the laboratory.
+ The EAGLE (Evaluation of AI for detection of Gastrointestinal Lesions in Endoscopy) study was conducted across eight centers in four European countries6, and its primary analysis involved 841 patients and 22 endoscopists performing screening and surveillance colonoscopies. Patients were randomized to standard colonoscopy or CADDIE-assisted colonoscopy.
 
- The drill core samples were sent to the accredited MSALABS laboratory (“MSA”) in Prince George for analysis. Samples were crushed by MSA to greater than 70% passing below 2 mm and split using a riffle splitter, and 250g splits were pulverized to greater than 85% passing below 75 microns. An aqua regia digest with an inductively coupled plasma atomic emission spectroscopy (ICP-AES) finish was used for 35-element analysis on 0.5g aliquots. Additionally, PhotonAssay™ (photon) analysis was conducted for gold and silver. Photon analysis uses a larger size (250-500g), compared to 30 or 50g in a fire assay, providing a more thorough assessment of gold distribution in coarse gold settings, characteristic of the Halo zone, where nugget effects can impact conventional assay results. MSA is accredited for the procedures performed and entirely independent from the Company.
+ Key Findings
 
- The technical information in this news release has been reviewed and approved by Jean Pautler, an independent consultant commissioned by the Company. Jean Pautler is a Professional Geoscientist (P.Geo.) registered with the Association of Professional Engineers and Geoscientists of the Province of BC (“APEGBC”) and licensed by Engineers and Geoscientists BC, and is a “Qualified Person” with respect to NI 43-101.
+ * Improved detection of high-risk and hard-to-detect lesionsIn screening and surveillance patients, use of the CADDIE™ application was associated in this study with 7.3% absolute increase in adenoma detection rate (ADR), compared to standard colonoscopy. Moreover, significant relative increases in lesions detected per colonoscopy were observed in this study for clinically relevant lesion subtypes: 93% for large (>10 mm) adenomas, 57% for non-polyploid adenomas and 230% for SSLs.
+* Feasible and efficient real-time cloud-based deploymentThe system demonstrated real-time performance and operational efficiency across diverse testing environments.
 
- Photo 1: Example of diamond drill hole QGQ25-28 core which exhibits extensive quartz-carbonate veining.
+ Clinically Relevant by Design
 
- About Golden Cariboo Resources Ltd.
+ The CADDIE™ application is trained on a dataset enriched in clinically relevant and hard-to-detect lesions, including flat sessile serrated lesions (SSLs) and large polyps (≥10 mm).
 
- Golden Cariboo Resources Ltd. is rediscovering the Cariboo Gold Rush by proceeding with highly targeted drilling and trenching programs on its Quesnelle Gold Quartz Mine property which is bordered by Osisko Development, partly intertwined with them at the north end of the Cariboo Gold Project, and located along a favourable corridor adjacent to the Spanish and Eureka thrust faults over a 94,899 hectare (234,501 acre) area. Historically, over 101 placer gold creeks on the 90-kilometer (56 mile) trend, from the Cariboo Hudson mine north to the Quesnelle Gold Quartz Mine property, have recorded production with successful placer mining continuing to this day.
+ Lesions with sessile or flat morphology are difficult to detect and can harbor clinically relevant pathology. SSLs, in particular, are high-risk lesions whose detection is critical to reducing the risk of post-colonoscopy colorectal cancer3-4. The ability to reliably detect SSLs is increasingly viewed as a critical quality consideration in colonoscopy7. This study demonstrates increased detection of clinically relevant lesions and no increase in unnecessary resections, addressing some of the concerns raised in recent guidelines8-9.
 
- Golden Cariboo’s Quesnelle Gold Quartz Mine property is 4 kilometers (2.5 miles) northeast of, and road accessible from, Hixon in central British Columbia. The Property includes the Quesnelle Quartz gold-silver deposit, which was discovered in 1865 and developed over a footprint of about 150m x 150m (less than 6 acres) at the Main zone straddling Hixon Creek. Overall, the geological setting of the gold mineralization at the Company’s Quesnelle Gold Quartz Mine property shows strong similarities with the Spanish Mountain gold deposit, situated 120 km (75 miles) towards the southeast along the same geological trend. As a sediment-hosted vein (SHV) deposit, the Spanish Mountain deposit is considered to belong to the epizonal orogenic subclass of gold deposits which include some of the world’s largest deposits such as Muruntau, Uzbekistan and Bendigo, Australia.
+ Why Cloud Matters?
 
- For further information please contact:
+ The CADDIE™ application leverages a cloud architecture that uses industry standard security controls. Cloud deployment offers hospitals flexibility, reducing reliance on hardware and enabling subscription-based procurement models. This approach can democratize access to advanced AI tools and lays the foundation for future AI applications in endoscopy.
 
- GOLDEN CARIBOO RESOURCES LTD “J. Frank Callaghan”
+ Expert Perspectives
 
- J. Frank Callaghan, President & CEOTel: 604-669-6463
+ “This study marks a pivotal shift in the clinical translation of AI-assisted endoscopy,” said Rawen Kader, Principal Investigator of the EAGLE Trial and GI Researcher at University College London. “Cloud deployment can remove hardware barriers and give hospitals access to the latest AI innovations, which has the potential of improving detection of the lesions that matter most for reducing colorectal cancer risk.”
 
- VISIT OUR WEBSITE FOR MORE DETAILSwww.goldencariboo.com
+ “The publication of EAGLE study in a high-impact journal like npj Digital Medicine is a pivotal moment for Olympus, supporting clinical adoption of the CADDIE™ device as an AI solution that can enhance detection of clinically relevant lesions without compromising safety or efficiency,” said Miquel Àngel García, Executive Vice President and General Manager, Gastrointestinal Business Unit, Olympus Corporation.
 
- LIKE AND FOLLOWInstagram, Facebook, X (Twitter), LinkedIn
+ “The EAGLE trial demonstrates how cloud‑based AI can be translated into routine endoscopy at scale,” said Peter Mountney, CEO of Odin Vision and Vice President, AI Unit, Olympus Corporation. “By delivering AI in real time through the cloud, we can help accelerate innovation and enable hospitals around the world to benefit from our latest, evidence‑based technologies to support clinicians and enhance the quality of care.”
 
- Neither the “CSE” Canadian Securities Exchange nor its Regulation Service Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ For complete access to the EAGLE Trial study, visit: www.nature.com/articles/s41746-025-02270-1
 
- Cautionary Statements:
+ Fair Balance Statement
 
- This news release contains statements which constitute “forward-looking information” within the meaning of applicable securities laws, including statements regarding the plans, intentions, beliefs and current expectations of the Company with respect to future business activities and plans of the Company. Forward-looking information is often identified by the words “may”, “would”, “could”, “should”, “will”, “intend”, “plan”, “anticipate”, “believe”, “estimate”, “expect” or similar expressions and includes information regarding; the expectation that the Company will receive all necessary exemptions and approvals to complete the Offering; the expectation that the Company will complete the Offering on the terms disclosed, or at all; the expectation that the proceeds will be used for property exploration and for general working capital; the Company’s exploration plans with respect to its Quesnelle Gold Quartz Mine property; and the anticipated participation of the insider in the Offering.
+ The gastroenterologist is responsible for reviewing CADDIE suspected polyp areas and confirming the presence or absence of a polyp based on their own medical judgment.
 
- Such forward-looking statements are based on a number of assumptions of management, including, without limitation, that the Company will receive all necessary exemptions and approvals to complete the Offering; that the Company will complete the Offering on the terms disclosed, or at all; that the proceeds will be used for property exploration and for general working capital; that the Company will have the resources required to proceed with its exploration plans; that the Company will not run into regulatory or other barriers in carrying out its business plans; that the insider will participate in the Offering, on the terms and conditions and in the amount currently expected by management; and that the Company will be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis anticipated.
+ CADDIE is not intended to replace a full patient evaluation, nor is it intended to be relied upon to make a primary interpretation of endoscopic procedures, medical diagnosis, or recommendations of treatment/course of action for patients. The CADDIE computer-assisted detection device is limited for use with standard white-light endoscopy imaging only.
 
- Additionally, forward-looking information involve a variety of known and unknown risks, uncertainties and other factors which may cause the actual plans, intentions, activities, results, performance or achievements of the Company to be materially different from any future plans, intentions, activities, results, performance or achievements expressed or implied by such forward-looking statements. Such risks include, without limitation: that the Company will not receive the necessary exemptions and approvals to complete the Offering; that the Company will not complete the Offering on the terms disclosed, or at all; that the Company will be unable to use the proceeds for property exploration and for general working capital; that the Company may incur unanticipated costs; that the Company may not have the resources required to pursue its exploration plans; that the Company’s operations could be adversely affected by possible future government legislation policies and controls or by changes in applicable laws and regulations; that the insider may not participate in the Offering on the terms and conditions and in the amount currently expected by management, or at all; and that the Company may not be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis currently expected. Such forward-looking information represents management’s best judgment based on information currently available. No forward-looking statement can be guaranteed and actual future results may vary materially. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. Neither the Company nor any of its representatives make any representation or warranty, express or implied, as to the accuracy, sufficiency or completeness of the information in this news release. Neither the Company nor any of its representatives shall have any liability whatsoever, under contract, tort, trust or otherwise, to you or any person resulting from the use of the information in this news release by you or any of your representatives or for omissions from the information in this news release.
+ 1. Kader R, Hassan C, Lanas Á, et al. A novel cloud-based artificial intelligence for real-time detection of colorectal neoplasia – a randomized controlled trial (EAGLE). npj Digit.l Med.. Published online December 26, 2025. https://doi.org/10.1038/s41746-025-02270-1 2. Nguyen LH, Goel A, Chung DC. Pathways of Colorectal Carcinogenesis. Gastroenterology. 2020;158(2):291-302. doi:10.1053/j.gastro.2019.08.0593. Anderson JC, Hisey W, Mackenzie TA, et al. Clinically significant serrated polyp detection rates and risk for postcolonoscopy colorectal cancer: data from the New Hampshire Colonoscopy Registry. Gastrointest Endosc. 2022;96(2):310-317. doi:10.1016/j.gie.2022.03.0014. Toledo DEFWMv, IJspeert JEG, Bossuyt PMM, et al. Serrated polyp detection and risk of interval post-colonoscopy colorectal cancer: a population-based study. Lancet Gastroenterol Hepatol. 2022;7(8):747-754. doi:10.1016/s2468-1253(22)00090-55. Soetikno RM. Prevalence of Nonpolypoid (Flat and Depressed) Colorectal Neoplasms in Asymptomatic and Symptomatic Adults. JAMA. 2008;299(9):1027. doi:10.1001/jama.299.9.10276. Italy, Germany, Spain, Poland7. Rex DK, Anderson JC, Butterly LF, et al. Quality indicators for colonoscopy. Gastrointest Endosc. 2024;100(3):352-381. doi:10.1016/j.gie.2024.04.29058. Bretthauer M, Ahmed J, Antonelli G, et al. Use of computer-assisted detection (CADe) colonoscopy in colorectal cancer screening and surveillance: European Society of Gastrointestinal Endoscopy (ESGE) Position Statement. Endoscopy. Published online 2025:. doi:10.1055/a-2543-03709. Sultan S, Shung DL, Kolb JM, et al. AGA Living Clinical Practice Guideline on Computer-Aided Detection–Assisted Colonoscopy. Gastroenterology. 2025;168(4):691-700. doi:10.1053/j.gastro.2025.01.002
 
- The forward-looking statements herein speak only as of the date they were originally made. The Company has no intention and undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
+ About Olympus
 
- 
+ At Olympus, we are committed to Our Purpose of making people’s lives healthier, safer and more fulfilling. As a global medical technology company, we partner with healthcare professionals to provide innovative solutions and services for early detection, diagnosis and minimally invasive treatment, aiming to improve patient outcomes by elevating the standard of care in targeted disease states. For more than 100 years, Olympus has pursued a goal of contributing to society by producing products designed with the purpose of delivering optimal outcomes for its customers around the world. For more information, visit olympus-global.com and follow us on LinkedIn.
 
-View the original release on www.newmediawire.com 
+ Media contact:Mail: Global-Public_Relations@olympus.com
+
+ Olympus Corp [TYO: 7733] [ADR: OLYMY] [STU: OLY1] [FRA: OLYS] https://www.olympus-global.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-cariboo-resources-intersects-0-42-g-t-gold-over-47-01m-154-2-ft-from-surface-and-0-76-g-t-au-over-20-45m-at-depth-7085224)
+[Original/Source Press Release](https://www.newmediawire.com/news/eagle-trial-shows-olympus-r-caddie-tm-ai-solution-aids-in-the-detection-of-high-risk-and-hard-to-detect-colorectal-lesions-7085232)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-cariboo-hits-significant-gold-from-surface-at-quesnelle-mine/f8c3721e9152595e12cd10bc67947f7c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olympus-ai-boosts-colon-cancer-detection-by-230-for-hard-to-spot-lesions/37e1a07169e1caca2cfbffc28bddf19c) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/golden-cariboo-resources-reports-significant-gold-intercepts-at/202627539)
+Pickup - [https://advos.io/en](https://advos.io/en/cloud-based-ai-system-shows-significant-improvement-in-detecting/202627558)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/385432-golden-cariboo-resources-reports-significant-gold-intercepts-at-quesnelle-gold-quartz-mine-property)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/385826-cloud-based-ai-system-shows-significant-improvement-in-detection-of-high-risk-colorectal-lesions-in-clinical-trial)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337537-golden-cariboo-resources-reporta-intercepciones-significativas-de-oro-en-la-propiedad-de-la-mina-de-cuarzo-dorado-quesnelle)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337278-cloud-basiertes-ki-system-zeigt-in-klinischer-studie-deutliche-verbesserung-bei-der-erkennung-von-hochrisiko-kolorektallasionen)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/golden-cariboo-resources-reports-significant-gold-intercepts-at/202627539)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337567-sistema-de-ia-basado-en-la-nube-muestra-mejora-significativa-en-la-deteccion-de-lesiones-colorrectales-de-alto-riesgo-en-ensayo-clinico)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338287-un-systeme-dia-base-sur-le-cloud-ameliore-significativement-la-detection-des-lesions-colorectales-a-haut-risque-dans-un-essai-clinique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337214-sistema-de-ia-baseado-em-nuvem-demonstra-melhoria-significativa-na-deteccao-de-lesoes-colorretais-de-alto-risco-em-ensaio-clinico)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/cloud-based-ai-system-shows-significant-improvement-in-detection/202627558)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/385873-cloud-based-ai-system-shows-significant-improvement-in-detecting-high-risk-colorectal-lesions-during-colonoscopy)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/eagle-trial-demonstrates-olympus-caddie-ai-enhances-detection-of/202627558)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/385853-cloud-based-ai-application-shows-promise-in-enhancing-colorectal-cancer-prevention-through-improved-polyp-detection)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/3/blurl70O.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/3/quitq5Z0.webp)
