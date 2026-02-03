@@ -1,34 +1,54 @@
-# French Supreme Court Decision Further Paves the Way to Market Access for CoorsTek Bioceramics’ Permallon® Orthopaedic Hip Components
+# GameDevZone.com Connects Indie Game Studios with Top Freelance Talent
 
-Golden, cO - February 2, 2026
+Seattle, Washington | February 3, 2026 —
 
-CoorsTek Bioceramics, a leading supplier of implantable ceramic components for orthopaedic devices, has further established its right to market and sell its pink ceramic hip components in the European Union after the French Supreme Court ruled in favor of CoorsTek in its trademark dispute with CeramTec GmbH.
+GameDevZone.com has officially launched as a new job marketplace designed specifically for indie game studios looking to hire freelance talent and showcase the games they are building. Built with the realities of indie development in mind, GameDevZone.com connects studios with experienced freelance game developers across disciplines such as programming, art, animation, audio, writing, QA, and more. The platform is free to join, with no upfront costs. Studios only pay a fee when they hire someone for a job, and freelancers pay a fee from their earnings.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* CoorsTek Bioceramics has further established its right to market and sell its pink ceramic hip components in the European Union after the French Supreme Court ruled in favor of CoorsTek in its trademark dispute with CeramTec GmbH.
-* This case follows on the recent decision by the U.S. Supreme Court to decline review in a similar legal action. By declining review, the U.S. Supreme Court effectively ended CeramTec’s efforts to claim trademark rights to the color pink for ceramic hip components in the United States.
-* The French Supreme Court upheld the cancellation of the three CeramTec trademarks by the Paris court of appeal. The Court held that Ceramtec had filed for trademark of its pink components in bad faith and that at the time of the trademark filing, CeramTec knew the pink color was not simply a brand indicator.
+Key Takeaways:* Free to sign up and post jobs; studios only pay when they hire.
+* GameDevZone focuses entirely on game development and the creative energy that drives it.
+* Built with indie studios in mind.
 
-[Click image above to view full announcement.](https://coorstek.reportablenews.com/pr/french-supreme-court-decision-further-paves-the-way-to-market-access-for-coorstek-bioceramics-permallon-orthopaedic-hip-components)About CoorsTek BioceramicsCoorsTek Bioceramics is dedicated to leading-edge manufacturing of technical ceramic implant components for the medical device industry. A wholly owned subsidiary of CoorsTek, Inc., CoorsTek Bioceramics is backed by over 110 years of technical ceramics expertise. With a focus on ceramic bearing surfaces for total joint arthroplasty, CoorsTek Bioceramics components can also be found in implant devices for neurological, cardiological, spinal, and radiation applications. Since 2005, over six million CoorsTek Bioceramics components have been sold and distributed for clinical use.About CoorsTekFounded in 1910 and continuously owned and operated by the Coors Family, CoorsTek is a leading global manufacturer of technical ceramics. By leveraging expertise in engineering and materials science, CoorsTek provides solutions to complex challenges in the medical, semiconductor, aerospace, energy, and other industries. With over 400 proprietary material formulations, vertically integrated systems, and unparalleled process capabilities, CoorsTek partners with its customers to make the world measurably better.
+[Click image above to view full announcement.](https://gamedevzone.reportablenews.com/pr/gamedevzone-com-connects-indie-game-studios-with-top-freelance-talent)About GameDevZone.comGameDevZone.com is a job marketplace built exclusively for the game development industry by a game developer. It connects indie studios with freelance professionals while giving studios a space to showcase their games and attract talent aligned with their creative vision.
 
-Contacts:Megan Maguire+1.303.503.2287mmaguire@coorstek.com
+Contacts:Darryl Tavernerdarryl@gamedevzone.com
 
-Source: CoorsTek
+Source: GameDevZone
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://coorstek.reportablenews.com/pr/french-supreme-court-decision-further-paves-the-way-to-market-access-for-coorstek-bioceramics-permallon-orthopaedic-hip-components)
+[Original/Source Press Release](https://gamedevzone.reportablenews.com/pr/gamedevzone-com-connects-indie-game-studios-with-top-freelance-talent)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/coorstek-wins-landmark-eu-court-battle-for-pink-hip-implants/72fe6f9fdab5f4d465ac6da028e4544c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gamedevzone-com-launches-as-indie-game-development-s-dedicated-job-marketplace/e1f4fd6d0118b7b0797d7c1a0007b80a) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e1f4fd6d0118b7b0797d7c1a0007b80a)
+
+Pickup - [https://advos.io/en](https://advos.io/en/gamedevzonecom-launches-specialized-marketplace-for-indie-game-d/202627576)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/385965-gamedevzonecom-launches-specialized-marketplace-for-indie-game-development-talent)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337282-gamedevzonecom-startet-spezialisierten-marktplatz-fur-indie-game-entwicklungstalente)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337579-gamedevzonecom-lanza-un-mercado-especializado-para-talentos-en-el-desarrollo-de-videojuegos-indie)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338297-gamedevzonecom-lance-une-place-de-marche-specialisee-pour-les-talents-du-developpement-de-jeux-independants)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337218-gamedevzonecom-lanca-mercado-especializado-para-talentos-no-desenvolvimento-de-jogos-independentes)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gamedevzonecom-launches-specialized-marketplace-for-indie-game-d/202627576)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gamedevzonecom-launches-specialized-marketplace-for-indie-game-d/202627576)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/385982-gamedevzonecom-launches-as-specialized-job-marketplace-for-indie-game-studios)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/3/frog9R6f.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/3/neon03jg.webp)
