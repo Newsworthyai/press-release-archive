@@ -1,22 +1,26 @@
-# FORTEC Elektronik Aktiengesellschaft: Supervisory Board Appoints Henrik Christiansen as CFO and Member of the Management Board
+# Julius Baer Group Announces Changes to the Board of Directors
 
-GERMERING, GERMANY - February 2, 2026 (NEWMEDIAWIRE) - The Supervisory Board of FORTEC Elektronik Aktiengesellschaft has decided to appoint Mr. Henrik Christiansen as interim CFO with effect from 2 February 2026. Mr. Christiansen will be responsible for finance and controlling, areas he has already been managing since 10 November 2025, until the entire Executive Board has been replaced by 1 July 2026 at the latest. As already announced in the corporate news dated 8 October 2025, the day-to-day business of the company has since been and will continue to be managed by Mr. Ulrich Ermel, Member of the Executive Board and COO of FORTEC Elektronik Aktiengesellschaft, now together with Mr. Christiansen.
+ZURICH - February 2, 2026 (NEWMEDIAWIRE) - Julius Baer Group today announced that Richard Campbell-Breeden has decided not to seek re-election to the Board of Directors at the next Annual General Meeting (AGM) and will therefore step down from his current role as Vice Chairman at that point. He will be succeeded as Vice Chairman by Juerg Hunziker, subject to his re-election as a Board Director by shareholders.
 
- Mr. Christiansen is an experienced operational finance and corporate strategist with over 30 years of proven success in CFO and management roles. He has extensive knowledge of controlling and accounting (HGB/IFRS) for listed and private equity-led companies. His focus is on M&A, restructuring and digitalisation, with in-depth experience in sustainable organisational change as well as financial strategy and corporate management with a strong hands-on mentality.
+Sir Noel Quinn, Chairman of the Board of Directors of Julius Baer Group, said: “I would like to express my deep gratitude to Richard for his many important and valuable contributions to Julius Baer over the last eight years, particularly for his strong leadership since taking on the role as Vice Chairman in February 2024. Richard led the process to recruit a new CEO and Chairman of Julius Baer. Having successfully completed both additions and ensured a smooth transition, he has now decided that it is the right time for him to step down as Vice Chairman and retire from the Board at our 2026 AGM.
 
- "In Henrik Christiansen, we have gained an extremely experienced and strategically savvy finance and business manager with extensive capital market, restructuring and digitalisation experience. We are delighted to have him on board, as his practical leadership skills and expertise in change processes have made, and will continue to make, an important contribution to ensuring the stability and continuity of the FORTEC Group during this transition phase," says Christoph Schubert, Chairman of the Supervisory Board of FORTEC Elektronik Aktiengesellschaft.
+ “I am delighted that Juerg has agreed to succeed Richard as Vice Chairman. Since I became Chairman, I have seen first-hand the value of Juerg’s 40 years of technology and financial services knowledge, both internationally and in Switzerland, as well as his experience as a CEO building high-quality customer-focused organisations. He is an excellent candidate for Vice Chairman.”
 
- FORTEC Elektronik Aktiengesellschaft | Augsburger Str. 2b | 82110 Germering | GermanyPhone: +49 89 894450 232
+ Mr. Hunziker’s appointment will ensure that the Board continues to have permanent senior representation within Switzerland, which remains a critical growth market for Julius Baer and where the business is headquartered.
 
- aktie@fortecag.de | www.fortecag.de
+ In addition, Julius Baer Group also announced that Urban Angehrn has agreed to join the Board as an independent non-executive Director from the 2026 AGM, subject to shareholder approval.
 
- FORTEC Elektronik Aktiengesellschaft (ISIN share: DE0005774103, WKN: 577410), based in Germering, was founded in 1984 as an international distributor of standard solutions in the field of power supplies, embedded systems and displays. Today, the FORTEC Group also offers customer-specific developments and complete system developments. Since April 2020, FORTEC Elektronik Aktiengesellschaft has been responsible as a holding company for the management of affiliated companies, the Group's strategy and essential parts of the administration. FORTEC Elektronik Aktiengesellschaft has subsidiaries in Germany, Switzerland, the UK, the USA and the Netherlands.
+ Sir Noel Quinn added: “I am also pleased to welcome Urban to the Board. Urban has over 30 years of financial services experience in our home market of Switzerland, including most recently serving as CEO of FINMA and, prior to that, as a member of the Executive Committee and Group Chief Investment Officer of Zurich Insurance Group. Urban brings extensive experience in investment management and risk management within large and complex organisations, along with a great understanding of global financial markets, regulation, and corporate governance. I am confident that he will further strengthen the Board’s oversight of the business and experience of financial services in Switzerland.”
 
- For reasons of better readability, the generic masculine form has been used in the text. Of course, all genders are addressed equally without any intention of discrimination.
+ Further details on Board and committee composition will be provided with the AGM circular to be published in March.
 
- 
+ContactsMedia Relations, tel. +41 (0) 58 888 8888Investor Relations, tel. +41 (0) 58 888 5256
 
- 
+About Julius BaerJulius Baer is the leading independent Swiss wealth management group and a premium brand in this global sector, with a focus on servicing and advising sophisticated private clients. In all we do, we are inspired by our purpose: creating value beyond wealth. At the end of 2025, assets under management amounted to CHF 521 billion. Bank Julius Baer & Co. Ltd., the renowned Swiss private bank with origins dating back to 1890, is the principal operating company of Julius Baer Group Ltd., whose shares are listed on the SIX Swiss Exchange (ticker symbol: BAER) and are included in the Swiss Leader Index (SLI), comprising the 30 largest and most liquid Swiss stocks.
+
+ Julius Baer is present in around 25 countries and 60 locations. Headquartered in Zurich, we have offices in key locations including Abu Dhabi, Bangkok, Dubai, Dublin, Frankfurt, Geneva, Hong Kong, Lisbon, London, Luxembourg, Madrid, Mexico City, Milan, Monaco, Mumbai, Santiago de Chile, Shanghai, Singapore, Tel Aviv, and Tokyo. Our client-centric approach, our objective advice based on the Julius Baer open product platform, our solid financial base, and our entrepreneurial management culture make us the international reference in wealth management.
+
+ For more information, visit our website at www.juliusbaer.com.
 
  
 
@@ -24,17 +28,17 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fortec-elektronik-aktiengesellschaft-supervisory-board-appoints-henrik-christiansen-as-cfo-and-member-of-the-management-board-7085215)
+[Original/Source Press Release](https://www.newmediawire.com/news/julius-baer-group-announces-changes-to-the-board-of-directors-7085220)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fortec-appoints-henrik-christiansen-as-interim-cfo-amid-leadership-transition/3d09726335e3bbc3cb5acb95df112991) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/julius-baer-announces-board-changes-with-new-vice-chairman-and-director/a9d51bf9eacb29c7f8733917c3678097) 
 
 
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202602/384968-fortec-elektronik-appoints-henrik-christiansen-as-interim-cfo-amid-executive-board-transition)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202602/384977-julius-baer-announces-board-leadership-transition-and-new-director-appointment)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/2/seekPoUQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/2/filot5_X.webp)
