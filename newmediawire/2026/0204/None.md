@@ -1,56 +1,78 @@
-# Pride Holdings Group Celebrates National Recognition as Aqua Nightclub Ranked #1 and Club One Savannah Ranked #10 Gay Clubs and Bars in the United States by Tripadvisor for 2025
+# Improving Blood Flow to the Brain in Arteries With Plaque Did Not Improve Cognitive Skills
 
-FORT LAUDERDALE, FL - February 4, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE), a leading LGBTQ+ hospitality, entertainment, and nightlife company, proudly announces that two of its flagship venues have earned top national recognition in Tripadvisor’s 2025 rankings of the Best Gay Clubs & Bars in the United States.
+Research Highlights:
 
- Aqua Nightclub has been named the #1 Gay Club & Bar in the United States, while Club One Savannah secured the #10 spot, placing both venues among the most celebrated LGBTQ+ nightlife destinations in the country.
+ * Procedures that remove plaque from a narrowed carotid artery in the neck or prop the artery open with a stent did not appear to be better at improving cognitive function than medications and lifestyle changes.
+* The results are from a substudy of the CREST-2 trial that included more than 2,000 adults to compare how treatment approaches influenced the risk of stroke in people with no symptoms but blockage of a carotid artery (carotid stenosis).
+* The substudy to assess cognitive skills found that surgical procedures to treat carotid stenosis did not lead to improved thinking or memory skills. However, if cognitive skills decrease over time, it may indicate that the individual’s treatment needs to be re-evaluated and possibly adjusted, the researchers said.
+* Note: The study featured in this news release is a research abstract. Abstracts presented at the American Heart Association’s scientific meetings are not peer-reviewed, and the findings are considered preliminary until published as full manuscripts in a peer-reviewed scientific journal.
 
- Tripadvisor’s annual rankings are based on the volume, quality, and consistency of traveler reviews and ratings from guests across the globe, recognizing venues that deliver exceptional experiences, atmosphere, and service.
+ Embargoed until 12:09 p.m. CT/1:09 p.m. ET Wednesday, Feb. 4, 2026
 
- “This is a tremendous honor for Pride Holdings Group and a powerful validation of our mission,” said Michael Barrett, CEO of Pride Holdings Group. “To have Aqua recognized as the number one gay club and bar in the nation, and Club One Savannah ranked among the top ten, speaks directly to the dedication of our teams, the loyalty of our guests, and the importance of preserving iconic LGBTQ+ spaces.”
+ NEW ORLEANS - February 4, 2026 (NEWMEDIAWIRE) - Improving blood flow to the brain by opening a narrowed neck artery may not improve patients’ cognitive skills, according to a preliminary late-breaking science presentation at the American Stroke Association’s International Stroke Conference 2026. The meeting, Feb. 4 - 6, 2026, in New Orleans, is a world premier meeting for researchers and clinicians dedicated to the science of stroke and brain health.
 
- Aqua Nightclub has become a nationally recognized destination for its high-energy entertainment, world-class drag performances, and inclusive atmosphere that attracts visitors from across the United States and beyond. Club One Savannah, a historic and beloved LGBTQ+ venue, continues to be a cultural cornerstone in the Southeast, known for its legendary shows, community engagement, and long-standing legacy.
+ “Whether patients undergo a procedure to remove plaque in the carotid artery (carotid endarterectomy), stenting to insert a flexible tube to hold open the narrowed part of the artery, or a combination of medications and lifestyle guidance without a procedure, there should be no expectation that cognition will improve after the treatment,” said study lead author Ronald M. Lazar, Ph.D., FAHA, a professor of neurology and neurobiology at the University of Alabama at Birmingham (UAB) and director of the UAB McKnight Brain Institute.
 
- These rankings further reinforce Pride Holdings Group’s strategy of acquiring, investing in, and elevating culturally significant LGBTQ+ venues while maintaining their unique identities and community impact.
+ Carotid artery stenosis, a narrowing of the carotid arteries in the neck, is usually due to plaque buildup. Standard treatment involves intensive medical management, including aspirin to prevent blood clots, medication for high blood pressure or cholesterol, and lifestyle changes such as smoking cessation, weight loss if needed, increased physical activity and a healthy diet. In addition, when the artery is more than 70% blocked, either carotid endarterectomy or stenting may be recommended.
 
- About Pride Holdings Group
+ The CREST-2 (Carotid Revascularization and Medical Management for Asymptomatic Carotid Stenosis) Trial compared stroke rates among people randomly selected to receive either intensive medical management alone; intensive management combined with carotid endarterectomy; or intensive management plus stenting.
 
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
+ Almost all previous research has found an association between carotid stenosis and lower performance on tests of cognitive function. The CREST-2 substudy included a ”cognitive core” component to assess cognitive performance before treatment and yearly for up to four years. This is the first large carotid stenosis study to include cognition as a major outcome in the study design of a randomized controlled trial.
 
- Forward-Looking Statements
+ “The brain needs a steady flow of blood to get oxygen for its cells. When blood vessels can’t deliver enough blood, the brain doesn’t get enough oxygen, and the neurons can’t work properly, which impacts the brain’s ability to function properly. This often leads to changes in cognitive skills like attention, processing speed and decision-making skills,” Lazar said.
 
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
+ Lazar and coauthors published results in 2021 in Stroke, the peer-reviewed scientific journal of the American Stroke Association, a division of the American Heart Association. The study showed that, before carotid stenosis treatment, 786 patients with severe (over 70% blocked) but symptomless carotid stenosis who entered the CREST-2 trial had lower cognitive skills scores - especially in memory - compared to participants in a separate population-based study matched for similar demographics and cardiovascular risk factors.
 
- Contact:Media Relationspress@prideholdingsgroup.com 
+ “The 2021 analysis indicated that revascularization might improve cognitive function,” said Lazar, who is the principal investigator of the Cognitive Core substudy and overall co-investigator of CREST-2.
+
+ However, with an average of 2.8 years of follow-up after treatment, the CREST-2 substudy researchers found no difference in thinking or memory over time among participants who had a procedure to restore blood flow (stenting or surgery) and those treated solely with intensive medical therapy. “Even among participants with the lowest cognitive function at the start of the study, who were expected to gain the most from these treatments, there were still no differences in cognitive skills among the treatment groups,” Lazar said.
+
+ Cognitive decline was confirmed in the participants who had a stroke during the study, validating that the cognitive tests were able to detect real changes in brain and neurological function.
+
+ These results may change how health care professionals counsel patients about the benefits of stenting or surgery to open narrowed carotid arteries. “Health care professionals can no longer assert that treatment of carotid stenosis will improve cognition. However, worsening cognition over time may be a signal that treatment may need to be re-evaluated and possibly adjusted,” Lazar said.
+
+ The study could not determine whether reduced blood flow to the brain is the sole or most important reason for cognitive decline in carotid artery disease. “Some characteristics of a blockage can cause small particles to travel to the brain. These particles may, over time, affect how the brain functions. This is an area we plan to explore in our future research,” Lazar said.
+
+ The study’s additional limitations include that all cognitive tests were conducted over the phone, making it impossible to test participants’ visuo-spatial skills and the full range of executive functions, such as decision-making. Also, only English-speaking patients were included in the substudy, so, the results may not be generalizable to other populations.
+
+ “These results from CREST-2 do not provide evidence of benefit of carotid revascularization on cognitive function among patients with significant carotid stenosis, although there is a benefit for stroke reduction,” said Mitchell Elkind, M.D., M.S., FAHA, FAAN, the American Heart Association’s Chief Science Officer for Brain Health and Stroke and a past volunteer president of the Association (2020-2021). “Cognitive decline associated with aging is a complex problem; however, restoration of blood flow through the large vessels alone may not be sufficient to address the many other pathways to decline, such as inflammation, neurodegeneration and small vessel disease. More research on how to mitigate cognitive decline and reduce dementia risk is needed, which is why the American Heart Association has supported study of these important areas and others.”
+
+ Study co-authors, funding and disclosures are listed in the abstract.
+
+ Statements and conclusions of studies that are presented at the American Heart Association/American Stroke Association’s scientific meetings are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. Abstracts presented at the Association’s scientific meetings are not peer-reviewed, rather, they are curated by independent review panels and are considered based on the potential to add to the diversity of scientific issues and views discussed at the meeting. The findings are considered preliminary until published as a full manuscript in a peer-reviewed scientific journal.
+
+ The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+
+ Additional Resources:
+
+ * Multimedia is available on the right column of release link.
+* Link to abstract in the American Stroke Association International Stroke Conference 2026 Online Program Planner
+* American Stroke Association Guideline news release: 2026 Guideline for the Early Management of Patients With Acute Ischemic Stroke (Jan. 2026)
+* American Heart Association news release: Top heart and brain research for 2025 found new ways to treat old problems (Dec. 2025)
+* American Stroke Association health information: Stroke Risk Factors
+* For more news at American Stroke Association International Stroke Conference 2026, follow us on X @HeartNews #ISC26
+
+ About the American Stroke Association
+
+ The American Stroke Association is a relentless force for a world with fewer strokes and longer, healthier lives. We team with millions of volunteers and donors to ensure equitable health and stroke care in all communities. We work to prevent, treat and beat stroke by funding innovative research, fighting for the public’s health, and providing lifesaving resources. The Dallas-based association was created in 1998 as a division of the American Heart Association. To learn more or to get involved, call 1-888-4STROKE or visit stroke.org. Follow us on Facebook and X.
+
+ For Media Inquiries and AHA Expert Perspective:
+
+ AHA Communications & Media Relations in Dallas: 214-706-1173; ahacommunications@heart.org
+
+ Karen Astle: Karen.Astle@heart.orgFor Public Inquiries: 1-800-AHA-USA1 (242-8721)heart.org and stroke.org 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-celebrates-national-recognition-as-aqua-nightclub-ranked-1-and-club-one-savannah-ranked-10-gay-clubs-and-bars-in-the-united-states-by-tripadvisor-for-2025-7085243)
+[Original/Source Press Release](https://www.newmediawire.com/news/improving-blood-flow-to-the-brain-in-arteries-with-plaque-did-not-improve-cognitive-skills-7085251)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-group-venues-top-tripadvisor-s-2025-best-gay-clubs-rankings/dd58beb186a6677471cc28af542c8803) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carotid-artery-procedures-don-t-boost-brain-function-study-finds/487477c6ada239acfc7ef39f6cc51ab1) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-venues-earn-top-national-recognition-in-tri/202627624)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202602/386270-pride-holdings-group-venues-earn-top-national-recognition-in-tripadvisors-2025-gay-clubs-bars-rankings)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337311-pride-holdings-group-venues-erhalten-nationale-top-auszeichnungen-in-tripadvisors-gay-club-bar-rankings-2025)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337608-los-locales-de-pride-holdings-group-obtienen-el-maximo-reconocimiento-nacional-en-el-ranking-de-clubes-y-bares-gay-de-tripadvisor-2025)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338326-les-etablissements-du-pride-holdings-group-obtiennent-une-reconnaissance-nationale-de-premier-plan-dans-le-classement-2025-des-clubs-et-bars-gays-de-tripadvisor)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337247-estabelecimentos-do-pride-holdings-group-recebem-reconhecimento-nacional-de-topo-no-ranking-de-clubes-e-bares-gays-do-tripadvisor-2025)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/386297-pride-holdings-group-venues-earn-top-spots-in-tripadvisors-2025-lgbtq-nightlife-rankings)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pride-holdings-group-venues-earn-top-national-recognition-in-tri/202627624)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pride-holdings-group-venues-earn-top-national-recognition-in-tri/202627624)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/4/dune8g7L.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/4/herbPMjT.webp)
