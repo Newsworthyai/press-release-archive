@@ -1,75 +1,45 @@
-# Upside Gold Corp. Delivers First Exploration Update for the Kena Gold-Copper Property
+# Exasol Significantly Improves Results and Strengthens Business in Focus Industries - Strategic Transformation Delivers Results
 
-HIGHLIGHTS
+* EBITDA of EUR 4.1 million (prior year: EUR 2.0 million) at the upper end of guidance (EUR 3.5 million to EUR 4.0 million); revenue of EUR 41.8 million (prior year: EUR 39.6 million) in line with expectations (mid-single-digit percentage growth)
+* ARR in focus industries increases to EUR 26.7 million (prior year: EUR 24.2 million) - share of total ARR at 68% (December 31, 2024: 57%)
+* Group net income rises significantly to EUR 3.1 million (prior year: EUR 0.2 million) - equity ratio increases to 34.2% (December 31, 2024: 23.8%)
+* 2026 outlook: mid-single-digit percentage ARR growth, EBITDA in the range of EUR 3 million to EUR 4 million, and declining revenue in the mid-single-digit percentage range
 
- * Multiple high-grade Au-Ag-Cu showings confirmed beyond existing historic resource boundariesSurface sampling returned values up to 26.1 g/t Au, 179 g/t Ag, and 1.68% Cu, supporting a large, multi-zone mineralized system.
-* 22 priority diamond drill targets identifiedDrill-ready targets defined both inside and outside the historic Kena gold body, including several areas with minimal or no prior drilling.
-* Strong expansion potential along and across strike, and at depthResults confirm gold and copper mineralization extends east and south of the resource, aligned with major structures and coincident geochemical and geophysical anomalies.
+ NUREMBERG, GERMANY - February 3, 2026 (NEWMEDIAWIRE) - Exasol AG (ISIN DE000A0LR9G9), a global technology company and provider of a high-performance analytics engine, has significantly improved key financial metrics in the 2025 financial year and consistently executed its strategic transformation toward focus industries. Preliminary results are in line with expectations. For 2026, the Company confirms its strategy of continuing sustainable growth in its defined focus industries.Significant Improvement in Key Profitability Metrics
 
- CALGARY, ALBERTA - February 3, 2026 (NEWMEDIAWIRE) - Upside Gold Corp. (CSE: UG) (FSE:47I) ("Upside Gold" or the "Company") is pleased to provide a preliminary exploration update for its 10,115 hectares Kena Gold-Copper Property (“Kena” or “Property”) in southeastern British Columbia, including results from the Company’s initial surface rock geochemical sampling program completed in July 2025.
+ Revenue increased by 5.6% to EUR 41.8 million (prior year: EUR 39.6 million), in line with guidance for mid-single-digit percentage growth. This includes one-time hardware and services revenue of EUR 4.1 million (prior year: EUR 0.5 million). EBITDA amounted to EUR 4.1 million, reaching the upper end of the guidance range of EUR 3.5 million to EUR 4.0 million and more than doubling year-on-year (prior year: EUR 2.0 million). The strong operating performance had a clearly positive impact on group net income, which increased to EUR 3.1 million (prior year: EUR 0.2 million). As a result, the equity ratio rose to 34.2% (December 31, 2024: 23.8%). Driven by the positive earnings development, cash and cash equivalents increased to EUR 18.7 million (December 31, 2024: EUR 15.0 million).ARR Development Driven by Sustained Growth in Focus Industries and Pull-Forward Effects from Contract Adjustments and Terminations
 
- “This initial field program represents an important step in advancing our understanding of the Kena Gold-Copper Property,” said Sophy Cesar, CEO of Upside Gold Corp. “The results support our exploration model and help define priority targets for follow-up diamond drilling beyond the existing lode gold bearing body.”
+ In line with its strategic transformation, ARR in the focus industries increased by 10.1% to EUR 26.7 million (prior year: EUR 24.2 million). Consequently, the share of focus industries in total ARR rose to 68% (December 31, 2024: 57%). Overall, this growth did not fully offset the decline in ARR from non-focus industries, a development that had been anticipated. Contract terminations and downsizing, originally expected in the 2026 financial year, occurred earlier than planned due to pull-forward effects. As a result, total ARR declined by 8.0% in the 2025 financial year to EUR 39.1 million (prior year: EUR 42.5 million). For the 2026 financial year, Exasol expects a substantial reduction in ARR churn.Strategic Realignment of Sales Structures and Progress in AI and Cloud Innovation Implemented
 
- The surface exploration program was undertaken as a field review in follow-up to the optioning of the Property in early 2025, in parallel with the Company‘s ongoing geological, geochemical and geophysical compilation of the Property’s analog and digital exploration database which extends back to the mid-1970s.
+ A key initiative in the 2025 financial year was the realignment of European sales structures along focus industries. Previously, sales activities were organized across industries. With the new structure, Exasol has significantly increased the effectiveness of its sales organization, enabling more targeted customer engagement supported by deeper industry expertise.
 
- During the field program, the exploration work focused on visiting and rock sampling known historic showings, and completing new geological traverses, and surface sampling of road-cuts from recently constructed logging roads crossing the Property. In addition, surface outcrop and historic trench exposures within the main lode gold body which make up the Kena Gold historic resource*were further reviewed and evaluated on-site. The Property gold mineralization is predominantly controlled by a northwestern trending major fault zone named Kena Deformation Zone situated within and between the Silver King Porphyry intrusive and Elsie Volcanic rocks and which is characterized as a strong low magnetic intensity signature as shown on the included maps.
+ During the 2025 financial year, Exasol further expanded the technological capabilities of its analytics engine. Progress was made in the development of the cloud-based Lakehouse Turbo solution, which enables the analytics engine to connect to the Databricks database platform. The solution offers customers three key benefits: reduced data analytics costs, faster delivery of analytics results, and continued use of existing Databricks environments. The solution is currently in the testing phase with a reference customer.
 
- Map 1
+ In addition, Exasol successfully brought to market its solution for the integration of artificial intelligence and machine learning applications into the analytics engine. Customers can perform AI-based data analytics and training models via the Exasol analytics engine and store the resulting structured data in Exasol’s data warehouse. With this, Exasol has reached a key strategic milestone and already counts a double-digit number of customers using these new functionalities.2026 Outlook: Mid-Single-Digit Percentage ARR Growth; EBITDA in the Range of EUR 3 million to EUR 4 million
 
- * Historic gold resource; An original technical report titled “NI 43-101 RESOURCE ESTIMATE FOR THE KENA AND DAYLIGHT PROPERTIES” by Sue Bird, Moose Mountain Technical Services was issued on May 3, 2021 and filed on SEDAR on behalf of West Mining Corp. reporting an Indicated Mineral Resource of 32,146,000 tonnes at an average grade of 0.544 g/t Au for 0.561 million ozs and an Inferred Mineral Resource of 177,507,000 tonnes at an average grade of 0.486 g/t Au for 2.77 million ozs. The Qualified Person for Upside Gold has not done sufficient work to classify this now historical estimate as current mineral resources and the Company is not treating the historical estimate as current mineral resources. The estimate is relevant to this news release as it was completed on the Property. The Qualified Person emphasizes that the estimate is provided for information only and should not be relied upon. The historical estimate uses the categories set out in section 1.2 of the NI-43-101. The parameters used are outlined in Sue Bird’s 2021 report. To upgrade the historical estimate as current mineral resource, additional drilling will have to be completed.
+ For the 2026 financial year, Exasol expects mid-single-digit percentage ARR growth compared to the 2025 financial year. Key drivers include a significant reduction in ARR churn and an acceleration of new customer acquisition. In particular, the strategic partnerships concluded in the 2025 financial year with MariaDB, Stackit, and Exoscale are expected to contribute to this development.
 
- Based on these evaluations, 22 proposed priority diamond drillhole collar sites were identified in the field for follow-up testing both within and outside the gold body. In total, 141 rock geochemical samples were collected for gold and multi-element analyses during the program.
+ Revenue is expected to decline in the mid-single-digit percentage range. This is primarily due to lagging effects from the ARR decline in 2025 and lower expected one-time hardware and services revenue, which was exceptionally high in the 2025 financial year. Against this backdrop and taking into account planned investments in innovation and technology, Exasol expects EBITDA in the range of EUR 3 million to EUR 4 million.Webcast
 
- 2025 Program Results
+ Exasol invites interested investors and media representatives to a virtual webcast today, February 3, 2026, at 2:00 p.m. (CET).
 
- The results of the July field program identified and confirmed the presence of multiple high-grade prospective areas and historic showings, both within and outside the main Kena lode gold body, supporting the definition of follow-up diamond drilling targets. The most significant assay results from this program are reported in the table, discussed below and shown on the maps.
+ To participate in the webcast, please register here:
 
- Click here to see Table 1
+ https://www.appairtime.com/de/event/94fe37a3-8f7c-4877-8728-060d21f8b292About Exasol AG
 
- Three areas visited on the Property, beyond the boundaries of the Kena lode gold body, are considered particularly exciting to the Company for follow-up exploration with diamond drill testing.
+ Exasol AG (ETR: EXL) is a leading provider of high-performance database technology headquartered in Germany, specializing in on-premises and hybrid IT environments. The company offers customized solutions for customers in highly regulated industries and the public sector, ensuring digital sovereignty and compliance with the EU General Data Protection Regulation (GDPR).
 
- * The Lower and Upper Euphrates Au-Ag showings, which report historic production of 307 tonnes at 46.9 g/t Au and 249 g/t Ag, have recently become accessible following the construction of new logging roads in the area. The workings are located in the southern half of the Property, trend regionally along-strike eight kilometres to the north to the Kena lode gold body, and are hosted within similar favorable geological, geochemical and geophysical signatures including an identified coincident magnetic low feature which can be traced for 10 kms. The average analytical results from the nine grab samples collected on-site reported 8.61 g/t Au and 31.6 g/t Ag, ranging from 0.022 g/t Au and <0.5 Ag up to 26.1 g/t Au and 179 g/t Ag. There has been no known drilling in the area.
-* The Cat, Shaft, Dighem, and Princess Cu-Au-Ag showings are adjacent and aligned along the east side of the Kena Gold lode gold body over a strike length of 1,200 metres and are associated with a strong two-pronged IP chargeability anomaly with areal dimensions of 1.8 by 0.6 kilometres with coincident copper soil anomalies. Rock samples collected from the showings returned analyses of up to 1.68% Cu, 5.41 g/t Au and 18 g/t Ag, supporting historic reports of multiple high-grade occurrences of copper and precious metals. Historically, only five reconnaissance drill holes have been completed across the entire area.
+ Exasol is the world’s most powerful analytics engine, purpose-built to handle the most demanding data workloads with an unmatched price/performance ratio.
 
- The Kena Copper Zone and adjoining South Gold Zone trends along strike for three kilometres southeast from the Kena Gold lode gold body, covering extensions of similar geology associated with a strong IP chargeability anomaly and a broad area of coincident copper and gold soil geochemical anomalies. Historic drilling reports multiple wide intersections of good copper and gold values starting at or near surface, of up to 117 metres of 0.22% Cu and 0.14g/t Au, 88.69 metres of 0.13% Cu and 0.21 g/t Au, 210 metres of 0.17% Cu and 0.13 g/t Au, 106 metres of 0.15% Cu, 0.18 g/t Au in the Kena Copper Zone as well as 90 metres of 0.9 g/t Au and 115 metres of 0.67 g/t Au and 0.05% Cu in the South Gold Zone. Multiple surface rock samples of up to 1.31 g/t Au collected during this program support the potential for these zones to host significant volumes of copper and gold mineralized material.
+ Trusted by global enterprises across diverse industries, Exasol delivers exceptional reliability and performance. With in-memory computing, massively parallel processing (MPP), self-tuning functionality, and advanced AI capabilities, Exasol simplifies complex analytics. This enables organizations to extract maximum value from their data while maintaining operational cost efficiency.
 
- QA/QC
+ Whether used as a standalone data warehouse, an analytics accelerator, or an AI/ML model enabler, Exasol ensures reliable, high-performance analytics across both on-premises and hybrid environments.
 
- The collected rock samples were shipped by bonded carrier and submitted to ALS Canada Ltd laboratory in Kamloops and North Vancouver, B.C. ALS Canada Ltd. is an independent accredited testing laboratory having been assessed by the Standards Council of Canada (SCC) and found to conform to the requirements of ISO/IEC 17025:2017 for listed services. The Qualified Person inserted blind Au, Ag and Cu accredited analytical standards and quartz blanks with the submitted batch.
+ For more information about how Exasol can transform your data analytics capabilities, visit www.exasol.com.IR and Press Contact
 
- Rock samples analyses included gold and 34 multi-element inductively coupled plasma - atomic emission spectroscopy (ICP-AES) analysis by four acid digestion (Au-ICP21, ME-ICP61), following sample weighing, log in, and crushing with screening to -75 microns. ALS completed a standard package of internal laboratory QA/QC, including standards, blanks and duplicates.
+ CROSS ALLIANCE communication GmbHSusan HoffmeisterPhone: +49 89 125 09 0333Email: ir@exasol.com
 
- Summary
-
- The results of the field program support the Company’s belief, based upon compilation and due diligence work, in the existence of a major gold-copper mineralized system on the Kena Gold-Copper Property that extends beyond the boundaries of the currently defined lode gold body which remains open both laterally, along strike and at depth. In particular, favourable geological, geochemical and geophysical signatures immediately to the east and south support the presence of major Cu-Au porphyry bodies that warrant detailed diamond drilling, with potential to add substantial volumes of mineralized material in the Property.
-
- In addition, the work supports the belief that this precious metal and copper mineralized system extends well into the southern half of the Property, an area that has not previously undergone diamond drilling or detailed exploration. This system also appears to be repeated by deformation towards the western side of the Property.
-
- The Kootenay region of south-eastern British Columbia has historically been largely overlooked for gold and copper exploration, and as such, offers opportunities for both new discoveries and for the development of known historic prospects into potentially viable resource bodies.
-
- The information in this press release has been reviewed and approved by Trevor Boyd, P.Geo., Vice-President, Exploration of the Company and a Qualified Person for the technical information under NI 43-101 standards.
-
- For more information on Upside Gold Corp., please visit the Company’s website at www.upsidegoldcorp.com.On behalf of Upside Gold Corp.
-
- Sophy CesarCEO and Directorinfo@upsidegoldcorp.comwww.upsidegoldcorp.com
-
- About Upside Gold Corp.
-
- Upside Gold Corp. is a Canadian gold-copper exploration company that has entered into an option agreement to acquire a 100% interest in the Kena Gold-Copper Project, located in southeastern British Columbia, approximately 7 kilometres southwest of Nelson. The Kena Project consists of 198 mineral claims covering 10,114.8 hectares, together with 11 crown grants covering approximately 92 hectares.
-
- The Company is focused on advancing the Kena Gold-Copper Project through systematic exploration and drilling programs.
-
- The Kena Project hosts a historical gold resource comprising an Indicated Mineral Resource of 32,146,000 tonnes at an average grade of 0.544 g/t Au for 0.561 million ounces of gold, and an Inferred Mineral Resource of 177,507,000 tonnes at an average grade of 0.486 g/t Au for 2.77 million ounces of gold. The historical resource estimate is disclosed in the technical report entitled “NI 43-101 Resource Estimate for the Kena and Daylight Properties” prepared by Sue Bird, P.Eng. of Moose Mountain Technical Services, dated May 3, 2021, and filed on SEDAR on behalf of West Mining Corp.
-
- A Qualified Person, as defined by National Instrument 43-101, has not done sufficient work to classify the historical estimate as current mineral resources, and Upside Gold Corp. is not treating the historical estimate as current mineral resources. The historical estimate is provided for information purposes only and should not be relied upon.
-
- Caution Regarding Forward-Looking Information
-
- This news release contains forward-looking information that involves substantial known and unknown risks and uncertainties, most of which are beyond the control of Upside Gold. Forward-looking statements include estimates and statements that describe Upside Gold's future plans, objectives or goals, including words to the effect that Upside Gold or its management expects a stated condition or result to occur. Forward-looking statements may be identified by such terms as "believes", "anticipates", "expects", "estimates", "may", "could", "would", "will", or "plan". Since forward-looking statements are based on assumptions and address future events and conditions, by their very nature they involve inherent risks and uncertainties. Although these statements are based on information currently available to Upside Gold, Upside Gold provides no assurance that actual results will meet management's expectations. Risks, uncertainties and other factors involved with forward-looking information could cause actual events, results, performance, prospects and opportunities to differ materially from those expressed or implied by such forward-looking information. Forward looking information in this news release includes, but is not limited to, Upside Gold’s objectives, goals or future plans, statements, details of the exploration results, potential mineralization, Upside Gold’s portfolio, treasury, management team and enhanced capital markets profile, the estimation of mineral resources and exploration plans.
-
- Factors that could cause actual results to differ materially from such forward-looking information include, but are not limited to, failure to identify mineral resources, delays in obtaining or failures to obtain required governmental, regulatory, environmental or other project approvals, political risks, inability to fulfill the duty to accommodate First Nations and other indigenous peoples, uncertainties relating to the availability and costs of financing needed in the future, changes in equity markets, inflation, changes in exchange rates, fluctuations in commodity prices, delays in the development of projects, capital and operating costs varying significantly from estimates and the other risks involved in the mineral exploration and development industry, and those risks set out in Upside Gold public documents filed on SEDAR. Although Upside Gold believes that the assumptions and factors used in preparing the forward-looking information in this news release are reasonable, undue reliance should not be placed on such information, which only applies as of the date of this news release, and no assurance can be given that such events will occur in the disclosed time frames or at all. Upside Gold disclaims any intention or obligation to update or revise any forward-looking information, whether as a result of new information, future events or otherwise, other than as required by law.
-
- Neither the CSE nor its Regulation Services Provider accepts responsibility for the adequacy or accuracy of this news release.
+ 
 
  
 
@@ -77,33 +47,35 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/upside-gold-corp-delivers-first-exploration-update-for-the-kena-gold-copper-property-7085235)
+[Original/Source Press Release](https://www.newmediawire.com/news/exasol-significantly-improves-results-and-strengthens-business-in-focus-industries-strategic-transformation-delivers-results-7085240)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/upside-gold-uncovers-major-gold-copper-system-at-kena-property/1ede954f6a06c37bfb4855b074721222) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exasol-s-strategic-pivot-drives-profit-surge-and-ai-innovation-in-2025/677a62297e7a46a8eb0a402cfd6c51ab) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/upside-gold-corp-identifies-22-drill-targets-at-kena-gold-copper/202627577)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/386051-exasol-ag-reports-strong-2025-financial-performance-and-strategic-progress)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/385975-upside-gold-corp-identifies-22-drill-targets-at-kena-gold-copper-property-confirming-expansion-potential)
+Pickup - [https://advos.io/en](https://advos.io/en/exasol-reports-strong-2025-financial-results-and-strategic-progr/202627600)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337283-upside-gold-corp-identifiziert-22-bohrziele-auf-der-kena-gold-kupfer-liegenschaft-und-bestatigt-erweiterungspotenzial)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/386064-exasol-reports-strong-2025-financial-results-and-advances-strategic-focus-on-key-industries)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337580-upside-gold-corp-identifica-22-objetivos-de-perforacion-en-la-propiedad-kena-de-oro-cobre-confirmando-potencial-de-expansion)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337290-exasol-meldet-starke-finanzergebnisse-fur-2025-und-treibt-strategische-fokussierung-auf-schlusselindustrien-voran)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338298-upside-gold-corp-identifie-22-cibles-de-forage-sur-la-propriete-aurifere-et-cuprifere-kena-confirmant-le-potentiel-dexpansion)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337587-exasol-reporta-solidos-resultados-financieros-para-2025-y-avanza-en-su-enfoque-estrategico-en-industrias-clave)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337219-upside-gold-corp-identifica-22-alvos-de-perfuracao-na-propriedade-kena-gold-copper-confirmando-potencial-de-expansao)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338305-exasol-annonce-de-solides-resultats-financiers-pour-2025-et-renforce-sa-strategie-ciblee-sur-des-secteurs-cles)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/upside-gold-corp-identifies-22-drill-targets-at-kena-gold-copper/202627577)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337226-exasol-reporta-fortes-resultados-financeiros-de-2025-e-avanca-no-foco-estrategico-em-industrias-chave)
 
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202602/385984-upside-gold-corp-identifies-22-priority-drill-targets-at-kena-property-confirming-mineralized-system-extends-beyond-historic-resource)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/exasol-reports-strong-2025-financial-results-and-advances-strate/202627600)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/upside-gold-corp-identifies-22-drill-targets-at-kena-gold-copper/202627577)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/exasol-reports-strong-2025-financial-performance-and-strategic-p/202627600)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/386081-exasol-reports-strong-2025-profitability-gains-amid-strategic-industry-focus-shift)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/3/bestkVCR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/3/cornXR5H.webp)
