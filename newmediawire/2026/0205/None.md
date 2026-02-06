@@ -1,54 +1,174 @@
-# Helix Biopharma Corp. Extends LEUMUNA Option With metaShape Pharma for Adipose Tissue-Related and Metabolic Diseases
+# HKTDC to Host World's Largest One-stop Jewellery Marketplace
 
-TORONTO, ONTARIO - February 5, 2026 (NEWMEDIAWIRE) - Helix BioPharma Corp. (TSX: “HBP”, OTC PINK: “HBPCD”, FRANKFURT: “HBP0”) (“Helix” or the “Company”), a clinical-stage oncology company shaping a near future where today’s hard-to-treat cancers are vincible, today announced the extension of its Research and Exclusive Option Agreement (the “Agreement”) with metaShape Pharma AG (“metaShape”) covering LEUMUNA™ through December 31, 2028.
+New Hard Pure Gold Pavilion Showcases Breakthrough Gold Technologies
 
- The Agreement was originally entered into in April 2023 between metaShape and Laevoroc Immunology AG, providing metaShape with an exclusive research license and an option to negotiate a commercial license for LEUMUNA within the field of adipose tissue-related and metabolic diseases. Referred to internally at metaShape as “MS 001”, the compound is being developed as an orally administered, first-in-class co-therapy to GLP-1 receptor agonists, such as semaglutide, aimed at improving the selectivity of adipose tissue reduction and the durability of weight loss.
+ HONG KONG - February 5, 2026 (NEWMEDIAWIRE) - Organised by the Hong Kong Trade Development Council (HKTDC), the world’s largest one-stop jewellery marketplace will return in early March under its proven “Two Shows, Two Venues” format. The 12th Hong Kong International Diamond, Gem & Pearl Show will take place from 2 to 6 March at AsiaWorld-Expo and will feature a wide range of jewellery raw materials. Also, the 42nd Hong Kong International Jewellery Show will be held from 4 to 8 March at the Hong Kong Convention and Exhibition Centre and will showcase finished jewellery pieces.
 
- In metaShape-led preclinical studies, MS 001 was shown to increase inosine and nicotinamide adenine dinucleotide (NAD+) levels, supporting enhanced mitochondrial function, increased energy expenditure in adipose tissue, and broader metabolic efficiency. Consistent with these effects, treatment with MS 001 in mice maintained on a highly obesogenic diet was associated with improved weight loss outcomes and attenuated weight regain following GLP-1 withdrawal.
+ Jenny Koo, Deputy Executive Director of the HKTDC, said: “This year’s twin jewellery shows bring together some 4,000 exhibitors from over 40 countries and regions, with 70% coming from outside Hong Kong. Exhibitor participation from Brazil, United Arab Emirates and India has expanded, and Uzbekistan joins for the first time. The HKTDC presents the world’s largest one-stop jewellery marketplace to highlight Hong Kong’s status as an international trade capital and jewellery sourcing hub.”
 
- Following Helix’s acquisition of Laevoroc Immunology AG’s assets and related rights in November 2024, as amended, Helix became the successor licensor under the Agreement.i In accordance with previously agreed terms, the parties have extended the option period through December 31, 2028, providing additional runway to advance research activities and support the progression of the program toward clinical-stage development. For Helix, the extension preserves long-term optionality in high-value metabolic indications, while maintaining a clear strategic focus on unlocking the potential of its oncology assets in hard-to-treat cancers.
+ In reviewing the global jewellery market, Hong Kong’s export volume of premium jewellery to ASEAN recorded a 51% increase, while exports to the United Kingdom, Australia and Switzerland grew year-on-year by 36%, 28% and 10% respectively.
 
- “The extension of this agreement aligns with a period of meaningful progress for metaShape,” said Randall Riggs, MBA, CEO of metaShape. “We are excited about the developments underway around MS 001 and look forward to sharing more as the program continues to advance.”
+ Over 40 themed pavilions, including a new Hard Pure Gold Pavilion
 
- “From Helix’s perspective, the decision to extend this agreement is grounded in the quality of the emerging preclinical data around MS 001, particularly its effects on NAD⁺ biology and the reprogramming of fat metabolism,” said Thomas Mehrling, MD, PhD, CEO of Helix BioPharma. “We are excited by the potential of this compound to benefit patients across distinct disease settings, with dosing and development approaches designed to reflect the unique needs of each indication. This program also reinforces the breadth of Helix’s science and its ability to generate value beyond oncology.”
+ The twin shows attract strong global industry support, with exhibitors participating from over 40 regional and industry pavilions. Participating regions include Chinese Mainland, Taiwan, India, Israel, Korea, Myanmar, Singapore, Sri Lanka, Thailand, Uzbekistan, Belgium, Germany, Italy, Spain, Turkiye, Brazil, Colombia, Mexico and the United States, etc.
 
- About MetaShape Pharma
+ The World Gold Council debuts the Hard Pure Gold Pavilion, featuring a total of 11 exhibitors from Chinese Mainland, showcasing innovative gold craftsmanship to the global market. The pavilion aims to leverage the fairs as a springboard for international expansion.
 
- MetaShape Pharma is a privately owned biopharmaceutical company founded in 2023 on a bold premise: metabolic dysfunction is a solvable problem, if we treat it at its root. The Company is developing first-in-class metabolic therapies designed to overcome the limitations of today’s GLP-1-based treatments. Its lead program, MS 001 (ulodesine hemiglutarate), is a preclinical-stage, oral small-molecule co-therapy designed to reprogram fat metabolism to enhance fat-selective weight loss, preserve muscle mass, and reduce weight regain, supporting more durable outcomes in obesity and cardiometabolic disease. Learn more at www.metashapepharma.com.
+ The Hong Kong Watch Manufacturers Association Ltd will participate as a pavilion for the first time, while the Zhushan Turquoise pavilion from Hubei will also make its debut. Other returning participants include the Tanzanite Foundation, the International Colored Gemstone Association (ICA), the Asia Pacific Creator Association, and the Asia Jewellery Culture Design and Crafts Association. The Hong Kong Jewellery & Jade Manufacturers Association will once again join forces with the Italian Exhibition Group (IEG) to present advanced jewellery manufacturing equipment and technologies.
 
- About Helix BioPharma
+ International brands in the spotlight
 
- Helix BioPharma is an oncology company that innovates from strength to bring near-term solutions for today’s hardest-to-treat cancers. The Company’s pipeline is led by Tumor Defense Breaker™ L-DOS47, a clinical-stage antibody-enzyme conjugate designed to prime CEACAM6-expressing tumors for increased sensitivity to therapy and augment the effectiveness of today’s front-running anti-cancer treatments. L-DOS47 has completed Phase Ib studies in non-small cell lung cancer (NSCLC) and shares its CEACAM6-targeting foundation with Helix’s next-generation bi-specific antibody-drug conjugates (ADCs), currently in discovery. The Company also advances two pre-IND candidates: (i) LEUMUNA™, an oral immune checkpoint modulator aimed at achieving durable remission in post-transplant leukemia relapse, and (ii) GEMCEDA™, a first-in-class oral gemcitabine prodrug with bioavailability on a par with IV, designed to expand treatment options for advanced cancers.
+ The Hall of Fame at the Hong Kong International Jewellery Show makes a highly anticipated return this year with more than 40% expansion in scale. It will welcome renowned international jewellery brands and help enhance global brand exposure. Turkish diamond jewellery brand Zen Diamond (Booth: CEC 3B-C12) presents diamond ring collections featuring exquisite cutting techniques. At the Hall of Extraordinary, Hong Kong exhibitor Continental Diamond Company (Booth: CEC GH-C07) showcases an 18K white and rose gold ring set with blue and light pink diamonds. Another Hong Kong exhibitor, Unique Brilliant Ltd (Booth: CEC GH-C13), unveils a necklace and earring set, the rubies display the coveted “pigeon blood red” colour.
 
- Helix is listed on TSX (HBP), OTC PINK (HBPCD), and FWB (HBP0). For more information, please visit: https://www.helixbiopharma.com/
+ Oriental Aesthetics showcases cultural heritage craftsmanship
 
- For more information, please contact:
+ This year’s shows will feature numerous jewellery pieces inspired by Asian culture and heritage. Chinese Mainland exhibitor, Guangdong JIABAO Pavilion Jewellery (Hong Kong) Company Ltd (Booth: CEC GH-A16) presents an 18K gold, handmade filigree butterfly brooch, made with national intangible heritage craft, with each piece taking over four months to complete. Another Chinese Mainland exhibitor, Shenzhen Meifei Precious Metals Co Ltd (Booth: CEC 3E-E02), brings a “Palatial Modern Chinese Style” jewellery series incorporating six traditional gold techniques, blending heritage craftsmanship with modern jewellery design.
 
- Helix BioPharma Corp.Bay Adelaide Centre - North Tower40 Temperance Street, Suite 2700Toronto, ON M5H 0B4Tel: +1 857 208 7687Jacek Antas, Directorcorporate@helixbiopharma.com
+ In recent years, hard pure gold technology has gained strong momentum in Chinese Mainland. Its high purity and enhanced hardness enable lighter, more durable designs with modern aesthetics. A seminar organised by the World Gold Council will examine the latest developments in the global gold market and hard pure gold technology.
 
- Forward-Looking Statements and Risks and Uncertainties
+ During the fairs, a series of events spotlighting Oriental aesthetics in jewellery will be staged. Hong Kong International Fashion Chuk Kam Jewellery Design Competition 2026, organised by the Jewellers’ and Goldsmiths’ Association of Hong Kong Limited, encourages designers to create commercially viable and culturally rich gold jewellery for young consumer markets in ASEAN and the Middle East. Its award presentation ceremony will be held during the fairs.
 
- This news release contains forward-looking statements and information (collectively, “forward-looking statements”) within the meaning of applicable Canadian securities laws. Forward-looking statements are statements and information that are not historical facts but instead include financial projections and estimates, statements regarding plans, goals, objectives, intentions and expectations with respect to the Company’s future business, operations, research and development, including the Company’s activities relating to DOS47, LEUMUNA™ and GEMCEDA™. Forward-looking statements can further be identified by the use of forward-looking terminology such as “ongoing”, “estimates”, “expects”, or the negative thereof or any other variations thereon or comparable terminology referring to future events or results, or that events or conditions “will”, “may”, “could”, or “should” occur or be achieved, or comparable terminology referring to future events or results.
+ In addition, the inaugural International Fei Cui Jewellery Design Competition 2026, organised by the Hong Kong Jade Association, will also host its awards presentation during the fairs.
 
- Forward-looking statements are necessarily based on a number of estimates and assumptions that the Company considered appropriate and reasonable as of the date such information is given, including but not limited to the assumptions regarding the implied benefits of the transactions. Forward-looking statements are subject to known and unknown risks, uncertainties, and other factors, many of which are beyond the Company’s control, that may cause actual results, performance or achievements to be materially different from those expressed or implied by such forward-looking statements, including but not limited to the risk that the Company's assumptions on which its forward-looking statements are based may not be accurate; the ability of the Company to capitalize on the potential benefits of the transactions; and the risk factors disclosed in the Company's periodic reports publicly filed and available on its SEDAR+ profile at www.sedarplus.ca. No assurance can be given that any of the events anticipated by the forward-looking statements will transpire or occur. There is no assurance that the proposed transactions will be completed in accordance with its terms or at all. The forward-looking statements contained in this news release are made as of the date of this announcement and the Company does not assume any obligation to update any forward-looking statement or information should those beliefs, assumptions, opinions or expectations, or other circumstances change, except as required by law.
+ Creative design sets the trend
 
- REFERENCES
+ Innovative and trend-driven products help the industry stand out. Austy Lee Company Ltd (Booth: CEC 1E-F32) introduces bangles inspired by zebra patterns for the Year of the Horse. Designer Galleria welcomes new exhibitor Zheng Hong Collective (Booth: CEC 1CON-067A), featuring a brooch whose movable wings and tail sway with the wearer.
 
- https://www.helixbiopharma.com/fy2025/helix-biopharma-secures-pre-ind-candidates-leumuna-and-gemceda-in-strategic-acquisition-from-the-laevoroc-group/
+ The 27th Hong Kong Jewellery Design Competition, themed “Pure Elegance – Natural Beauty”, returns to nurture creative talent. Local students and industry professionals interpret the beauty of nature and their design stories through their creations, highlighting the diverse facets of jewellery design. Winning designs will be announced during the fairs.
 
- View the original release on www.newmediawire.com 
+ Rare treasures dazzle across both shows
+
+ As always, the twin shows offer buyers an outstanding selection of antique and rare jewellery. At the Hong Kong International Jewellery Show, Hong Kong exhibitor Baroque Antique & Jewellery Limited (Booth: CEC CH-F13) presents a 1970s Buccellati pink sapphire suite, while World Coins Co., Ltd. (Booth: CEC CH-N12) showcases a 19th-century Italian bi-colour enamel diamond piece preserved in its original box for over 100 years. At the Hong Kong International Diamond, Gem & Pearl Show, German exhibitor Caram e.K. (Booth: AWE 8-F05) features an 18.98-carat AGL-certified natural pink sapphire, while Canadian exhibitor Korite Ammolite Ltd. (Booth: AWE 8-F35) displays an 18K gold AA-grade ammolite and diamond necklace.
+
+ The Hong Kong International Jewellery Show will also host a seminar titled “The Origins of Style: Tracing the Imprint of Time and Craftsmanship.” This seminar will invite British historian and jewellery authority Dr. Jack Ogden to speak. He will provide an in-depth analysis of the evolution of jewellery craftsmanship and changes in aesthetic tastes across different eras.
+
+ Over 20 forums on hot topics including AI and digital marketing
+
+ More than 20 seminars and networking sessions will be held, covering industry trends, digital marketing and jewellery technologies. A session will examine how artificial intelligence moves from design to commercialisation to drive the development of the jewellery industry. There will also be seminars where influencers share how to leverage e-commerce platforms to enhance jewellery brand visibility, boost sales, and share practical experience, to help the industry accelerate the integration and synergy between online and offline channels.
+
+ Business opportunities and industry exchange
+
+ The exhibition attracts major international jewellery retail chains, as well as high-end, affordable luxury, and designer jewellery brands from around the world for sourcing. It creates business opportunities for both buyers and sellers while fostering industry exchange.
+
+ The HKTDC has partnered with the Hong Kong Tourism Board and local enterprises to provide exclusive buyer privileges. These offers include dining, air tickets, and hotels, enabling buyers to enjoy Hong Kong’s unique charm while attending the fairs. The HKTDC will arrange free shuttle bus services between AsiaWorld-Expo and urban areas (including the Hong Kong Convention and Exhibition Centre in Wan Chai). For details, please refer to the fair’s official website.
+
+ Combining online and offline services to facilitate sourcing
+
+ The shows use the EXHIBITION+ hybrid format. In addition to on-site procurement, the HKTDC’s AI-powered “Click2Match” will provide online business-matching for exhibitors and buyers from 23 February to 13 March. On-site buyers can use "Scan2Match" to scan exhibitors’ QR codes and continue discussions with exhibitors online during or after the show. To ease the buyer admission process, the HKTDC Marketplace App and the official websites of the two shows provide online verification functions. Buyers need only register through these platforms and upload a photo and valid identification to obtain a verified eBadge for direct entry, greatly reducing queuing times for onsite registration and verification and enhancing sourcing efficiency.
+
+ Photo download: https://bit.ly/4ayrcAo
+
+ Websites
+
+ 
+
+ Hong Kong International Jewellery Show Exhibition website
+
+http://hkjewelleryshow.hktdc.com/tc
+
+ Shuttle bus details https://www.hktdc.com/event/hkjewellery/tc/travel-to-fairground-hkcec
+
+ Activity list
+
+https://www.hktdc.com/event/hkjewellery/tc/intelligence-hub
+
+ 
+
+ 
+
+ Hong Kong International Diamond, Gem & Pearl ShowExhibition website http://hkdgp.hktdc.com/tc
+
+ Shuttle bus details https://www.hktdc.com/event/hkdgp/tc/travel-to-fairground-awe
+
+ Activity list https://www.hktdc.com/event/hkdgp/tc/intelligence-hub
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ HKTDC Media Room: https://mediaroom.hktdc.com/en
+
+ Media enquiries
+
+ Please contact HKTDC’s Communication & Public Affairs Department:
+
+ Winnie Kan
+
+Tel: (852) 2584 4055
+
+Email: winnie.wy.kan@hktdc.org
+
+ Katy Wong
+
+Tel: (852) 2584 4524
+
+Email: katy.ky.wong@hktdc.org
+
+ Jane Cheung
+
+Tel: (852) 2584 4137
+
+Email: jane.mh.cheung@hktdc.org
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ About HKTDC
+
+ The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/helix-biopharma-corp-extends-leumuna-option-with-metashape-pharma-for-adipose-tissue-related-and-metabolic-diseases-7085272)
+[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-to-host-world-s-largest-one-stop-jewellery-marketplace-7085276)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-biopharma-extends-leumuna-option-with-metashape-through-2028/01c6ee1b60860e8a794241efa61ad4fb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-s-twin-jewellery-shows-debut-hard-pure-gold-pavilion-in-2026/b563d22ccae2412251978f8f3df661ec) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/hktdcs-twin-jewellery-shows-to-showcase-global-market-growth-and/202627728)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/386949-hktdcs-twin-jewellery-shows-to-feature-global-innovations-and-cultural-heritage-in-march-2026)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337363-hktdc-prasentiert-im-marz-2026-bei-seinen-zwillings-juwelierausstellungen-globale-innovationen-und-kulturerbe)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337666-las-ferias-gemelas-de-joyeria-del-hktdc-presentaran-innovaciones-globales-y-patrimonio-cultural-en-marzo-de-2026)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338389-les-deux-salons-de-joaillerie-du-hktdc-mettront-en-lumiere-les-innovations-mondiales-et-le-patrimoine-culturel-en-mars-2026)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337300-feiras-de-joalharia-da-hktdc-apresentarao-inovacoes-globais-e-patrimonio-cultural-em-marco-de-2026)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hktdcs-twin-jewellery-shows-to-host-worlds-largest-marketplace-w/202627728)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hktdcs-twin-jewellery-shows-to-highlight-global-market-growth-an/202627728)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/386958-hong-kong-to-host-worlds-largest-jewellery-marketplace-in-march-with-4000-exhibitors)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/5/lineX8gs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/5/paleJpVX.webp)
