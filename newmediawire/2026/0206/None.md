@@ -1,64 +1,104 @@
-# Rockland Reports on First 2 Drill Holes Completed at the Cole Gold Mines Project in the Red Lake District, Ontario
+# Started Within 48 Hours of Stroke, Neuroprotective Medication Helped Brain Cells, Recovery
 
-VANCOUVER, BC - February 6, 2026 (NEWMEDIAWIRE) - Rockland Resources Ltd. (the “Company” or "Rockland") (CSE: RKL) (OTCQB: BERLF) (FSE: GB2) is pleased to report it has obtained visible gold in the first 2 drill holes completed, of an ongoing 3,000-metre diamond drilling program at its 100%-owned Cole Gold Mines Project, located in the prolific Red Lake Mining District of Ontario.
+Research Highlights:
 
- The initial drill holes were completed at the historic Cole Gold Mine, in efforts to confirm the style and nature of gold mineralization at this locale. A second objective was to observe and establish alteration styles, lithologies and structural controls associated with precious-metal mineralization, to assist in current and future exploration efforts on the Cole property (see Figure 1).
+ * In a phase III clinical trial in China, stroke patients treated intravenously with loberamisal, a novel neuroprotective medication, daily for 10 days starting within 48 hours of stroke symptoms, had a higher proportion of excellent functional outcomes at 90 days than patients who received a placebo.
+* Treatment with loberamisal was considered safe because patients did not have an increased risk of serious side effects or death compared to those in the placebo group.
+* Note: The study featured in this news release is a research abstract. Abstracts presented at the American Heart Association’s scientific meetings are not peer-reviewed, and the findings are considered preliminary until published as full manuscripts in a peer-reviewed scientific journal.
 
- Exploration and development at the Cole Gold Mine includes a shaft sunk to a depth of 160 metres and levels established at the 90, 120 & 150-metre levels. The Cole Gold Mine is considered a non-producing historic mine; aside from recovering gold from underground development
+ Embargoed until 12:09 p.m. CT/1:09 p.m. ET Friday, Feb. 6, 2026
 
- Several occurrences of visible gold have been observed to date as documented below [1]. Company personnel continue to log, sample and split core, prior to it being sent out for analyses.
+ NEW ORLEANS - February 6, 2026 (NEWMEDIAWIRE) - Stroke patients treated intravenously with loberamisal, a novel neuroprotective medication, daily for 10 days and starting within 48 hours of stroke symptoms, had better recovery than patients who received a placebo, according to a preliminary late-breaking science presentation at the American Stroke Association’s International Stroke Conference 2026. The meeting, from February 4 to 6, 2026, in New Orleans, is a world premiere meeting for researchers and clinicians dedicated to the science of stroke and brain health.
 
- Drill Holes RR-26-01 & RR-26-02:
+ The study is a Phase III clinical trial, a large-scale study to evaluate the effectiveness of a new treatment. The study goal is to test loberamisal, a new-generation dual-target treatment strategy designed to protect brain cells (neuroprotective agent) within the first 2 days after a stroke.
 
- Visible gold was intersected at 3 locales in drill hole RR-26-01 from 82.20 to 82.60 metres, over a core length of 0.40 metres. An additional intercept was obtained at a depth of 85.70 metres down-hole.
+ “Neuroprotective agents may help improve patient outcomes since they are aimed at preserving the function of neurovascular units. However, trials for most of these agents have not been successful,” said study author Shuya Li, M.D., director of the Clinical Trial Center and head of the Phase I Clinical Research Unit at Beijing Tiantan Hospital in Beijing. “In this trial, we tested loberamisal, a small-molecule, dual-acting neuroprotective agent that was an effective neuroprotectant in rodent studies. New treatments for stroke may come from multi-target neuroprotective agents, which could lead to important advancements in reducing or preventing disability after a stroke.”
 
- Diamond drill hole RR-26-02 is a deeper cut below hole RR-26-01 and intersected visible gold over a 0.20-metre interval between 74.90 to 75.10 metres as well a deeper intercept at a depth of 187.00 metres down-hole. (Photographs depicting the above gold mineralization are posted on Rockland Resources website and are dated February 6, 2026).
+ The American Stroke Association’s new 2026 Guideline for the Early Management of Patients With Acute Ischemic Stroke notes that neuroprotection has garnered renewed interest. Current knowledge gaps need to be addressed in future research.
 
- In both drill holes, gold mineralization is hosted in deformed quartz veins, veinlets and stockwork that cross-cut broad zones of intense silicification (7 to 30 metre widths) that contain lesser biotite and subordinate garnet. Quartz veins, veinlets and stockwork also contain fine-grained arsenopyrite, chalcopyrite, pyrite and as locally, tourmaline. The zones of intense silicification also contain disseminated chalcopyrite, pyrite and arsenopyrite in seams and fracture fillings, suggesting appreciable potential widths for gold mineralization should the silicified zones assay favourably. The silicified zones are flanked by intervals of strong biotitic alteration with less intense silicification and also contain garnet.
+ In this study trial participants were patients who received stroke care at 32 centers in China. 998 adults, ages 18 to 80, were treated for 10 days with either a daily, intravenous infusion of 40 mg loberamisal for 10 days or a matched placebo, started within 48 hours of a moderate to severe stroke caused by a blocked vessel. All had a confirmed clogged brain-vessel stroke, and treatment began within 48 hours of when stroke symptoms began. Only about 17% of participants received standard IV clot-busting medication (for example, alteplase), limiting assessment of combined effects of both treatments. Patients who received surgical treatment for the blockage (mechanical thrombectomy) were excluded from the trial.
 
- Closely spatially associated with the veins containing visible gold and the zones of intense silicification, are prominent altered ultramafic and mafic dikes, intersected over variable widths. This close association suggests that the dikes and veins occupy and heal the same structures; proximity of ultramafic rocks with gold mineralization is well known in the Red Lake district, auguring well for the Cole property.
+ At 90 days after treatment, the analysis found:
 
- Mr. Mike England, CEO of Rockland, stated: "Multiple occurrences of visible gold in each of the 2 initial drill holes is a very exciting start to this drill program. Hole RR-26-2 is the deepest hole completed yet and contains the best occurrence of visible gold obtained to date. This intercept occurs beneath the Cole Gold Mine workings, indicating gold mineralization continues to depth which is very encouraging. We also look forward to drilling several other high-priority targets containing high-grade gold mineralization that have never been drill tested.”
+ * 69% of participants treated with loberamisal had excellent functional recovery (little to no disability) compared to about 56% in the placebo group.
+* The treatment was considered safe because patients did not appear to have an increased risk of serious side effects or death compared to those in the placebo group.
 
- Figure 1. Plan Map of the Cole Gold Mines Project Target Areas
+ Study limitations include that the trial was conducted only in China, therefore, the results cannot be directly translated to people living in other countries.
 
- Readers are invited to view sample pictures of visible gold from the current program and to learn more about the Cole Gold Mines Project by visiting the Company's website:
+ “We want to confirm our findings with larger groups of people, including people from different racial and ethnic backgrounds, patients with more severe strokes and those who also have had vascular surgery. We need to better understand how loberamisal works by studying biomarkers in multiple population groups,” Li said.
 
- https://www.rocklandresources.com/colegoldmines
+ Other limitations were that most patients in the study had moderate to severe strokes, which may affect applicability to people who have a more severe stroke. No blood or imaging biomarkers were assessed, which limits the applicability of the study’s understanding of how loberamisal affects the body.
 
- [1] It should be noted that visible gold observed in drill core does not on its own, indicate the grade, continuity or economic viability of mineralization
+ Study details, background and design:
 
- Qualified Person:
+ * Researchers conducted the multicenter, randomized, double-blind, parallel, placebo-controlled Phase III clinical trial over a 9-month period, from July 2024 to April 2025.
+* Although 20 participants did not complete the 90-day follow-up assessment, they were still included in the final statistical analysis.
+* Randomization to loberamisal or placebo was computer-generated; neither the investigators nor the participants knew who was receiving the medication or the placebo.
+* Trial participants all had National Institutes of Health Stroke Scale (NIHSS) scores between 7 and 20, indicating moderate to severe stroke. (NIHSS is the standard tool used globally to score the severity of strokes.)
+* Functional outcomes were measured on the modified Rankin Scale (mRS). A score of 0-1 indicates little to no disability. This score was assessed and determined by trained and certified researchers at the 90-day follow-up, conducted via face-to-face interviews or standardized telephone questionnaires using a structured assessment form.
+* Patients were excluded from the study if they had any history of the following: bleeding strokes; severe consciousness impairment; transient attacks; blood pressure higher than 220/120 mm Hg with blood pressure treatment; history of severe mental health condition, dementia, depression or anxiety; severe liver or kidney disease; had undergone vascular surgery; had malignant tumors with a life expectancy of less than 90 days; were pregnant or lactating; had known allergy to loberamisal; major surgery scheduled within four weeks; or if they had participated in another clinical trial. Participants are restricted to enrollment in one clinical trial at a time, which is also a regulatory requirement for industry sponsored clinical trials in China.
 
- Rockland’s disclosure of a technical or scientific nature in this news release was reviewed and approved by Danae Voormeij, P. Geo., who is a registered professional geoscientist with Engineers and Geoscientists British Columbia (EGBC) since 2007. Ms. Voormeij serves as the Qualified Person under the definition of National Instrument 43-101 as well as Rockland Resources newly appointed Chief Geologist.
+ Co-authors, their disclosures and funding information are available in the abstract.
 
- About Rockland Resources Ltd.
+ Statements and conclusions of studies that are presented at the American Heart Association/American Stroke Association’s scientific meetings are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. Abstracts presented at the Association’s scientific meetings are not peer-reviewed, rather, they are curated by independent review panels and are considered based on the potential to add to the diversity of scientific issues and views discussed at the meeting. The findings are considered preliminary until published as a full manuscript in a peer-reviewed scientific journal.
 
- Rockland Resources is committed to unlocking value through focused mineral exploration and discovery. The company's flagship project is the historic Cole Gold Mines project in the prolific Red Lake district of Ontario. By leveraging geological expertise, disciplined exploration and strategic project development, Rockland Resources aims to deliver meaningful growth and long-term value to its shareholders.
+ The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
 
- We seek Safe Harbor.
+ Additional Resources:
 
- On Behalf of the Board of DirectorsMichael England, CEO & Director
+ * Multimedia is available on the right column of release link.
+* Link to abstract in the American Stroke Association International Stroke Conference 2026 Online Program Planner
+* For more news from the American Stroke Association’s International Stroke Conference 2026, follow us on X @HeartNews #ISC26
+* According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, stroke is now the #4 leading cause of death in the U.S. Learn more at www.stroke.org.
+* American Stroke Association health information: Acute Ischemic Stroke Resources
+* American Heart Association health information: Types of Stroke and Treatment
+* American Heart Association news release: Neuroprotectant delivered to brain in nanoparticles may improve stroke treatment, outcomes (March 2021)
 
- For further information, please contact:Mike EnglandEmail: mike@engcom.ca
+ About the American Stroke Association
 
- Neither the Canadian Securities Exchange nor its Regulation Services Provider accepts responsibility for the adequacy or accuracy of this release.
+ The American Stroke Association is a relentless force for a world with fewer strokes and longer, healthier lives. We team with millions of volunteers and donors to ensure equitable health and stroke care in all communities. We work to prevent, treat and beat stroke by funding innovative research, fighting for the public’s health, and providing lifesaving resources. The Dallas-based association was created in 1998 as a division of the American Heart Association. To learn more or to get involved, call 1-888-4STROKE or visit stroke.org. Follow us on Facebook and X.
 
- FORWARD-LOOKING STATEMENTS: This news release contains forward-looking statements, which relate to future events or future performance and reflect management’s current expectations and assumptions. Such forward-looking statements reflect management’s current beliefs and are based on assumptions made by and information currently available to the Company. Investors are cautioned that these forward-looking statements are neither promises nor guarantees and are subject to risks and uncertainties that may cause future results to differ materially from those expected. These forward-looking statements are made as of the date hereof and, except as required under applicable securities legislation, the Company does not assume any obligation to update or revise them to reflect new events or circumstances. All of the forward-looking statements made in this press release are qualified by these cautionary statements and by those made in our filings with SEDAR in Canada (available at WWW.SEDAR.COM).
+ For Media Inquiries and AHA Expert Perspective:
+
+ AHA Communications & Media Relations in Dallas: 214-706-1173; ahacommunications@heart.org
+
+ Karen Astle: Karen.Astle@heart.org
+
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/rockland-reports-on-first-2-drill-holes-completed-at-the-cole-gold-mines-project-in-the-red-lake-district-ontario-7085280)
+[Original/Source Press Release](https://www.newmediawire.com/news/started-within-48-hours-of-stroke-neuroprotective-medication-helped-brain-cells-recovery-7085285)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rockland-resources-hits-visible-gold-in-first-drills-at-red-lake-project/eafb81cb00b047cc9f520dbb9b0b0917) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-stroke-drug-loberamisal-shows-69-recovery-rate-in-trial/b2d9b4343dd58d9b56512f7f7fbddaa6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/new-stroke-treatment-shows-promise-in-phase-iii-trial-improves-r/202627774)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/387345-phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves-stroke-recovery-when-administered-within-48-hours)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337397-phase-iii-studie-zeigt-neuroprotektives-medikament-loberamisal-verbessert-schlaganfall-erholung-bei-verabreichung-innerhalb-von-48-stunden)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337702-ensayo-de-fase-iii-muestra-que-el-farmaco-neuroprotector-loberamisal-mejora-la-recuperacion-del-ictus-cuando-se-administra-en-las-primeras-48-horas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338436-lessai-de-phase-iii-montre-que-le-medicament-neuroprotecteur-loberamisal-ameliore-la-recuperation-apres-un-avc-lorsquil-est-administre-dans-les-48-heures)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337334-estudo-de-fase-iii-demonstra-que-medicamento-neuroprotetor-loberamisal-melhora-recuperacao-de-avc-quando-administrado-em-ate-48-horas)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves/202627774)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/387364-phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves-stroke-recovery-outcomes)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves/202627774)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/6/jadehqLR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/6/herb3eaZ.webp)
