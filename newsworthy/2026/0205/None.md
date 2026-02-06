@@ -1,64 +1,68 @@
-# Helotes, Texas Confronts Growth Pressures With Fiscal Discipline and Community Stewardship, Says Mayor Rich Whitehead
+# Valentine's at Comedy Village 3 Great Shows 8pm 10 &amp; 11pm
 
-Helotes, Texas (Newsworthy.ai) Thursday Feb 5, 2026 @ 7:43 AM US/Central — As development accelerates along the Texas Hill Country corridor, Helotes offers a case study in how small cities can grow without surrendering identity, financial stability, or civic trust.
+New York, NY (Newsworthy.ai) Thursday Feb 5, 2026 @ 3:30 PM Eastern — Love is in the air and laughter is guaranteed at Comedy Village this Valentine’s Day. On Saturday, February 14, the popular comedy club will host three Valentine’s Day shows at 8 PM, 10 PM, and 11 PM, making it the perfect way for comedy lovers, couples, and singles alike to celebrate the holiday.
 
- Positioned along Highway 16 at the gateway to the Texas Hill Country—is facing a challenge increasingly common across the state: how to manage rapid growth driven by regional expansion while preserving the character, fiscal health, and social fabric that define a community. In a wide-ranging conversation on The Building Texas Show, Helotes Mayor Rich Whitehead outlined how the city is approaching those pressures with long-term planning, disciplined budgeting, and an emphasis on citizen stewardship rather than reactive governance.
+ Tickets for all shows are $28 per person and can be purchased at www.comedyvillage.com. For more information, call 347-788-1781.
 
- Founded as an incorporated city in 1981, Helotes has deep cultural roots that predate its formal municipal status. The town gained statewide recognition decades earlier with the arrival of Floore’s Country Store, a live-music venue that continues to draw visitors from across Texas. Today, Helotes is home to roughly 13,000 residents—placing it among the largest 15 percent of municipalities in the United States—yet it continues to operate with the expectations and ethos of a small town.
+ Located in the heart of Times Square and Hell’s Kitchen, Comedy Village’s warm, cozy, and intimate space offers the ideal escape from the usual Valentine’s Day routine. Whether it is a first date, a long-time tradition, or a night out with friends, these special shows promise big laughs in one of New York City’s most vibrant areas.
 
- Mayor Whitehead, who has served the community through multiple roles on city council before becoming mayor, described the city’s core challenge as balancing inevitability with intention. Growth, he noted, is not optional. Helotes is bordered by San Antonio to the south, development pressure to the north, and is largely landlocked by overlapping extraterritorial jurisdictions. The question, he argues, is not whether growth will occur, but whether it will be shaped deliberately or allowed to erode the community’s identity through inattention.
+ Each Valentine’s Day show will feature top comedians from New York City and across the country, including Monroe Martin, Krissy Gregory, PJ Landers and Dante Nero, delivering the sharp, smart, and unforgettable stand-up Comedy Village is known for. Expect a lineup packed with rising stars, seasoned pros, and surprise moments that make every show feel special.
 
- To that end, Helotes has pursued a strategy centered on fiscal restraint and proactive planning. Over the past several years, the city lowered its property tax rate multiple times while simultaneously expanding services and infrastructure. According to Whitehead, disciplined financial management has positioned Helotes to become debt-free within the next decade—an increasingly rare status among growing municipalities. This financial posture, he said, allows the city to negotiate from strength when working with developers rather than relying on short-term incentives to fill budget gaps.
+ To keep the good vibes flowing, Comedy Village will also serve Valentine’s themed drink specials and signature cocktails, including "Midnight in Paris", "Love Potion #9", and "Shadowy Kiss" perfect for toasting love, laughter, and a great night out.
 
- Development within and around the city has been guided by this framework. Helotes has worked with private partners on targeted commercial and residential projects designed to serve both residents and the substantial number of travelers passing through the corridor. New investments include mixed-use commercial space, service amenities, and projects that reinforce activity in the city’s historic downtown rather than drawing it away. The goal, Whitehead explained, is to create economic flow that benefits local businesses while preserving walkability and community cohesion.
+ “Valentine’s Day is about connection, and there’s nothing that brings people together quite like laughter,” said PJ Landers, founder, owner, and comedian at Comedy Village. “These shows create a fun, welcoming atmosphere where people can relax, laugh hard, and celebrate the night together. Whether you’re coming with a date or flying solo, Comedy Village is the place to be on Valentine’s Day.”
 
- Public investment has focused heavily on quality-of-life assets. The city has expanded park facilities, enhanced pedestrian connections between historic areas, and supported community-driven initiatives such as Market Days, which draw thousands of visitors monthly. These efforts, coordinated with the Helotes Economic Development Corporation and local organizations, are intended to reinforce Helotes as a destination while maintaining its small-town sensibility.
+ With three showtimes and a festive atmosphere, Comedy Village’s Valentine’s Day lineup is set to be one of the most memorable ways to celebrate the holiday in New York City.
 
- Yet Mayor Whitehead cautioned that success brings its own risks. With city finances stabilized and services expanding, civic participation has declined. Recent municipal elections saw multiple council positions go uncontested, a trend Whitehead described as concerning for the long-term health of local governance. He emphasized that effective leadership depends not only on elected officials but on sustained citizen involvement—particularly during periods when conditions appear stable.
+ [About Comedy Village](https://comedyvillage.com) Comedy Village is more than a comedy club. Founded in 2004 by seasoned comedian PJ Landers, the club quickly became a haven for both emerging talent and established comedy legends. Its original Greenwich Village location hosted comedy greats including Dave Attell, Bill Burr, and Dave Chappelle, all of whom performed on its intimate stage.
 
- Whitehead urged residents across Texas to view civic engagement as an ongoing responsibility rather than a reaction to crisis. Participation, he said, can take many forms beyond elected office, including service on planning commissions, zoning boards, and advisory committees. These roles provide citizens with a deeper understanding of municipal constraints, legal frameworks, and the complexity of infrastructure and land-use decisions.
+ In 2024, Comedy Village moved to the heart of Times Square, bringing its signature blend of high-quality stand-up to the city’s most visited entertainment district. The new venue features two floors, each with its own showroom, creating a comfortable and engaging experience for every guest.
 
- The conversation also addressed broader regional challenges, including infrastructure strain caused by uncoordinated development outside city limits. Whitehead noted that small municipalities often bear the consequences of county-level growth decisions without corresponding authority or resources, reinforcing the need for informed public discourse and realistic expectations about what local governments can control.
+ With two shows nightly, seven days a week, Comedy Village presents a diverse lineup of comedic talent. From rising stars to industry veterans, the club showcases the best in stand-up comedy for audiences of all kinds.
 
- The episode underscores a central theme increasingly relevant to communities across the country: sustainable growth is less about expansion itself and more about governance, discipline, and civic culture. Helotes’ experience illustrates how intentional leadership, coupled with citizen accountability, can preserve local character even as external pressures intensify.
-
- The Building Texas Show is a long-form interview series hosted by Justin McKenzie that explores the people, policies, and places shaping the future of Texas. Through conversations with civic leaders, entrepreneurs, and community builders, the show examines how cities and regions navigate growth, economic change, and identity in one of the fastest-evolving states in the nation. 
+ Connect with Comedy Village on Facebook, Instagram, and X. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602052097/helotes-texas-confronts-growth-pressures-with-fiscal-discipline-and-community-stewardship-says-mayor-rich-whitehead)
+[Original/Source Press Release](https://newsworthy.ai/news/202602052092/valentine-night-at-comedy-village)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/helotes-charts-path-for-small-town-growth-without-losing-identity/64f63b162f7c73583dc13a1f12d1b179) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-hosts-valentine-s-day-laughs-with-top-comedians/d062b2f52a6996d159dfd4ba1023b710) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/helotes-texas-demonstrates-fiscal-discipline-amid-growth-pressur/202627681)
+Pickup - [https://advos.io/en](https://advos.io/en/comedy-village-offers-valentines-day-alternative-with-three-spec/202627722)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/386739-helotes-texas-demonstrates-fiscal-discipline-and-community-planning-amid-regional-growth-pressures)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/386900-comedy-village-announces-valentines-day-shows-featuring-top-comedians-in-times-square)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337283-helotes-texas-demonstra-disciplina-fiscal-e-planejamento-comunitario-em-meio-a-pressoes-de-crescimento-regional)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337359-comedy-village-kundigt-valentinstag-shows-mit-top-comedians-am-times-square-an)
 
-Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202602/386759-helotes-demonstrates-how-small-texas-cities-can-manage-growth-while-preserving-identity)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337662-comedy-village-anuncia-espectaculos-de-san-valentin-con-los-mejores-comediantes-en-times-square)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/337650-helotes-demuestra-como-las-pequenas-ciudades-de-texas-pueden-gestionar-el-crecimiento-preservando-su-identidad)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338385-comedy-village-annonce-des-spectacles-pour-la-saint-valentin-avec-les-meilleurs-humoristes-a-times-square)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337346-helotes-texas-zeigt-finanzielle-disziplin-und-kommunale-planung-trotz-regionalem-wachstumsdrucks)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337296-comedy-village-anuncia-espetaculos-de-dia-dos-namorados-com-principais-comediantes-na-times-square)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337647-helotes-texas-demuestra-disciplina-fiscal-y-planificacion-comunitaria-ante-las-presiones-del-crecimiento-regional)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedy-village-offers-valentines-day-alternative-with-three-laug/202627722)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338372-helotes-texas-fait-preuve-de-discipline-budgetaire-et-de-planification-communautaire-face-aux-pressions-de-la-croissance-regionale)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/comedy-village-hosts-three-valentines-day-shows-featuring-top-co/202627722)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/386760-helotes-demonstrates-how-small-cities-can-manage-growth-while-preserving-identity)
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202602/386930-comedy-village-hosts-valentines-day-shows-featuring-top-comedians-in-times-square)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/helotes-texas-demonstrates-fiscal-discipline-and-community-plann/202627681)
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202602/386936-comedy-village-hosts-valentines-day-shows-featuring-top-comedians-in-times-square)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/helotes-texas-demonstrates-fiscal-discipline-and-community-stewa/202627681)
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202602/386938-comedy-village-hosts-valentines-day-shows-featuring-top-comedians-in-times-square)
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/FoMr6SZnO0k)
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202602/386943-comedy-village-offers-valentines-day-laughter-as-alternative-celebration-in-times-square)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/kujPwiSKPzs)
+
+Pickup - [https://instagram.com](https://www.instagram.com/reel/DUZLC54DrOU/)
+
+Pickup - [https://tiktok.com](https://www.tiktok.com/@newsramp/video/7603514374187126029)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/5/airyMnNc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/5/bestaHbU.webp)
