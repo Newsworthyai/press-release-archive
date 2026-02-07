@@ -1,104 +1,76 @@
-# Started Within 48 Hours of Stroke, Neuroprotective Medication Helped Brain Cells, Recovery
+# B2i Digital Named Official Marketing Partner for OTC Markets Group's Precious Metals &amp; Critical Minerals Virtual Investor Conference
 
-Research Highlights:
+Connecting Investors With Emerging Gold, Copper and Critical Minerals Opportunities
 
- * In a phase III clinical trial in China, stroke patients treated intravenously with loberamisal, a novel neuroprotective medication, daily for 10 days starting within 48 hours of stroke symptoms, had a higher proportion of excellent functional outcomes at 90 days than patients who received a placebo.
-* Treatment with loberamisal was considered safe because patients did not have an increased risk of serious side effects or death compared to those in the placebo group.
-* Note: The study featured in this news release is a research abstract. Abstracts presented at the American Heart Association’s scientific meetings are not peer-reviewed, and the findings are considered preliminary until published as full manuscripts in a peer-reviewed scientific journal.
+ Direct Access to Management Teams Through Live Presentations, Real-Time Q&A and 1x1 Meetings
 
- Embargoed until 12:09 p.m. CT/1:09 p.m. ET Friday, Feb. 6, 2026
+ NEW YORK, NY - February 6, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. is serving as the Official Marketing Partner for the Precious Metals & Critical Minerals Virtual Investor Conference, hosted by Virtual Investor Conferences (VIC), an OTC Markets Group Inc. property. The event will take place February 10–12, 2026.
 
- NEW ORLEANS - February 6, 2026 (NEWMEDIAWIRE) - Stroke patients treated intravenously with loberamisal, a novel neuroprotective medication, daily for 10 days and starting within 48 hours of stroke symptoms, had better recovery than patients who received a placebo, according to a preliminary late-breaking science presentation at the American Stroke Association’s International Stroke Conference 2026. The meeting, from February 4 to 6, 2026, in New Orleans, is a world premiere meeting for researchers and clinicians dedicated to the science of stroke and brain health.
+ The Precious Metals & Critical Minerals Virtual Investor Conference connects publicly traded mining and materials companies with a global audience of individual and institutional investors. Participating companies deliver live, online corporate presentations followed by interactive Q&A sessions and the opportunity for investors to schedule one-on-one meetings with company management teams through the VIC platform.
 
- The study is a Phase III clinical trial, a large-scale study to evaluate the effectiveness of a new treatment. The study goal is to test loberamisal, a new-generation dual-target treatment strategy designed to protect brain cells (neuroprotective agent) within the first 2 days after a stroke.
+ The conference features companies operating across the precious metals, copper, battery materials, and critical minerals value chain, reflecting growing investor interest in strategic resources that support global electrification, infrastructure development, and industrial demand.
 
- “Neuroprotective agents may help improve patient outcomes since they are aimed at preserving the function of neurovascular units. However, trials for most of these agents have not been successful,” said study author Shuya Li, M.D., director of the Clinical Trial Center and head of the Phase I Clinical Research Unit at Beijing Tiantan Hospital in Beijing. “In this trial, we tested loberamisal, a small-molecule, dual-acting neuroprotective agent that was an effective neuroprotectant in rodent studies. New treatments for stroke may come from multi-target neuroprotective agents, which could lead to important advancements in reducing or preventing disability after a stroke.”
+ “The metals and mining sector continues to attract investor attention as global demand for precious metals and critical battery materials accelerates,” said David Shapiro, Chief Executive Officer of B2i Digital. “Virtual Investor Conferences provides these companies with a direct and efficient way to engage investors worldwide, complementing in-person events and expanding access for both issuers and investors. We’re proud to support a platform that connects emerging and established mining companies with the investment community.”
 
- The American Stroke Association’s new 2026 Guideline for the Early Management of Patients With Acute Ischemic Stroke notes that neuroprotection has garnered renewed interest. Current knowledge gaps need to be addressed in future research.
+ As Official Marketing Partner, B2i Digital supports issuer outreach around the conference by publishing digital profiles of presenting companies ahead of the event. These profiles are intended to help investors review company backgrounds prior to attending live sessions and scheduling meetings through the platform.
 
- In this study trial participants were patients who received stroke care at 32 centers in China. 998 adults, ages 18 to 80, were treated for 10 days with either a daily, intravenous infusion of 40 mg loberamisal for 10 days or a matched placebo, started within 48 hours of a moderate to severe stroke caused by a blocked vessel. All had a confirmed clogged brain-vessel stroke, and treatment began within 48 hours of when stroke symptoms began. Only about 17% of participants received standard IV clot-busting medication (for example, alteplase), limiting assessment of combined effects of both treatments. Patients who received surgical treatment for the blockage (mechanical thrombectomy) were excluded from the trial.
+ Profiles for the Precious Metals & Critical Minerals Virtual Investor Conference are available here:https://b2idigital.com/otc-market-vic-metals-mining-virtual-investor-conference
 
- At 90 days after treatment, the analysis found:
+ Registration is open at: https://www.virtualinvestorconferences.com/wcc/eh/4814904/category/147319/february-10-12-2026-precious-metals-critical-minerals-virtual-investor-conference?utm_source=b2i&utm_medium=marketing&utm_campaign=0226PreciousMetalsCriticalMineralsVIC
 
- * 69% of participants treated with loberamisal had excellent functional recovery (little to no disability) compared to about 56% in the placebo group.
-* The treatment was considered safe because patients did not appear to have an increased risk of serious side effects or death compared to those in the placebo group.
+ About B2i Digital, Inc.
 
- Study limitations include that the trial was conducted only in China, therefore, the results cannot be directly translated to people living in other countries.
+ B2i Digital, Inc. partners with investor conferences, public companies, and capital-markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Acting as The Capital Markets Matchmaker℠, B2i Digital connects investors and companies through digital marketing, investor conferences, and direct meetings, supported by a proprietary network of more than 1.5 million market participants. Its mantra, From Marketing to Meetings℠, reflects this integrated approach. Founded in 2021 by former Maxim Group investment banker and Chief Marketing Officer, David Shapiro, B2i Digital is headquartered in New York City.
 
- “We want to confirm our findings with larger groups of people, including people from different racial and ethnic backgrounds, patients with more severe strokes and those who also have had vascular surgery. We need to better understand how loberamisal works by studying biomarkers in multiple population groups,” Li said.
+ B2i Digital Contact Information:David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.com
 
- Other limitations were that most patients in the study had moderate to severe strokes, which may affect applicability to people who have a more severe stroke. No blood or imaging biomarkers were assessed, which limits the applicability of the study’s understanding of how loberamisal affects the body.
+ https://www.linkedin.com/in/davidshapironychttps://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigital/https://www.tiktok.com/@b2idigitalhttps://www.threads.net/@b2i_digitalhttps://bsky.app/profile/b2idigital.bsky.social
 
- Study details, background and design:
+ B2i Digital Featured Conferences:https://b2idigital.com/conferences
 
- * Researchers conducted the multicenter, randomized, double-blind, parallel, placebo-controlled Phase III clinical trial over a 9-month period, from July 2024 to April 2025.
-* Although 20 participants did not complete the 90-day follow-up assessment, they were still included in the final statistical analysis.
-* Randomization to loberamisal or placebo was computer-generated; neither the investigators nor the participants knew who was receiving the medication or the placebo.
-* Trial participants all had National Institutes of Health Stroke Scale (NIHSS) scores between 7 and 20, indicating moderate to severe stroke. (NIHSS is the standard tool used globally to score the severity of strokes.)
-* Functional outcomes were measured on the modified Rankin Scale (mRS). A score of 0-1 indicates little to no disability. This score was assessed and determined by trained and certified researchers at the 90-day follow-up, conducted via face-to-face interviews or standardized telephone questionnaires using a structured assessment form.
-* Patients were excluded from the study if they had any history of the following: bleeding strokes; severe consciousness impairment; transient attacks; blood pressure higher than 220/120 mm Hg with blood pressure treatment; history of severe mental health condition, dementia, depression or anxiety; severe liver or kidney disease; had undergone vascular surgery; had malignant tumors with a life expectancy of less than 90 days; were pregnant or lactating; had known allergy to loberamisal; major surgery scheduled within four weeks; or if they had participated in another clinical trial. Participants are restricted to enrollment in one clinical trial at a time, which is also a regulatory requirement for industry sponsored clinical trials in China.
+ About Virtual Investor Conferences
 
- Co-authors, their disclosures and funding information are available in the abstract.
+ Virtual Investor Conferences (VIC) is a proprietary investor conference series that provides an interactive online forum for publicly traded companies to present directly to investors. Each event features live company presentations, Q&A sessions, one-on-one meetings, and on-demand replays that support ongoing engagement. The platform delivers investor communications to a global network of retail and institutional investors. Virtual Investor Conferences is an OTC Markets Group Inc. property.
 
- Statements and conclusions of studies that are presented at the American Heart Association/American Stroke Association’s scientific meetings are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. Abstracts presented at the Association’s scientific meetings are not peer-reviewed, rather, they are curated by independent review panels and are considered based on the potential to add to the diversity of scientific issues and views discussed at the meeting. The findings are considered preliminary until published as a full manuscript in a peer-reviewed scientific journal.
+ Virtual Investor Conferences Contact Information:John ViglottiSenior Vice President, Investor AccessOTC Markets Group Inc.212.220.2221 (Office)JohnV@otcmarkets.com
 
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ https://www.virtualinvestorconferences.comhttps://x.com/RIConferenceshttps://www.youtube.com/@OTCMarketsGroup
 
- Additional Resources:
+ Disclosure & Disclaimer
 
- * Multimedia is available on the right column of release link.
-* Link to abstract in the American Stroke Association International Stroke Conference 2026 Online Program Planner
-* For more news from the American Stroke Association’s International Stroke Conference 2026, follow us on X @HeartNews #ISC26
-* According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, stroke is now the #4 leading cause of death in the U.S. Learn more at www.stroke.org.
-* American Stroke Association health information: Acute Ischemic Stroke Resources
-* American Heart Association health information: Types of Stroke and Treatment
-* American Heart Association news release: Neuroprotectant delivered to brain in nanoparticles may improve stroke treatment, outcomes (March 2021)
-
- About the American Stroke Association
-
- The American Stroke Association is a relentless force for a world with fewer strokes and longer, healthier lives. We team with millions of volunteers and donors to ensure equitable health and stroke care in all communities. We work to prevent, treat and beat stroke by funding innovative research, fighting for the public’s health, and providing lifesaving resources. The Dallas-based association was created in 1998 as a division of the American Heart Association. To learn more or to get involved, call 1-888-4STROKE or visit stroke.org. Follow us on Facebook and X.
-
- For Media Inquiries and AHA Expert Perspective:
-
- AHA Communications & Media Relations in Dallas: 214-706-1173; ahacommunications@heart.org
-
- Karen Astle: Karen.Astle@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ B2i Digital, Inc. is the Official Marketing Partner of the Virtual Investor Conferences. Content related to any specific company was provided by that company, approved by that company, or obtained from publicly available sources. B2i Digital, Inc. has not independently verified the accuracy or completeness of such information. This content is provided for informational purposes only and does not constitute an offer to sell or a solicitation of an offer to buy any security. B2i Digital, Inc. is not a broker-dealer or investment adviser. Virtual Investor Conferences is an OTC Markets Group Inc. property. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/started-within-48-hours-of-stroke-neuroprotective-medication-helped-brain-cells-recovery-7085285)
+[Original/Source Press Release](https://www.newmediawire.com/news/b2i-digital-named-official-marketing-partner-for-otc-markets-group-s-precious-metals-critical-minerals-virtual-investor-conference-7085287)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-stroke-drug-loberamisal-shows-69-recovery-rate-in-trial/b2d9b4343dd58d9b56512f7f7fbddaa6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2i-digital-partners-with-vic-for-2026-precious-metals-critical-minerals-investor-conference/c90a3e4eaaacedfc779a9d9bcf55b694) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/new-stroke-treatment-shows-promise-in-phase-iii-trial-improves-r/202627774)
+Pickup - [https://advos.io/en](https://advos.io/en/b2i-digital-partners-with-otc-markets-group-for-precious-metals/202627790)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/387345-phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves-stroke-recovery-when-administered-within-48-hours)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/387389-b2i-digital-partners-with-otc-markets-group-for-precious-metals-critical-minerals-investor-conference)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337397-phase-iii-studie-zeigt-neuroprotektives-medikament-loberamisal-verbessert-schlaganfall-erholung-bei-verabreichung-innerhalb-von-48-stunden)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337399-b2i-digital-geht-partnerschaft-mit-otc-markets-group-fur-edelmetall-und-kritische-mineralien-investorenkonferenz-ein)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337702-ensayo-de-fase-iii-muestra-que-el-farmaco-neuroprotector-loberamisal-mejora-la-recuperacion-del-ictus-cuando-se-administra-en-las-primeras-48-horas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337704-b2i-digital-se-asocia-con-otc-markets-group-para-la-conferencia-de-inversores-de-metales-preciosos-y-minerales-criticos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338436-lessai-de-phase-iii-montre-que-le-medicament-neuroprotecteur-loberamisal-ameliore-la-recuperation-apres-un-avc-lorsquil-est-administre-dans-les-48-heures)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338438-b2i-digital-sassocie-a-otc-markets-group-pour-la-conference-investisseurs-sur-les-metaux-precieux-et-mineraux-critiques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337334-estudo-de-fase-iii-demonstra-que-medicamento-neuroprotetor-loberamisal-melhora-recuperacao-de-avc-quando-administrado-em-ate-48-horas)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337336-b2i-digital-estabelece-parceria-com-otc-markets-group-para-conferencia-de-investidores-em-metais-preciosos-e-minerais-criticos)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves/202627774)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/b2i-digital-partners-with-otc-markets-group-for-precious-metals/202627790)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/387364-phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves-stroke-recovery-outcomes)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/b2i-digital-partners-with-otc-markets-group-for-precious-metals/202627790)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/phase-iii-trial-shows-neuroprotective-drug-loberamisal-improves/202627774)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/387409-b2i-digital-partners-with-virtual-investor-conferences-for-2026-precious-metals-critical-minerals-event)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202602/387411-b2i-digital-named-official-marketing-partner-for-2026-precious-metals-critical-minerals-virtual-investor-conference)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/6/herb3eaZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/6/ovalmtp8.webp)
