@@ -1,52 +1,47 @@
-# CleanGo Innovations Receives Invitation to the Canadian Infrastructure Trade Delegation in Saudi Arabia
+# Quantumzyme Announces Strategic Capital Structure Initiative, Corporate Rebranding Update, and Planned 4-for-1 Forward Stock Split
 
-VANCOUVER, B.C. and HOUSTON, TEXAS - February 9, 2026 (NEWMEDIAWIRE) - CleanGo Innovations Inc. (CSE:CGII) (OTC:CLGO.F) (FRA:APO2) ("CleanGo" or the "Company"), a global leader in proprietary green technology solutions, CleanGo is proud to announce its selection for the upcoming Canada Trade Mission to Saudi Arabia, scheduled for February 7–12, 2026. This strategic mission, organized in coordination with the Embassy of Canada in Riyadh, aims to bridge Canadian innovation with the rapid infrastructure and clean technology expansions currently underway in the Kingdom.
+SAN DIEGO, CA - February 9, 2026 (NEWMEDIAWIRE) - Quantumzyme Corp. (OTC: QTZM) (the “Company”), a biotransformation company focused on sustainable enzyme-based solutions, today announced continued progress on a series of strategic corporate initiatives designed to better position the Company for its next phase of development. These initiatives include a planned four‑for‑one (4:1) forward stock split and the advancement of the Company’s previously announced corporate name and trading symbol change.
 
- Accompanied by a distinguished delegation - including H.E. Jean-Philippe Linteau, Ambassador of Canada, and Julie Forrest, Senior Trade Commissioner - CleanGo will engage with Saudi Arabia’s top-tier decision-makers to support the goals of Saudi Vision 2030.
+ The Company confirmed that its Board of Directors has authorized a 4‑for‑1 forward stock split of its issued and outstanding common stock. The forward split is intended to enhance the Company’s public market profile by recalibrating its capital structure to facilitate greater flexibility in the Company’s outstanding share structure, support administrative efficiency in the trading of its common stock, and align the Company’s public share profile with its current stage of development. The forward split will be submitted for processing only after completion of the Company’s pending corporate name and trading symbol change.
 
- Strategic Engagements in Jeddah and Riyadh
+ As previously disclosed, Quantumzyme Corp. is now in the final stages of completing a corporate name change to Quantum Genesis AI Corp., a change that reflects the Company’s strategic focus on advancing enzyme innovation through artificial intelligence, computational modeling, and data‑driven research. The Company anticipates that the name and corresponding trading symbol change will be completed in the near term. Immediately following effectiveness of the new name and symbol, the Company intends to submit the forward stock split to the Financial Industry Regulatory Authority, the self‑regulatory organization that oversees broker‑dealer activity and certain corporate actions in U.S. public markets (“FINRA”), in accordance with applicable regulatory requirements.
 
- The mission features an intensive itinerary designed to integrate CleanGo’s sustainable solutions into major Saudi developments:
+ Naveen Kulkarni, President of Quantumzyme Corp., stated, “Our planned corporate rebranding and capital structure initiatives are intended to better align the Company’s public market profile with its long-term strategic direction. Completing the name and symbol change first establishes a clear foundation, and, subject to regulatory review, the proposed forward stock split is designed to support a more efficient and accessible public share structure as we continue executing on our technology and operational roadmap.”
 
- * Infrastructure & Clean Tech: High-level briefings with the TFM Group and the Jeddah Chamber of Commerce to address the Kingdom’s growing demand for green infrastructure.
-* Mega-Project Consultations: Exclusive site visits and meetings with King Salman International Airport, Jeddah Airports Co. (JEDCO), and the Expo 2030 Riyadh committee.
-* PIF Private Sector Forum: CleanGo will participate in the Public Investment Fund (PIF) forum in Riyadh, the epicenter of Saudi Arabia’s economic transformation.
-* Industrial Partnerships: Direct B2B sessions with industry leaders including Albawani Contracting, Al Fanar Group, and El Seif Engineering to explore long-term collaborative opportunities.
+ If and when approved, the forward stock split will increase the number of outstanding shares of common stock while proportionally adjusting the per‑share trading price. The Company believes this action may provide several potential benefits going forward, including increased flexibility to support future corporate initiatives. The Company emphasizes that the forward split is not intended to, and will not by itself, change the Company’s overall market capitalization.
 
- Commitment to Sustainable Growth
+ The forward stock split will not affect the proportional ownership interests of existing shareholders, except for minor adjustments that may result from the treatment of fractional shares in accordance with customary transfer agent procedures.
 
- “This mission represents a significant milestone for CleanGo,” said Anthony Sarvucci CEO/President of CleanGo Innovations Inc. “As Saudi Arabia scales its infrastructure to host the world at Expo 2030, CleanGo is ready to provide the sustainable, high-efficiency solutions required for world-class facilities. We are honored to represent the Canadian Clean-Tech Sector on this global stage.”
+ The Company expects to provide additional updates regarding the effectiveness of the corporate name and symbol change, as well as the timing and status of the forward stock split submission and review process, through subsequent public disclosures.
 
- About CleanGo Innovations
+ The planned forward stock split remains subject to regulatory review and approval, and there can be no assurance regarding the timing or completion of the split.
 
- CleanGo Innovations Inc. is an international, publicly traded company that specializes in the development of early-staged, green, non-toxic and sustainable products used in retail, commercial and industrial applications.
+ For more information and updates, please visit www.quantumzymecorp.com and the Company’s profile at www.otcmarkets.com/stock/QTZM.
 
- The company is proud of its suite of proprietary, Green Seal Certified non-toxic green products that are Health Canada approved to claim 99.9% disinfecting of viruses and bacteria on a hard surface. CleanGo’s portfolio is proud to be a part of Cruelty Free / Leaping Bunny as a certified product while being both family and pet safe. It is CleanGo’s mission to create the world’s leading non-toxic, green solutions for the worlds cleaning problems.
+ About Quantumzyme Corp.
 
- CleanGo Innovation’s experienced team brings new ideas and innovation based on science to find solutions to the problems of the current world we live in. Customers rely on quality, nontoxic products to keep their homes and business’s clean and their loved ones safe. CleanGo also has several Commercial and Industrial applications to solve many problems of the worlds heavier and large-scale cleaning problems.
+ Quantumzyme Corp. is a biotransformation company focused on advancing sustainable enzyme-based solutions for pharmaceutical manufacturing. Specializing in green chemistry, the Company applies quantum mechanics, molecular modeling, AI-driven simulations, and computational enzyme engineering to develop biocatalysts designed to enhance efficiency, reduce waste, and support environmentally responsible production. By integrating computational modeling with laboratory validation, Quantumzyme aims to deliver scalable, cost-effective biocatalysis solutions that improve industrial sustainability.
 
- On behalf of the CEO & Board of Directors
+ Disclaimer
 
- Anthony SarvucciChief Executive OfficerCleanGo Innovations Inc.
+ The information contained in this press release is provided by Quantumzyme Corp. (“Quantumzyme”) for general informational purposes only. This release may include forward-looking statements that reflect Quantumzyme’s current expectations, estimates, projections, and assumptions about future events, business performance, market conditions, or technological developments. These statements involve known and unknown risks, uncertainties, and other factors that may cause actual results to differ materially from those expressed or implied in such statements. Forward-looking statements are based on management's beliefs and assumptions as of the date of this press release and are subject to change without notice.
 
- For More information Contact:info@cleangogreengo.comPhone 1 346 202 6202
+ Quantumzyme makes no representations or warranties, express or implied, regarding the accuracy, completeness, or reliability of the information contained herein. The company undertakes no obligation to publicly update or revise any forward-looking statements as a result of new information, future developments, or changes in expectations, except as required by applicable law. Past performance should not be taken as an indicator of future results, and readers should not place undue reliance on any projections or expectations presented in this release.
 
- Forward-looking Information
+ This press release does not constitute an offer to sell or a solicitation of an offer to buy any securities, nor does it provide financial, investment, or legal advice. Any references to market trends, scientific advancements, or industry insights are provided for contextual purposes only and should not be interpreted as endorsements, guarantees, or definitive predictions of future developments. Readers and investors are encouraged to conduct their own due diligence and seek independent professional advice before making any investment or business decisions related to Quantumzyme or its affiliates.
 
- This news release may contain forward-looking statements and forward-looking information (collectively, “forward-looking statements”) within the meaning of applicable Canadian and U.S. securities legislation. Forward-looking statements can often be identified by words such as “will”, “plans”, “expects”, “may”, “intends”, “anticipates”, “believes”, proposes” or variations of such words including negative variations thereof and phrases that refer to certain actions, events or results that may, could, would, might or will occur or be taken or achieved. Actual results could differ from those projected in any forward-looking statements due to numerous factors, including risks and uncertainties relating to general economic, market or business conditions or changes in laws, regulations and policies affecting the Company’s operations. Investors are cautioned that forward-looking statements are not guarantees of future performance or events and, accordingly are cautioned not to put undue reliance on forward-looking statements due to the inherent uncertainty of such statements. Any forward-looking statements included in this news release are made as of the date hereof and the Company does not intend to update or revise any forward-looking statements, except as expressly required by law.
+ Contact
 
- 
-
- 
+ Naveen KulkarniChief Executive OfficerQuantumzyme Corp.15656 Bernardo Center Drive, Suite 801San Diego, CA 92127Phone: + 1 858-225-2902Email: info@quantumzymecorp.comWebsite: www.quantumzymecorp.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/cleango-innovations-receives-invitation-to-the-canadian-infrastructure-trade-delegation-in-saudi-arabia-7085301)
+[Original/Source Press Release](https://www.newmediawire.com/news/quantumzyme-announces-strategic-capital-structure-initiative-corporate-rebranding-update-and-planned-4-for-1-forward-stock-split-7085302)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cleango-joins-canada-saudi-trade-mission-to-advance-green-tech-solutions/2d5326b676d413b3092ced2313d2fba2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantumzyme-announces-4-1-stock-split-rebrand-to-quantum-genesis-ai-corp/83260887594d5db7dd77e8444d6b62c3) 
 
  
 
@@ -54,4 +49,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/9/tilenb3P.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/9/join6HnV.webp)
