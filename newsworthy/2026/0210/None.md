@@ -1,67 +1,60 @@
-# Lionheart Health Launches Health Optimization Membership Program
+# ResonaHealth's BlueVibe Validated: 100% Success in Cognitive Study
 
-Huntington Beach, California (Newsworthy.ai) Tuesday Feb 10, 2026 @ 7:00 AM Pacific — Lionheart Health today announced the launch of its Lionheart Health Optimization Membership Program, a science-forward, clinician-guided longevity membership designed to help individuals actively improve their healthspan using deep biomarkers, personalized protocols, and access to breakthrough clinical programs.
+Cocoa Beach, FL (Newsworthy.ai) Tuesday Feb 10, 2026 @ 12:00 PM Central — ResonaHealth today released the results of a real-world human user study revealing that its BlueVibe technology achieved a rare 100% success rate in improving cognitive function among participants. Over a six-week period, every individual included in the final analysis showed measurable gains in mental clarity, focus, and memory-related performance.
 
- For $463 upfront—equivalent to just $1.27 per day—members gain immediate access to comprehensive diagnostics and personalized health planning. At year one plus one day, the ongoing annual membership renews at $365 per year, maintaining continued access to Lionheart’s optimization ecosystem.
+ The study, which monitored participants aged 55 to 79, utilized the standardized PROMIS cognitive assessment to measure "before and after" performance. After using the BlueVibe device for an average of one hour per day, the data yielded a statistical confidence level exceeding 99.99% (p = 0.0002), indicating the results were a direct result of the protocol rather than random chance.
 
- What Members Receive 461-Biomarker Comprehensive Health PanelAn advanced diagnostic snapshot covering metabolic, cardiovascular, immune, inflammatory, hormonal, and longevity-associated pathways—forming the quantitative foundation for personalized health optimization.
+ Consistent, Meaningful Gains Unlike many wellness technologies that rely on theoretical benefits, BlueVibe’s study focused on lived experience and measurable data. Key findings include:
 
- Personalized Supplement Design KitUsed to formulate a precision supplement protocol aligned to each member’s unique biology, goals, and biomarkers.
+ * Universal Improvement: 100% of participants moved in a positive direction; zero participants experienced a decline.
+* Significant Score Elevation: Representative participants saw score increases as high as 63 points on the 160-point scale.
+* Beyond the Numbers: Participants reported tangible "real-world" benefits, including improved sleep quality, enhanced concentration, and a greater sense of mental sharpness.
 
- 1-Hour One-on-One Functional Health ConsultationA dedicated session with a Lionheart-affiliated functional health clinician to review results, discuss goals, and map a clear path forward.
+ "The consistency we saw in this study is remarkable," said a Mark Fox. It’s one thing to have a few 'super-responders,' but to see every single participant in the analysis report measurable improvement positions BlueVibe as a uniquely reliable tool in the cognitive wellness space."
 
- Personalized Health Optimization ProtocolA clinician-guided plan with a strong focus on elevating klotho levels, a longevity-associated protein linked in published research to muscle strength, brain function, vascular health, and immune resilience.
+ A New Approach to Mental Sharpness The BlueVibe protocol is informed by research on rhythmic stimulation and its impact on brain activity. However, the study’s focus remained on practical outcomes. Participant feedback highlighted more than just memory; users noted "a peaceful feeling," "brightened mood," and the ability to achieve better sleep without medication.
 
- Member-Only Benefits & Ecosystem Access Exclusive Discounts on 200+ Curated Products & ServicesIncluding preferred pricing at Lionheart Longevity & Wellness licensed clinics worldwide, plus access to advanced technologies such as CoreViva™ AI-enhanced MRI, DNA testing, breathing and sleep analysis, gut and immunity health assessments, and more.
-
- Whole-Body Health Optimization PathwaysPrograms addressing:
-
- * Muscle and metabolic health
-* Brain and cognitive performance
-* Sexual and hormonal health
-* Joint and mobility support
-* Vision and sensory health
-* Blood pressure and inflammation modulation
-* Weight loss without muscle loss
-* Body toning, skin rejuvenation, and hair regeneration
-
- Private Community AccessMembers-only discussion groups on Facebook and WhatsApp, enabling education, peer support, clinician insights, and ongoing engagement.
-
- Special Access: The Lionheart Klotho-Up™ Study Members receive priority access to cutting-edge clinical research, including the Lionheart Klotho-Up™ Study, currently competing in the XPRIZE Healthspan Semi-Finals.
-
- The Klotho-Up Study is a comprehensive, real-world healthspan intervention designed to elevate klotho levels and improve muscle, brain, and immune health. Depending on eligibility, country based regulatory approvals and clinical oversight, the program may include:
-
- * Daily delivery of klotho-favoring, health-optimized fresh meals directly to the participant’s home
-* Klotho-supportive supplement protocols personalized to DNA test and blood biomarker results
-* BodStim™ EMS Suit training, utilizing specialized bioelectric signaling sequences designed to stimulate the kidneys and skeletal muscle to secrete higher levels of klotho through targeted neuromuscular activation
-
- Additional therapeutic options are available through affiliated Lionheart Health licensed and trained clinics outside the U.S. (OUS), where regulatory pathways allow for expanded clinical offerings under physician Medical Director and DSMB supervision, IRB approval and informed patient consent.
-
- A Measurable Path to Longer Healthspan “Most wellness programs offer advice. Lionheart offers measurement, personalization, and access to real innovation,” said Lionheart Health leadership. “This membership is designed to be a long-term partnership—starting with deep biomarker insight and progressing toward measurable improvements in how people feel, function, and age.”
-
- The Lionheart Health Optimization Membership Program is now open for enrollment.
-
- Learn more, schdule a Zoom consultation or join today: https://lionheartlongevity.com/membership/
-
- About Lionheart HealthLionheart Health is a regenerative medicine and longevity healthspan company focused on translating advanced diagnostics, bioelectric stimulation, and precision health protocols into measurable improvements in muscle, brain, immune, and metabolic health. Through its membership platform, eStore, licensed clinics, and clinical research programs, Lionheart aims to extend healthspan—not just lifespan.
-
- Media Contact:CS@LionheartHealthStim.com Lionheart Health, Inc.
-
- www.LionheartLongevity.com
-
- www.LionheartHealthStim.com 
+ [About BlueVibe](https://resona.health/product/bluevibe/) BlueVibe by ResonaHealth is a general wellness device designed to support cognitive clarity and focus through consistent, rhythmic stimulation. ResonaHealth is dedicated to providing data-driven wellness solutions that bridge the gap between scientific theory and real-world results. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602102123/lionheart-health-launches-health-optimization-membership-program)
+[Original/Source Press Release](https://newsworthy.ai/news/202602102125/resonahealths-bluevibe-validated-100percent-success-in-cognitive-study)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-launches-science-backed-longevity-membership-program/fe0af2f411a23f00066827fc3c405b35) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/resonahealth-s-bluevibe-achieves-100-cognitive-improvement-in-study/f2a8472f76c8e231426c9cd62cfce1b8) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/resonahealths-bluevibe-technology-achieves-100-success-rate-in-c/202627911)
+
+Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202602/388419-resonahealths-bluevibe-technology-achieves-100-success-rate-in-cognitive-function-improvement-study)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/388413-resonahealths-bluevibe-technology-achieves-100-success-rate-in-cognitive-function-study)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337488-resonahealths-bluevibe-technologie-erzielt-100-erfolgsquote-in-kognitiver-funktionsstudie)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337804-la-tecnologia-bluevibe-de-resonahealth-logra-una-tasa-de-exito-del-100-en-estudio-de-funcion-cognitiva)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338556-la-technologie-bluevibe-de-resonahealth-atteint-un-taux-de-reussite-de-100-dans-une-etude-sur-les-fonctions-cognitives)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337424-tecnologia-bluevibe-da-resonahealth-atinge-taxa-de-sucesso-de-100-em-estudo-sobre-funcao-cognitiva)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/resonahealths-bluevibe-achieves-100-success-rate-in-cognitive-im/202627911)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/388420-resonahealths-bluevibe-technology-achieves-100-success-rate-in-cognitive-function-improvement-study)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/resonahealths-bluevibe-achieves-100-success-rate-in-cognitive-fu/202627911)
+
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/388418-resonahealths-bluevibe-achieves-100-success-rate-in-cognitive-function-study)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/388421-resonahealths-bluevibe-technology-achieves-100-success-rate-in-cognitive-function-improvement-study)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/f2a8472f76c8e231426c9cd62cfce1b8)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/elBTdn-juH4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/10/rubyqHA7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/10/hikeIxKf.webp)

@@ -1,60 +1,32 @@
-# UPDATE: Hydromer, Inc. Announces Expansion Into High-Speed Automated Coating and UV Cure Equipment Manufacturing
+# Forward Industries (FWDI) to Host Conference Call on First-Quarter 2026 Results Feb. 12
 
-CONCORD, NC - February 10, 2026 (NEWMEDIAWIRE) - Hydromer, Inc. (OTC: HYDI) (the “Company”), a leader in hydrophilic, thromboresistant and antimicrobial coating technologies for over 40 years, was proud to announce its expansion into the manufacturing and global supply of automated high-speed coating and UV curing equipment. By integrating proprietary coatings with high-performance machinery, Hydromer now provides a comprehensive, end-to-end solution for medical device manufacturers worldwide.
+LOS ANGELES, CA - February 10, 2026 (NEWMEDIAWIRE) - Forward Industries (NASDAQ: FWDI) the leading Solana treasury company, announced that it will host a conference call on Thursday, Feb. 12, 2026, at 5 p.m. Eastern Time to discuss its financial and operating results for the three months ended Dec. 31, 2025, with financial results to be released in a press release prior to the call; the Company’s executive team will host the call and webcast presentation, followed by a question-and-answer period.
 
- This integrated platform allows manufacturers to correlate process parameters directly with performance outcomes, supporting compliance with ISO 13485 and FDA Quality System Regulations (21 CFR Part 820).
+ To view the full press release, visit https://ibn.fm/Gi80I
 
- The Company’s expanded equipment platform includes:
+ About Forward Industries, Inc.
 
- * Hydrophilic Coating Equipment: delivered uniform coating application and UV curing with minimal manual intervention.
-* Automated High-Throughput Coating System: a modular system comprised of load, dip coating and UV curing workstations. The fully automated configuration is designed to be operated by a single operator to increase production rates and reduce reliance on manual labor.
-* Friction Testing Equipment: designed for lubricity tests with precise and repeatable measurements to support performance evaluation and quality control.
+ Forward Industries, Inc. is a Solana focused digital asset treasury company, with the strategy to buy, hold, stake, trade, invest in, and grow SOL and SOL related digital assets, protocols and businesses. Our mission is to expand and strengthen the Solana ecosystem by acquiring and staking SOL and engaging with, providing tools to and investing in the Solana network, Solana developers and Solana related projects in order to increase shareholder value. In connection with a private placement transaction in September 2025, we launched our digital asset treasury strategy supported by industry leading investors and operating partners including Galaxy Digital and Jump Crypto. For more information on the Company’s Solana treasury strategy, visit forwardindustries.com
 
- “Hydromer has long been focused on coating performance and manufacturing consistency,” said Michael Torti, CEO of Hydromer. “By manufacturing and supplying the equipment used to apply our industry-leading hydrophilic coatings, we eliminate technical barriers and help our clients reduce time to market while maintaining the highest standards of quality and regulatory confidence.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About Hydromer
+ Forward Looking Statements
 
- Hydromer, Inc. is an ISO 9001:2015 global business-to-business (B2B) surface modification and coating solutions provider offering polymer R&D and manufacturing services capabilities for a wide variety of applications. We are domiciled in Concord, NC. Our customers are located across the United States, Europe and Asia-Pacific. Our facilities are compliant to, Good Manufacturing Practice (GMP), International Organization for Standardization (ISO) 13485, and International Organization for Standardization (ISO) 9001. For over four decades, the Company has developed value-added solutions to serve businesses in domestic and international markets in a wide range of industries. We manage numerous global B2B services such as the sale of proprietary coating formulations, automated coating with UV cure equipment, custom coating services, research and development, analytical testing, technology transfer, and dedicated dip coating machinery building, installation, and support. We have successfully developed numerous proprietary formulations and hold patents worldwide.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Contact:Hydromer Inc.Info@hydromer.com
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements that are based on Hydromer’s current expectations, estimates, forecasts, and projections. These statements are not guarantees of future performance and involve risks, uncertainties, assumptions, and other factors that are difficult to predict and could cause actual results to differ materially from those expressed or anticipated. We caution readers not to place undue reliance on these forward-looking statements. Hydromer undertakes no obligation to update any forward-looking statements, whether as a result of new information, future events, or otherwise, except as required by law.
-
- 
-
- View the original release on www.newmediawire.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/update-hydromer-inc-announces-expansion-into-high-speed-automated-coating-and-uv-cure-equipment-manufacturing-7085316)
+[Original/Source Press Release](https://www.newmediawire.com/news/forward-industries-fwdi-to-host-conference-call-on-first-quarter-2026-results-feb-12-7085320)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hydromer-expands-into-automated-coating-equipment-manufacturing/d46552056c240c0de0ed353882458de7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forward-industries-to-host-q1-2026-results-call-on-solana-strategy/4a0d851831b9881ba5b3e0cd6b5fa9b7) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hydromer-expands-into-equipment-manufacturing-to-offer-complete/202627898)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202602/388367-hydromer-expands-into-equipment-manufacturing-to-offer-integrated-coating-solutions)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337486-hydromer-expandiert-in-die-geratefertigung-um-integrierte-beschichtungslosungen-anzubieten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337802-hydromer-se-expande-hacia-la-fabricacion-de-equipos-para-ofrecer-soluciones-de-recubrimiento-integradas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338554-hydromer-se-lance-dans-la-fabrication-dequipements-pour-proposer-des-solutions-de-revetement-integrees)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337422-hydromer-expande-para-fabricacao-de-equipamentos-para-oferecer-solucoes-integradas-de-revestimento)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/hydromer-expands-into-equipment-manufacturing-to-offer-integrate/202627898)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hydromer-expands-into-equipment-manufacturing-to-provide-integra/202627898)
-
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/388390-hydromer-expands-into-automated-coating-equipment-manufacturing-to-streamline-medical-device-production)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/10/milkRYjg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/10/fastjwod.webp)
