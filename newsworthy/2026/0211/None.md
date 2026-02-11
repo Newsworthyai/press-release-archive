@@ -1,56 +1,63 @@
-# New Advisory Board to Advance HR Analytics and AI-Driven Workforce Strategies
+# Candidate Gleason Presents Property Rights-Focused Plan for Kendall County
 
-Jacksons Point, Ontario, Canada (Newsworthy.ai) Wednesday Feb 11, 2026 @ 8:00 AM Eastern — The HR Research Institute is excited to announce the formation of its 2026 State of People Analytics Advisory Board, a group of industry leaders and data experts, brought together to guide a major research initiative and a virtual event centered on HR analytics in the workplace.
+Boerne, Texas (Newsworthy.ai) Wednesday Feb 11, 2026 @ 1:20 PM Central — BOERNE, Texas – Ricky Gleason, candidate for Kendall County Judge, today unveiled a practical, three-horizon planning framework designed to guide the county’s growth while respecting property rights and ensuring transparency. The approach emphasizes structured, ongoing collaboration over reactive or top-down mandates.
 
- As HR leaders navigate growing expectations to tie workforce strategy to measurable business impact, the advisory board will provide expert guidance on leveraging people data to make smarter, more equitable, and actionable decisions. Composed of forward-thinking practitioners, analytics specialists, and HR veterans, the board will shape research and practical insights to help HR teams address skills gaps, evolving technology, and complex organizational demands.
+ “Planning only matters if it guides how we prioritize resources and taxpayer dollars,” Gleason added. “The goal is clarity, coordination, and decisions that respect property rights and protect our quality of life.”
 
- The board’s work will directly inform an upcoming study and virtual event designed to equip HR professionals with frameworks, tools, and strategies to integrate analytics into day-to-day HR operations, culture, and strategic planning. With a special focus on AI-enabled solutions, the Advisory Board aims to provide expertise that ultimately helps organizations harness data to drive results, enhance workforce performance, and support inclusive, evidence-based decision-making.
+ A Framework Built for Clarity & ActionGleason’s model organizes planning into three actionable phases:
 
- HR.com's State of People Analytics 2026 Virtual Event June 17, 2026
+ * 0–3 Years: Operational Fixes – Address immediate safety, mobility, and emergency response needs based on verified conditions, avoiding unnecessary regulation.
+* 3–10 Years: Capital Alignment – Sequence infrastructure investments—especially where mobility and water intersect—to prevent costly taxpayer mistakes.
+* 10–25 Years: Scenario Planning – Engage citizens in shaping long-range water sustainability and growth patterns through input-driven, flexible guidance.
 
- [REGISTER for FREE]
+ “Good planning isn’t about controlling land or telling people what they can’t do,” said Gleason. “It’s about structuring a process that protects property rights while ensuring growth, infrastructure, and public safety are handled responsibly.”
 
- The newly formed 2026 State of People Analytics Advisory Board features these distinguished experts:
+ Planning as a Tool, Not a ControlCentral to Gleason’s approach is using planning to guide - not dictate - outcomes. By engaging landowners early during subdivision or project proposals, the county can collaborate on solutions rather than resorting to reactive measures like eminent domain.
 
- * Ranjan Dutta, Ph.D., Founder and Managing Partner, ThothProAI
-* Helen Friedman, Partner and CEO, Merit Analytics Group LLC
-* Jeff Higgins, Founder and CEO, Lytiqs
-* Fiona Jamison, Ph.D., VP Research & People Analytics, People Results
-* Mike Kidwell, Executive Director and Senior Lead Analytics Consultant, Wells Fargo
-* Shane McGowan, Talent Analyst, People Data and Analytics, S&S Activewear
-* Viktor Mirovic, CEO, KeenCorp
-* Adam Murphy, Director, People Analytics & Systems, AMC Theatres
-* Miles Overholt, Ph.D., Founder and CEO, Strategia Analytics
-* Lisa Perez, Founder of National Management Training Week, Keynote Speaker, HBL Resources
-* Konstantin Tskhay, Founder and Managing Partner, Tskhay & Associates, Inc.
+ “The county should not be in the business of taking land or dictating outcomes,” Gleason emphasized. “Our best planning opportunities happen early, working with property owners to avoid heavy-handed solutions later.”
 
- “We’re thrilled to unite HR and analytics experts to guide our upcoming research and virtual event,” said Debbie McGrath, CEO of HR.com. “Their insights will empower the HR community to use data and AI-driven analytics to make smarter, fairer, and more effective workplace decisions.”
+ Local Leadership Before Regional PartnershipGleason stressed that Kendall County must lead its own planning efforts before engaging regional or state partners. “If we don’t come to the table with our own plan, someone else will plan for us,” he said. “Residents want leadership that does the work locally first, then partners regionally to support that vision.”
 
- The HR Research Institute releases annual “State of the Industry” reports in a variety of HR topic areas, including this past research report, HR.com's State of People Analytics 2025-26, on the same topic.
+ Why This Matters for Kendall CountyWith rapid growth straining roads, water resources, and emergency services, Gleason’s framework aims to replace short-term fixes with a coordinated, long-term strategy that:
 
- This and other free research reports and infographics can be downloaded at hr.com/researchinstitute.
+ * Protects property rights and reduces regulatory overreach.
+* Involves citizens, first responders, and experts in decision-making.
+* Aligns infrastructure spending with realistic growth projections.
+* Safeguards water sustainability and rural character.
 
- About HR.com and the HR Research Institute
+ About Ricky Gleason:Ricky Gleason is a candidate for Kendall County Judge focused on transparent, resident-first governance. His campaign emphasizes practical planning, fiscal responsibility, and protecting the community’s quality of life through collaboration and foresight.
 
- The #1 source for HR research—read by more HR professionals than any other! The HR Research Institute (HRRI), powered by HR.com, identifies key trends and best practices to help more than 2 million HR professionals and their organizations make strategic decisions with informed and insightful research findings.
-
- The HRRI has published hundreds of high-quality reports across a wide array of HR topics. HR.com’s free membership offers many benefits, including access to over 300 exclusive primary research, state-of-the-industry reports, and infographics. These resources are published based on surveys developed with the assistance of a panel of thought leaders and industry experts on the advisory boards. Visit hr.com/hrresearchinstitute to maximize your HR potential. #hrresearchinstitute
-
- Become a part of HR.com’s HR research influencer panel today! Participate in surveys, share your insights, and earn rewards!
-
- Contact: info@hr.com HR.com Newsroom 
+ Media Contact:Ricky Gleasongleason4judge@gmail.comhttps://www.rickygleason.com/ 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602112126/new-advisory-board-to-advance-hr-analytics-and-ai-driven-workforce-strategies)
+[Original/Source Press Release](https://newsworthy.ai/news/202602112132/candidate-gleason-presents-property-rights-focused-plan-for-kendall-county)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-leaders-unite-to-shape-future-of-people-analytics-with-ai-insights/db33fd57f8aada2e984b5d0a1d6ea573) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gleason-unveils-3-horizon-plan-for-kendall-county-growth/c38bee3c0c70534bf6f88c8ce034561b) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/kendall-county-candidate-proposes-three-phase-planning-framework/202627979)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/388944-candidate-gleason-proposes-three-horizon-planning-framework-for-kendall-county-growth)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337531-kandidat-gleason-schlagt-drei-horizont-planungsrahmen-fur-das-wachstum-von-kendall-county-vor)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337850-el-candidato-gleason-propone-un-marco-de-planificacion-de-tres-horizontes-para-el-crecimiento-del-condado-de-kendall)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338622-le-candidat-gleason-propose-un-cadre-de-planification-a-trois-horizons-pour-la-croissance-du-comte-de-kendall)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337467-candidato-gleason-propoe-estrutura-de-planejamento-de-tres-horizontes-para-o-crescimento-do-condado-de-kendall)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/candidate-gleason-proposes-three-horizon-planning-framework-for/202627979)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/candidate-gleason-proposes-property-rights-focused-planning-fram/202627979)
+
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/388959-kendall-county-judge-candidate-proposes-three-horizon-planning-framework-to-balance-growth-and-property-rights)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/11/notexjxY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/11/mielxthX.webp)
