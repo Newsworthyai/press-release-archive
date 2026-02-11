@@ -1,58 +1,51 @@
-# Lionheart Health, Inc. Proud Sponsor of Anaheim Ducks Hockey with Audio and Billboard Advertising Across All Remaining Games on Victory+ TV
+# New Advisory Board to Advance HR Analytics and AI-Driven Workforce Strategies
 
-Huntington Beach, California (Newsworthy.ai) Tuesday Feb 10, 2026 @ 5:15 PM Pacific — Lionheart Health, Inc., an Orange County–based leader in regenerative health and longevity innovation, today announced it is a proud sponsor of the Anaheim Ducks, with audio and billboard advertising booked for all remaining games of the season televised on the Victory+ TV Network, a free-to-access platform available to the public.
+Jacksons Point, Ontario, Canada (Newsworthy.ai) Wednesday Feb 11, 2026 @ 8:00 AM Eastern — The HR Research Institute is excited to announce the formation of its 2026 State of People Analytics Advisory Board, a group of industry leaders and data experts, brought together to guide a major research initiative and a virtual event centered on HR analytics in the workplace.
 
- Headquartered in Huntington Beach, Lionheart Health operates a multidisciplinary research and development laboratory in Irvine at the UCI Research Park, along with a Research Clinic Training Center and flagship treatment clinic in Newport Beach. Lionheart’s clinical programs focus on skin and hair regeneration, joint and bladder health, vision and brain health, immune optimization, sexual vitality, blood pressure, diabetes and inflammation modulation, weight loss without muscle loss, and comprehensive healthspan longevity protocols.
+ As HR leaders navigate growing expectations to tie workforce strategy to measurable business impact, the advisory board will provide expert guidance on leveraging people data to make smarter, more equitable, and actionable decisions. Composed of forward-thinking practitioners, analytics specialists, and HR veterans, the board will shape research and practical insights to help HR teams address skills gaps, evolving technology, and complex organizational demands.
 
- All Lionheart Health programs are built on a patented, clinically validated technology platform centered on precision bioelectric stimulation to modulate regenerative protein expression—supporting the body’s natural repair, resilience, and performance systems.
+ The board’s work will directly inform an upcoming study and virtual event designed to equip HR professionals with frameworks, tools, and strategies to integrate analytics into day-to-day HR operations, culture, and strategic planning. With a special focus on AI-enabled solutions, the Advisory Board aims to provide expertise that ultimately helps organizations harness data to drive results, enhance workforce performance, and support inclusive, evidence-based decision-making.
 
- In addition to its clinical and research operations, Lionheart Health offers more than 200 curated health and beauty optimization products through the Lionheart Health Optimization eStore, featuring advanced devices, supplements, and wellness solutions selected to support skin, hair, metabolic, muscle, brain, immune, and longevity goals. The eStore is available online at www.LionheartHealthStim.com
+ HR.com's State of People Analytics 2026 Virtual Event June 17, 2026
 
- Lionheart Health is a Top-40 Semi-Finalist in the XPRIZE Healthspan competition and an AbbVie Allergan ULP Innovation Award winner. The company is also a two-time Octane Finalist for Life Sciences Technology Company of the Year, a 2025 Finalist in the Orange County Business Journal Innovator of the Year Awards, and was recognized in 2025 by MedTech Outlook Magazine as Micro-Stimulator Developer of the Year.
+ [REGISTER for FREE]
 
- With more than 700 issued and pending patent claims, Lionheart Health is supported by a Scientific and Clinical Advisory Board whose members collectively have authored over 6,200 peer-reviewed scientific publications. Founder Howard Leonhardt has led inventions and technologies that have treated more than 650,000 patients worldwide to date.
+ The newly formed 2026 State of People Analytics Advisory Board features these distinguished experts:
 
- “Partnering with the Anaheim Ducks allows us to connect with our local community while showcasing Orange County innovation on a national stage,” said Howard Leonhardt, Founder and Executive Chairman of Lionheart Health, Inc. “We’re proud to support elite athletic performance, recovery, and long-term health through science-driven regenerative technologies.”
+ * Ranjan Dutta, Ph.D., Founder and Managing Partner, ThothProAI
+* Helen Friedman, Partner and CEO, Merit Analytics Group LLC
+* Jeff Higgins, Founder and CEO, Lytiqs
+* Fiona Jamison, Ph.D., VP Research & People Analytics, People Results
+* Mike Kidwell, Executive Director and Senior Lead Analytics Consultant, Wells Fargo
+* Shane McGowan, Talent Analyst, People Data and Analytics, S&S Activewear
+* Viktor Mirovic, CEO, KeenCorp
+* Adam Murphy, Director, People Analytics & Systems, AMC Theatres
+* Miles Overholt, Ph.D., Founder and CEO, Strategia Analytics
+* Lisa Perez, Founder of National Management Training Week, Keynote Speaker, HBL Resources
+* Konstantin Tskhay, Founder and Managing Partner, Tskhay & Associates, Inc.
 
- About Lionheart Health, Inc.Lionheart Health, Inc. is a regenerative health, wellness, and longevity company developing and delivering patented bioelectric stimulation technologies and clinical protocols designed to enhance healthspan across muscle, brain, immune, cardiovascular, and metabolic systems. Lionheart Health operates clinics, research facilities, and licensed partner locations in the U.S. and internationally.
+ “We’re thrilled to unite HR and analytics experts to guide our upcoming research and virtual event,” said Debbie McGrath, CEO of HR.com. “Their insights will empower the HR community to use data and AI-driven analytics to make smarter, fairer, and more effective workplace decisions.”
 
- For more information, visit www.LionheartLongevity.com and www.LionheartHealthStim.com
+ The HR Research Institute releases annual “State of the Industry” reports in a variety of HR topic areas, including this past research report, HR.com's State of People Analytics 2025-26, on the same topic.
 
- Note - The Lionheart Klotho-Up Study is Investigational and requires informed patient consent to participate. This study delivers healthy fresh klotho favoring high protein and low carb and low sugar meals to your home plus personalized klotho favoring supplements and requires exercise with the BodStim TM Wiemspro Electrical Muscle Stimulation suit 2 or 3X a week for one hour (designed to get muscle and kidney tissues to secrete more klotho into circulation).
+ This and other free research reports and infographics can be downloaded at hr.com/researchinstitute.
 
- Anaheim Ducks Ad Schedule (Q1/Q2 2026) 1. Wed, Feb 25 – 7:30 PM vs Oilers
-2. Fri, Feb 27 – 7:00 PM vs Jets
-3. Sun, Mar 1 – 5:00 PM vs Flames
-4. Tue, Mar 3 – 7:00 PM vs Avalanche
-5. Wed, Mar 4 – 7:00 PM vs Islanders
-6. Fri, Mar 6 – 6:00 PM vs Canadiens
-7. Sun, Mar 8 – 6:00 PM vs Blues
-8. Tue, Mar 10 – 5:30 PM at Jets
-9. Thu, Mar 12 – 4:00 PM at Maple Leafs
-10. Sat, Mar 14 – 10:00 PM at Senators
-11. Sun, Mar 15 – 4:00 PM at Canadiens
-12. Wed, Mar 18 – 7:00 PM vs Flyers
-13. Fri, Mar 20 – 7:00 PM at Mammoth
-14. Sun, Mar 22 – 5:00 PM vs Sabres
-15. Tue, Mar 24 – 7:00 PM at Canucks
-16. Thu, Mar 26 – 6:00 PM at Flames
-17. Sat, Mar 28 – 12:30 PM at Oilers
-18. Mon, Mar 30 – 7:00 PM vs Maple Leafs
-19. Wed, Apr 1 – 7:00 PM at Sharks
-20. Fri, Apr 3 – 7:00 PM vs Blues
-21. Sat, Apr 4 – 7:00 PM vs Flames
-22. Tue, Apr 7 – 7:00 PM vs Predators
-23. Thu, Apr 9 – 7:00 PM vs Sharks
-24. Sun, Apr 12 – 5:00 PM vs Canucks
-25. Tue, Apr 14 – 5:00 PM at Wild
-26. Thu, Apr 16 – 5:00 PM at Predators 
+ About HR.com and the HR Research Institute
+
+ The #1 source for HR research—read by more HR professionals than any other! The HR Research Institute (HRRI), powered by HR.com, identifies key trends and best practices to help more than 2 million HR professionals and their organizations make strategic decisions with informed and insightful research findings.
+
+ The HRRI has published hundreds of high-quality reports across a wide array of HR topics. HR.com’s free membership offers many benefits, including access to over 300 exclusive primary research, state-of-the-industry reports, and infographics. These resources are published based on surveys developed with the assistance of a panel of thought leaders and industry experts on the advisory boards. Visit hr.com/hrresearchinstitute to maximize your HR potential. #hrresearchinstitute
+
+ Become a part of HR.com’s HR research influencer panel today! Participate in surveys, share your insights, and earn rewards!
+
+ Contact: info@hr.com HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602112124/lionheart-health-inc-proud-sponsor-of-anaheim-ducks-hockey-with-audio-and-billboard-advertising-across-all-remaining-games-on-victory-tv)
+[Original/Source Press Release](https://newsworthy.ai/news/202602112126/new-advisory-board-to-advance-hr-analytics-and-ai-driven-workforce-strategies)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-sponsors-anaheim-ducks-to-showcase-regenerative-tech/dc53b814c4a90ceefcba364dc9bb90c8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-leaders-unite-to-shape-future-of-people-analytics-with-ai-insights/db33fd57f8aada2e984b5d0a1d6ea573) 
 
  
 
@@ -60,4 +53,4 @@ Huntington Beach, California (Newsworthy.ai) Tuesday Feb 10, 2026 @ 5:15 PM Paci
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/11/tileSh4P.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/11/notexjxY.webp)
