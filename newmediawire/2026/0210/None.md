@@ -1,32 +1,61 @@
-# Forward Industries (FWDI) to Host Conference Call on First-Quarter 2026 Results Feb. 12
+# PNE Group Receives Permits for two New Wind Farms in Germany in the Fourth Quarter of 2025
 
-LOS ANGELES, CA - February 10, 2026 (NEWMEDIAWIRE) - Forward Industries (NASDAQ: FWDI) the leading Solana treasury company, announced that it will host a conference call on Thursday, Feb. 12, 2026, at 5 p.m. Eastern Time to discuss its financial and operating results for the three months ended Dec. 31, 2025, with financial results to be released in a press release prior to the call; the Company’s executive team will host the call and webcast presentation, followed by a question-and-answer period.
+* Permits for plants with a total installed nominal output of 42 MW
+* Once operational, the wind farms will be able to supply around 24,600 three-person households with electricity each year
 
- To view the full press release, visit https://ibn.fm/Gi80I
+ CUXHAVEN, GERMANY - February 10, 2026 (NEWMEDIAWIRE) - In the fourth quarter of 2025, the PNE Group obtained the necessary permits under the German Federal Immission Control Act (BImSchG) for the construction and operation of two wind energy projects in Germany. The permits relate to the ‘Am Heilborn’ wind farm and the repowering of the ‘Hassendorf’ wind farm.
 
- About Forward Industries, Inc.
+ For the Thuringian wind farm ‘Am Heilborn’, which consists of the sections ‘Am Heilborn I’ and ‘Am Heilborn II’, a total of five Vestas V172 wind turbines with a nominal output of 7.2 MW each are planned to be erected. The wind farm will thus achieve a total nominal output of 36.0 MW.
 
- Forward Industries, Inc. is a Solana focused digital asset treasury company, with the strategy to buy, hold, stake, trade, invest in, and grow SOL and SOL related digital assets, protocols and businesses. Our mission is to expand and strengthen the Solana ecosystem by acquiring and staking SOL and engaging with, providing tools to and investing in the Solana network, Solana developers and Solana related projects in order to increase shareholder value. In connection with a private placement transaction in September 2025, we launched our digital asset treasury strategy supported by industry leading investors and operating partners including Galaxy Digital and Jump Crypto. For more information on the Company’s Solana treasury strategy, visit forwardindustries.com
+ PNE has also received the second partial permit for the repowering of the Hassendorf wind farm in Lower Saxony. This concerns another Vestas V150 wind turbine with a nominal output of 6 MW. Two turbines of the same type had already been permitted in June 2025. With the current permit, the project with a total of three turbines and a total nominal output of 18 MW has been fully permitted.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ With a total installed nominal output of 54 MW, the two wind farms will be able to cover the annual electricity needs of around 24,600 three-person households once they are commissioned. They will thus make an important contribution to sustainable energy supply and the implementation of the energy transition in the respective regions.
 
- Forward Looking Statements
+ "The current permits are an important step for our growing project portfolio in Germany," says Roland Stanze, COO of PNE AG. "They demonstrate our high level of expertise in complex permit procedures and lay the foundation for the further expansion of our own generation capacities and our commitment to an economical and sustainable energy transition."About the PNE Group
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ The internationally operating PNE Group is listed on the SDAX. For more than 30 years, it has been one of the most experienced project developers in the field of onshore and offshore wind farms. The focus is on the development of wind energy and photovoltaic projects worldwide as well as on power generation with its own wind farms. Its portfolio covers all project planning phases, from site investigation, permit procedures and financing to construction, operation and repowering. As a Clean Energy Solutions Provider, the PNE Group also offers services for the entire life cycle of wind farms and photovoltaic plants, as well as battery storage solutions for the more efficient use of renewable energies. The PNE Group is a sought-after partner to industry for solutions used in the refinement of electricity via power-to-X technologies.
+
+ ContactPNE AGAlexander LennemannHead of Corporate CommunicationsTel: +49 47 21 7 18 – 453E-mail: [alexander.lennemann@pnegroup.com](mailto:alexander.lennemann@pnegroup.com) PNE AGHead of Investor RelationsChristopher RodlerTel: +49 40 879 33 – 114E-mail: [christopher.rodler@pnegroup.com](mailto:christopher.rodler@pnegroup.com) 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/forward-industries-fwdi-to-host-conference-call-on-first-quarter-2026-results-feb-12-7085320)
+[Original/Source Press Release](https://www.newmediawire.com/news/pne-group-receives-permits-for-two-new-wind-farms-in-germany-in-the-fourth-quarter-of-2025-7085323)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/forward-industries-to-host-q1-2026-results-call-on-solana-strategy/4a0d851831b9881ba5b3e0cd6b5fa9b7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pne-group-secures-permits-for-54-mw-wind-farms-to-power-24600-german-homes/e7de694450a28ba84a63add8c848349b) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/pne-group-secures-permits-for-two-german-wind-farms-totaling-54/202627925)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/388470-pne-group-secures-permits-for-two-german-wind-farms-with-54-mw-combined-capacity)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337493-pne-gruppe-erhalt-genehmigungen-fur-zwei-deutsche-windparks-mit-54-mw-gesamtleistung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337809-pne-group-obtiene-permisos-para-dos-parques-eolicos-en-alemania-con-una-capacidad-combinada-de-54-mw)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338561-le-groupe-pne-obtient-les-autorisations-pour-deux-parcs-eoliens-en-allemagne-dune-capacite-combinee-de-54-mw)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337430-grupo-pne-obtem-licencas-para-dois-parques-eolicos-na-alemanha-com-capacidade-combinada-de-54-mw)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/pne-group-secures-permits-for-two-german-wind-farms-with-54-mw-t/202627925)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pne-group-secures-permits-for-two-german-wind-farms-totaling-54/202627925)
+
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/388480-pne-group-secures-permits-for-54-mw-wind-energy-projects-in-germany)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/388501-pne-group-secures-permits-for-two-german-wind-farms-totaling-54-mw)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202602/388504-pne-group-secures-permits-for-two-german-wind-farms-totaling-54-mw)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/10/fastjwod.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/10/roamPDEo.webp)
