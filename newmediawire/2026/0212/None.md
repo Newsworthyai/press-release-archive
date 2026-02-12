@@ -1,63 +1,76 @@
-# Pride Holdings Group Reports Record Fourth Quarter Results, Exceeding $4 Million in Revenue and Delivering 289% Quarter Over Quarter Growth
+# Jupiter Neurosciences Selected as B2i Digital Featured Company
 
-ORLANDO, FL - February 12, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE), a diversified LGBTQ+ focused hospitality, entertainment, and community-driven holding company, today announced preliminary financial results for the fourth quarter ended December 31, 2025, reporting over $4 million in revenue, representing a 289% increase compared to third quarter revenues.
+Clinical-Stage Pharmaceutical Company Advancing Phase IIa Parkinson’s Trial
 
- The Company’s strong fourth quarter performance reflects continued execution on its growth strategy, including the expansion of owned and operated venues, improved operational efficiencies, and increased brand visibility across its portfolio.
+ Dual-Path Strategy Targets Neuroinflammation While Expanding Nugevia™ Longevity Brand
 
- Fourth Quarter 2025 Highlights:
+ NEW YORK, NY - February 12, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc., a capital markets positioning and investor connectivity platform focused on growth-stage public companies, today announced that Jupiter Neurosciences, Inc. (NASDAQ: JUNS) has been selected as a B2i Digital Featured Company.
 
- * Revenue exceeded $4.0 million
-* 289% growth compared to Q3 2025 revenues
-* Strong performance across hospitality, nightlife, and events divisions
-* Momentum driven by acquisitions, seasonal demand, and operational scale
+ Jupiter Neurosciences is advancing a therapeutic pipeline targeting neuroinflammation and central nervous system (CNS) disorders, led by an FDA-cleared Phase IIa clinical trial in Parkinson’s disease. The company is also exploring additional indications including Alzheimer’s disease, Friedreich’s Ataxia, Mucopolysaccharidoses Type I, and MELAS, supported by research collaborations with Harvard University, Georgetown University, MIT’s Picower Institute, and the University of Miami.
 
- “We continue to grow Pride, and I'm delighted with such growth in the 4th quarter of 2025. We have more big news and growth in quarter 1 and 2 of 2026, as we continue to roll up and growth of the LGBTQ+ markets. I am extremely confident in our business model, staff, customer base, and shareholders that we have an extraordinary 2026. We are driven to both increase revenues, increase profitability, offer a great experience for our customers, and of course add value to our shareholders and staff alike,” said Mike Barrett, CEO of Pride Holdings Group.
+ Alongside its clinical program, Jupiter is expanding Nugevia™, a consumer longevity brand powered by its proprietary JOTROL™ enhanced resveratrol formulation. This dual-path strategy combines clinical development with emerging commercial revenue pathways, creating a differentiated operating model as key milestones advance.
 
- Management attributes the quarter-over-quarter growth to increased same-venue performance, successful integration of recent acquisitions, and heightened consumer demand during the peak fourth quarter period. The Company expects these trends to continue as it scales operations and evaluates additional strategic opportunities.
+ “Jupiter Neurosciences offers investors a differentiated opportunity within the CNS sector,” said David Shapiro, Chief Executive Officer of B2i Digital. “With a Phase IIa Parkinson’s trial underway and a consumer longevity platform already in market, the company is advancing its pipeline while building potential revenue streams. We look forward to expanding their visibility across our investor network.”
 
- Pride Holdings Group expects to release full year financials and additional operational updates in the coming weeks.
+ “We believe we are entering an important inflection point,” said Christer Rosén, Founder, Chairman and CEO of Jupiter Neurosciences. “As our Parkinson’s program progresses and Nugevia continues to scale, partnering with B2i Digital strengthens our ability to communicate our story to the broader capital markets.”
 
- About Pride Holdings Group
+ To learn more about Jupiter Neurosciences, visit www.jupiterneurosciences.com.
 
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
+ For investor inquiries, contact IR@jupiterneurosciences.com.
 
- Forward-Looking Statements
+ About B2i Digital, Inc.
 
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
+ B2i Digital, Inc. is a capital markets positioning and investor connectivity platform serving growth-stage public companies. Through its Featured Conference, Featured Company, and Featured Expert programs, B2i Digital helps management teams sharpen their capital markets narrative and engage directly with active investors across the investor conference ecosystem.
 
- Media Relationspress@prideholdingsgroup.com 
+ Acting as The Capital Markets Matchmaker℠, B2i Digital leverages a proprietary network of more than 1.5 million capital markets participants and a curated email distribution of more than 100,000 investors and industry professionals to move companies from marketing to meaningful investor meetings. Its approach, captured in the mantra From Marketing to Meetings℠, reflects a focus on measurable investor engagement. Founded in 2021 by former Maxim Group investment banker and Chief Marketing Officer David Shapiro, B2i Digital is headquartered in New York City.
+
+ B2i Digital Contact Information:
+
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.com
+
+ https://www.linkedin.com/in/davidshapironychttps://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigital/https://www.tiktok.com/@b2idigitalhttps://bsky.app/profile/b2idigital.bsky.social
+
+ About Jupiter Neurosciences, Inc.
+
+ Jupiter Neurosciences is a clinical-stage pharmaceutical company pursuing a dual-path strategy to address neuroinflammation and promote healthy aging. The Company is advancing a therapeutic pipeline targeting central nervous system (CNS) disorders and rare diseases while expanding into the consumer longevity market with its Nugevia™ product line. Both initiatives are powered by JOTROL™, Jupiter’s proprietary enhanced resveratrol formulation that has demonstrated significantly improved bioavailability. Nugevia™ brings clinical-grade science to the supplement space, supporting mental clarity, skin health, and mitochondrial function. The Company’s pipeline is focused broadly on CNS disorders and currently includes a Phase IIa clinical trial in Parkinson’s disease, with additional exploration in Alzheimer’s disease, Mucopolysaccharidoses Type I, Friedreich’s Ataxia, and MELAS.
+
+ More information may be found at www.jupiterneurosciences.com.
+
+ Contact Information:
+
+ Jupiter Neurosciences, Inc.IR@jupiterneurosciences.comhttps://www.linkedin.com/company/jupiterneurosciences/https://x.com/jupiterneuro
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-reports-record-fourth-quarter-results-exceeding-4-million-in-revenue-and-delivering-289-quarter-over-quarter-growth-7085345)
+[Original/Source Press Release](https://www.newmediawire.com/news/jupiter-neurosciences-selected-as-b2i-digital-featured-company-7085353)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-group-reports-289-revenue-surge-in-q4-2025/8ea39d0c62f573afccc9dce76348442d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jupiter-neurosciences-partners-with-b2i-digital-to-boost-investor-profile/16e22c995722131c03a8b46ac4cc46d2) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-reports-289-revenue-growth-in-fourth-quarte/202628026)
+Pickup - [https://advos.io/en](https://advos.io/en/jupiter-neurosciences-gains-investor-platform-spotlight-amid-par/202628055)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/389384-pride-holdings-group-achieves-record-fourth-quarter-revenue-with-289-growth)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/389573-jupiter-neurosciences-selected-as-b2i-digital-featured-company-amid-parkinsons-trial-progress-and-longevity-brand-expansion)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337569-pride-holdings-group-erzielt-rekordumsatz-im-vierten-quartal-mit-289-wachstum)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337588-jupiter-neurosciences-als-b2i-digital-featured-company-ausgewahlt-fortschritte-bei-parkinson-studie-und-expansion-der-langlebigkeitsmarke)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337896-pride-holdings-group-alcanza-ingresos-record-en-el-cuarto-trimestre-con-un-crecimiento-del-289)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337915-jupiter-neurosciences-seleccionada-como-empresa-destacada-de-b2i-digital-ante-avances-en-ensayo-de-parkinson-y-expansion-de-marca-de-longevidad)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338663-pride-holdings-group-enregistre-un-chiffre-daffaires-record-au-quatrieme-trimestre-avec-une-croissance-de-289-)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338681-jupiter-neurosciences-selectionnee-comme-entreprise-vedette-de-b2i-digital-sur-fond-davancees-dans-lessai-sur-la-maladie-de-parkinson-et-dexpansion-de-la-marque-de-longevite)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337507-pride-holdings-group-alcanca-receita-recorde-no-quarto-trimestre-com-crescimento-de-289)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337525-jupiter-neurosciences-selecionada-como-empresa-em-destaque-da-b2i-digital-em-meio-ao-progresso-do-estudo-sobre-parkinson-e-expansao-da-marca-de-longevidade)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/389484-pride-holdings-group-reports-record-fourth-quarter-revenue-with-289-growth)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/jupiter-neurosciences-selected-as-b2i-digital-featured-company-a/202628055)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pride-holdings-group-reports-289-quarterly-revenue-growth-exceed/202628026)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/jupiter-neurosciences-selected-as-b2i-digital-featured-company-a/202628055)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pride-holdings-group-reports-record-fourth-quarter-results-with/202628026)
-
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389420-pride-holdings-group-reports-289-quarterly-revenue-growth-exceeding-4-million-in-q4-2025)
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389578-jupiter-neurosciences-gains-b2i-digital-spotlight-as-it-advances-parkinsons-trial-and-consumer-longevity-brand)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/keep6WDn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/ninoTfMm.webp)
