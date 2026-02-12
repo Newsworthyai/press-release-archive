@@ -1,80 +1,66 @@
-# CleverTap Recognized as a Leader in Latest Gartner Magic Quadrant for Personalization Engines
+# Hi-View Resources Inc. Announces Shannon Broughm to the Technical Advisory Board
 
-The Evaluation was Based on Specific Criteria That Analyzed the Company’s Overall Completeness of Vision and Ability to Execute
+VANCOUVER, BRITISH COLUMBIA - February 12, 2026 (NEWMEDIAWIRE) - HI-VIEW RESOURCES INC. (“Hi-View” or the “Company”) (CSE: GXLD; OTCQB: HVWRF; FSE: B63) announces the appointment of Ms. Shannon Broughm as a Technical Advisor to the Company.
 
- SAN FRANCISCO and MUMBAI - February 11, 2026 (NEWMEDIAWIRE) - CleverTap, the all-in-one customer engagement platform, today announced that they have been positioned by Gartner® as a Leader in their 2026 Magic Quadrant™ for Personalization Engines.
+ Ms. Broughm is a Senior Consultant with APEX Geoscience Ltd. She holds a B.Sc. in Geology from Dalhousie University (2013) and an M.Sc. in Geology from Memorial University of Newfoundland (2017), specializing in Geochemistry and Economic Geology. Her M.Sc. research, titled "Mineral chemistry of magnetite from magnetite-apatite mineralization and their host rocks: examples from Kiruna, Sweden, and El Laco, Chile," is published in the international journal Mineralium Deposita. Ms. Broughm has been a Professional Geologist (P.Geo.) registered with the Association of Professional Engineers and Geoscientists of Alberta (APEGA) since February 2022.
 
- We believe this recognition underscores the progress we are making alongside our customers, a growing ecosystem of forward-looking brands and partners dedicated to delivering relevant, responsible, and effective personalization.
+ Shannon Broughm commented, “I’m excited to join Hi-View as a Technical Advisor and apply my experience in the Toodoggone Region to advancing their highly prospective projects.”
 
- Our approach to hyper-personalization, individualized to each customer, is built around agentic AI capabilities from CleverAI™ designed to deliver "Experience of One” through 1:1 engagement at scale. We believe the CleverAI™ Decisioning Engine plays a central role in interpreting customer intent, enabling brands to connect customers with the right message, on the right channel, at the right moment. Combined with a comprehensive suite of personalization capabilities, we believe these capabilities are helping brands drive measurable outcomes, including up to 35% higher conversion rates across key use cases in industries like financial services, retail, ecommerce, media, telecom, and many others.
+ R. Nick Horsley, Chief Executive Officer of Hi-View, commented, “We are happy to welcome Shannon to Hi-View's Technical Advisory Board. Since 2018, she has demonstrated exceptional geological and geochemical expertise, combined with leadership in fieldwork and exploration throughout the Toodoggone region. Her practical approach and diverse background will be valuable as we continue advancing our projects.”
 
- At the core of this approach is CleverAI™, our enterprise-grade agentic intelligence and decisioning engine. Designed for autonomous real-time orchestration, it enables continuous experience optimization across the customer lifecycle. We believe this focus on unified intelligence, real-time decisioning, and scalable hyper-personalization has contributed to our broader market momentum.
+ Ms. Broughm has nine years of experience as a consulting geologist, managing and executing mineral exploration programs for junior mining companies targeting base and precious metals across a range of deposit types, with a particular focus on porphyry–epithermal systems. Her experience includes nine years with APEX and five summers while a student working with the Geological Survey in Newfoundland and Labrador and the Department of Natural Resources in Nova Scotia. She has worked extensively in the Toodoggone region since 2018, where she has developed strong technical expertise in the geology, structural controls, mineralization, and effective exploration techniques for discovery. Her most recent work includes leading exploration programs targeting high sulphidation and porphyry systems in northeastern British Columbia.
 
- “We consider our positioning in the Leaders Quadrant by Gartner as confirmation of our capability that enables customers to improve business outcomes with the power of CleverAI™,” said Anand Jain, Co-founder and Chief Marketing Officer, CleverTap.
+ About Hi-View Resources Inc.
 
- “We continue to innovate while we execute on our product roadmap. With CleverAI™, we are delivering a truly revolutionary AI-First Customer Engagement Platform that will change the face of the martech and customer engagement industry, further enhancing our market position”.
+ Hi-View Resources Inc., a publicly listed mineral exploration company on the Canadian Securities Exchange, is advancing a portfolio of gold, silver, and copper assets in the Toodoggone region of northern British Columbia. The Company’s 100% owned and optioned projects cover more than 27,791 hectares and include the flagship Golden Stranger Project, the Lawyers claims, and the Borealis Project - all designated as high-priority targets. Additional assets in the portfolio include the Nub and Saunders properties, while the Northern Claims and Harmon Peak remain under active option agreements. The company also has an additional 1,300 hectares currently under mineral claim application. For more information, please visit Hi-View’s website or review the Company’s filings on SEDAR+ (www.sedarplus.ca).
 
- View a complimentary copy of the Magic Quadrant report to learn more about CleverTap’s strengths and cautions, among other provider offerings, here.
+ On Behalf of the Board of Directors,“R. Nick Horsley”R. Nick Horsley, CEO
 
- (Gartner, “Magic Quadrant for Personalization Engines,” by Penny Gillespie, Jason Daigler, Michael Ro, Ross Cosner, 3 February 2026.)
+ For further information, please contact:Hi-View Resources Inc.R. Nick Horsley - CEOEmail: info@hiviewresources.comTelephone: (604) 377-8994Website: www.hiviewresources.com
 
- Gartner and Magic Quadrant are trademarks of Gartner, Inc. and/or its affiliates.
+ FORWARD LOOKING STATEMENTS:
 
- Gartner does not endorse any company, vendor, product or service depicted in its publications, and does not advise technology users to select only those vendors with the highest ratings or other designation. Gartner publications consist of the opinions of Gartner’s business and technology insights organization and should not be construed as statements of fact. Gartner disclaims all warranties, expressed or implied, with respect to this publication, including any warranties of merchantability or fitness for a particular purpose.
+ This news release includes certain statements that may be deemed “forward-looking statements”. All statements in this new release, other than statements of historical facts, that address events or developments that the Company expects to occur, are forward-looking statements. Forward-looking statements are statements that are not historical facts and are generally, but not always, identified by the words “expects”, “plans”, “anticipates”, “believes”, “intends”, “estimates”, “projects”, “potential” and similar expressions, or that events or conditions “will”, “would”, “may”, “could” or “should” occur. Forward-looking statements in this news release includes statements related to the Incentive Program and the anticipated use of proceed therefrom. Although the Company believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are not guarantees of future performance and actual results may differ materially from those in the forward-looking statements. Factors that could cause the actual results to differ materially from those in forward-looking statements include market prices, continued availability of capital and financing, and general economic, market or business conditions. Investors are cautioned that any such statements are not guarantees of future performance and actual results or developments may differ materially from those projected in the forward-looking statements. Forward-looking statements are based on the beliefs, estimates and opinions of the Company’s management on the date the statements are made. Except as required by applicable securities laws, the Company undertakes no obligation to update these forward-looking statements in the event that management's beliefs, estimates or opinions, or other factors, should change.
 
- About CleverTap
+ The Canadian Securities Exchange has neither approved nor disapproved the contents of this news release.
 
- CleverTap is the world’s leading AI-first, all-in-one customer engagement and retention platform, helping brands turn data into lasting customer relationships. Powered by its proprietary CleverAI™: Decisioning Engine and Agentic AI-verse, CleverTap enables organizations to maximize customer lifetime value at scale. Its unified platform brings together AI-powered segmentation, personalization, experimentation, journey orchestration, and deep analytics - seamlessly integrated with 100+ leading martech solutions.
+ 
 
- With backing from global investors including Accel, Peak XV Partners, Tiger Global, CDPQ, and 360 One, CleverTap has presence across US, Europe, the Middle East, Latin America, and Asia. Leading brands such as TD Bank, Burger King, Paytm, Levi’s, IKEA, Decathlon, Vodafone, Domino’s, Jio, Carousell, Banco Azteca, Zomato, StockX, and Emirates NBD, rely on CleverTap to drive measurable growth through meaningful customer engagement.
-
- For more information, visit clevertap.com or follow us on:LinkedIn: https://www.linkedin.com/company/clevertap/X: https://twitter.com/CleverTap
-
- Forward-Looking Statements
-
- Some of the statements in this press release may represent CleverTap's belief in connection with future events and may be forward-looking statements, or statements of future expectations based on currently available information. CleverTap cautions that such statements are naturally subject to risks and uncertainties that could result in the actual outcome being absolutely different from the results anticipated by the statements mentioned in the press release.
-
- Factors such as the development of general economic conditions affecting our business, future market conditions, our ability to maintain cost advantages, uncertainty with respect to earnings, corporate actions, client concentration, reduced demand, liability or damages in our service contracts, unusual catastrophic loss events, war, political instability, changes in government policies or laws, legal restrictions impacting our business, impact of pandemic, epidemic, any natural calamity and other factors that are naturally beyond our control, changes in the capital markets and other circumstances may cause the actual events or results to be materially different, from those anticipated by such statements. CleverTap does not make any representation or warranty, express or implied, as to the accuracy, completeness, or updated or revised status of such statements. Therefore, in no case whatsoever will CleverTap and its affiliate companies be liable to anyone for any decision made or action taken in conjunction.
-
- For more information:
-
- ADITYA SANYALDirector, Digital Marketing, CleverTap+91 9177110080aditya.sanyal@clevertap.com
-
- ASHMIT CHAUDHARYAssociate Consultant, Archetype+91 8850752121ashmit.chaudhary@archetype.co 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/clevertap-recognized-as-a-leader-in-latest-gartner-magic-quadrant-for-personalization-engines-7085340)
+[Original/Source Press Release](https://www.newmediawire.com/news/hi-view-resources-inc-announces-shannon-broughm-to-the-technical-advisory-board-7085341)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/clevertap-named-leader-in-gartner-s-2026-magic-quadrant-for-personalization/9ab73c398e46da28ec57a72aa719359d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hi-view-bolsters-team-with-expert-geologist-for-bc-mining-projects/49e41d480beb8cb76e29d5b36658e006) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
+Pickup - [https://advos.io/en](https://advos.io/en/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/389046-clevertap-named-leader-in-gartner-magic-quadrant-for-personalization-engines)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/389178-hi-view-resources-appoints-shannon-broughm-to-technical-advisory-board)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337539-clevertap-als-leader-im-gartner-magic-quadrant-fur-personalisierungs-engines-ausgezeichnet)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337887-hi-view-resources-designa-a-shannon-broughm-para-su-consejo-asesor-tecnico)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337859-clevertap-es-nombrado-lider-en-el-cuadrante-magico-de-gartner-para-motores-de-personalizacion)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338657-hi-view-resources-nomme-shannon-broughm-au-sein-de-son-conseil-consultatif-technique)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338631-clevertap-designe-leader-dans-le-magic-quadrant-de-gartner-pour-les-moteurs-de-personnalisation)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337477-clevertap-nomeada-lider-no-quadrante-magico-da-gartner-para-motores-de-personalizacao)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337564-hi-view-resources-ernennt-shannon-broughm-zum-technical-advisory-board)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337502-hi-view-resources-nomeia-shannon-broughm-para-o-conselho-consultivo-tecnico)
 
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389051-clevertap-named-leader-in-gartner-magic-quadrant-for-personalization-engines)
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202602/389307-hi-view-resources-appoints-geologist-shannon-broughm-as-technical-advisor-to-advance-toodoggone-exploration)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/389041-clevertap-named-leader-in-gartners-2026-magic-quadrant-for-personalization-engines)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202602/389311-hi-view-resources-appoints-geologist-shannon-broughm-as-technical-advisor-to-advance-toodoggone-exploration)
 
-Pickup - [https://news.salesnexus.com/sales-news](https://news.salesnexus.com/sales-news/202602/389053-clevertap-recognized-as-leader-in-gartners-2026-personalization-engines-report)
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389253-hi-view-resources-appoints-shannon-broughm-to-technical-advisory-board)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/wallqkBL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/raingqkg.webp)
