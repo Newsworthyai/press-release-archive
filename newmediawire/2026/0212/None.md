@@ -1,66 +1,63 @@
-# Hi-View Resources Inc. Announces Shannon Broughm to the Technical Advisory Board
+# Pride Holdings Group Reports Record Fourth Quarter Results, Exceeding $4 Million in Revenue and Delivering 289% Quarter Over Quarter Growth
 
-VANCOUVER, BRITISH COLUMBIA - February 12, 2026 (NEWMEDIAWIRE) - HI-VIEW RESOURCES INC. (“Hi-View” or the “Company”) (CSE: GXLD; OTCQB: HVWRF; FSE: B63) announces the appointment of Ms. Shannon Broughm as a Technical Advisor to the Company.
+ORLANDO, FL - February 12, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE), a diversified LGBTQ+ focused hospitality, entertainment, and community-driven holding company, today announced preliminary financial results for the fourth quarter ended December 31, 2025, reporting over $4 million in revenue, representing a 289% increase compared to third quarter revenues.
 
- Ms. Broughm is a Senior Consultant with APEX Geoscience Ltd. She holds a B.Sc. in Geology from Dalhousie University (2013) and an M.Sc. in Geology from Memorial University of Newfoundland (2017), specializing in Geochemistry and Economic Geology. Her M.Sc. research, titled "Mineral chemistry of magnetite from magnetite-apatite mineralization and their host rocks: examples from Kiruna, Sweden, and El Laco, Chile," is published in the international journal Mineralium Deposita. Ms. Broughm has been a Professional Geologist (P.Geo.) registered with the Association of Professional Engineers and Geoscientists of Alberta (APEGA) since February 2022.
+ The Company’s strong fourth quarter performance reflects continued execution on its growth strategy, including the expansion of owned and operated venues, improved operational efficiencies, and increased brand visibility across its portfolio.
 
- Shannon Broughm commented, “I’m excited to join Hi-View as a Technical Advisor and apply my experience in the Toodoggone Region to advancing their highly prospective projects.”
+ Fourth Quarter 2025 Highlights:
 
- R. Nick Horsley, Chief Executive Officer of Hi-View, commented, “We are happy to welcome Shannon to Hi-View's Technical Advisory Board. Since 2018, she has demonstrated exceptional geological and geochemical expertise, combined with leadership in fieldwork and exploration throughout the Toodoggone region. Her practical approach and diverse background will be valuable as we continue advancing our projects.”
+ * Revenue exceeded $4.0 million
+* 289% growth compared to Q3 2025 revenues
+* Strong performance across hospitality, nightlife, and events divisions
+* Momentum driven by acquisitions, seasonal demand, and operational scale
 
- Ms. Broughm has nine years of experience as a consulting geologist, managing and executing mineral exploration programs for junior mining companies targeting base and precious metals across a range of deposit types, with a particular focus on porphyry–epithermal systems. Her experience includes nine years with APEX and five summers while a student working with the Geological Survey in Newfoundland and Labrador and the Department of Natural Resources in Nova Scotia. She has worked extensively in the Toodoggone region since 2018, where she has developed strong technical expertise in the geology, structural controls, mineralization, and effective exploration techniques for discovery. Her most recent work includes leading exploration programs targeting high sulphidation and porphyry systems in northeastern British Columbia.
+ “We continue to grow Pride, and I'm delighted with such growth in the 4th quarter of 2025. We have more big news and growth in quarter 1 and 2 of 2026, as we continue to roll up and growth of the LGBTQ+ markets. I am extremely confident in our business model, staff, customer base, and shareholders that we have an extraordinary 2026. We are driven to both increase revenues, increase profitability, offer a great experience for our customers, and of course add value to our shareholders and staff alike,” said Mike Barrett, CEO of Pride Holdings Group.
 
- About Hi-View Resources Inc.
+ Management attributes the quarter-over-quarter growth to increased same-venue performance, successful integration of recent acquisitions, and heightened consumer demand during the peak fourth quarter period. The Company expects these trends to continue as it scales operations and evaluates additional strategic opportunities.
 
- Hi-View Resources Inc., a publicly listed mineral exploration company on the Canadian Securities Exchange, is advancing a portfolio of gold, silver, and copper assets in the Toodoggone region of northern British Columbia. The Company’s 100% owned and optioned projects cover more than 27,791 hectares and include the flagship Golden Stranger Project, the Lawyers claims, and the Borealis Project - all designated as high-priority targets. Additional assets in the portfolio include the Nub and Saunders properties, while the Northern Claims and Harmon Peak remain under active option agreements. The company also has an additional 1,300 hectares currently under mineral claim application. For more information, please visit Hi-View’s website or review the Company’s filings on SEDAR+ (www.sedarplus.ca).
+ Pride Holdings Group expects to release full year financials and additional operational updates in the coming weeks.
 
- On Behalf of the Board of Directors,“R. Nick Horsley”R. Nick Horsley, CEO
+ About Pride Holdings Group
 
- For further information, please contact:Hi-View Resources Inc.R. Nick Horsley - CEOEmail: info@hiviewresources.comTelephone: (604) 377-8994Website: www.hiviewresources.com
+ Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
 
- FORWARD LOOKING STATEMENTS:
+ Forward-Looking Statements
 
- This news release includes certain statements that may be deemed “forward-looking statements”. All statements in this new release, other than statements of historical facts, that address events or developments that the Company expects to occur, are forward-looking statements. Forward-looking statements are statements that are not historical facts and are generally, but not always, identified by the words “expects”, “plans”, “anticipates”, “believes”, “intends”, “estimates”, “projects”, “potential” and similar expressions, or that events or conditions “will”, “would”, “may”, “could” or “should” occur. Forward-looking statements in this news release includes statements related to the Incentive Program and the anticipated use of proceed therefrom. Although the Company believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are not guarantees of future performance and actual results may differ materially from those in the forward-looking statements. Factors that could cause the actual results to differ materially from those in forward-looking statements include market prices, continued availability of capital and financing, and general economic, market or business conditions. Investors are cautioned that any such statements are not guarantees of future performance and actual results or developments may differ materially from those projected in the forward-looking statements. Forward-looking statements are based on the beliefs, estimates and opinions of the Company’s management on the date the statements are made. Except as required by applicable securities laws, the Company undertakes no obligation to update these forward-looking statements in the event that management's beliefs, estimates or opinions, or other factors, should change.
+ This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
 
- The Canadian Securities Exchange has neither approved nor disapproved the contents of this news release.
-
- 
-
-View the original release on www.newmediawire.com 
+ Media Relationspress@prideholdingsgroup.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hi-view-resources-inc-announces-shannon-broughm-to-the-technical-advisory-board-7085341)
+[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-reports-record-fourth-quarter-results-exceeding-4-million-in-revenue-and-delivering-289-quarter-over-quarter-growth-7085345)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hi-view-bolsters-team-with-expert-geologist-for-bc-mining-projects/49e41d480beb8cb76e29d5b36658e006) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-group-reports-289-revenue-surge-in-q4-2025/8ea39d0c62f573afccc9dce76348442d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
+Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-reports-289-revenue-growth-in-fourth-quarte/202628026)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/389178-hi-view-resources-appoints-shannon-broughm-to-technical-advisory-board)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/389384-pride-holdings-group-achieves-record-fourth-quarter-revenue-with-289-growth)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337887-hi-view-resources-designa-a-shannon-broughm-para-su-consejo-asesor-tecnico)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337569-pride-holdings-group-erzielt-rekordumsatz-im-vierten-quartal-mit-289-wachstum)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338657-hi-view-resources-nomme-shannon-broughm-au-sein-de-son-conseil-consultatif-technique)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337896-pride-holdings-group-alcanza-ingresos-record-en-el-cuarto-trimestre-con-un-crecimiento-del-289)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338663-pride-holdings-group-enregistre-un-chiffre-daffaires-record-au-quatrieme-trimestre-avec-une-croissance-de-289-)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hi-view-resources-appoints-shannon-broughm-to-technical-advisory/202628021)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337507-pride-holdings-group-alcanca-receita-recorde-no-quarto-trimestre-com-crescimento-de-289)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337564-hi-view-resources-ernennt-shannon-broughm-zum-technical-advisory-board)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/389484-pride-holdings-group-reports-record-fourth-quarter-revenue-with-289-growth)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337502-hi-view-resources-nomeia-shannon-broughm-para-o-conselho-consultivo-tecnico)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/pride-holdings-group-reports-289-quarterly-revenue-growth-exceed/202628026)
 
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202602/389307-hi-view-resources-appoints-geologist-shannon-broughm-as-technical-advisor-to-advance-toodoggone-exploration)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pride-holdings-group-reports-record-fourth-quarter-results-with/202628026)
 
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202602/389311-hi-view-resources-appoints-geologist-shannon-broughm-as-technical-advisor-to-advance-toodoggone-exploration)
-
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389253-hi-view-resources-appoints-shannon-broughm-to-technical-advisory-board)
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389420-pride-holdings-group-reports-289-quarterly-revenue-growth-exceeding-4-million-in-q4-2025)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/raingqkg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/keep6WDn.webp)
