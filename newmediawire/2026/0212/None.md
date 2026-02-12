@@ -1,79 +1,80 @@
-# LR Health &amp; Beauty SE Lays Foundation for Positive Future Business Performance With New Financing Structure
+# CleverTap Recognized as a Leader in Latest Gartner Magic Quadrant for Personalization Engines
 
-* Company receives EUR 20 million of new capital and significantly reduces debt
-* Sustainable financing structure creates basis to implement targeted strategic measures to consistently drive LR’s success story
+The Evaluation was Based on Specific Criteria That Analyzed the Company’s Overall Completeness of Vision and Ability to Execute
 
- AHLEN, GERMANY - February 11, 2026 (NEWMEDIAWIRE) - LR Health & Beauty SE, Europe’s leading social commerce company for high-quality nutritional supplements and beauty products, has today taken an important step to realign its financing structure. An agreement was reached with significant investors in the Company concerning a comprehensive restructuring of its 2024/2028 Bond (ISIN: NO0013149658) (the “Bond”) and the Company’s capital structure. This agreement provides for an aggregate injection of fresh capital of EUR 20 million. At the same time, the Company's debt structure is being significantly reduced and restructured.
+ SAN FRANCISCO and MUMBAI - February 11, 2026 (NEWMEDIAWIRE) - CleverTap, the all-in-one customer engagement platform, today announced that they have been positioned by Gartner® as a Leader in their 2026 Magic Quadrant™ for Personalization Engines.
 
- Jorg Korfer, Chief Executive Officer of LR Health & Beauty SE, comments: “With this agreement on a realignment of our financing structure, we have reached an important milestone to reposition the LR Group to make it viable for the future. On the basis of a solid financing structure, we aim to initiate targeted strategic measures to now bring the LR Group onto a successful trajectory. The consistent digitalisation of our business processes, a focused further development of our product portfolio and our expansion into new markets are to play a central role in this context. Furthermore, our strong partner community represents an important foundation for the future success of our Company. Following the successful start-of-year events and the launch of an innovative new product under the LR Body Mission brand, we aim to create additional incentives for our partners' activities in the course of the year with promising product innovations.”
+ We believe this recognition underscores the progress we are making alongside our customers, a growing ecosystem of forward-looking brands and partners dedicated to delivering relevant, responsible, and effective personalization.
 
- LR Group
+ Our approach to hyper-personalization, individualized to each customer, is built around agentic AI capabilities from CleverAI™ designed to deliver "Experience of One” through 1:1 engagement at scale. We believe the CleverAI™ Decisioning Engine plays a central role in interpreting customer intent, enabling brands to connect customers with the right message, on the right channel, at the right moment. Combined with a comprehensive suite of personalization capabilities, we believe these capabilities are helping brands drive measurable outcomes, including up to 35% higher conversion rates across key use cases in industries like financial services, retail, ecommerce, media, telecom, and many others.
 
- Under the motto “More quality for your life”, the LR Group - headquartered in the town of Ahlen/Westphalia - successfully produces and distributes various high-quality nutritional supplements and cosmetic products in 32 countries. As an attractive Social Commerce Company, LR supports the personal exchange in its community with efficient, digital solutions. The holistic tool “LR neo” offers the international partnership all business-relevant key figures and information for their LR business in one dashboard.
+ At the core of this approach is CleverAI™, our enterprise-grade agentic intelligence and decisioning engine. Designed for autonomous real-time orchestration, it enables continuous experience optimization across the customer lifecycle. We believe this focus on unified intelligence, real-time decisioning, and scalable hyper-personalization has contributed to our broader market momentum.
 
- Since 1985, LR has been firmly established in the market as a “people business” with a focus on people and personal consultation. In times of changing working environments, the business model is particularly appealing to those who are looking for more flexibility, a better work-life balance and greater financial independence.
+ “We consider our positioning in the Leaders Quadrant by Gartner as confirmation of our capability that enables customers to improve business outcomes with the power of CleverAI™,” said Anand Jain, Co-founder and Chief Marketing Officer, CleverTap.
 
- The processing of aloe vera has been one of LR’s core competencies for over 20 years. Only the leaf’s valuable inside is used for the products. In Ahlen, the company has built one of the most modern aloe vera production facilities for aloe vera drinking gels in Europe.
+ “We continue to innovate while we execute on our product roadmap. With CleverAI™, we are delivering a truly revolutionary AI-First Customer Engagement Platform that will change the face of the martech and customer engagement industry, further enhancing our market position”.
 
- In the fall of 2009, LR founded the LR Global Kids Fund e.V., which supports disadvantaged children and their families in many countries around the world efficiently and without the usual red tape in cooperation with local institutions. For further information on our commitment to sustainability, please read our Sustainability Report.Contact:
+ View a complimentary copy of the Magic Quadrant report to learn more about CleverTap’s strengths and cautions, among other provider offerings, here.
 
- PR Contact:
+ (Gartner, “Magic Quadrant for Personalization Engines,” by Penny Gillespie, Jason Daigler, Michael Ro, Ross Cosner, 3 February 2026.)
 
- LR Health & Beauty SE Almut Kellermeyer Head of Corporate Communication Kruppstraße 55 59227 Ahlen Phone: +49(0)2382 7658-106E-mail: a.kellermeyer@LRworld.comhttps://ir.lrworld.com/
+ Gartner and Magic Quadrant are trademarks of Gartner, Inc. and/or its affiliates.
 
- IR Contact:
+ Gartner does not endorse any company, vendor, product or service depicted in its publications, and does not advise technology users to select only those vendors with the highest ratings or other designation. Gartner publications consist of the opinions of Gartner’s business and technology insights organization and should not be construed as statements of fact. Gartner disclaims all warranties, expressed or implied, with respect to this publication, including any warranties of merchantability or fitness for a particular purpose.
 
- cometis AGThorben BurbachUnter den Eichen 7 | Building D65195 WiesbadenPhone: +49(0)611 - 205855-23Fax: +49(0)611 - 205855-66E-mail: burbach@cometis.de
+ About CleverTap
 
- 
+ CleverTap is the world’s leading AI-first, all-in-one customer engagement and retention platform, helping brands turn data into lasting customer relationships. Powered by its proprietary CleverAI™: Decisioning Engine and Agentic AI-verse, CleverTap enables organizations to maximize customer lifetime value at scale. Its unified platform brings together AI-powered segmentation, personalization, experimentation, journey orchestration, and deep analytics - seamlessly integrated with 100+ leading martech solutions.
 
- 
+ With backing from global investors including Accel, Peak XV Partners, Tiger Global, CDPQ, and 360 One, CleverTap has presence across US, Europe, the Middle East, Latin America, and Asia. Leading brands such as TD Bank, Burger King, Paytm, Levi’s, IKEA, Decathlon, Vodafone, Domino’s, Jio, Carousell, Banco Azteca, Zomato, StockX, and Emirates NBD, rely on CleverTap to drive measurable growth through meaningful customer engagement.
 
- 
+ For more information, visit clevertap.com or follow us on:LinkedIn: https://www.linkedin.com/company/clevertap/X: https://twitter.com/CleverTap
 
-View the original release on www.newmediawire.com 
+ Forward-Looking Statements
+
+ Some of the statements in this press release may represent CleverTap's belief in connection with future events and may be forward-looking statements, or statements of future expectations based on currently available information. CleverTap cautions that such statements are naturally subject to risks and uncertainties that could result in the actual outcome being absolutely different from the results anticipated by the statements mentioned in the press release.
+
+ Factors such as the development of general economic conditions affecting our business, future market conditions, our ability to maintain cost advantages, uncertainty with respect to earnings, corporate actions, client concentration, reduced demand, liability or damages in our service contracts, unusual catastrophic loss events, war, political instability, changes in government policies or laws, legal restrictions impacting our business, impact of pandemic, epidemic, any natural calamity and other factors that are naturally beyond our control, changes in the capital markets and other circumstances may cause the actual events or results to be materially different, from those anticipated by such statements. CleverTap does not make any representation or warranty, express or implied, as to the accuracy, completeness, or updated or revised status of such statements. Therefore, in no case whatsoever will CleverTap and its affiliate companies be liable to anyone for any decision made or action taken in conjunction.
+
+ For more information:
+
+ ADITYA SANYALDirector, Digital Marketing, CleverTap+91 9177110080aditya.sanyal@clevertap.com
+
+ ASHMIT CHAUDHARYAssociate Consultant, Archetype+91 8850752121ashmit.chaudhary@archetype.co 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/lr-health-beauty-se-lays-foundation-for-positive-future-business-performance-with-new-financing-structure-7085339)
+[Original/Source Press Release](https://www.newmediawire.com/news/clevertap-recognized-as-a-leader-in-latest-gartner-magic-quadrant-for-personalization-engines-7085340)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lr-health-beauty-secures-eur20m-boost-cuts-debt-for-growth-push/285ce7fce5656c5b4e4879395f3afca4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clevertap-named-leader-in-gartner-s-2026-magic-quadrant-for-personalization/9ab73c398e46da28ec57a72aa719359d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/lr-health-beauty-secures-eur20-million-capital-injection-and-deb/202627991)
+Pickup - [https://advos.io/en](https://advos.io/en/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
 
-Pickup - [https://beauty.in-focus.news/beauty-news](https://beauty.in-focus.news/beauty-news/202602/389033-lr-health-beauty-secures-eur20-million-in-restructuring-deal-to-fuel-growth-strategy)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/389046-clevertap-named-leader-in-gartner-magic-quadrant-for-personalization-engines)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202602/389035-lr-health-beauty-secures-eur20-million-in-new-capital-through-bond-restructuring)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337539-clevertap-als-leader-im-gartner-magic-quadrant-fur-personalisierungs-engines-ausgezeichnet)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/389017-lr-health-beauty-se-secures-eur20-million-capital-injection-and-restructures-debt-to-fuel-future-growth)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337859-clevertap-es-nombrado-lider-en-el-cuadrante-magico-de-gartner-para-motores-de-personalizacion)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337537-lr-health-beauty-se-sichert-sich-20-millionen-euro-kapitalspritze-und-restrukturiert-schulden-um-kunftiges-wachstum-zu-fordern)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338631-clevertap-designe-leader-dans-le-magic-quadrant-de-gartner-pour-les-moteurs-de-personnalisation)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337857-lr-health-beauty-se-asegura-una-inyeccion-de-capital-de-20-millones-de-euros-y-reestructura-su-deuda-para-impulsar-el-crecimiento-futuro)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337477-clevertap-nomeada-lider-no-quadrante-magico-da-gartner-para-motores-de-personalizacao)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338629-lr-health-beauty-se-obtient-une-injection-de-capital-de-20-millions-deuros-et-restructure-sa-dette-pour-stimuler-sa-croissance-future)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337475-lr-health-beauty-se-garante-injecao-de-capital-de-eur20-milhoes-e-reestrutura-divida-para-impulsionar-crescimento-futuro)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/clevertap-named-leader-in-gartners-2026-personalization-engines/202627994)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/389037-lr-health-beauty-secures-eur20-million-in-new-capital-through-bond-restructuring-agreement)
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389051-clevertap-named-leader-in-gartner-magic-quadrant-for-personalization-engines)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/lr-health-beauty-se-secures-eur20-million-capital-injection-and/202627991)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/389041-clevertap-named-leader-in-gartners-2026-magic-quadrant-for-personalization-engines)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/389038-lr-health-beauty-secures-eur20-million-in-capital-restructuring-to-fuel-european-growth-strategy)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lr-health-beauty-se-secures-new-financing-structure-to-drive-fut/202627991)
-
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389022-lr-health-beauty-se-secures-eur20-million-capital-injection-and-restructures-debt-for-strategic-growth)
-
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/202602/389039-lr-health-beauty-secures-eur20-million-in-new-capital-through-bond-restructuring)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/389040-lr-health-beauty-secures-eur20-million-in-new-capital-through-bond-restructuring)
+Pickup - [https://news.salesnexus.com/sales-news](https://news.salesnexus.com/sales-news/202602/389053-clevertap-recognized-as-leader-in-gartners-2026-personalization-engines-report)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/knobKYtY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/12/wallqkBL.webp)
