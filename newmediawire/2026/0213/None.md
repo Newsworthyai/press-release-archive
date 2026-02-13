@@ -1,76 +1,40 @@
-# "Father of the JOBS Act" Joins KoreInside as Advisory Team Member
+# Ginger Minj Joins Pride Holdings Group as Brand Ambassador, Strengthening Entertainment Portfolio and Community Reach
 
-KoreInside, The First Secure Online Infrastructure for Private Capital Markets to Manage All Capital Market Activities, Welcomes David Weild IV, former Vice Chairman of NASDAQ Stock Market
+ORLANDO, FL - February 13, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE), a publicly traded LGBTQ+-focused holding company with a growing footprint in hospitality, nightlife, and entertainment, today announced that internationally acclaimed drag performer, recording artist, and television personality Ginger Minj has joined the company as its latest Brand Ambassador.
 
- NEW YORK, NY - February 13, 2026 (NEWMEDIAWIRE) - KoreWire -- David Weild IV, widely recognized as the “Father of the JOBS Act” and former Vice Chairman of the NASDAQ Stock Market, has just been appointed as an Advisory Team Member of KoreInside.
+ Known worldwide for her standout appearances on RuPaul’s Drag Race and RuPaul’s Drag Race All Stars, Ginger Minj brings massive fan engagement, cross platform entertainment appeal, and a proven ability to drive audience connection. As Ambassador, Ginger Minj will collaborate with Pride Holdings Group on brand amplification, live entertainment initiatives, community engagement, and select investor-facing activations.
 
- KoreInside provides the first secure, end-to-end infrastructure whose objective is to make private capital markets work better for all participants including, Broker-Dealers, Investment banks, RIAs, ATSs, Asset Managers, Transfer Agents, issuers, investors, IR and PR firms. Each will interoperate on a single, compliant blockchain infrastructure. From issuance and shareholder management to clearing, settlement, disbursement, distribution and “aftermarket support,” KoreInside will enable private market activity to function with the rigor and efficiency expected in public markets - without sacrificing regulatory compliance.
+ “Ginger Minj is not just an entertainer, she’s a brand,” said Mike Barrett, CEO of Pride Holdings Group. “Her reach, credibility, and loyal global fan base directly support our strategy of scaling culturally relevant LGBTQ+ entertainment assets while building long-term shareholder value. This partnership strengthens our visibility, engagement, and growth potential.”
 
- The Jumpstart Our Business Startups (JOBS) Act, signed into law on April 5, 2012, by President Obama, aims to boost U.S. small business growth and startup funding by easing SEC regulations, allowing equity crowdfunding, and reducing compliance burdens. The legislation facilitates capital formation by increasing the number of shareholders allowed in private companies and lowering reporting requirements for public companies with less than $1 billion in revenue.
+ Pride Holdings Group continues to differentiate itself as a community aligned, publicly traded company leveraging entertainment and hospitality to drive both cultural impact and economic opportunity. Strategic ambassador partnerships play a key role in expanding brand awareness, increasing foot traffic across operating assets, and attracting new audiences, investors, and strategic partners.
 
- As private markets continue to grow, the lack of standardized infrastructure has become the critical roadblock for intermediaries. issuers and investors, alike.
+ “I’m thrilled to join Pride Holdings Group as an Ambassador,” said Ginger Minj. “This is about celebrating LGBTQ+ culture while also supporting a company that’s serious about growth, ownership, and creating real opportunities for our community. Entertainment has power, and so does investing in our future.”
 
- “Remove these roadblocks, and we increase the rate of company formation, job creation, innovation, and upward mobility. This in turn will help cure diseases, help shore up our national security, and help pay down our deficit,” said David Weild. “It's time to help private markets realize their full potential.”
+ Ginger Minj’s appointment reflects Pride Holdings Group’s ongoing focus on pairing iconic LGBTQ+ talent with a scalable business platform designed to deliver both social impact and financial performance. The company expects these ambassador relationships to enhance marketing efficiency, elevate brand equity, and support expansion across entertainment driven properties and experiences.
 
- Weild’s appointment represents a transformative milestone for KoreInside, bringing one of the most influential voices in modern capital markets and capital formation into the company’s executive leadership.
+ About Pride Holdings Group
 
- Joining KoreInside
+ Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
 
- “With his deep expertise in new product development in capital markets, policy, regulatory advocacy, and growth-oriented market design, David’s leadership will accelerate KoreInside’s mission to eliminate friction from private capital markets, help drive the growth in these markets, and speed institutional blockchain adoption. This appointment not only strengthens KoreInside’s operational and strategic capacity but also elevates the company’s credibility and influence with regulators, investors, and global financial institutions,” said Oscar Jofre, Co-founder and CEO of KoreInside.
+ Forward-Looking Statements
 
- Private capital markets are growing rapidly - but the infrastructure behind them remains fragmented. Issuers, broker-dealers, transfer agents, ATSs, RIAs, and funding platforms still operate across disconnected systems, creating compliance risk, operational friction, and investor confusion.
+ This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
 
- KoreInside was built to solve the following:
-
- * Why have private capital markets lagged in infrastructure
-* How compliance-first architecture is reshaping private market transactions
-* What intermediaries need next as private markets mature.
-
- “David’s network will also bring KoreInside’s groundbreaking infrastructure as quickly as possible to all regulated intermediaries (Broker-Dealers, Funding Platforms, Transfer Agents) corporations that are most likely to benefit from the technology,” said Jofre.
-
- About KoreInside
-
- KoreInside is the infrastructure company for private capital markets, delivering clearing, settlement, distribution, and compliance as neutral, non-competitive infrastructure for regulated intermediaries. Architected as the DTCC-equivalent for private markets, KoreInside powers broker-dealers, ATSs, funding portals, transfer agents, banks, credit unions, and RIAs through white-label, API-first platforms. Its core infrastructure includes KoreID, an interoperable investor and issuer identity passport, and KoreChain, the first SEC-qualified blockchain for private securities, enabling scalable, compliant, and auditable private market transactions.
-
- Media Contact:Frank Tortorici, Marketing Maven908-875-8908frank@marketingmaven.com
-
- 
-
- 
-
-View the original release on www.newmediawire.com 
+ Media Relationspress@prideholdingsgroup.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/father-of-the-jobs-act-joins-koreinside-as-advisory-team-member-7085366)
+[Original/Source Press Release](https://www.newmediawire.com/news/ginger-minj-joins-pride-holdings-group-as-brand-ambassador-strengthening-entertainment-portfolio-and-community-reach-7085368)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/father-of-jobs-act-joins-koreinside-to-revolutionize-private-capital-markets/2849dc19b05aee13ead966408f1a0f8a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ginger-minj-joins-pride-holdings-group-as-brand-ambassador/30a44df658f95d893e8839144d652bd2) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/david-weild-iv-father-of-the-jobs-act-joins-koreinside-to-transf/202628076)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202602/389694-david-weild-iv-father-of-the-jobs-act-joins-koreinside-advisory-team-to-transform-private-capital-markets-infrastructure)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337600-david-weild-iv-vater-des-jobs-act-schliesst-sich-dem-beraterteam-von-koreinside-an-um-die-infrastruktur-der-privaten-kapitalmarkte-zu-transformieren)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337926-david-weild-iv-padre-de-la-ley-jobs-se-une-al-equipo-asesor-de-koreinside-para-transformar-la-infraestructura-de-los-mercados-de-capital-privado)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338693-david-weild-iv-pere-du-jobs-act-rejoint-lequipe-consultative-de-koreinside-pour-transformer-linfrastructure-des-marches-de-capitaux-prives)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337536-david-weild-iv-pai-do-jobs-act-integra-equipe-consultiva-da-koreinside-para-transformar-a-infraestrutura-dos-mercados-de-capital-privado)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/david-weild-iv-father-of-the-jobs-act-joins-koreinside-to-transf/202628076)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/david-weild-iv-father-of-the-jobs-act-joins-koreinside-to-transf/202628076)
-
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/389699-david-weild-iv-father-of-the-jobs-act-joins-koreinside-to-transform-private-capital-markets-infrastructure)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/389703-david-weild-iv-father-of-the-jobs-act-joins-koreinside-advisory-team-to-transform-private-capital-markets-infrastructure)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/30a44df658f95d893e8839144d652bd2)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/13/frogqoqs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/13/lushqqCE.webp)
