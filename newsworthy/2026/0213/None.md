@@ -1,52 +1,63 @@
-# Bryan Eisenberg Named Round Rock Chamber Entrepreneur of the Year, Appointed 2026 Ambassador Board Chair
+# New Book "Furry Mortals: The Oliver Project" Offers Shared Wisdom for Pet End-of-Life
 
-Round Rock, TX (Newsworthy.ai) Friday Feb 13, 2026 @ 7:00 AM Pacific — Why Did the Round Rock Chamber Name Bryan Eisenberg Entrepreneur of the Year? The Round Rock Chamber of Commerce has named Bryan Eisenberg its 2026 Entrepreneur of the Year, honoring leaders whose work strengthens both the local economy and the people who call Round Rock home.
+Houston, TX (Newsworthy.ai) Friday Feb 13, 2026 @ 11:05 AM US/Central — Every year, millions of pet owners face the agonizing "limbo" of end-of-life care—a period marked by difficult medical decisions, anticipatory grief, and the looming weight of a final goodbye. In her new book, Furry Mortals: The Oliver Project, author Angela Human provides a much-needed bridge between the professional world of end-of-life logistics and the raw, personal heart of a pet parent.
 
- Eisenberg, best known for his work as a New York TImes best-selling business book author and keynote speaker through Bryan Eisenberg, was also named a finalist in two additional award categories (Ambassador and Investor of the Year). The recognition reflects consistent leadership across entrepreneurship, civic engagement, and long-term community impact.
+ Inspired by the loss of her beloved pet, Oliver, Angela brings a unique perspective to the subject. As a veteran of the deathcare industry, she has spent decades navigating the intersection of technology and memorialization. When faced with Oliver’s decline, she realized that even with her professional background, the emotional and practical hurdles of pet loss were overwhelming.
 
- How Do Bryan and Stacey Eisenberg Serve Round Rock Families Through Their Business? Beyond his keynote speaking and writing career, Eisenberg serves the community alongside his wife and business partner, Stacey Eisenberg. Together, they are the owners of A Place At Home – North Austin, an award-winning home care agency serving seniors and families throughout Central Texas.
+ “In the funeral industry, we talk about preparation and legacy every day,” says Angela. “But when it was my own pet—my Oliver—I realized there was a silent struggle pet owners face. We need more than just clinical advice; we need a roadmap that honors the bond while managing the reality of the end.”
 
- Through A Place At Home – North Austin, the Eisenbergs focus on dignity, continuity of care, and practical support for families navigating aging and health transitions. The agency was recently recognized as both an Employer of Choice and Provider of Choice, reflecting its commitment to caregivers as well as the families they serve.
+ The Power of Shared Experience Furry Mortals: The Oliver Project moves beyond traditional manuals by weaving together expert palliative advice with a collection of poignant stories from pet parents who have walked this road. These narratives provide a raw, honest look at the diverse ways people navigate loss, ensuring readers never feel alone in their decisions.
 
- That same people-first philosophy, listening closely, building trust, and showing up consistently, carries directly into Eisenberg’s broader civic leadership.
+ “Loss is universal, but the path through it is deeply personal,” Angela explains. “By sharing these stories alongside practical guidance, I wanted to create a space where pet parents feel seen, heard, and supported by a tribe of people who truly 'get it.'”
 
- What Does the 2026 Ambassador Board Chair Role Represent? As part of this year’s honors, Eisenberg also joins the Chamber’s board as 2026 Ambassador Chair. Through his service with the Round Rock Chamber of Commerce, the Ambassador program plays a central role in welcoming new investors, strengthening peer relationships, and helping local businesses feel connected and supported.
+ Key Takeaways from the Book:
 
- The appointment reflects leadership grounded in service rather than visibility, and relationship-building rather than titles.
+ * Navigating the "Limbo": Strategies for managing the anticipatory grief that occurs as a pet's health declines.
+* The Decision-Making Framework: A grounded approach to the ethics and logistics of end-of-life choices.
+* The Community Tribe: Real-world anecdotes that offer comfort and perspective on the human-animal bond.
+* Legacy Building: Practical ways to honor a pet’s life and process grief through meaningful action.
 
- Why Local Storytelling Matters to Round Rock’s Growth Eisenberg is also the host of the Rock Solid Round Rock, where he spotlights entrepreneurs, nonprofit leaders, and civic builders shaping the city’s future.
+ Take the First Step Toward Peace The book has already resonated with pet owners seeking a grounded, sincere voice in a space that is often either too clinical or overly sentimental. Furry Mortals: The Oliver Project and it's companion guide, The Furry Mortals Compass, is available now at www.FurryMortals.com & on Amazon.
 
- The podcast serves as a living record of Round Rock’s growth, preserving the stories behind the businesses and people investing in the community’s long-term success.
-
- “This community is built by people who care deeply about their neighbors,” Eisenberg said. “Being recognized here means continuing to show up and give back.”
-
- Celebrating a Community of Winners and Finalists The Entrepreneur of the Year award is part of the Chamber’s annual celebration of business excellence. This year’s winners and finalists reflect the diversity, resilience, and shared commitment that define Round Rock’s business community.
-
- A full list of honorees is available through Community Impact’s coverage of the 2026 Chamber Honors.
-
- 
-
- About Bryan Eisenberg Bryan Eisenberg is a New York Times bestselling author, keynote speaker, entrepreneur, and community advocate based in Round Rock, Texas. Alongside his wife, Stacey Eisenberg, he leads mission-driven organizations focused on care, connection, and long-term community value.
-
- 
-
- Frequently Asked Questions What does the Round Rock Chamber Entrepreneur of the Year award recognize? Business leaders who demonstrate sustained impact, integrity, and service within the local community.
-
- What is the role of the Ambassador Chair? The Ambassador Chair supports Chamber members by welcoming new investors, strengthening relationships, and fostering engagement.
-
- How are Bryan and Stacey Eisenberg involved locally? They co-own an award-winning home care agency and support Round Rock through business leadership, civic service, and community storytelling. 
+ About the Author After decades on the "human side" of deathcare, Angela has expanded her advocacy to animal companions. Furry Mortals: The Oliver Project is the culmination of her professional expertise and personal experience with grief. She is a member of IAAHPC and APLB, an accomplished public speaker, and a proud dog and cat mom who spends her time between Houston, TX, and Marshfield, MA. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602132136/bryan-eisenberg-named-round-rock-chamber-entrepreneur-of-the-year-appointed-2026-ambassador-board-chair)
+[Original/Source Press Release](https://newsworthy.ai/news/202602131618/new-book-furry-mortals-the-oliver-project-offers-shared-wisdom-for-pet-end-of-life)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/round-rock-chamber-honors-bryan-eisenberg-as-2026-entrepreneur-of-the-year/5b00c3d563261ed7f17c418c35caf215) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-guides-pet-owners-through-end-of-life-care-with-heart-and-expertise/8361d8b896073854d98705c59ed19dc6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/new-book-furry-mortals-the-oliver-project-addresses-pet-end-of-l/202628111)
+
+Pickup - [https://news.bookretreat.com/book-news](https://news.bookretreat.com/book-news/202602/390020-new-book-furry-mortals-the-oliver-project-addresses-pet-end-of-life-care-gap)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/390023-new-book-furry-mortals-the-oliver-project-addresses-pet-end-of-life-challenges-with-practical-guidance-and-shared-stories)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337628-neues-buch-furry-mortals-the-oliver-project-behandelt-herausforderungen-am-lebensende-von-haustieren-mit-praktischen-ratschlagen-und-gemeinsamen-erfahrungen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337959-nuevo-libro-furry-mortals-the-oliver-project-aborda-los-desafios-del-final-de-vida-de-las-mascotas-con-orientacion-practica-y-relatos-compartidos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338722-le-nouveau-livre-furry-mortals-le-projet-oliver-aborde-les-defis-de-la-fin-de-vie-des-animaux-de-compagnie-avec-des-conseils-pratiques-et-des-recits-partages)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337565-novo-livro-furry-mortals-o-projeto-oliver-aborda-desafios-do-fim-da-vida-de-animais-com-orientacao-pratica-e-historias-compartilhadas)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/new-book-furry-mortals-the-oliver-project-addresses-pet-end-of-l/202628111)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/new-book-furry-mortals-the-oliver-project-provides-comprehensive/202628111)
+
+Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/390029-new-book-furry-mortals-the-oliver-project-addresses-pet-end-of-life-care-gap)
+
+Pickup - [https://buiildingtexasshow.com](https://buiildingtexasshow.com/news/202602/390037-texas-authors-new-book-addresses-emotional-and-practical-challenges-of-pet-end-of-life-care)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/337960-el-nuevo-libro-de-una-autora-de-texas-aborda-los-desafios-emocionales-y-practicos-del-cuidado-al-final-de-la-vida-de-las-mascotas)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/390039-new-book-furry-mortals-the-oliver-project-addresses-emotional-and-practical-challenges-of-pet-end-of-life-care)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/13/silkknvc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/13/apex2kmn.webp)
