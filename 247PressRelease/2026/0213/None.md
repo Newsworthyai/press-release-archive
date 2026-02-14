@@ -1,40 +1,38 @@
-# EMPLOYERS URGED TO DOUBLE-CHECK PAYROLL DOCUMENTATION TO AVOID IRS PENALTIES THIS TAX SEASON
+# Fasig Brooks announces a personal injury settlement in excess of $5million
 
-LOS ANGELES, CA, February 13, 2026 /24-7PressRelease/ -- With tax deadlines approaching, employers across industries are being reminded of the importance of maintaining complete and accurate payroll documentation. Incomplete records, missed tax deposits, and filing errors continue to be among the most common causes of Internal Revenue Service (IRS) penalties during annual and quarterly reviews.  Payroll compliance specialists note that even small documentation gaps can trigger fines, interest charges, or audit scrutiny. Conducting a thorough payroll record review before filing deadlines can help organizations reduce risk and ensure federal and state tax obligations are properly met.  Employers are encouraged to verify several critical payroll records and reporting requirements before submitting tax forms to ensure accuracy.  Key Payroll Records to Confirm Before Filing  Employee Withholding Forms (W-4s) Updated withholding forms ensure that federal income tax amounts are calculated correctly throughout the year. Employers should confirm that all current employees have valid and up-to-date forms on file.  Quarterly Tax Filings (Form 941) Form 941 reports income tax withheld along with Social Security and Medicare taxes. Filing late or submitting inaccurate information can lead to escalating penalties based on unpaid tax balances.  Wage and Tax Statements (W-2s) Annual W-2 forms must accurately reflect employee earnings, benefits, and withholdings. Errors may require corrections and can delay employee tax filings.  Payroll Registers and Time Records Detailed pay registers, time sheets, and compensation reports serve as supporting documentation during audits or compliance checks and help validate wage calculations.  In addition to reviewing documentation, businesses are advised to reconcile payroll ledgers with tax filings, confirm deposit schedules, and ensure payroll systems are configured to apply correct tax rates. Maintaining organized digital or paper records for multiple years can further protect employers if questions arise.  A proactive compliance review can help businesses avoid unnecessary penalties, maintain operational efficiency, and promote trust with employees by ensuring accurate and timely compensation reporting.  About ThePayStubs.com  ThePayStubs.com is a leading online platform providing businesses and employees with fast, accurate, and secure payroll documentation solutions. The company specializes in generating pay stubs, W-2 forms, and other employment records using its reliable W2 generator and pay stub tools. With a focus on simplicity and compliance, ThePayStubs.com serves small businesses, freelancers, and payroll professionals seeking efficient solutions to streamline payroll reporting and maintain accurate records 
+TALLAHASSEE, FL, February 13, 2026 /24-7PressRelease/ -- Fasig Brooks proudly announces that the legal team of Carrie Roane, Ryan Molaghan, and Brittney Waldo has secured a $5.1 million settlement for a client catastrophically injured by a negligent forklift operator on a construction site. The litigation battle brought by attorneys Roane and Molaghan lasted more than two years in federal court and involved multiple witnesses and highly sophisticated experts located across the country.   "At Fasig Brooks, we are immensely proud of helping our clients come back stronger from horrible injuries caused by someone else's carelessness," Roane said. "It is deeply fulfilling to watch the lives of our clients significantly improve when we force companies and their insurance carriers to do the right thing and justly compensate our clients for everything they have been through with their injuries, pain and suffering, and other losses."  "While our client and his family still face a lifetime of challenges as a result of his injuries, this compensation will help ease their burden going forward. This is why we do what we do and I'm so thankful that our client and his family trusted us as advocates in their time of need," Molaghan added.  Carrie Roane and Ryan Molaghan bring a combined 35 years of litigation experience to the table for their injured clients and were recently celebrated as Super Lawyer and Rising Star, respectively, in 2025.  For more information about Fasig Brooks Law Offices, visit our website https://fasigbrooks.com/.  About Fasig | Brooks Law Offices For over 30 years, Fasig | Brooks has been dedicated to representing injury victims across Florida. Our team brings unique perspectives and expertise to each case, offering clients effective legal solutions. With experience on both sides of the legal field, we understand insurance tactics and use that knowledge to secure better results. Serving Tallahassee, Pensacola, Jacksonville, Destin, Valdosta, Mobile, Thomasville and all of Florida and South Georgia, we handle cases involving medical malpractice, motor vehicle accidents, defective products, catastrophic injuries, and wrongful death. 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/531781/employers-urged-to-double-check-payroll-documentation-to-avoid-irs-penalties-this-tax-season)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/531863/fasig-brooks-announces-a-personal-injury-settlement-in-excess-of-5million)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/irs-alert-avoid-costly-penalties-with-proactive-payroll-record-reviews/571a77336f00d9e89cd12ecd3b2ab4c3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fasig-brooks-secures-5-1m-for-client-injured-by-negligent-forklift/4a8d2e54f50d73d8af09aaba0578e4e1) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/employers-face-increased-scrutiny-on-payroll-documentation-to-av/202628115)
+Pickup - [https://advos.io/en](https://advos.io/en/fasig-brooks-secures-51-million-settlement-for-construction-site/202628142)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/390033-employers-face-heightened-scrutiny-on-payroll-documentation-as-tax-season-approaches)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/390109-fasig-brooks-secures-51-million-settlement-for-catastrophic-construction-site-injury)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337631-arbeitgeber-stehen-vor-verscharfter-prufung-der-lohnabrechnungsunterlagen-mit-nahender-steuerzeit)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337635-fasig-brooks-erzielt-51-millionen-dollar-vergleich-bei-schwerer-baustellenverletzung)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337963-los-empleadores-enfrentan-un-mayor-escrutinio-en-la-documentacion-de-nomina-al-acercarse-la-temporada-de-impuestos)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/337967-fasig-brooks-obtiene-acuerdo-de-51-millones-por-lesion-catastrofica-en-sitio-de-construccion)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338725-les-employeurs-confrontes-a-un-controle-accru-de-la-documentation-salariale-a-lapproche-de-la-saison-des-impots)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338729-fasig-brooks-obtient-un-reglement-de-51-millions-de-dollars-pour-une-blessure-catastrophique-sur-un-chantier-de-construction)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337568-empregadores-enfrentam-maior-fiscalizacao-na-documentacao-de-folha-de-pagamento-com-a-aproximacao-da-temporada-de-impostos)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337572-fasig-brooks-garante-acordo-de-us-51-milhoes-por-lesao-catastrofica-em-canteiro-de-obras)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/employers-face-increased-scrutiny-on-payroll-documentation-to-av/202628115)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/fasig-brooks-secures-51-million-settlement-for-catastrophic-cons/202628142)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/employers-advised-to-review-payroll-documentation-to-prevent-irs/202628115)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fasig-brooks-secures-51-million-settlement-for-catastrophic-cons/202628142)
 
-Pickup - [https://www.newswriter.ai.ai/curated-news](https://www.newswriter.ai.ai/curated-news/202602/390050-employers-face-irs-penalties-without-proper-payroll-documentation-review)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/390114-fasig-brooks-secures-51-million-settlement-in-catastrophic-construction-injury-case)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/390056-employers-urged-to-review-payroll-documentation-ahead-of-tax-deadlines-to-avoid-irs-penalties)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/390067-employers-urged-to-review-payroll-documentation-ahead-of-tax-deadlines-to-avoid-irs-penalties)
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202602/390116-fasig-brooks-secures-51-million-settlement-in-catastrophic-forklift-injury-case)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/262/13/fastEyA6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/262/13/icongkGs.webp)
