@@ -1,8 +1,23 @@
-# Sartorius Releases Annual Report for 2025
+# PNE AG: Successful Year 2025 for the Wattmate Marketing Platform
 
-GOTTINGEN, GERMANY - February 16, 2026 (NEWMEDIAWIRE) - The life science group Sartorius today released its Annual Report for 2025. The document is available at the following link: https://www.sartorius.com/ar2025
+* Digital power marketing established
+* New revenue potential for 2026 in sight
 
- Financial calendarMarch 26,2026 | Annual General Meeting April 23,2026 | Publication of the first quarter results for January to March 2026 July 23,2026 | Publication of half-year results for January to June 2026 October 22,2026 | Publication of nine-month results for January to September 2026 A profile of Sartorius Sartorius is a leading international partner to the biopharmaceutical research and manufacturing industries. The Lab Products & Services Division focuses on innovative laboratory instruments and consumables for research and quality assurance laboratories in pharmaceutical and biopharmaceutical companies as well as academic research institutions. The Bioprocess Solutions Division supports customers with a broad product portfolio focused on single-use solutions for the safer, faster, and more sustainable production of biotech drugs, vaccines, and cell and gene therapies. With around 60 production and sales locations worldwide, the Göttingen-based company has a strong global presence. Sartorius regularly supplements its portfolio with acquisitions of complementary technologies. In 2025, the company generated sales revenue of around 3.5 billion euros. More than 14,000 employees serve customers around the globe.  Visit our [newsroom](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=0d27f6d155096637ff58b7c93767c186&application_id=2275076&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news) and follow us on [LinkedIn](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=c4e028eafce8905bbf8cafd691b0366c&application_id=2275076&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news). ContactVerena Sattel External Communications +49 551 308 9261 [verena.sattel@sartorius.com](mailto:verena.sattel@sartorius.com) Additional features:File: [Sartorius releases Annual Report for 2025 | Media Release](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=dd5bfa750f033564302136c60a749407&application_id=2275076&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
+ CUXHAVEN, GERMANY - February 16, 2026 (NEWMEDIAWIRE) - With the launch of the Wattmate digital platform last year, the PNE Group has consistently developed its existing PPA-as-a-Service business. This is reflected in the platform's strong success: in 2025 alone, 80 wind, PV and battery storage projects with an installed output of around 1.1 gigawatts were successfully supported in the course of power marketing.
+
+ Wattmate serves a clear market trend. The marketing of renewable power generation is becoming increasingly complex and, at the same time, critical to success. Additional marketing potential is coming to the fore more strongly than in the past - not only through medium and long-term Power Purchase Agreements (PPAs), but also through the choice of a project-specific value-maximising form of marketing, the combination of different types of generators or the provision of system services.
+
+ "Marketing potential is increasingly determining the economic viability of a project,“ explains Nils Kompe, Head of Power Origination & Green Markets at PNE. "Standard assumptions often fall short in this regard. In future, project-specific, market-oriented and cross-technology marketing approaches will be in demand.“
+
+ A new and key trend is the topic of "Co‑Location Battery Storage Systems“ i.e. Battery Storage Systems that are located at the same site as renewable generation plants and use the same grid connection. These are now being discussed intensively not only in the context of photovoltaic projects but also in wind energy projects. The intelligent combination of generation and flexibility enables more stable revenue profiles and opens up new marketing options.
+
+ "Wattmate allows these aspects to be taken into account holistically. The platform combines market transparency, structuring expertise and operational experience. It thus builds a bridge between project development, financing and marketing,“ adds Nils Kompe.
+
+ About the PNE Group
+
+ The internationally operating PNE Group is listed on the SDAX. For more than 30 years, it has been one of the most experienced project developers in the field of onshore and offshore wind farms. The focus is on the development of wind energy and photovoltaic projects worldwide as well as on power generation with its own wind farms. Its portfolio covers all project planning phases, from site investigation, permit procedures and financing to construction, operation and repowering. As a Clean Energy Solutions Provider, the PNE Group also offers services for the entire life cycle of wind farms and photovoltaic plants, as well as battery storage solutions for the more efficient use of renewable energies. The PNE Group is a sought-after partner to industry for solutions used in the refinement of electricity via power-to-X technologies.
+
+ Your contact persons:PNE AGAlexander LennemannHead of Corporate CommunicationsTel: +49 47 21 7 18 – 453E-mail: [alexander.lennemann@pnegroup.com](mailto:alexander.lennemann@pnegroup.com) PNE AGHead of Investor RelationsChristopher RodlerTel: +49 40 879 33 – 114E-mail: [christopher.rodler@pnegroup.com](mailto:christopher.rodler@pnegroup.com) 
 
  
 
@@ -10,33 +25,37 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/sartorius-releases-annual-report-for-2025-7085417)
+[Original/Source Press Release](https://www.newmediawire.com/news/pne-ag-successful-year-2025-for-the-wattmate-marketing-platform-7085416)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sartorius-releases-2025-annual-report-with-eur3-5b-revenue/a21fa12260b19897ce191c95e5e28b64) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/sartorius-reports-2025-financial-results-and-outlines-future-str/202628195)
+Pickup - [https://advos.io/en](https://advos.io/en/pne-ags-wattmate-platform-drives-renewable-energy-marketing-succ/202628194)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/390637-sartorius-releases-2025-annual-report-detailing-35-billion-euro-revenue-and-future-financial-calendar)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/390629-pne-ags-wattmate-platform-achieves-strong-2025-results-enabling-complex-renewable-energy-marketing)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337681-sartorius-veroffentlicht-geschaftsbericht-2025-mit-35-milliarden-euro-umsatz-und-finanzkalender-fur-die-zukunft)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337680-pne-ags-wattmate-plattform-erzielt-starke-ergebnisse-fur-2025-und-ermoglicht-komplexes-marketing-fur-erneuerbare-energien)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338020-sartorius-publica-su-informe-anual-2025-con-ingresos-de-3500-millones-de-euros-y-calendario-financiero-futuro)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338019-la-plataforma-wattmate-de-pne-ag-logra-solidos-resultados-en-2025-facilitando-la-comercializacion-compleja-de-energias-renovables)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338778-sartorius-publie-son-rapport-annuel-2025-detaillant-un-chiffre-daffaires-de-35-milliards-deuros-et-son-calendrier-financier-futur)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338777-la-plateforme-wattmate-de-pne-ag-enregistre-des-resultats-solides-pour-2025-facilitant-la-commercialisation-complexe-des-energies-renouvelables)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337619-sartorius-divulga-relatorio-anual-de-2025-com-receita-de-35-bilhoes-de-euros-e-calendario-financeiro-futuro)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337618-plataforma-wattmate-da-pne-ag-alcanca-resultados-expressivos-em-2025-viabilizando-marketing-complexo-de-energias-renovaveis)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/sartorius-releases-2025-annual-report-detailing-life-science-gro/202628195)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/390646-pne-groups-digital-platform-drives-11-gw-renewable-project-marketing-in-2025-highlighting-industry-shift-toward-complex-power-origination)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sartorius-releases-2025-annual-report-detailing-35-billion-euro/202628195)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/pne-ags-wattmate-platform-achieves-significant-renewable-energy/202628194)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/390642-sartorius-reports-2025-performance-and-outlines-2026-financial-calendar)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pne-ags-wattmate-platform-achieves-strong-2025-results-enabling/202628194)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/390634-pne-groups-wattmate-platform-achieves-significant-growth-in-renewable-energy-marketing)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202602/390647-pne-groups-wattmate-platform-demonstrates-significant-traction-in-complex-renewable-energy-marketing-landscape)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/16/lambpl3A.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/16/glowjOcx.webp)
