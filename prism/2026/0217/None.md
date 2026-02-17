@@ -1,106 +1,84 @@
-# BLAQclouds Announces Launch of ApolloNFT.io Marketplace Built on Apollo Mainnet
+# Tianrong Internet Products and Services Inc. (OTC: TIPS) Launches $DEPIN Token on Solana to Power Decentralized GPU Compute Sharing and AI Inference Marketplace
 
-New Web3 platform unifies NFT minting, media distribution, payments, and digital identity to power the next generation of creator economies.
-
- 
+Tianrong Internet Products and Services, Inc. Expands into $DEPIN and AI Inference with Fair-Launch Token Powering a Global Decentralized GPU Marketplace on Solana
 
  
 
- Key Highlights:
+ Mountainhome, Pennsylvania, February 17, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Tianrong Internet Products and Services, Inc. (OTC: TIPS) (“TIPS” or the “Company”), a forward-thinking innovator in internet products and services, today announced the successful creation and listing of its native utility token, DEPIN Token ($DEPIN), on Raydium Launchpad, the leading decentralized exchange platform on the Solana blockchain.
 
- * ApolloNFT.io launches as a content-driven NFT marketplace on Apollo Mainnet.
-* Full Web3 integration connects minting, payments, identity, and community tools.
-* Platform supports BLAQclouds’ Super Studios and V2 theAlley rollout.
+ This milestone marks a key step in TIPS’ strategic expansion into decentralized physical infrastructure networks (DePIN) and the rapidly growing AI inference sector. Following the Company’s February 4, 2026 announcement of its AI Inference Marketplace initiative under the DEPINfer brand, the launch of $DEPIN introduces token-based incentives, governance, and micropayments to create a global sharing economy for GPU compute resources.
 
- 
+ Project Scope and Vision$DEPIN serves as the core utility token powering DEPINfer (DEPINfer.com), a decentralized AI inference marketplace that aggregates underutilized GPUs from gaming PCs, workstations, and data centers worldwide. By enabling individuals and organizations to rent out idle hardware, the platform aims to deliver scalable, cost-effective AI inference and training—reducing costs by an estimated 50–80% compared to centralized cloud providers while eliminating vendor lock-in and supply constraints.
 
- ROBESONIA, PA, February 17, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – BLAQclouds, Inc. (OTC: BCDS), a Web3 infrastructure and digital settlement technology company, today announced the official launch of the ApolloNFT.io Marketplace, a creator-focused digital asset platform built on the Apollo Mainnet.
+ Key features and utilities of $DEPIN include:
 
- 
+ * Payments and Transactions: Used for submitting inference jobs (text/image generation) and settling micropayments to GPU providers.
+* Provider Rewards: GPU contributors earn $DEPIN based on compute power shared and jobs completed, with staking opportunities for enhanced yields.
+* Governance and Incentives: Token holders participate in decentralized decision-making, vote on platform upgrades, and benefit from priority access tiers.
+* Revenue Model Alignment: The marketplace applies a 5–10% transaction fee, with portions directed toward token buybacks, burns, ecosystem development, and sustainable rewards.
 
- 
+ The token was launched via Raydium LaunchLab with a community-focused fair launch model: 60% of the total supply allocated to the bonding curve for public participation, ensuring broad early distribution while reserving the remaining 40% for migrated liquidity, vested team/ecosystem allocations, and long-term incentives such as provider rewards and community airdrops. This structure supports network effects and aligns incentives with real-world utility in the exploding AI and DePIN markets—projected to reach $106 billion for AI inference and $10–15 billion for decentralized compute by 2030.
 
- ApolloNFT.io provides artists, musicians, filmmakers, directors, and digital creators a comprehensive environment to mint NFTs, create collections, launch catalogs, curate playlists, import fan communities, and connect with audiences in a unified on-chain ecosystem designed to enhance creator branding and engagement.
+ Launch Details$DEPIN is now live on Raydium Launchpad in its bonding curve phase, allowing early participants to acquire tokens directly. The project targets a seamless migration to full Raydium AMM liquidity pools upon reaching the SOL raise threshold, providing stable trading and deeper market access.
 
- Unlike traditional NFT platforms centered primarily on collectibles, ApolloNFT.io is designed as a content ecosystem, enabling creators to organize media, build audience relationships, and distribute digital works through structured catalogs and interactive communities.
+ View and participate in the $DEPIN token launch here: https://raydium.io/launchpad/token/?mint=GCyTkEDd239AvEDMR2HbuoxHNzQAh6mSxd4Kcudjiray&lreferrer=5HA3cyVQtmn8KxK9AkqrvKEVj5kr1KqNEz2jtYXz4aNY
 
- Platform Capabilities
+ Strategic OutlookThis token launch represents a transformative leap for TIPS the company bridges traditional OTC markets with cutting-edge blockchain infrastructure said by launching $DEPIN on Solana—the proven chain for high-throughput DePIN projects like Render Network and io.net – DEPINfer is positioned at the forefront of affordable, democratized AI compute. Developers, GPU owners, AI enthusiasts, and the broader community are invited to join us in building the future of decentralized intelligence.
 
- The ApolloNFT.io marketplace allows creators to:
+ The Company will provide ongoing updates on bonding curve progress, platform milestones, partnerships, and MVP developments via official socials and DEPINfer.com and official channels.
 
- * Mint NFTs directly on Apollo Mainnet
-* Launch organized collections and catalogs
-* Create media playlists and content libraries for music, videos and documents
-* Import and manage fan communities
-* Engage with like-minded creators and audiences
-* Build branded digital experiences around their work
-* Link directly via Web interface with theAlley and ApolloCASH.io
+ About Tianrong Internet Products and Services Inc. (OTC: TIPS)Tianrong Internet Products and Services Inc. is a publicly traded company focused on innovative internet-based solutions. With its entry into decentralized AI infrastructure, TIPS is aligning with high-growth sectors in artificial intelligence and blockchain technology to create long-term shareholder value.
 
- The platform is engineered to serve as both a distribution channel and a community infrastructure layer for digital creators.
+ For more information, visit:
 
- Web3 Cross-Platform Integration
+ * https://www.otcmarkets.com/stock/TIPS/profile
+* https://depinfer.mobirisesite.com/
 
- Through BLAQclouds’ Web3 infrastructure stack, users will be able to seamlessly interact across multiple ecosystem applications, including:
+ Contact:marjschaefer.manager@gmail.com
 
- * theAlley(SocialFI) — social and creator engagement environment
-* ApolloNFT.io(SocialNFT) — digital asset minting and media catalogs
-* ApolloCash.io(Global Remittance) — cross-platform payment and settlement
-* ApolloWallet.io — Non-custody digital and transaction management
-* ApolloID.io — Web3 identity and access layer
+ Forward-Looking StatementsThis press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. These statements are based on current expectations and are subject to risks and uncertainties that could cause actual results to differ materially. TIPS undertakes no obligation to update forward-looking statements except as required by law.
 
- This integration enables users to maintain a single digital identity and asset presence across the ecosystem, allowing payments, ownership, and community interaction to operate cohesively rather than as isolated services.
+ This is not investment advice. Cryptocurrency investments involve significant risk, including the potential loss of principal. Always conduct your own research.
 
- Creators will be able to mint assets, distribute content, receive payments, and interact with their communities without leaving the ecosystem environment.
-
- Foundation for Future Media Initiatives
-
- BLAQclouds stated that ApolloNFT.io will serve as the foundational infrastructure for its upcoming Super Studios film initiative, enabling tokenized film assets, fan participation models, and media-centric digital ownership structures.
-
- Additionally, ApolloNFT.io will be seamlessly integrated into the V2 launch of theAlley, expected during the first week of March 2026. The integration will allow creators and communities to interact across platforms while maintaining unified identity and asset ownership.
-
- “ApolloNFT is not just another NFT marketplace — it is built around our Four Pillars philosophy and is the infrastructure layer for creator economies. We built this platform so creators can mint, distribute, monetize, and engage with their audiences while remaining connected to payments and identity. Instead of fragmented apps, users experience one connected Web3 environment. The real innovation is interoperability. A creator can mint on ApolloNFT, engage fans on theAlley, receive payments through ApolloCASH and BLAQpay, and manage assets inside ApolloWallet, while being fully secured using ApolloID. This becomes the backbone for our Super Studios rollout and the upcoming V2 launch of theAlley, forming a unified creator economy ecosystem.”
-
- Shannon Hill, CEO of BLAQclouds ApolloNFT.io is now live and available to the public at: https://www.ApolloNFT.io
-
- “Apollonft.io is hands down the easiest NFT platform I’ve ever encountered. The minting process is fast and very affordable. 5 stars!” — C7 Music, Independent Label.
-
- About BLAQclouds, Inc.
-
- BLAQclouds bridges traditional finance and decentralized ecosystems, building seamless, real-world blockchain applications that simplify commerce and payments. Its mission is to make spending crypto as easy, trusted, and usable as traditional currency.
-
- Flagship consumer applications include:– ShopWithCrypto.io – Crypto-to-gift card commerce– BLAQpay.io – Web3 payments and merchant plugins– DEX.ZEUSx.io – EVM-compatible decentralized exchange– ApolloWallet.io – Secure, consumer-grade blockchain wallet– ApolloCASH – C2C Blockchain Based Global Remittance– ApolloID – TLD name service for .ZEUS and .APOLLO
-
- For a full list of platforms and solutions from BLAQclouds Nevada and Wyoming, visit: www.BLAQclouds.io. For official BLAQclouds updates and information, please join https://www.thealley.io/group/BLAQclouds-inc/discussion.
-
- BLAQclouds, Inc. is registered with FINCEN as an MSB (Money Service Business). The BSA ID registration number awarded by FINCEN is 31000313564202 and is used for ShopwithCrypto.io, DinewithCrypto.io, ZEUSEnergy.io, BitNotify.io, Ampleswap.com, ZEUSChainScan.io, ApolloScan.io, BLAQpay.io, ApolloID.io, ApolloWallet.io, ApolloCASH.io , and ZXUSD.io.
-
- Forward-Looking Statements
-
- This press release contains certain forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended and Section 21E of the Securities Exchange Act of 1934, which are intended to be covered by the safe harbors created thereby. Investors are cautioned that, all forward-looking statements involve risks and uncertainties, including without limitation, the ability of BLAQclouds, Inc. to accomplish its stated plan of business. BLAQclouds, Inc. believes that the assumptions underlying the forward-looking statements contained herein are reasonable, any of the assumptions could be inaccurate, and therefore, there can be no assurance that the forward-looking statements included in this press release will prove to be accurate. In light of the significant uncertainties inherent in the forward- looking statements included herein, the inclusion of such information should not be regarded as a representation by BLAQclouds Inc. or any other person.
-
- This press release also contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. These statements involve certain risks and uncertainties that may cause actual results to differ materially. BLAQclouds, Inc. assumes no obligation to update or revise any forward-looking statements.
-
- Media ContactBLAQclouds, Inc.c/o www.theAlley.io Email: hello@BLAQclouds.ioPhone: 610-621-4804Website: www.BLAQclouds.io
-
- Source: BLAQclouds, Inc.
-
- The latest news and updates relating to $BCDS are available in the company’s newsroom at: https://tinyurl.com/bcdsnewsroom
+ Source: Tianrong Internet Products and Services, Inc.
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
- The post BLAQclouds Announces Launch of ApolloNFT.io Marketplace Built on Apollo Mainnet first appeared on Prism Media Wire. 
+ 
+
+ The post Tianrong Internet Products and Services Inc. (OTC: TIPS) Launches $DEPIN Token on Solana to Power Decentralized GPU Compute Sharing and AI Inference Marketplace first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/blaqclouds-announces-launch-of-apollonft-io-marketplace-built-on-apollo-mainnet/)
+[Original/Source Press Release](https://prismmediawire.com/tianrong-internet-products-and-services-inc-otc-tips-launches-depin-token-on-solana-to-power-decentralized-gpu-compute-sharing-and-ai-inference-marketplace/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/blaqclouds-launches-apollonft-io-unified-web3-platform-for-creator-economies/e90dbf44e70a84b659634962f6c2c7ec) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tips-launches-depin-token-on-solana-to-power-decentralized-ai-compute-marketplace/bfb6ac9d332d591bf89bc5b3355ff7f6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/tianrong-internet-products-launches-depin-token-on-solana-for-de/202628247)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/390992-tianrong-internet-products-and-services-launches-depin-token-to-power-decentralized-ai-compute-marketplace)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337710-tianrong-internet-products-and-services-startet-depin-token-fur-dezentralen-ki-rechenmarktplatz)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338058-tianrong-internet-products-and-services-lanza-el-token-depin-para-impulsar-el-mercado-descentralizado-de-computacion-para-ia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338809-tianrong-internet-products-and-services-lance-le-jeton-depin-pour-alimenter-un-marche-decentralise-de-calcul-pour-lia)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337650-tianrong-internet-products-and-services-lanca-token-depin-para-alimentar-mercado-descentralizado-de-computacao-para-ia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/tianrong-internet-products-and-services-launches-depin-token-to/202628247)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tianrong-internet-products-and-services-inc-launches-depin-token/202628247)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/390997-tianrong-internet-products-and-services-launches-depin-token-on-solana-for-decentralized-ai-compute-marketplace)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202602/390998-tianrong-launches-depin-token-on-solana-to-power-decentralized-ai-inference-marketplace)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/17/larkvDy6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/17/hike96Ll.webp)
