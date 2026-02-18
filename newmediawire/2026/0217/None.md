@@ -1,52 +1,56 @@
-# Ethema Health Corporation Partners With B2i Digital as Featured Company to Expand Investor Awareness
+# The Platform Group Expands Leadership Structure
 
-Partnership Will Showcase Ethema's Growing Network of Substance Use Disorder Treatment Facilities Across Florida and Kentucky
+DUSSELDORF, GERMANY - February 17, 2026 (NEWMEDIAWIRE) - The Platform Group SE & Co. KGaA (ISIN DE000A40ZW88, WKN A40ZW8, “TPG”), a leading software company for platform solutions, announces the expansion of its C-level leadership team. Nathalie Richert, previously Head of Investor Relations, has been appointed as a member of the C-level and has additionally assumed responsibility for the Human Resources (HR) function. Christoph Hies, who has been with the company for more than six years, has been appointed Chief Marketing Officer (CMO) and will now oversee marketing activities across the entire group.
 
- NEW YORK, NY - February 17, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. is pleased to announce that Ethema Health Corporation (OTC: GRST) has been named a B2i Digital Featured Company. Ethema Health Corporation is a behavioral healthcare company based in West Palm Beach, Florida, that operates in-patient treatment facilities for substance use disorders across Florida and Kentucky. The company has built its model around developing centers of excellence in addiction treatment for adults.
+ Christoph Wilhelmy (COO), Sven Schumann (CPM), Bjoern Minnier (M&A/Finance), Sven Hulsenbeck (CTO), Frederic von Borries (CPO) and Dr. Dominik Benner (CEO) remain unchanged as members of TPG’s leadership team.
 
- “We look forward to helping Ethema Health expand its investor awareness through our digital marketing platform and targeted outreach campaigns,” said David Shapiro, Chief Executive Officer of B2i Digital. “The substance use disorder treatment space has strong secular demand drivers, and Ethema’s multi-state operating footprint gives the company room to grow revenue by increasing occupancy across its existing facilities while selectively adding capacity.”
+ Nathalie Richert, newly appointed Head of HR and IR at The Platform Group: “I am very pleased to take on this new responsibility. Our group will soon grow to more than 2,000 employees, making the HR function increasingly central. At the same time, I look forward to further strengthening and advancing our Investor Relations activities.”
 
- Ethema’s footprint expanded in January 2025 with the acquisition of ARIA Kentucky, adding residential treatment capacity across multiple locations in the state. Combined with its existing Florida operations, including a West Palm Beach facility and a newer Boca Raton location acquired in May 2024, the company now has approximately 400 operationally available beds with a current patient census of approximately 325. The Florida facilities have been operating at near capacity, and the Kentucky operations have been steadily increasing patient census since the acquisition closed.
+ Christoph Hies, newly appointed Chief Marketing Officer (CMO) of The Platform Group: “For the past six years, we have continuously developed and expanded TPG’s marketing activities. We are now active in more than 26 industries where we pursue our marketing approach. I look forward to further integrating our marketing areas at the leadership level and consistently applying this successful approach to new acquisitions.”
 
- “Our priority is delivering quality care while growing our operations in Florida and Kentucky,” said Shawn Leon, President and CEO of Ethema Health Corporation. “Partnering with B2i Digital allows us to reach a broader audience of investors who are following the behavioral health sector as we continue to scale our business.”
+ In line with this development, internationalization will continue to be driven forward. Dr. Dominik Benner, CEO of The Platform Group: “We are executing on our commitments: advancing internationalization as outlined for 2025, further strengthening our leadership team, and laying the foundation for a highly successful 2026. The current development in the first quarter makes us confident that we will achieve this goal.”
 
- Total revenue for 2025 is expected to be reported as $19.5 million, an increase of 225% over 2024. The company expects continued revenue growth as it brings additional dormant facilities online and increases occupancy across the platform.
+ The Platform Group SE & Co. KGaA:The Platform Group SE & Co. KGaA is a Europe-wide operating software company active in 26 industries through its proprietary platform solutions. The Group’s partner network comprises more than 16,000 partners who use the platform solutions to address both B2B and B2C customers. Industries served include, among others, the luxury portfolio, optics & hearing, furniture retail, machinery trading, dental technology, and electronics. The Group has 19 locations across Europe and is headquartered in Dusseldorf. According to preliminary figures, the Company achieved revenue of EUR 728 million in 2025, with adjusted EBITDA of EUR 55 million.
 
- About B2i Digital, Inc.
+ Contact:Investor RelationsNathalie Richert, Head of Investor Relations & HRir@the-platform-group.comSchloss Elbroich | Am Falder 4 | 40589 Dusseldorf | Germanycorporate.the-platform-group.com
 
- B2i Digital, Inc. is a capital markets positioning and investor connectivity platform serving growth-stage public companies. Through its Featured Conference, Featured Company, and Featured Expert programs, B2i Digital helps management teams sharpen their capital markets narrative and engage directly with active investors across the investor conference ecosystem.
+ 
 
- Acting as The Capital Markets Matchmaker℠, B2i Digital leverages a proprietary network of more than 1.5 million capital markets participants and a curated email distribution of more than 100,000 investors and industry professionals to move companies from marketing to meaningful investor meetings. Its approach, captured in the mantra From Marketing to Meetings℠, reflects a focus on measurable investor engagement. Founded in 2021 by former Maxim Group investment banker and Chief Marketing Officer David Shapiro, B2i Digital is headquartered in New York City.
-
- B2i Digital Contact Information:
-
- David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.com
-
- https://www.linkedin.com/in/davidshapironychttps://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigital/https://www.tiktok.com/@b2idigitalhttps://bsky.app/profile/b2idigital.bsky.social
-
- About Ethema Health Corporation
-
- Ethema Health Corporation (OTC: GRST) operates in the behavioral healthcare space, specifically in the treatment of substance use disorders. Ethema developed a unique style of treatment over the last decade and has had much success with in-patient treatment for adults. Ethema will continue to develop world-class programs and techniques for North America. For more information, you can visit our website at www.ethemahealth.com.
-
- Contact Information:
-
- Ethema Health Corporationshawn@ethemahealth.comwww.ethemahealth.comText to 416-500-0020
-
- https://x.com/HealthEthemahttps://www.linkedin.com/company/ethema-health-corporation/https://www.facebook.com/EthemaHealth/https://www.instagram.com/ethemahealth/https://www.youtube.com/channel/UCe4ORM6OEmOc3zhb6cWySSA
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ethema-health-corporation-partners-with-b2i-digital-as-featured-company-to-expand-investor-awareness-7085435)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-platform-group-expands-leadership-structure-7085443)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ethema-health-partners-with-b2i-digital-to-boost-investor-awareness/b8bcbecfe5c1c111c91c4d9ba0746351) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tpg-expands-leadership-team-to-drive-growth-and-internationalization/6269291f3eb04a33734f005d9804ad5d) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/the-platform-group-strengthens-leadership-team-amid-growth-and-i/202628273)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/391133-the-platform-group-strengthens-leadership-team-amid-growth-and-internationalization-strategy)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337723-die-platform-group-starkt-fuhrungsteam-im-rahmen-von-wachstums-und-internationalisierungsstrategie)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338071-the-platform-group-refuerza-su-equipo-directivo-en-el-marco-de-su-estrategia-de-crecimiento-e-internacionalizacion)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338822-the-platform-group-renforce-son-equipe-de-direction-dans-le-cadre-de-sa-strategie-de-croissance-et-dinternationalisation)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337663-the-platform-group-reforca-equipa-de-lideranca-em-meio-a-estrategia-de-crescimento-e-internacionalizacao)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-platform-group-strengthens-leadership-team-amid-growth-phase/202628273)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-platform-group-expands-c-level-leadership-team-with-key-appo/202628273)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391138-the-platform-group-strengthens-executive-team-amid-growth-and-internationalization-push)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/391128-the-platform-group-expands-c-level-leadership-team-with-key-appointments)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/17/opengOXj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/17/poemis2R.webp)
