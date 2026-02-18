@@ -1,86 +1,86 @@
-# Discover the industry innovations at Desalination Latin America 2026
+# Greenlane Appoints Jason Hitchcock as Chief Executive Officer to Advance Digital Asset Treasury Strategy
 
-Discover the industry innovations at Desalination Latin America 2026
+BOCA RATON, FL, February 18, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Greenlane Holdings, Inc. (“Greenlane” or the “Company”) (NASDAQ: GNLN) today announced the appointment of Jason Hitchcock as its Chief Executive Officer, effective immediately.
 
- Date: 17-18 June, 2026Location: Santiago, ChileOfficial websiteOrganizer: Vostock Capital
+ Mr. Hitchcock is a technology executive with over 15 years of experience building and scaling revenue engines across SaaS, blockchain infrastructure, and decentralized finance. He joins Greenlane as the Company continues to execute its Berachain-focused Digital Asset Treasury (“DAT”) strategy, combining disciplined capital allocation with active ecosystem participation through validator operations, staking, and liquidity provisioning.
 
- During the eighth edition of the International Conference and Exhibition Desalination Latin America has been bringing together desalination industry’s leaders from Latin America, becoming a hub for strategy development, investment attraction, and partnership growth. Over this time, we have gathered experts, delivered major projects, and established a platform for meaningful dialogue.Next June17-18, 2026, the International Conference and Exhibition Desalination Latin America takes place in Santiago, Chile – where industry pioneers will confront tomorrow’s desalination challenges and unveil the projects driving sustainable transformation.
+ Technology Leadership and Enterprise Revenue Growth
 
- Register here to receive all the information about the event
+ Mr. Hitchcock most recently served as Head of Business Development at thirdweb, a leading open-source Web3 developer tools and infrastructure platform. In that role, he built and led the company’s enterprise go-to-market strategy, scaling a program across more than 150 blockchain networks and structuring channel partnerships to drive developer tool adoption among startups building in web3.
 
- Seven years of Desalination Latin America congress success stands for:
+ Earlier in his career, Mr. Hitchcock held senior business development and partnership leadership roles at Twitch and Bebo, contributing to platform growth in high-scale digital environments. At Bebo, Mr. Hitchcock was on the founding team and served as Head of Business Development, leading go-to-market strategy across multiple product experiments and helping drive the company’s acquisition by Twitch.
 
- KEYNOTE REGULAR PARTICIPANTS:
+ Decentralized Finance and Digital Asset Experience
 
- * Aguas de Antofagasta, Econssa, Esval, Cramsa, Trends S.A., Desala, Aguas Pacífico
-* Codelco, Anglo American, Antofagasta Minerals, Southern Perú Copper Corporation, Teck Resources
-* Ministry of Mining, General Directorate of Water (MOP) – Chile
-* CAF – Development Bank of Latin America, BID Invest, ProInversión Perú
-* Representatives from governmental bodies and desalination programs in Chile
+ Mr. Hitchcock has been an active participant in decentralized finance since 2020, with hands-on experience deploying capital across decentralized finance protocols for yield generation, liquidity provisioning, and token management. He co-founded Four Moons, a decentralized finance advisory and liquid token investment firm, where he raised two private funds and managed digital asset strategies focused on yield generation through decentralized finance protocols, delivering strong returns through disciplined portfolio construction and active risk oversight.
 
- LEVEL OF PARTICIPANTS:
+ Jason holds a Bachelor of Arts in Political Science from Carleton College.
 
- * Over 300 delegates from the desalination industry
-* C-level executives & directors of leading desalination utilities
-* International financial institutions (CAF, BID Invest, CORFO, ProInvesión Peru)
-* Government officials, regulators, and public–private partnership units
-* Renewable integration developers, digital and AI solution providers, and O&M innovators
-* Legal advisors, project financiers, and infrastructure investment funds specializing in desalination
+ Leadership Mandate at Greenlane
 
- AMONG SPONSORS AND EVENT PARTNERS 2019-2025
+ As Chief Executive Officer, Mr. Hitchcock will oversee corporate strategy, capital allocation, operational execution, and the continued development of Greenlane’s digital asset treasury initiatives. His mandate includes deepening the Company’s participation within the Berachain ecosystem across validator infrastructure, staking, and liquidity provisioning, while maintaining governance, disclosure, and risk management standards consistent with a Nasdaq-listed public company.
 
- * Sponsors: Schneider Electric, M3 Engineering, Valmet, Rotork, Dupont, Eurohinca, Soltex, LC Chem, Andritz, Black and Veatch
-* Official supporters: Ministry of Mining, Ministry of Public Works, General Directorate of Water (MOP)
-* Among the media partners: BNamericas, Global Water Intelligence, The Business Year and RETEMA
+ “I’m excited to lead Greenlane’s strategy to accumulate BERA and put our treasury to work within Berachain’s Proof of Liquidity ecosystem. Berachain’s PoL mechanism is uniquely designed to reward active liquidity provision rather than passive token lockup—validators, liquidity providers, and stakers all participate in an economic flywheel where network activity drives BGT emissions, protocol incentives, and yield opportunities. Greenlane intends to be the largest public holder of BERA and to use the scale of our position across validators, reward vaults, and liquidity pools to capture yield generated by this flywheel and accelerate our accumulation strategy. Our focus is on disciplined capital deployment, transparent reporting, and building durable long-term value for shareholders.”
 
- INVESTMENT PROJECTS:
+ Jason Hitchcock, Chief Executive Officer About Greenlane
 
- * Desalination for Mining Expansion Programs – Chile
-* Northern Chile Water Supply Corridor – Integration of multi-user desalination pipelines
-* Peru Coastal Desalination PPPs – Lima, Ilo, and southern industrial clusters
-* Chile’s Renewable-Powered Desalination Projects – Solar- and wind-integrated SWRO plants
-* Regional Brine Valorization and Circular Economy Initiatives (Lithium and salt recovery)
-* Upcoming 2026–2027 Bidding Rounds: Chile and Peru — new PPPs and multi-client desalination hubs
+ Greenlane is a global platform for the development and distribution of premium lifestyle accessories and consumer products through a broad network of specialty and convenience retailers and direct-to-consumer channels. Alongside its operating business, in October 2025, the Company initiated a Berachain-focused digital asset treasury strategy dedicated to acquiring BERA and increasing BERA-per-share through treasury management. The Company is a Berachain ecosystem participant focused on supporting the development and operation of blockchain-based infrastructure, including assets and applications built on Berachain. The Company engages in network staking, liquidity provisioning, and strategic initiatives intended to contribute to the long-term sustainability of decentralized protocols within its portfolio.
 
- As part of the 2026 desalination agenda, we will also host two exclusive technical site visits in Spain aimed at professionals seeking to strengthen their expertise in advanced desalination techniques. These visits will take place in Murcia and Llobregat, where participants will gain first-hand insight into operating facilities and cutting-edge processes. Professionals interested in participating may request further information from our team.
+ About Berachain
 
- Technical Visits & Networking Opportunity:
+ Berachain (BERA) is the first blockchain powered by Proof of Liquidity, an extension of Proof of Stake that aligns network security with ecosystem liquidity. Rather than locking tokens in isolation, Berachain’s PoL mechanism incentivizes users to provide liquidity to decentralized finance applications and stake receipt tokens in Reward Vaults to earn BGT, a non-transferable governance token. Validators direct BGT emissions to Reward Vaults based on protocol incentives, creating a market-driven flywheel that rewards liquidity providers, validators, and stakers in concert. The network operates with three native tokens—BERA (gas and staking), BGT (governance and rewards), and HONEY (native stablecoin)—designed to support sustainable on-chain economies. Berachain reports that it has raised $150 million from leading digital asset investors including Brevan Howard, Framework Ventures, Polychain Capital, Samsung Next, Laser Digital by Nomura, Goldentree Asset Management, SBI VC Trade and more.
 
- * Technical Visit to the AcuaMed Desalination Plant, Murcia – Spain | May 13–14
+ Investor Contact: IR@greenlane.com or PCG Advisory | Kevin McGrath | +1-646-418-7002
 
- https://desalbusinessvisit2026.com/registration-request-media
+ Forward-Looking Statements
 
- * Technical Visit to the ATL Desalination Plant, Llobregat – Spain | September 22–23
+ This press release contains “forward-looking statements” within the meaning of federal securities laws. These statements include, without limitation, statements regarding the Company’s digital asset treasury strategy; participation in the Berachain ecosystem; capital allocation plans; validator and staking activities; and the anticipated contributions of Mr. Hitchcock as Chief Executive Officer.
 
- https://desalvisitbcn.com/registration-request-media
+ Forward-looking statements are based on current expectations and involve risks and uncertainties that may cause actual results to differ materially from those expressed or implied. These risks include, among others, volatility in digital asset markets; regulatory developments affecting blockchain networks and digital assets; changes in protocol design or governance; the Company’s ability to execute its strategy; capital availability; and other risks described in the Company’s filings with the U.S. Securities and Exchange Commission. The Company undertakes no obligation to update forward-looking statements except as required by law.
 
- 
+ Cautionary Note Regarding Digital Assets
 
- 
+ BERA is a digital asset that is not legal tender, is not backed by any government or central bank, and may be subject to extreme price volatility, regulatory uncertainty and technological risk. Investments in and exposures to digital assets such as BERA are highly speculative and may result in the loss of all or a substantial portion of the invested capital. Protocol parameters and incentive mechanisms may change over time through governance or other processes. The Company’s activities involving BERA and other digital assets may not be suitable for all investors and are subject to the risks described in the “Risk Factors” in the Company’s Annual Report on Form 10-K filed with the SEC on March 21, 2025, Quarterly Report on Form 10-Q for the quarter ended September 30, 2025 filed with the SEC on November 14, 2025 and in other subsequent filings with the SEC. These filings are available at www.sec.gov.
 
- Limited spots available – reserve your participation today!
-
- Catalina VelascoMarketing Manager, Latin AmericaCVelasco@vostockcapital.com
-
- Source: Vostock Capital
+ Source: Greenlane Holdings, Inc.
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
  
 
- The post Discover the industry innovations at Desalination Latin America 2026 first appeared on Prism Media Wire. 
+ The post Greenlane Appoints Jason Hitchcock as Chief Executive Officer to Advance Digital Asset Treasury Strategy first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/discover-the-industry-innovations-at-desalination-latin-america-2026-2/)
+[Original/Source Press Release](https://prismmediawire.com/greenlane-appoints-jason-hitchcock-as-chief-executive-officer-to-advance-digital-asset-treasury-strategy/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/desalination-latin-america-2026-shaping-water-future-through-innovation/05e74fc8a5236e175bc0ad7905a784cd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenlane-names-jason-hitchcock-ceo-to-lead-berachain-digital-asset-strategy/c3ee45b7c297544582212ae30ba5692c) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/greenlane-appoints-tech-veteran-jason-hitchcock-as-ceo-to-lead-d/202628305)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/391411-greenlane-appoints-jason-hitchcock-as-ceo-to-lead-digital-asset-treasury-strategy-focused-on-berachain)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337753-greenlane-ernennt-jason-hitchcock-zum-ceo-um-die-auf-berachain-fokussierte-digital-asset-treasury-strategie-zu-leiten)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338100-greenlane-nombra-a-jason-hitchcock-como-ceo-para-dirigir-la-estrategia-de-tesoreria-de-activos-digitales-enfocada-en-berachain)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338855-greenlane-nomme-jason-hitchcock-au-poste-de-pdg-pour-piloter-la-strategie-de-tresorerie-dactifs-numeriques-axee-sur-berachain)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337693-greenlane-nomeia-jason-hitchcock-como-ceo-para-liderar-estrategia-de-tesouraria-de-ativos-digitais-focada-na-berachain)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/greenlane-appoints-web3-veteran-jason-hitchcock-as-ceo-to-lead-d/202628305)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/greenlane-appoints-jason-hitchcock-as-ceo-to-lead-digital-asset/202628305)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391426-greenlane-names-jason-hitchcock-ceo-to-lead-berachain-digital-asset-treasury-strategy)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/391515-greenlane-holdings-appoints-jason-hitchcock-as-ceo-to-lead-berachain-digital-asset-treasury-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/18/miel8Lsh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/18/goldDfsE.webp)
