@@ -1,87 +1,68 @@
-# Truista Coffee Officially Launches With Doctor-Recommended, Lab-Verified “Clean Coffee” Standard
+# South African Wellness Brand The Harvest Table to Bring Clean Collagen and Plant-Based Nutrition to the U.S.
 
-Newport Beach, CA (Newsworthy.ai) Wednesday Feb 18, 2026 @ 7:00 AM Eastern — Truista Coffee, an organic coffee brand built on transparency and third-party verification, has officially launched nationwide. The company’s first production release took place on September 29, 2025, National Coffee Day, marking both the public debut of the brand and the birthday of its founder.
+Boca Raton, Florida (Newsworthy.ai) Wednesday Feb 18, 2026 @ 7:00 AM America/Phoenix — The Harvest Table, a family-run South African wellness company, has announced plans to enter the U.S. market, introducing its clean-label, whole-food nutrition products to American consumers.
 
- A Journey That Started With One Honest Comment The idea for Truista Coffee began with a blunt moment of honesty.
+ Founded by Catherine Clark and rooted in a mission to support everyday wellbeing through nutrient-dense nutrition, The Harvest Table has built a strong following in South Africa by producing supplements made without added fillers, preservatives, artificial flavors, or dyes.
 
- After serving his son-in-law a homemade latte, founder Jason Tebeau was told it “sucked.” The comment led to a humbling visit to a café equipped with a La Marzocco espresso machine, where a single cup of microlot espresso sparked a deeper obsession.
+ Products Planned for the U.S. Market The initial U.S. lineup is expected to include:
 
- What started as a personal effort to make better coffee quickly evolved into a full immersion in the craft. He moved from experimenting with a vintage La Pavoni espresso machine to studying and becoming a certified barista.
+ * Bovine Collagen Granules 350g Pouch
+* Multi Collagen Granules 350g Pouch
+* Multi Collagen Radiance 350g Pouch
+* Vegan Protein Powder 550g Pouch
 
- But the deeper he went into the coffee world, the more concerning information he discovered.
+ A Thoughtful Approach to Everyday Nutrition Rather than building products around trends or complicated routines, The Harvest Table developed its range to be simple, consistent, and easy to integrate into daily life.
 
- Scientific research shows that acrylamide forms during the roasting of coffee beans, particularly in the early stages of roasting. Acrylamide is a heat-generated compound classified as a probable human carcinogen based on animal studies.
+ The brand focuses on clean, recognizable ingredients and straightforward formulations that support regular use. This approach has helped the company build a loyal customer base in South Africa among consumers seeking dependable wellness products they can use long term.
 
- Coffee can also contain mycotoxins produced by certain fungi, which have been identified as a global food-safety concern in coffee supply chains.
+ Founder Catherine Clark began developing the formulations after struggling to find transparent, nutrient-dense options aligned with her own health priorities. What began as small batches prepared for family and friends evolved into a full manufacturing operation centered on ingredient integrity and consistency.
 
- As a biohacker, founder of Da Vinci Medical, and creator of the Superhuman Protocol, Tebeau began to question whether conventional coffee truly supported high-performance health.
+ Designed for Everyday Wellbeing Across the entire range, The Harvest Table products are designed to:
 
- Partnering With a World-Renowned Coffee Expert That search led him to Joey Chase, a globally recognized coffee expert with more than two decades of experience sourcing exceptional beans across Central and South America, Africa, and other major coffee-growing regions.
+ * Nourish daily wellbeing, not treat or cure medical conditions
+* Support foundational systems including gut health, joint mobility, skin integrity, and energy
+* Deliver highly bioavailable nutrients that help support long-term vitality
 
- Chase is the creator of the Chasing Coffee travel series, which documents the global coffee trade from farm to cup. Through years of travel, he built direct relationships with growers and developed expertise in sourcing, processing, and farm-level quality.
+ The products are designed for everyday use, supporting wellbeing through clean, food-based nutrition.
 
- Together, the partners set out to build a different kind of coffee company—one grounded in both craft and science.
+ Manufacturing Standards & Quality Controls All Harvest Table products are manufactured in-house in a custom-built facility in South Africa that:
 
- Building a Coffee Designed for Purity The result was Truista Coffee, a brand focused on direct farm sourcing and a proprietary process designed to reduce unwanted compounds while preserving flavor and antioxidants.
+ * Passes annual Food Safety Assessment (FSA) audits
+* Meets GMP requirements
+* Is recognized as a Food Safe Facility
+* Holds Global Food Safety Initiative (GFSI) accreditation
+* Is Halaal-certified by the Muslim Judicial Council (MJC)
 
- The company’s approach includes:
+ Product Attributes & Certifications * Products entering the U.S. market are gluten-free and biodegradable
+* Sustainability is emphasized through recyclable packaging and responsible manufacturing practices
 
- * Organic sourcing from trusted farms
-* Patent-pending fermentation designed to reduce acrylamide formation
-* Pre-roast screening for mold, mycotoxins, heavy metals, pesticides, and herbicides
-* Post-roast screening for acrylamide
-* Roast profiles engineered to minimize harmful compounds
-* Third-party laboratory verification on every production batch
+ A Values-Led Approach to Wellness The Harvest Table takes a deliberate, in-house approach to wellness, maintaining full control over sourcing, formulation, and quality. The brand uses premium, globally sourced ingredients and produces supplements without fillers, artificial additives, or unnecessary complexity.
 
- Every bag of Truista Coffee features a QR code linking directly to batch-specific lab results, providing full transparency for consumers.
+ Rather than chasing trends, The Harvest Table focuses on minimalist, science-informed formulations designed for bioavailability, consistency, and real-world use.
 
- A New Standard for Coffee Transparency Many coffee brands use terms such as “clean,” “mold-free,” or “toxin-free” without providing batch-level lab data. Truista positions itself as an organic coffee brand built around verifiable transparency.
+ Our philosophy has always been simple,” said Catherine Clark, Founder of The Harvest Table. “Good nutrition should be honest, effective, and easy to trust. Everything we create is designed to support everyday wellbeing using clean ingredients and thoughtful formulation.
 
- The company’s philosophy traces back to a lesson from the founder’s father:
+ “From sourcing and formulation to manufacturing and quality control, we believe doing things the right way matters,” said Sam Clark, CEO of The Harvest Table. “By keeping production in-house and staying true to our values, we’re able to deliver products that are consistent, transparent, and aligned with what today’s consumers expect from a wellness brand.”
 
- “Whatever you do, do it better than anyone else.”
+ For more information, visit harvesttable.co.za.
 
- That principle shaped Truista into more than just another coffee brand. It became a mission to deliver purity, precision, and accountability in every cup.
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
 
- About [Truista Coffee](https://truistacoffee.com/) Truista Coffee is an organic, non-toxic coffee company built on transparency and third-party verification. The company sources beans directly from trusted farms and uses proprietary processing methods designed to reduce contaminants while preserving flavor and antioxidants. Every bag features a QR code linking to batch-specific lab results.
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, Global Food Safety Initiative (GFSI) accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
 
- Official launch: September 29, 2025, National Coffee Day.
-
- Call to Action To learn more or experience Truista Coffee, visit www.truistacoffee.com 
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious glass packaging and refill options, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602182151/truista-coffee-launches-on-national-coffee-day-with-lab-verified-non-toxic-coffee)
+[Original/Source Press Release](https://newsworthy.ai/news/202602182152/south-african-wellness-brand-the-harvest-table-to-bring-clean-collagen-and-plant-based-nutrition-to-the-u-s)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/truista-coffee-launches-nationwide-with-lab-verified-toxin-reducing-organic-brew/903e74e3d4839f50539638050ce1ffb1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-enters-u-s-market-with-clean-label-nutrition/cf1a5ae68f3aa32deff5427438fa97d0) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/truista-coffee-launches-nationwide-with-verified-clean-coffee-st/202628300)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202602/391379-truista-coffee-launches-nationwide-with-doctor-recommended-clean-coffee-standard-verified-by-third-party-labs)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337749-truista-coffee-startet-bundesweit-mit-von-arzten-empfohlenem-clean-coffee-standard-der-von-unabhangigen-laboren-verifiziert-wird)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338097-truista-coffee-se-lanza-a-nivel-nacional-con-el-estandar-de-cafe-limpio-recomendado-por-medicos-y-verificado-por-laboratorios-independientes)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338851-truista-coffee-se-lance-a-lechelle-nationale-avec-son-standard-de-cafe-propre-recommande-par-des-medecins-et-verifie-par-des-laboratoires-tiers)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337689-truista-coffee-lanca-em-todo-o-pais-com-padrao-de-cafe-limpo-recomendado-por-medicos-e-verificado-por-laboratorios-independentes)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/truista-coffee-launches-with-verified-clean-coffee-standard-addr/202628300)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/truista-coffee-launches-with-doctor-recommended-clean-coffee-sta/202628300)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391394-truista-coffee-launches-nationwide-with-lab-verified-clean-coffee-standard)
-
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202602/391501-truista-coffee-launches-nationwide-with-verified-transparency-approach)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/391557-truista-coffee-launches-nationwide-with-verified-transparency-approach)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/18/yawnd7nR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/18/wolfNaGd.webp)

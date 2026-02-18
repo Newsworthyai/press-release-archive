@@ -1,86 +1,101 @@
-# Greenlane Appoints Jason Hitchcock as Chief Executive Officer to Advance Digital Asset Treasury Strategy
+# Tianrong Internet Products and Services Inc. (TIPS) Announces Successful Graduation of DEPIN Token for Depinfer and Completion of Phase I Decentralized Deployment
 
-BOCA RATON, FL, February 18, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Greenlane Holdings, Inc. (“Greenlane” or the “Company”) (NASDAQ: GNLN) today announced the appointment of Jason Hitchcock as its Chief Executive Officer, effective immediately.
+Depinfer Completes Phase I Decentralized GPU Deployment with Strong Early Trading Activity and Advances to Network Expansion Phase
 
- Mr. Hitchcock is a technology executive with over 15 years of experience building and scaling revenue engines across SaaS, blockchain infrastructure, and decentralized finance. He joins Greenlane as the Company continues to execute its Berachain-focused Digital Asset Treasury (“DAT”) strategy, combining disciplined capital allocation with active ecosystem participation through validator operations, staking, and liquidity provisioning.
+ 
 
- Technology Leadership and Enterprise Revenue Growth
+ Mountainhome, PA, February 18, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Tianrong Internet Products and Services Inc. (OTC: TIPS) (“TIPS” or the “Company”), a Pennsylvania-based technology company focused on blockchain incubation and decentralized infrastructure initiatives, today announced the successful graduation of the DEPIN token for the Depinfer project from its incubation program. This milestone marks the completion of Depinfer’s first phase of decentralized deployment and its debut on the Solana blockchain via Raydium.
 
- Mr. Hitchcock most recently served as Head of Business Development at thirdweb, a leading open-source Web3 developer tools and infrastructure platform. In that role, he built and led the company’s enterprise go-to-market strategy, scaling a program across more than 150 blockchain networks and structuring channel partnerships to drive developer tool adoption among startups building in web3.
+ 
 
- Earlier in his career, Mr. Hitchcock held senior business development and partnership leadership roles at Twitch and Bebo, contributing to platform growth in high-scale digital environments. At Bebo, Mr. Hitchcock was on the founding team and served as Head of Business Development, leading go-to-market strategy across multiple product experiments and helping drive the company’s acquisition by Twitch.
+ 
 
- Decentralized Finance and Digital Asset Experience
+ Depinfer is a decentralized GPU compute-sharing platform designed to enable participants to contribute idle GPU resources to a distributed global network. The protocol facilitates AI inference and compute workloads while rewarding contributors with DEPIN tokens. Phase I focused on building a scalable peer-to-peer GPU infrastructure and integrating with Solana’s high-speed ecosystem to ensure efficient transaction settlement and token distribution.
 
- Mr. Hitchcock has been an active participant in decentralized finance since 2020, with hands-on experience deploying capital across decentralized finance protocols for yield generation, liquidity provisioning, and token management. He co-founded Four Moons, a decentralized finance advisory and liquid token investment firm, where he raised two private funds and managed digital asset strategies focused on yield generation through decentralized finance protocols, delivering strong returns through disciplined portfolio construction and active risk oversight.
+ The DEPIN token launched on February 17, 2026 and generated significant early activity during its initial 22 hours of trading. According to publicly available DEX data, the token recorded:
 
- Jason holds a Bachelor of Arts in Political Science from Carleton College.
+ * 2,229 total transactions
+* Approximately $192,000 in total trading volume
+* $95,000 in buy volume across 1,233 buy transactions from 539 unique buyers
+* $96,000 in sell volume across 996 sell transactions from 517 sellers
+* 562 unique market participants
+* Liquidity of approximately $5,600
+* Fully diluted valuation (FDV) and market capitalization of approximately $4,300
 
- Leadership Mandate at Greenlane
+ Initial pooled reserves included 647,541,061 DEPIN tokens and 33.74 SOL. The smart contract was independently reviewed, with no material issues reported at launch.
 
- As Chief Executive Officer, Mr. Hitchcock will oversee corporate strategy, capital allocation, operational execution, and the continued development of Greenlane’s digital asset treasury initiatives. His mandate includes deepening the Company’s participation within the Berachain ecosystem across validator infrastructure, staking, and liquidity provisioning, while maintaining governance, disclosure, and risk management standards consistent with a Nasdaq-listed public company.
+ The DEPIN/SOL trading pair can be viewed on DEX Screener at:
 
- “I’m excited to lead Greenlane’s strategy to accumulate BERA and put our treasury to work within Berachain’s Proof of Liquidity ecosystem. Berachain’s PoL mechanism is uniquely designed to reward active liquidity provision rather than passive token lockup—validators, liquidity providers, and stakers all participate in an economic flywheel where network activity drives BGT emissions, protocol incentives, and yield opportunities. Greenlane intends to be the largest public holder of BERA and to use the scale of our position across validators, reward vaults, and liquidity pools to capture yield generated by this flywheel and accelerate our accumulation strategy. Our focus is on disciplined capital deployment, transparent reporting, and building durable long-term value for shareholders.”
+ https://dexscreener.com/solana/8bdudryzbhtf2ckm2wcpm27scljvyzrahpbp6rz4kf1h
 
- Jason Hitchcock, Chief Executive Officer About Greenlane
+ Management believes the successful token graduation and initial trading performance demonstrate early market validation for decentralized physical infrastructure network (“DePIN”) models, particularly in the GPU compute segment, where demand for AI inference capacity continues to expand.
 
- Greenlane is a global platform for the development and distribution of premium lifestyle accessories and consumer products through a broad network of specialty and convenience retailers and direct-to-consumer channels. Alongside its operating business, in October 2025, the Company initiated a Berachain-focused digital asset treasury strategy dedicated to acquiring BERA and increasing BERA-per-share through treasury management. The Company is a Berachain ecosystem participant focused on supporting the development and operation of blockchain-based infrastructure, including assets and applications built on Berachain. The Company engages in network staking, liquidity provisioning, and strategic initiatives intended to contribute to the long-term sustainability of decentralized protocols within its portfolio.
+ Following Phase I completion, Depinfer intends to advance to Phase II development, which will focus on:
 
- About Berachain
+ * Expanding decentralized GPU node participation
+* Implementing dynamic resource allocation for AI workloads
+* Strengthening data privacy and security protocols
+* Establishing strategic relationships with AI developers and compute-intensive enterprises
 
- Berachain (BERA) is the first blockchain powered by Proof of Liquidity, an extension of Proof of Stake that aligns network security with ecosystem liquidity. Rather than locking tokens in isolation, Berachain’s PoL mechanism incentivizes users to provide liquidity to decentralized finance applications and stake receipt tokens in Reward Vaults to earn BGT, a non-transferable governance token. Validators direct BGT emissions to Reward Vaults based on protocol incentives, creating a market-driven flywheel that rewards liquidity providers, validators, and stakers in concert. The network operates with three native tokens—BERA (gas and staking), BGT (governance and rewards), and HONEY (native stablecoin)—designed to support sustainable on-chain economies. Berachain reports that it has raised $150 million from leading digital asset investors including Brevan Howard, Framework Ventures, Polychain Capital, Samsung Next, Laser Digital by Nomura, Goldentree Asset Management, SBI VC Trade and more.
+ By leveraging underutilized GPU capacity worldwide, Depinfer seeks to offer cost-efficient alternatives to centralized cloud compute providers while improving access to AI infrastructure for startups, researchers, and enterprise users.
 
- Investor Contact: IR@greenlane.com or PCG Advisory | Kevin McGrath | +1-646-418-7002
+ TIPS will continue to support Depinfer through advisory, technical, and strategic resources as the project scales its decentralized network.
+
+ About Tianrong Internet Products and Services Inc. (TIPS)
+
+ Tianrong Internet Products and Services Inc. is a technology-focused company engaged in blockchain incubation, decentralized infrastructure initiatives, and emerging Web3 opportunities. The Company provides strategic guidance, development support, and commercialization pathways for innovative digital asset and decentralized network projects.
+
+ Corporate Headquarters:
+
+ Tianrong Internet Products and Services Inc.2374 Route 390Mountainhome, PA 18342
+
+ Media Contact:
+
+ Marj SchaeferEmail: marjschaefer.manager@gmail.com
 
  Forward-Looking Statements
 
- This press release contains “forward-looking statements” within the meaning of federal securities laws. These statements include, without limitation, statements regarding the Company’s digital asset treasury strategy; participation in the Berachain ecosystem; capital allocation plans; validator and staking activities; and the anticipated contributions of Mr. Hitchcock as Chief Executive Officer.
+ This press release contains forward-looking statements regarding future development plans, market expansion, and potential growth opportunities. These statements involve risks and uncertainties that could cause actual results to differ materially from those expressed or implied. The Company undertakes no obligation to update forward-looking statements except as required by applicable law.
 
- Forward-looking statements are based on current expectations and involve risks and uncertainties that may cause actual results to differ materially from those expressed or implied. These risks include, among others, volatility in digital asset markets; regulatory developments affecting blockchain networks and digital assets; changes in protocol design or governance; the Company’s ability to execute its strategy; capital availability; and other risks described in the Company’s filings with the U.S. Securities and Exchange Commission. The Company undertakes no obligation to update forward-looking statements except as required by law.
+ Source: Tianrong Internet Products and Services, Inc.
 
- Cautionary Note Regarding Digital Assets
-
- BERA is a digital asset that is not legal tender, is not backed by any government or central bank, and may be subject to extreme price volatility, regulatory uncertainty and technological risk. Investments in and exposures to digital assets such as BERA are highly speculative and may result in the loss of all or a substantial portion of the invested capital. Protocol parameters and incentive mechanisms may change over time through governance or other processes. The Company’s activities involving BERA and other digital assets may not be suitable for all investors and are subject to the risks described in the “Risk Factors” in the Company’s Annual Report on Form 10-K filed with the SEC on March 21, 2025, Quarterly Report on Form 10-Q for the quarter ended September 30, 2025 filed with the SEC on November 14, 2025 and in other subsequent filings with the SEC. These filings are available at www.sec.gov.
-
- Source: Greenlane Holdings, Inc.
+ The latest news and updates relating to $TIPS are available in the company’s newsroom at: https://tinyurl.com/tipsnewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
  
 
- The post Greenlane Appoints Jason Hitchcock as Chief Executive Officer to Advance Digital Asset Treasury Strategy first appeared on Prism Media Wire. 
+ The post Tianrong Internet Products and Services Inc. (TIPS) Announces Successful Graduation of DEPIN Token for Depinfer and Completion of Phase I Decentralized Deployment first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/greenlane-appoints-jason-hitchcock-as-chief-executive-officer-to-advance-digital-asset-treasury-strategy/)
+[Original/Source Press Release](https://prismmediawire.com/tianrong-internet-products-and-services-inc-tips-announces-successful-graduation-of-depin-token-for-depinfer-and-completion-of-phase-i-decentralized-deployment/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenlane-names-jason-hitchcock-ceo-to-lead-berachain-digital-asset-strategy/c3ee45b7c297544582212ae30ba5692c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/depinfer-completes-phase-i-gpu-deployment-with-strong-trading-advances-to-network-expansion/3f890705946914a8e65061b18bfbfd57) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/greenlane-appoints-tech-veteran-jason-hitchcock-as-ceo-to-lead-d/202628305)
+Pickup - [https://advos.io/en](https://advos.io/en/depinfer-completes-first-phase-of-decentralized-gpu-network-with/202628332)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/391411-greenlane-appoints-jason-hitchcock-as-ceo-to-lead-digital-asset-treasury-strategy-focused-on-berachain)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/391626-depinfer-completes-phase-i-decentralized-gpu-deployment-with-strong-early-trading-activity)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337753-greenlane-ernennt-jason-hitchcock-zum-ceo-um-die-auf-berachain-fokussierte-digital-asset-treasury-strategie-zu-leiten)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337764-depinfer-schliesst-phase-i-der-dezentralen-gpu-bereitstellung-mit-starker-fruher-handelsaktivitat-ab)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338100-greenlane-nombra-a-jason-hitchcock-como-ceo-para-dirigir-la-estrategia-de-tesoreria-de-activos-digitales-enfocada-en-berachain)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338120-depinfer-completa-la-fase-i-de-despliegue-descentralizado-de-gpu-con-fuerte-actividad-comercial-inicial)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338855-greenlane-nomme-jason-hitchcock-au-poste-de-pdg-pour-piloter-la-strategie-de-tresorerie-dactifs-numeriques-axee-sur-berachain)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338866-depinfer-acheve-la-phase-i-de-son-deploiement-gpu-decentralise-avec-une-forte-activite-commerciale-initiale)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337693-greenlane-nomeia-jason-hitchcock-como-ceo-para-liderar-estrategia-de-tesouraria-de-ativos-digitais-focada-na-berachain)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337705-depinfer-conclui-fase-i-de-implantacao-descentralizada-de-gpus-com-forte-atividade-inicial-de-negociacao)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/greenlane-appoints-web3-veteran-jason-hitchcock-as-ceo-to-lead-d/202628305)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/tianrong-internet-products-and-services-inc-announces-depin-toke/202628332)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/greenlane-appoints-jason-hitchcock-as-ceo-to-lead-digital-asset/202628305)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/depinfer-completes-phase-i-decentralized-gpu-deployment-with-str/202628332)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391426-greenlane-names-jason-hitchcock-ceo-to-lead-berachain-digital-asset-treasury-strategy)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/391515-greenlane-holdings-appoints-jason-hitchcock-as-ceo-to-lead-berachain-digital-asset-treasury-strategy)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391641-depinfer-completes-phase-i-decentralized-gpu-deployment-launches-depin-token-on-solana)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/18/goldDfsE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/18/knoby_PR.webp)
