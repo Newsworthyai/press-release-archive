@@ -1,58 +1,56 @@
-# Truista Coffee Officially Launches With Doctor-Recommended, Lab-Verified “Clean Coffee” Standard
+# Stonegate Updates Coverage on Incannex Healthcare Inc. (NasdaqGM:IXHL) 2Q 2026
 
-Newport Beach, CA - Wednesday Feb 18, 2026
+Dallas, TX, fEBRUARY 18, 2025
 
-Truista Coffee, an organic coffee brand built on transparency and third-party verification, has officially launched nationwide. The company’s first production release took place on September 29, 2025, National Coffee Day, marking both the public debut of the brand and the birthday of its founder.
+DALLAS, TX -- February 18, 2026 --Incannex Healthcare Inc. (NasdaqGM:IXHL): Stonegate Capital Partners updates their coverage on Incannex Healthcare Inc. (NasdaqGM: IXHL). Incannex continued to build the clinical and patient-reported evidence base for IHL-42X in obstructive sleep apnea (OSA), following full Phase 2 RePOSA data and exit-interview analyses. Both low and high-dose IHL-42X achieved statistically significant reductions in Apnea-Hypopnoea Index (AHI) versus placebo, with maximum AHI reductions of up to 83% in the high-dose arm. Exit interviews showed 57.6% of participants reported perceived improvement in their OSA, and most of those described the change as meaningful to daily life. IHL-42X was well tolerated across both dose cohorts, reinforcing its potential for broad use.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Truista Coffee prioritizes purity with direct farm sourcing and innovative roasting methods for health-conscious consumers.
-* Founder's journey from home brewing to deep exploration of coffee led to a groundbreaking, transparent brand.
-* Truista sets a new standard in coffee transparency with lab-verified, clean coffee backed by science.
+Key Takeaways:* IHL-42X receives fast track approval
+* $68.9M in reported cash & cash equivalents
+* Positive Phase 2 results for PSX-001
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/truista-coffee-officially-launches-with-doctor-recommended-lab-verified-clean-coffee-standard)About Truista CoffeeTruista Coffee is an organic, non-toxic coffee company built on transparency and third-party verification. The company sources beans directly from trusted farms and uses proprietary processing methods designed to reduce contaminants while preserving flavor and antioxidants. Every bag features a QR code linking to batch-specific lab results. Truista Coffee is powered by a global collaboration of farmers, processors, and scientists, driving health-forward innovation and cup excellence from seed to sip.
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-updates-coverage-on-incannex-healthcare-inc-nasdaqgm-ixhl-2q-2026)About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-Contacts:Lindsay ONeill-O'Keefe888-383-7862 lindsay@davincimedical.com
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-Source: Newsworthy.ai
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/truista-coffee-officially-launches-with-doctor-recommended-lab-verified-clean-coffee-standard)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-updates-coverage-on-incannex-healthcare-inc-nasdaqgm-ixhl-2q-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/truista-coffee-launches-nationwide-with-lab-verified-clean-coffee-standard/0599ed8cdae6949af69385a4b59ff0dc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/incannex-s-sleep-apnea-drug-shows-83-reduction-in-key-metric/5ef78f63ba22e7dfb2fa44613311b932) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/truista-coffee-launches-nationwide-with-lab-verified-clean-coffe/202628299)
+Pickup - [https://advos.io/en](https://advos.io/en/incannex-healthcares-ihl-42x-shows-promising-results-in-obstruct/202628342)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/391380-truista-coffee-launches-nationwide-with-lab-verified-clean-coffee-standard)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202602/391790-incannex-healthcares-ihl-42x-shows-promising-results-for-obstructive-sleep-apnea-treatment)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337748-truista-coffee-startet-bundesweit-mit-laborgepruftem-clean-coffee-standard)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/338125-el-ihl-42x-de-incannex-healthcare-muestra-resultados-prometedores-para-el-tratamiento-de-la-apnea-obstructiva-del-sueno)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338096-truista-coffee-se-lanza-a-nivel-nacional-con-el-estandar-de-cafe-limpio-verificado-en-laboratorio)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/391769-incannex-healthcares-ihl-42x-shows-promising-results-in-obstructive-sleep-apnea-treatment)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338850-truista-coffee-se-lance-a-lechelle-nationale-avec-une-norme-de-cafe-propre-verifiee-en-laboratoire)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337768-incannex-healthcares-ihl-42x-zeigt-vielversprechende-ergebnisse-bei-der-behandlung-von-obstruktiver-schlafapnoe)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337688-truista-coffee-lanca-em-todo-o-pais-com-padrao-de-cafe-limpo-verificado-em-laboratorio)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338124-el-ihl-42x-de-incannex-healthcare-muestra-resultados-prometedores-en-el-tratamiento-de-la-apnea-obstructiva-del-sueno)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/truista-coffee-launches-nationwide-with-lab-verified-clean-coffe/202628299)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338872-lihl-42x-dincannex-healthcare-montre-des-resultats-prometteurs-dans-le-traitement-de-lapnee-obstructive-du-sommeil)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/truista-coffee-launches-nationwide-with-lab-verified-clean-coffe/202628299)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337709-ihl-42x-da-incannex-healthcare-apresenta-resultados-promissores-no-tratamento-da-apneia-obstrutiva-do-sono)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391395-truista-coffee-launches-nationwide-with-lab-verified-clean-coffee-standard)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/incannex-healthcares-ihl-42x-shows-promising-results-in-obstruct/202628342)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202602/391503-truista-coffee-launches-nationwide-with-lab-verified-transparency-standard)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/incannex-healthcares-ihl-42x-shows-promising-results-in-obstruct/202628342)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202602/391533-truista-coffee-launches-nationwide-with-lab-verified-transparency-standard)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/391558-truista-coffee-launches-nationwide-with-lab-verified-transparency-standard)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/391779-incannex-healthcares-ihl-42x-shows-promising-results-in-obstructive-sleep-apnea-treatment)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/18/zealWOu3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/18/noon5Qq2.webp)
