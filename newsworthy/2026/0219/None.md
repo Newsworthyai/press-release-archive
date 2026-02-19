@@ -1,50 +1,93 @@
-# Gener8tor Expands in Texas with Skills Training &amp; Round Rock Hub
+# South African Wellness Brand The Harvest Table to Bring Clean Collagen and Plant-Based Nutrition to the U.S.
 
-Round Rock, Texas (Newsworthy.ai) Thursday Feb 19, 2026 @ 7:00 AM US/Central — Gener8tor, one of the largest startup accelerators and venture funds in the United States, is deepening its investment in Texas’ entrepreneurial landscape through strategic community partnerships and its accessible training platform, Gener8tor Skills. In a recent interview on The Building Texas Show, Robert Pieroni, Gener8tor’s expansion lead for Texas and Europe, outlined the organization’s mission to foster local innovation and retain talent across the state.
+Boca Raton, Florida (Newsworthy.ai) Thursday Feb 19, 2026 @ 12:10 PM America/Phoenix — The Harvest Table, a family-run South African wellness company, has announced plans to enter the U.S. market, introducing its clean-label, whole-food nutrition products to American consumers.
 
- Building Local Economies Through “Economic Gardening”Gener8tor’s approach centers on economic gardening, investing in local founders to drive organic growth and attract outside capital. In Round Rock, Gener8tor partners with the Chamber of Commerce and the city’s economic development agency to create a hub where entrepreneurs can access mentorship, funding, and peer networks.
+ Founded by Catherine Clark and rooted in a mission to support everyday wellbeing through nutrient-dense nutrition, The Harvest Table has built a strong following in South Africa by producing supplements made without added fillers, preservatives, artificial flavors, or dyes.
 
- “When a startup gets funded by an angel or venture fund from outside the community, it brings in new capital investment,” said Pieroni. “That’s how you create jobs and lasting impact right where people live.”
+ Products Planned for the U.S. Market The initial U.S. lineup is expected to include:
 
- Unlocking Opportunity with Gener8tor SkillsFor aspiring entrepreneurs and career-changers across Texas, Gener8tor Skills offers a practical pathway into high-growth fields. The platform provides on-demand, industry-aligned training in areas such as technology, healthcare, and advanced manufacturing—key sectors driving the state’s economy.
+ * Bovine Collagen Granules 350 g (12.3 oz) Pouch
+* Multi Collagen Granules 350 g (12.3 oz) Pouch
+* Multi Collagen Radiance 350 g (12.3 oz) Pouch
+* Vegan Protein Powder 550 g (19.4 oz) Pouch
 
- “Talent is everywhere, but opportunity isn’t always,” Pieroni noted. “Gener8tor Skills helps bridge that gap, equipping Texans with the tools to innovate, lead, and build the future right here at home.”
+ A Thoughtful Approach to Everyday Nutrition Rather than building products around trends or complicated routines, The Harvest Table developed its range to be simple, consistent, and easy to integrate into daily life.
 
- A Track Record of ImpactWith 13 years of experience, Gener8tor has a proven model for long-term economic development. To date, the organization has supported 541 startups, which have gone on to raise $1.15 billion in follow-on financing and create over 6,760 jobs.
+ The brand focuses on clean, recognizable ingredients and straightforward formulations that support regular use. This approach has helped the company build a loyal customer base in South Africa among consumers seeking dependable wellness products they can use long term.
 
- “These compounding effects take time, but they transform communities,” Pieroni explained. “We’re here to help cities invest in their best and brightest—today and for the next decade.”
+ Founder Catherine Clark began developing the formulations after struggling to find transparent, nutrient-dense options aligned with her own health priorities. What began as small batches prepared for family and friends evolved into a full manufacturing operation centered on ingredient integrity and consistency.
 
- Looking Ahead: Regional Collaboration & Industry ClustersPieroni emphasized the power of regional collaboration, citing examples like West Texas’ energy cluster and the growing aerospace corridor spanning El Paso, Van Horn, and Brownsville.
+ Designed for Everyday Wellbeing Across the entire range, The Harvest Table products are designed to:
 
- “When communities work together, they can create world-class industry clusters that attract talent, investment, and innovation,” he said. “Texas is already a model for this—and we’re just getting started.”
+ * Nourish daily wellbeing, not treat or cure medical conditions
+* Support foundational systems including gut health, joint mobility, skin integrity, and energy
+* Deliver highly bioavailable nutrients that help support long-term vitality
 
- Explore Gener8tor’s Texas Programs:
+ The products are designed for everyday use, supporting wellbeing through clean, food-based nutrition.
 
- https://www.gener8tor.com/skills
+ Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house in a custom-built facility in South Africa that:
 
- Gener8tor Round Rock: https://www.gener8tor.com
+ * Passes annual Food Safety Assessment (FSA) audits
+* Meets GMP requirements
+* Is recognized as a Food Safe Facility
+* Is Halaal-certified by the Muslim Judicial Council (MJC)
 
- Watch Full Bulding Texas Interview with Robert Pieroni:
+ Product Attributes & Certifications * Products entering the U.S. market are gluten-free and biodegradable, and export products are Halaal-certified at the product level by the National Independent Halaal Trust (NIHT).
+* Sustainability is emphasized through recyclable packaging and responsible manufacturing practices
 
- Texas Leaders Just Revealed Their $Billion Investment Strategy
+ A Values-Led Approach to Wellness The Harvest Table takes a deliberate, in-house approach to wellness, maintaining full control over sourcing, formulation, and quality. The brand uses premium, globally sourced ingredients and produces supplements without fillers, artificial additives, or unnecessary complexity.
 
- About Gener8torGener8tor is a nationally ranked startup accelerator and venture fund that partners with communities, corporations, and universities to build thriving entrepreneurial ecosystems. Operating in more than 50 cities, Gener8tor provides founders with mentorship, funding, and growth opportunities through its accelerator programs, skills training platform, and global network.
+ Rather than chasing trends, The Harvest Table focuses on minimalist, science-informed formulations designed for bioavailability, consistency, and real-world use.
 
- About The Building Texas Show:Hosted by Justin McKenzie, The Building Texas Show features conversations with leaders and candidates shaping Texas communities. From elections to economic development, the show highlights civic engagement and local impact.
+ "Our philosophy has always been simple,” said Catherine Clark, Founder of The Harvest Table. “Good nutrition should be honest, effective, and easy to trust. Everything we create is designed to support everyday wellbeing using clean ingredients and thoughtful formulation."
 
- Media Contact:Justin McKenzieHost, The Building Texas Show(210) 748-2312 justin@buildingtexasshow.comhttps://buildingtexasshow.com 
+ “From sourcing and formulation to manufacturing and quality control, we believe doing things the right way matters,” said Sam Clark, CEO of The Harvest Table. “By keeping production in-house and staying true to our values, we’re able to deliver products that are consistent, transparent, and aligned with what today’s consumers expect from a wellness brand.”
+
+ For more information, visit The Harvest Table website, and their Instagram and Facebook channels.
+
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
+
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
+
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious glass packaging and refill options, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602192157/gener8tor-expands-in-texas-with-skills-training-round-rock-hub)
+[Original/Source Press Release](https://newsworthy.ai/news/202602192159/south-african-wellness-brand-the-harvest-table-to-bring-clean-collagen-and-plant-based-nutrition-to-the-u-s_1)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gener8tor-invests-in-texas-innovation-with-skills-training-economic-gardening/863950be6b30ab3166e959471436938d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-expands-to-u-s-market/ef29634c4305b51516bb04593939c7b5) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/south-african-wellness-brand-the-harvest-table-expands-to-us-mar/202628392)
+
+Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202602/392492-south-african-wellness-brand-the-harvest-table-expands-to-us-market-with-clean-label-nutrition-products)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202602/392470-south-african-wellness-brand-the-harvest-table-announces-us-market-entry-with-clean-label-nutrition-products)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337800-sudafrikanische-wellness-marke-the-harvest-table-kundigt-markteintritt-in-den-usa-mit-clean-label-nahrungsprodukten-an)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338160-la-marca-sudafricana-de-bienestar-the-harvest-table-anuncia-su-entrada-al-mercado-estadounidense-con-productos-nutricionales-de-etiqueta-limpia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338904-la-marque-sud-africaine-de-bien-etre-the-harvest-table-annonce-son-entree-sur-le-marche-americain-avec-des-produits-nutritionnels-a-letiquette-propre)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337741-marca-sul-africana-de-bem-estar-the-harvest-table-anuncia-entrada-no-mercado-dos-eua-com-produtos-de-nutricao-de-rotulo-limpo)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/south-african-wellness-brand-the-harvest-table-announces-us-mark/202628392)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/392494-south-african-wellness-brand-the-harvest-table-expands-to-us-market-with-clean-label-nutrition-products)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/south-african-wellness-brand-the-harvest-table-enters-us-market/202628392)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/392485-south-african-wellness-brand-the-harvest-table-enters-us-market-with-clean-label-nutrition-products)
+
+Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/202602/392499-south-african-wellness-brand-the-harvest-table-expands-to-us-market-with-clean-label-nutrition-products)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/392501-south-african-wellness-brand-the-harvest-table-expands-to-us-market-with-clean-label-nutrition-products)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/19/numbxIhl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/19/arch3aS4.webp)
