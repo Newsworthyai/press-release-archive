@@ -1,80 +1,75 @@
-# Travelnest's Smart Pricing Boosts Bookings by 71% for Hosts
+# Everglades University Earns Multiple 2026 U.S. News Online Rankings
 
-New Data Shows Smart Pricing Increases Bookings for Holiday Rental Hosts
+Everglades Recognized Nationally for Excellence in Online Business and Graduate Education
 
- Edinburgh, United Kingdom - February 18, 2026 / Travelnest /
+ Boca Raton, United States - February 19, 2026 / Everglades University /
 
- Edinburgh, 17 February 2026
+ Everglades University is proud to announce it has earned multiple recognitions in the 2026 U.S. News & World Report Best Online Programs rankings, reinforcing the University’s continued commitment to delivering high-quality, flexible, and career-focused online education.
 
-Hosts of holiday rentals utilizing Travelnest's Smart Pricing feature are experiencing a remarkable 71% increase in bookings compared to their previous performance, according to fresh data released from the platform today.
+Everglades University earned rankings in the following categories:
 
-This analysis, which encompasses over 1,000 holiday rental properties across the UK, underscores how data-driven pricing strategies are reshaping outcomes for hosts in a market that is becoming increasingly competitive for short-term rentals.
+* #263–348 in Best Online Bachelor’s Programs
+* #215–254 in Best Online Bachelor’s in Business Programs
+* #167–221 in Best Online Master’s in Business Programs (Excluding MBA)
+* #276–364 in Best Online MBA Programs
 
-Properties that have adopted Smart Pricing have witnessed notable increases in bookings, with some hosts reporting even more extraordinary gains. Individual property owners on the platform have noted booking increases of as much as 223%, while those managing multiple properties have seen increases surpassing 130%.
+U.S. News & World Report evaluates online degree programs nationwide based on key indicators such as student engagement, faculty credentials, online services and technology, and academic excellence. Everglades University was recognized across several undergraduate and graduate business-related categories, highlighting the strength and growth of its online academic offerings.
 
-The data further highlights the advantages of multi-channel distribution. Travelnest hosts who have activated all six booking channels - including Airbnb, Booking.com, and Expedia - are earning 46% more revenue and securing 51% more bookings annually compared to those who utilize fewer channels.
+This announcement builds on the University’s continued momentum in national rankings. Earlier, Everglades University was also recognized in the 2026 U.S. News & World Report rankings. Learn more about the University’s 2026 rankings here:https://www.evergladesuniversity.edu/blog/2026-us-news-rankings/
 
-"These statistics illustrate the potential for hosts when they merge innovative technology with extensive exposure," stated Cameron Boal, Chief Marketing Officer. "Relying on manual pricing and limiting listings to a single platform can result in lost revenue. Our data indicates that hosts who adopt automation and multi-channel distribution are significantly outperforming their peers who do not."
+Supporting Students Nationwide Through Online Programs
 
-This revelation comes as an increasing number of property owners seek to optimize their returns from holiday rentals in light of rising operational costs and heightened competition from new entrants in the market.
+Everglades University offers a wide range of online bachelor’s, master’s, and MBA degree programs, allowing students across the United States to pursue higher education without compromising professional or personal responsibilities. Programs are taught by industry-experienced faculty and emphasize practical, real-world applications to prepare graduates.
 
-Ends
+Prospective students and community members can view Everglades University’s complete U.S. News rankings profile and methodology here:https://www.usnews.com/education/online-education/everglades-university-385619
 
-Notes to editors:
+To explore additional recognitions and achievements, visit the University’s full list of awards:https://www.evergladesuniversity.edu/awards/
 
-The data is derived from Travelnest's analysis of booking performance across more than 1,000 UK holiday rental properties, comparing results before and after the implementation of Smart Pricing and across different levels of channel activation.
+New Graduate School Expands Advanced Online Degree Options
 
-For interviews with representatives from Travelnest, case study hosts, or to gain access to additional data and imagery, please reach out to the press office below.
+Everglades University recently announced the launch of its new Graduate School, expanding opportunities for students to earn degrees designed for today’s workforce. As part of this expansion, Everglades University now offers master’s programs that can be earned 100% online, providing flexibility for working professionals and adult learners nationwide.
 
-About Travelnest
+Learn more about the launch of the Graduate School and available graduate-level programs here:https://www.evergladesuniversity.edu/blog/everglades-university-opens-graduate-school/
 
-Travelnest is a holiday rental software provider that offers an all-in-one platform designed to assist hosts in managing their property listings, bookings, payments, and more. Collaborating with leading booking partners such as Airbnb, Booking.com, and Expedia, Travelnest provides global visibility for hosts' listings, enhancing occupancy rates and ensuring consistent bookings throughout the year. Innovative features and technology, including Smart Pricing, have contributed to increasing hosts' bookings by as much as 71%, while a dedicated team of Property Experts helps ensure that hosts are fully capitalizing on their short-term rental potential. Travelnest is recognized as a Premier Partner of Booking.com.
+ [](https://press-releases-production.s3.amazonaws.com/images/qkDS40gLGK8r4EmX6j985EkKFZlFLMeeV4M1P8ZD.png) [](https://www.evergladesuniversity.edu/) Contact Information:
 
-For more information, visit www.travelnest.com
-
-Media contact: Amanda Sanders, marketing@travelnest.com
-
- [](https://press-releases-production.s3.amazonaws.com/images/ahanCvZ4kA7WRyNg4BGw7AysKhXBFoAJZBvar94P.jpg) [](https://travelnest.com) Contact Information:
-
- Travelnest
+ Everglades University
 
  
 
-2 Walker Street  Edinburgh, Edinburgh EH3 7LBUnited Kingdom
+5002 T-Rex Ave #100 Boca Raton, FL 33431United States
 
- Amanda Sanders +44 131 381 7746 https://travelnest.com 
+ Kristi Mollis https://www.evergladesuniversity.edu/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/travelnests-smart-pricing-boosts-bookings-by-71-for-hosts-413061)
+[Original/Source Press Release](https://mediawiretoday.com/everglades-university-earns-multiple-2026-us-news-online-rankings-413532)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/travelnest-smart-pricing-boosts-holiday-rental-bookings-by-71/a104783482af929816006f46f0b89dfe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/everglades-university-earns-multiple-u-s-news-rankings-for-online-programs/6faa9d5ac9d0573914689061b32002e9) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/travelnests-smart-pricing-feature-delivers-71-booking-increase-f/202628426)
+Pickup - [https://advos.io/en](https://advos.io/en/everglades-university-achieves-multiple-national-rankings-in-202/202628448)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/392944-travelnest-smart-pricing-feature-delivers-71-booking-increase-for-holiday-rental-hosts)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/393215-everglades-university-achieves-multiple-2026-us-news-online-program-rankings)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337823-travelnest-smart-pricing-funktion-sorgt-fur-71-mehr-buchungen-bei-ferienvermietern)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337836-everglades-university-erzielt-mehrere-platzierungen-in-den-us-news-online-programm-rankings-2026)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338186-la-funcion-de-precios-inteligentes-de-travelnest-genera-un-aumento-del-71-en-reservas-para-anfitriones-de-alquileres-vacacionales)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338205-la-universidad-everglades-logra-multiples-posiciones-en-los-rankings-de-programas-en-linea-2026-de-us-news)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338927-la-fonctionnalite-smart-pricing-de-travelnest-genere-une-augmentation-de-71-des-reservations-pour-les-proprietaires-de-locations-de-vacances)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/338941-luniversite-everglades-obtient-plusieurs-classements-dans-les-programmes-en-ligne-2026-de-us-news)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337764-funcionalidade-de-precificacao-inteligente-da-travelnest-gera-aumento-de-71-nas-reservas-para-anfitrioes-de-alojamentos-de-ferias)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337778-universidade-everglades-conquista-multiplas-colocacoes-nos-rankings-de-programas-online-da-us-news-2026)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/392991-data-driven-pricing-and-multi-channel-distribution-boost-holiday-rental-bookings-by-71)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/everglades-university-achieves-multiple-2026-us-news-online-prog/202628448)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/travelnest-smart-pricing-feature-delivers-71-booking-increase-fo/202628426)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/everglades-university-achieves-multiple-2026-us-news-online-prog/202628448)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/travelnests-smart-pricing-feature-drives-71-booking-increase-for/202628426)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/392974-travelnests-smart-pricing-feature-drives-71-booking-increase-for-holiday-rental-hosts)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/393225-everglades-university-gains-multiple-2026-us-news-online-program-rankings-highlighting-growth-in-business-and-graduate-education)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/262/20/fernolpx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/262/20/nukeRZRn.webp)
