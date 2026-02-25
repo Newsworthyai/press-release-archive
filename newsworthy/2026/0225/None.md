@@ -1,38 +1,29 @@
-# Oscar Salinas Highlights DA Role in Bexar County Amidst Growing Caseloads
+# Woodstock Adds Two New 10mg Flavors to their Line of Cannabis-Infused Functional Beverages
 
-San Antonio, Texas (Newsworthy.ai) Tuesday Feb 24, 2026 @ 8:05 PM Central — In a recent interview on Vote Like a Texan, Oscar Salinas, a Democratic candidate for Bexar County District Attorney, outlined the complex responsibilities of leading a $57 million office handling 10,000 new felony cases each year, while emphasizing fairness, resource management, and community collaboration.
+Somerville, MA (Newsworthy.ai) Wednesday Feb 25, 2026 @ 8:00 AM US/Eastern — Woodstock Goods, the hemp THC beverage brand rooted in the legacy of the iconic 1969 Woodstock Festival, announced the launch of two new 10mg SKUs — Cherry Pomelo and Salted Melon — expanding its line of functional, mood-based seltzers to meet growing consumer demand for a higher-dose option.
 
- A $57M Office with 10,000 New Felony Cases AnnuallyThe Bexar County District Attorney’s Office manages a $57 million budget and 560 employees, including 260 prosecutors. With a 27% population growth over the past 12 years and evidence-heavy caseloads—including body cam footage—the office faces significant challenges in prioritizing resources and reducing backlogs.
+ * Cherry Pomelo ("Drift") combines 10mg THC, 10mg CBD, and 100mg L-Theanine for a calming, restorative effect
+* Salted Melon ("Bliss") pairs 10mg THC, 10mg CBG, and 100mg Lion's Mane extract for mental clarity and an elevated headspace
 
- “We need to make sure we are using our resources to the best of our ability,” said Salinas. “Not every case is a life sentence case. 98% of defendants will at some point return to the community. We must focus on prosecuting violent offenders while ensuring redeemable individuals can become productive members of society.”
+ What sets Woodstock apart from the growing field of hemp seltzers isn't just the dose range — it's the formulation depth. Every SKU is crafted with a proprietary blend of minor cannabinoids (CBD, CBG, CBN, CBC) and functional botanicals including Lion's Mane, Reishi, Cordyceps, and L-Theanine, delivering targeted mood-based benefits that go well beyond a standard THC beverage. All Woodstock Goods' drinks are made with organic fruit juices and organic cane sugar, positioned as a better-for-you alternative to alcohol with fast onset, clean offset, and zero hangover.
 
- Addressing Backlogs and Prioritizing Violent CrimeSalinas emphasized the need to streamline case management, particularly in family violence and non-violent offense categories, to ensure violent crimes receive the attention they require. He advocates for clear timelines, consistent communication with complainants, and strategic collaboration with law enforcement and community partners.
+ The new flavors join Woodstock's existing lineup of four SKUs across 2.5mg and 5mg formulations: Citrus Spritz ("Laugh"), Yuzu Ginger ("Chill"), Raspberry Lychee ("Solace"), and Dark Berries ("Dream"). Together, the full six-flavor collection offers something for every tolerance level and occasion — from a light social lift to deep relaxation and sleep support.
 
- “We have a no-drop policy, but if we cannot prove a case beyond a reasonable doubt, we should not be holding on to it. We need to focus on the cases we can prove.” – Oscar Salinas
-
- Watch the full interview with Oscar Salinas on the Vote Like a Texan Youtube Channel:
-
- This Prosecutor Wants to Fix San Antonio's $57 Million Justice System | Oscar Salinas
-
- Connect with Oscar SalinasLearn more about his platform and campaign at oscarsalinasforda.com or follow him on social media.
-
- About Oscar SalinasOscar Salinas is a 12-year prosecutor and first-generation college graduate from the Rio Grande Valley. With experience ranging from misdemeanors to capital murder cases, he is running for District Attorney to bring a modern, community-focused approach to Bexar County’s justice system.
-
- About Vote Like a Texan:Vote Like a Texan is a nonpartisan civic education platform dedicated to empowering Texas voters with non-biased information, candidate insights, and election resources. Through in-depth interviews, policy breakdowns, and community-focused content, Vote Like a Texan helps voters make informed decisions by providing clear, accessible, and non-ideological coverage of local and statewide races. The platform aims to strengthen civic engagement, increase voter participation, and support a more informed electorate across the Lone Star State.
-
- Media Contact:Justin McKenzieHost, Vote Like a Texan(210) 748-2312 | justin@buildingtexasshow.comhttps://votelikeatexan.com/podcast 
+ The new 10mg SKUs are available now at $17.99/4-pk at woodstockgoods.com and will be available through select specialty retailers across Illinois, Tennessee, New Jersey, Connecticut, Ohio, and Missouri/Kansas. To celebrate the launch, Woodstock is offering 25% off all 10mg SKUs through the end of March. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202602252180/oscar-salinas-highlights-da-role-in-bexar-county-amidst-growing-caseloads)
+[Original/Source Press Release](https://newsworthy.ai/news/202602252177/woodstock-launches-10mg-hemp-thc-drinks-salted-melon-cherry-pomelo)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/da-candidate-salinas-vows-to-reform-san-antonio-s-57m-justice-system/6d2a8a2afa10bf499c3039435da32c00) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/woodstock-goods-expands-hemp-beverage-line-with-new-10mg-thc-seltzers/9ebc1f9dc572fe8c912b2f3c0112d924) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202602/396856-woodstock-goods-expands-hemp-beverage-line-with-higher-dose-10mg-thc-seltzers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/25/jinxEGEu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/262/25/mildu7R5.webp)
