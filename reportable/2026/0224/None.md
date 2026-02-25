@@ -1,52 +1,58 @@
-# BioUtah and the Brigham Young University Technology Transfer Office and College of Life Sciences Announce Startups Selected to Pitch at the 2026 Wilson Sonsini Entrepreneur &amp; Investor Life Sciences Summit
+# Stonegate Capital Partners Updates Coverage on Electro Optics Systems Holdings Ltd (ASX: EOS) 4Q 2025
 
-Salt Lake City, Utah - February 24, 2026
+DALLAS, TX -- fEBRUARY 24, 2026
 
-BioUtah, Utah’s trade association dedicated solely to the life sciences, in partnership with Brigham Young University’s (BYU) Technology Transfer Office and College of Life Sciences today announced the 12 life sciences startup companies that have qualified for the Shark Tank Pitch Competition as part of the 2026 Entrepreneur & Investor Life Sciences Summit (E&I Summit). The E&I Summit, proudly sponsored by Wilson Sonsini, will be held March 12 at the Hilton Hotel in Salt Lake City, followed by a networking ski day at Snowbird Ski Resort on March 13.
+DALLAS, TX -- February 24, 2026 -- Electro Optics Systems Holdings Ltd (ASX: EOS): Stonegate Capital Partners Updates Coverage on Gladstone Commercial Corp. (NasdaqGS: GOOD). EOS reported FY25 revenue, gross margin, and EBITDA of $126.3M, 63%, and $(24.4M), respectively, with the revenue decline driven by the EM Solutions divestment and order timing shifting later in FY25, expected to convert into FY26. EOS ended the year with $106.9M of cash and strong order momentum with 18 contracts signed worth ~$420M and an unconditional order book of ~$459M (ex-Korea), supporting a higher delivery cadence through FY26–FY28 as mix shifts toward higher-value RWS/counter-drone/HELW and manufacturing scales.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Twelve rising life sciences startups have been selected to present as part of a shark-tank-like pitch competition during the 2026 Entrepreneur & Investor Life Sciences Summit on March 12, sponsored by Wilson Sonini, and presented by BioUtah and the Brigham Young University Technology Licensing Office and College of Life Sciences.
-* The 12 companies, representing medical devices, diagnostics, drugs, biotech, and digital health were selected from more than 40 companies that applied to present. Finalists will be selected by an accomplished panel of judges. Winners will receive cash awards and be honored at a ceremony to close the E&I Summit.
-* Following the E&I Summit on March 13, is a networking ski day and luncheon at Snowbird Resort. Join in!
+Key Takeaways:* Backlog inflection: A$459M order book; 40-50% targeted conversion in FY26; FY26-FY28 ramp.
+* Visibility + HELW: Signed 18 contracts (~A$420M), ~A$459M order book; €71M Dutch 100kW deal.
+* MARSS upside: Adds NiDAR C2/interceptor drones; pipeline excluded from metrics; hidden growth optionality.
 
-[Click image above to view full announcement.](https://bioutah-1.reportablenews.com/pr/bioutah-and-the-brigham-young-university-technology-transfer-office-and-college-of-life-sciences-announce-startups-selected-to-pitch-at-the-2026-wilson-sonsini-entrepreneur-investor-life-sciences-summit)About BioUtahBioUtah is an independent 501(c)(6) trade association serving Utah’s life sciences industry. Its member companies reflect a broad spectrum of the industry with strengths in medical device manufacturing and services, research and testing, biotechnology, biopharmaceuticals, and diagnostics, amongst others; and are a key driver of Utah’s economy and advancing healthcare.About the College of Life Sciences and Technology Transfer Office at Brigham Young UniversityThe BYU College of Life Sciences inspires learning and discovery through rigorous academic instruction and student-centered scholarship to prepare the next generation of leaders and innovators. The BYU Technology Transfer Office facilitates the transfer of innovative ideas, technologies, and intellectual property developed by the BYU community to benefit society.
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-electro-optics-systems-holdings-ltd-asx-eos-4q-2025)About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-Contacts:Denise Belldenise@bioutah.org
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-Source: BioUtah
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://bioutah-1.reportablenews.com/pr/bioutah-and-the-brigham-young-university-technology-transfer-office-and-college-of-life-sciences-announce-startups-selected-to-pitch-at-the-2026-wilson-sonsini-entrepreneur-investor-life-sciences-summit)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-electro-optics-systems-holdings-ltd-asx-eos-4q-2025)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/12-life-sciences-startups-to-pitch-at-utah-s-2026-shark-tank-competition/15825aee15eb335cc13f9b559f166ee8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eos-reports-strong-order-momentum-shifts-to-high-value-defense-tech/bd430257087f92e5322919c84dc99f32) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/twelve-life-sciences-startups-selected-for-pitch-competition-at/202628618)
+Pickup - [https://advos.io/en](https://advos.io/en/electro-optics-systems-reports-strong-order-momentum-despite-rev/202628637)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/395893-bioutah-and-byu-announce-12-life-sciences-startups-for-2026-pitch-competition)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/396306-stonegate-capital-partners-updates-coverage-on-electro-optics-systems-holdings-ltd-highlights-strong-order-momentum-and-future-growth-trajectory)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337931-bioutah-und-byu-kundigen-12-life-sciences-startups-fur-pitch-wettbewerb-2026-an)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337938-stonegate-capital-partners-aktualisiert-berichterstattung-zu-electro-optics-systems-holdings-ltd-hebt-starke-auftragsdynamik-und-zukunftiges-wachstumspotenzial-hervor)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338307-bioutah-y-byu-anuncian-12-startups-de-ciencias-de-la-vida-para-la-competencia-de-presentaciones-de-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338313-stonegate-capital-partners-actualiza-su-cobertura-sobre-electro-optics-systems-holdings-ltd-destaca-fuerte-impulso-de-pedidos-y-trayectoria-de-crecimiento-futuro)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339039-bioutah-et-byu-annoncent-12-startups-des-sciences-de-la-vie-pour-le-concours-de-pitch-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339045-stonegate-capital-partners-met-a-jour-sa-couverture-delectro-optics-systems-holdings-ltd-soulignant-une-forte-dynamique-de-commandes-et-une-trajectoire-de-croissance-prometteuse)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337877-bioutah-e-byu-anunciam-12-startups-de-ciencias-da-vida-para-competicao-de-pitch-de-2026)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337884-stonegate-capital-partners-atualiza-cobertura-sobre-a-electro-optics-systems-holdings-ltd-destaca-forte-momento-de-pedidos-e-trajetoria-de-crescimento-futuro)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/twelve-life-sciences-startups-selected-for-pitch-competition-at/202628618)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/electro-optics-systems-reports-strong-order-momentum-despite-rev/202628637)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bioutah-and-byu-announce-12-life-sciences-startups-selected-for/202628618)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/electro-optics-systems-holdings-ltd-reports-strong-order-momentu/202628637)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/396108-bioutah-and-byu-announce-finalists-for-2026-life-sciences-startup-pitch-competition)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/396321-electro-optics-systems-reports-strong-order-momentum-despite-revenue-decline-positions-for-growth-through-fy28)
+
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202602/396361-electro-optics-systems-reports-fy25-results-with-strong-order-momentum-pointing-to-future-growth)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/338318-electro-optics-systems-reporta-resultados-del-ano-fiscal-2025-con-fuerte-impulso-de-pedidos-que-apunta-a-crecimiento-futuro)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/396362-electro-optics-systems-reports-fy25-results-with-strong-order-momentum-and-strategic-growth-outlook)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/24/seeke_iz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/262/24/sagex47j.webp)
