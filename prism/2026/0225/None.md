@@ -1,104 +1,102 @@
-# JP3E Holdings Partners with TBURN Chain to Launch Innovation Cities Kwave in Atlanta and Dallas
+# AmpliTech Group And Northeastern University Demonstrate First Open-Source Massive MIMO O-RAN System with Category B Fronthaul
 
-K2Global SMB500 Platform deploys blockchain-enabled industrial ecosystems in Atlanta, GA and Dallas, TX — strengthening American supply chains and manufacturing capacity
+Demonstration validates AmpliTech’s commercial-grade ORAN 5G 64T64R MIMO radio in an end-to-end open-stack O-RAN deployment, a landmark for open, interoperable wireless systems
 
  
 
- ATLANTA, GA, DALLAS, TX, February 25, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – JP3E Holdings Inc. (OTC: JPTE) today announced a strategic partnership with TBURN Chain Foundation to deploy the K2Global SMB500 Platform through Innovation City Kwave hubs in Atlanta, Georgia and Dallas, Texas. The K2Global SMB500 initiative integrates 500 elite Korean small and mid-sized enterprises into US manufacturing clusters powered by KWAVE AI intelligence and TBURN.IO real-world asset tokenization infrastructure, targeting $7.5 billion total capital deployment creating the first Korean-US industrial blockchain corridor for strategic materials supply chain resilience.
+ HAUPPAUGE, N.Y., February 25, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – AmpliTech Group, Inc. (Nasdaq: AMPG, AMPGR, AMPGZ) today announced that its AmpliTech 5G Division and Researchers at Northeastern University’s Institute for Intelligent Networked Systems (INSI), have successfully demonstrated the first open-source prototype of a massive MIMO (mMIMO) O-RAN system achieving O-RAN Category B operation in a laboratory environment. The demonstration integrates AmpliTech’s commercial-grade mMIMO Category B radio unit with the OpenAirInterface (OAI) CU/DU stack, marking the first time a full, end-to-end massive MIMO O-RAN system has been assembled entirely from open, interoperable components.
 
- K2Global SMB500 represents JP3E’s institutional-grade platform combining physical manufacturing clusters, KWAVE AI 4-pillar enterprise scoring, TBURN.IO RWA tokenization, and a structured SPAC-to-NASDAQ pathway for Korean SMBs. Atlanta Innovation City will integrate 160 enterprises across K-Tech (semiconductors), K-Bio (biotech), K-Defense (aerospace), and K-Materials (critical minerals) sectors with 2.8M square feet of shared advanced manufacturing infrastructure and $2.5B CapEx deployment. Dallas cluster operations will focus on K-Energy, K-Defense, K-Tech, and K-Materials sectors, expanding platform capacity as Korean SMBs scale US market presence through blockchain-settled procurement networks and institutional capital access.
+ The demonstration combined AmpliTech’s mMIMO O-RAN Category B radio unit with OAI’s CU/DU into a single cohesive, standards-compliant platform. The INSI team showcased hybrid beamforming capabilities with a 2-layer MIMO configuration, demonstrating sustained throughput under mobility conditions with proper beam management. Critically, it validates that AmpliTech’s radio unit, designed for commercial deployment, can operate at full performance within a fully open, multi-vendor stack.
 
- MARKET CONTEXT
+ Massive MIMO systems, which use large antenna arrays to serve multiple users simultaneously through spatial multiplexing, have historically required tightly integrated, vendor-specific implementations. This demonstration challenges that assumption by showing that the full stack, from the physical layer up through the RAN control plane, can be assembled from open, interoperable components, with no reliance on proprietary, closed solutions. Category B is the technically demanding fronthaul interface that enables this at massive MIMO scale, and its successful validation here marks a first for open-source RAN.
 
- JPMorgan CEO: “Blockchain is Better Than Current Banking System” — Bank Processes $16 Trillion in Single Day on Blockchain. In a February 2025 interview on Fox Business, JPMorgan CEO Jamie Dimon revealed the bank recently processed $16 trillion in a single day using blockchain infrastructure, confirming Wall Street’s irreversible migration from traditional settlement rails to distributed ledger technology. “Everything is moving out of the current banking system,” Dimon stated, validating the institutional blockchain infrastructure thesis that underpins JP3E’s Innovation Cities Kwave deployment.“If we can use things like that to do something better, faster, cheaper… we’re going to,” the JPMorgan CEO emphasized — the same principle driving JP3E’s decision to deploy industrial tokenization on TBURN Mainnet rather than traditional financing rails. (Source: @investwithd via X/Twitter · Jamie Dimon on Fox Business, February 2025)
+ “This is a significant step toward making Massive MIMO Open RAN a practical reality rather than a research ambition. Demonstrating that AmpliTech’s commercial massive MIMO radio integrates seamlessly into a fully open-source stack opens entirely new possibilities for how next-generation networks are designed, deployed, and optimized without locking operators into proprietary ecosystems.”
 
- JPMorgan’s blockchain validation arrives as US policymakers prioritize supply chain resilience and manufacturing onshoring following pandemic-era disruptions. Innovation Cities Kwave addresses this strategic imperative through infrastructure rather than subsidies — creating repeatable regional ecosystems where blockchain-based settlement, tokenized capacity sharing, and institutional capital access enable American manufacturers to compete globally without sacrificing domestic production.
+ Tommaso Melodia, Director, Institute for Intelligent Networked Systems, and William Lincoln Smith Professor of Electrical and Computer Engineering, Northeastern University “The O-RAN 7.2 Category B is the interface that truly unlocks massive MIMO at scale, and achieving it with an open-source stack has been a long-standing goal for our community. This demonstration with Northeastern and AmpliTech is exactly the kind of end-to-end validation that turns open-source software from a research tool into a credible foundation for commercial deployment. It shows that openness and high-performance massive MIMO are not in conflict, they are fully compatible.”
 
- “K2Global SMB500 is not incremental trade policy — it’s infrastructure for the next era of Korean-US industrial collaboration. We’re deploying 500 Korean SMBs across strategic K-Wave sectors through Innovation Cities in Atlanta and Dallas, powered by KWAVE AI scoring and TBURN.IO tokenization. This is $7.5 billion institutional capital meeting Korean manufacturing excellence, with blockchain as the settlement rails and NASDAQ as the pathway.”
+ Irfan Ghauri, Director of Operations, OpenAirInterface Software Alliance “This demonstration is a critical milestone for AmpliTech and for the Open RAN ecosystem. Seeing our 64T64R Category B radio operate end-to-end within a fully open-source stack at Northeastern proves that high-capacity massive MIMO and true multi-vendor openness are no longer in tension. This is the kind of validation that gives operators the confidence to deploy Open RAN at scale, and it demonstrates AmpliTech’s commitment to building radios that work in real, disaggregated environments, not just proprietary lab conditions.”
 
- Chief Executive Officer, JP3E Holdings, Inc. K2Global SMB500 Platform: Korean SMBs × US Manufacturing Infrastructure
+  Fawad Maqbool, CEO and CTO, AmpliTech Group The INSI team led the system integration, testbed configuration, and validation measurements, providing a reproducible reference implementation that academic and industry researchers can build upon. The open-source nature of the demonstration means the architecture can be studied, replicated, and extended, accelerating adoption across the research and operator communities.
 
- K2Global SMB500 is JP3E’s institutional-grade platform deploying 500 elite Korean small and mid-sized enterprises into US Innovation Cities through a vertically integrated infrastructure combining advanced manufacturing clusters, AI-powered enterprise screening, blockchain-based asset tokenization, and structured SPAC-to-NASDAQ capital markets pathway.
+ The results align with growing momentum around Open RAN and next-generation wireless systems, where flexibility, vendor interoperability, and intelligent control are viewed as essential properties for future 5G and 6G deployments.
 
- “JPMorgan proved blockchain can settle $16 trillion in traditional finance. K2Global SMB500 deploys that same infrastructure for Korean-US industrial integration. Atlanta provides advanced manufacturing infrastructure. KWAVE AI screens 500 Korean SMBs across 8 strategic sectors. TBURN.IO tokenizes physical assets. The SPAC bridge provides NASDAQ pathway. This is sovereign-grade industrial infrastructure — no intermediaries, no fragmentation.”
+ About the Institute for Intelligent Networked Systems at Northeastern University
 
- Chief Strategy Officer, JP3E Holdings, Inc. 8 K-Wave Sectors: $7.5B Deployment Across Strategic Industries
+ The Institute for Intelligent Networked Systems (INSI) at Northeastern University is a leading research and innovation hub focused on wireless systems, Open RAN, and next-generation 5G/6G networks. INSI works closely with industry and government partners to design, prototype, and validate advanced network technologies on large-scale experimental platforms, accelerating commercialization of secure, energy-efficient, and scalable wireless solutions.
 
- KWAVE AI: 4-Pillar Enterprise Scoring System
+ About OpenAirInterface Software Alliance (OSA)
 
- TBURN.IO RWA Tokenization: Industrial Settlement Rail
+ The OpenAirInterface Software Alliance is a non-profit organization developing open-source software implementations of 3GPP standards for 5G and 6G cellular networks. OAI provides a fully open and interoperable RAN and core network stack widely used by researchers, network vendors and operators worldwide.
 
- SPAC Bridge & NASDAQ Pathway: Structured Capital Markets Entry
+ About AmpliTech Group
 
- Platform Value Proposition: Korean Excellence Meets US Market Access
+ AmpliTech Group, Inc. (NASDAQ: AMPG, AMPGW) designs, develops, and manufactures advanced RF and microwave signal-processing components and systems for satellite, 5G/6G telecom, quantum computing, defense, and space applications. Its five divisions, AmpliTech Inc., Specialty Microwave, Spectrum Semiconductor Materials, AmpliTech Group Microwave Design Center, and AmpliTech Group 5G Divisions work symbiotically and serve customers worldwide. Through continuous innovation and U.S.-based manufacturing, AmpliTech is enabling the next generation of connectivity and communication systems. For further information, please visit www.amplitechgroup.com
 
- Deployment Timeline: 2026-2030 Phased Rollout
+ Safe Harbor Statement
 
- Target Institutional Investors & Revenue Architecture
+ This release contains statements that constitute forward-looking statements. These statements appear in several places in this release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its ocers with respect to, among other things, that company’s certifications, new product developments and projections are based on continuation of receipt of orders against signed LOI’s and positive market conditions. The words “may” “would” “will” “expect” “estimate” “anticipate” “believe” “intend” and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company’s ability to control, and that actual results may differ materially from those projected in the forward-looking statements because of various factors. Other risks are identied and described in more detail in the “Risk Factors” section of the Company’s lings with the SEC, which are available on our website. We undertake no obligation to update, and we do not have a policy of updating or revising these forward-looking statements, except as required by applicable law.
 
- ABOUT JP3E HOLDINGS INC.
+ Contacts:
 
- JP3E Holdings Inc. is a global investment holding company operating as GP-level orchestrator of the K2Global SMB500 Platform — deploying 500 elite Korean small and mid-sized enterprises into US Innovation Cities through vertically integrated infrastructure combining advanced manufacturing clusters, KWAVE AI enterprise screening, TBURN.IO real-world asset tokenization, and structured SPAC-to-NASDAQ capital markets pathway. The company institutionalizes Korean manufacturing excellence through scalable US market entry infrastructure, providing participating SMBs with shared facilities (80% CapEx pre-funded), supply chain integration, institutional capital access, and public markets liquidity. Through K2Global SMB500, JP3E targets $7.5 billion capital deployment across 8 strategic K-Wave sectors (K-Materials, K-Tech, K-Bio, K-Defense, K-Energy, K-Food, K-Culture, K-Beauty) creating permanent Korean-US industrial collaboration infrastructure. Platform information: www.jp3e.com/k2global-smb500.html
+ Corporate Social MediaX: @AmpliTechAMPGInstagram: @AmpliTechAMPGFacebook: AmpliTechIncLinkedIn: AmpliTech Group Inc
 
- ABOUT K2GLOBAL SMB500 PLATFORM
+ Investor Social MediaX: @AMPG_IRStockTwits: @AMPG_IR
 
- K2Global SMB500 is JP3E’s institutional-grade platform deploying 500 elite Korean small and mid-sized enterprises into US Innovation Cities through vertically integrated infrastructure: (1) Advanced manufacturing clusters with 80% CapEx pre-funded providing shared facilities, cleanroom environments, and precision manufacturing lines, (2) KWAVE AI 4-pillar scoring system evaluating Manufacturing Capability, Supply Chain Integration Fit, Financial Health & SPAC Readiness, and Strategic Alignment & National Security, (3) TBURN.IO real-world asset tokenization converting physical infrastructure into institutional-grade programmable instruments with native AML/CTF compliance, (4) Structured SPAC-to-NASDAQ pathway providing Korean SMBs with SEC-compliant US public markets entry. The platform targets $7.5B total capital deployment across 8 K-Wave sectors with $1.25B annual revenue by 2030 from infrastructure fees, RWA token yield, and capital markets gains. Atlanta Phase 1 launches Q3 2026 with 160 Korean SMBs across 2.8M sqft advanced manufacturing facilities. Platform details: www.jp3e.com/k2global-smb500.html
+ Company Contact:Jorge FloresTel: 631-521-7831Investors@amplitechgroup.com
 
- ABOUT TBURN CHAIN
+ Investor Relations Contact:Kirin SmithPCG Advisory, Inc.ksmith@pcgadvisory.com
 
- TBURN Chain is a next-generation high-performance blockchain architected with up to 256 independent shards for horizontal scaling. Currently operating 7 live shards delivering 140,000 transactions per second, the network scales linearly toward a theoretical maximum of 2.56 million TPS. TBURN.IO provides sovereign-grade real-world asset tokenization infrastructure for K2Global SMB500, converting physical manufacturing clusters, supply chain contracts, and strategic materials reserves into institutional-grade programmable instruments with deterministic settlement rails, immutable asset registry, native compliance layers, and automated revenue waterfall smart contracts. Purpose-built for enterprise deployment, TBURN provides MEV-protected blockchain infrastructure enabling Korean-US industrial collaboration at institutional scale.
+ Source: AmpliTech Group, Inc.
 
- SAFE HARBOR NOTICE
-
- Certain statements contained herein are “forward-looking statements” (as defined in the Private Securities Litigation Reform Act of 1995). The Companies caution that statements, and assumptions made in this news release constitute forward-looking statements and make no guarantee of future performance. Forward-looking statements are based on estimates and opinions of management at the time statements are made. These statements may address issues that involve significant risks, uncertainties, and estimates made by management. Actual results could differ materially from current projections or implied results. The Companies undertake no obligation to revise these statements following the date of this news release.
-
- MEDIA & INVESTOR CONTACT
-
- JP3E Holdings Inc.Investor RelationsEmail: info@jp3e.comWebsite: www.jp3e.com Address: 1300 Kuser Road, First Floor, Trenton, NJ 08619
-
- Source: JP3E Holdings, Inc.
-
- The latest news and updates relating to $JPTE are available in the company’s newsroom at: https://tinyurl.com/jptenewsroom
+ The latest news and updates relating to $AMPG are available in the company’s newsroom at: https://tinyurl.com/ampgnewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
  
 
- The post JP3E Holdings Partners with TBURN Chain to Launch Innovation Cities Kwave in Atlanta and Dallas first appeared on Prism Media Wire. 
+ The post AmpliTech Group And Northeastern University Demonstrate First Open-Source Massive MIMO O-RAN System with Category B Fronthaul first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/jp3e-holdings-partners-with-tburn-chain-to-launch-innovation-cities-kwave-in-atlanta-and-dallas/)
+[Original/Source Press Release](https://prismmediawire.com/amplitech-group-and-northeastern-university-demonstrate-first-open-source-massive-mimo-o-ran-system-with-category-b-fronthaul/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/jp3e-tburn-launch-7-5b-korean-us-blockchain-industrial-corridor/62b1b78d1606a5e3b16da27001e86747) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amplitech-northeastern-demo-first-open-source-massive-mimo-o-ran-system/d64e91b9243f9fd7a68c71c4f665fb1e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/jp3e-holdings-and-tburn-chain-launch-75b-korean-us-industrial-bl/202628673)
+Pickup - [https://advos.io/en](https://advos.io/en/amplitech-and-northeastern-university-achieve-breakthrough-in-op/202628695)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/396894-jp3e-holdings-and-tburn-chain-launch-75-billion-korean-us-industrial-blockchain-corridor-in-atlanta-and-dallas)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/397041-amplitech-group-and-northeastern-university-achieve-first-open-source-massive-mimo-o-ran-system-with-category-b-fronthaul)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337974-jp3e-holdings-und-tburn-chain-starten-75-milliarden-dollar-koreanisch-us-amerikanischen-industrie-blockchain-korridor-in-atlanta-und-dallas)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337980-amplitech-group-und-northeastern-university-erreichen-erstes-open-source-massive-mimo-o-ran-system-mit-category-b-fronthaul)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338353-jp3e-holdings-y-tburn-chain-lanzan-corredor-industrial-blockchain-coreano-estadounidense-de-7500-millones-de-dolares-en-atlanta-y-dallas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338362-amplitech-group-y-la-universidad-northeastern-logran-el-primer-sistema-masivo-mimo-o-ran-de-codigo-abierto-con-fronthaul-categoria-b)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339080-jp3e-holdings-et-tburn-chain-lancent-un-corridor-industriel-blockchain-coreano-americain-de-75-milliards-de-dollars-a-atlanta-et-dallas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339086-amplitech-group-et-luniversite-northeastern-realisent-le-premier-systeme-o-ran-mimo-massif-open-source-avec-fronthaul-de-categorie-b)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/jp3e-holdings-and-tburn-chain-launch-75-billion-korean-us-indust/202628673)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337925-amplitech-group-e-universidade-northeastern-conquistam-primeiro-sistema-o-ran-de-mimo-massivo-de-codigo-aberto-com-fronthaul-categoria-b)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202602/396944-jp3e-holdings-partners-with-tburn-chain-foundation-to-launch-75-billion-korean-us-industrial-blockchain-corridor-in-texas-and-georgia)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/amplitech-and-northeastern-university-achieve-first-open-source/202628695)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/338357-jp3e-holdings-se-asocia-con-tburn-chain-foundation-para-lanzar-un-corredor-industrial-blockchain-coreano-estadounidense-de-7500-millones-de-dolares-en-texas-y-georgia)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/amplitech-and-northeastern-university-achieve-first-open-source/202628695)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337918-jp3e-holdings-e-tburn-chain-lancam-corredor-industrial-coreano-americano-de-blockchain-de-us-75-bilhoes-em-atlanta-e-dallas)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/397051-amplitech-and-northeastern-university-achieve-first-open-source-massive-mimo-o-ran-system-with-category-b-fronthaul)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/jp3e-holdings-and-tburn-chain-launch-75-billion-korean-us-indust/202628673)
+Pickup - [https://news.bostondailytribune.com/curated](https://news.bostondailytribune.com/curated/202602/397061-open-source-massive-mimo-o-ran-system-achieves-category-b-operation-in-laboratory-demonstration)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/396915-jp3e-holdings-and-tburn-chain-launch-75b-korean-us-industrial-blockchain-corridor-in-atlanta-and-dallas)
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202602/397062-open-source-massive-mimo-o-ran-system-achieves-category-b-operation-in-laboratory-demonstration)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/397063-open-source-massive-mimo-o-ran-system-achieves-category-b-operation-in-laboratory-demonstration)
+
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202602/397064-open-source-massive-mimo-o-ran-system-achieves-category-b-operation-in-laboratory-demonstration)
+
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202602/397065-amplitech-and-northeastern-university-demonstrate-first-open-source-massive-mimo-o-ran-system)
+
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202602/397066-open-source-massive-mimo-o-ran-system-successfully-demonstrated-in-new-york-metro-area)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/25/dashEmAE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/25/jazzCHNe.webp)
