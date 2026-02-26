@@ -1,91 +1,50 @@
-# College Students Nationwide Received Lifesaving Education on Sudden Cardiac Death
+# Beeline Holdings (BLNE) Advances Blockchain-Enabled Closings as Mortgage Rates Dip Below 6%
 
-DALLAS - February 25, 2026 (NEWMEDIAWIRE) - Hypertrophic cardiomyopathy (HCM) is the leading cause of sudden cardiac death (SCD) in young athletes, according to the American Heart Association, and too often it goes undetected. To help address this challenge, the Association has expanded its heart health education and Hands-Only CPR training efforts through a multi-year national campaign focused on students and families at Historically Black Colleges and Universities (HBCUs) and Hispanic-Serving Institutions (HSIs) nationwide. The initiative also amplified education each year around HCM Awareness Day, observed on the final Wednesday of February. The three-year campaign concluded today on the 2026 HCM Awareness Day.
+LOS ANGELES, CA - February 25, 2026 (NEWMEDIAWIRE) - Beeline (NASDAQ: BLNE) is capitalizing on easing mortgage conditions as the average top-tier 30-year fixed rate fell to 5.99% on Feb. 23, 2026, according to Mortgage News Daily and reporting by Matthew Graham, marking a return to levels last seen briefly in early January. As rates trend lower, BeelineEquity’s CEO noted that the company is actively closing transactions leveraging blockchain technology through Beeline Holdings, Inc., reinforcing its commitment to modernizing mortgage execution. A technology-forward mortgage and title platform, Beeline operates through wholly owned subsidiary Beeline Loans Inc., delivering AI-powered, end-to-end digital lending solutions for primary homebuyers and real estate investors. Since its October 2024 merger with Eastside Distilling, the company has advanced a fully digitized mortgage ecosystem anchored by tools such as AI chatbot Bob and its proprietary Hive production engine, enabling 14-21-day closings - less than half the industry average - while maintaining a Net Promoter Score above 80. Having surpassed $1 billion in cumulative originations and quarterly double digit revenue growth despite industry headwinds. Beeline continues scaling its friction-reducing, automation-driven platform nationwide from its Providence, Rhode Island headquarters.
 
- According to the American Heart Association, the world’s leading nonprofit organization focused on changing the future of health for all, sudden cardiac death disproportionately affects Black athletes and is more frequently linked to competitive sports that involve sudden movements, like football or basketball. There is an estimated 1 in 500 people living with HCM, although a substantial percentage of those cases remain undiagnosed. Displaying the need for intentional heart health education.
+ About Beeline Financial Holdings Inc.
 
- Because HCM can trigger sudden cardiac arrest without warning, especially during physical activity, knowing how to respond in the first moments of an emergency can mean the difference between life and death. Throughout the campaign, HCM education was intentionally paired with Hands-Only CPR training to reinforce readiness for sudden cardiac emergencies. Hundreds of students, athletes, and community members received hands-on CPR demonstrations, advancing the Association’s Nation of Lifesavers™ movement and helping equip young people with skills that can double or triple survival rates when cardiac arrest occurs.
+ Beeline Financial Holdings, Inc. is a trailblazing mortgage fintech transforming the way people access property financing. Through its fully digital, AI-powered platform, Beeline delivers a faster, smarter path to home loans - whether for primary residences or investment properties. Headquartered in Providence, Rhode Island, Beeline is reshaping mortgage origination with speed, simplicity, and transparency at its core. The company is a wholly owned subsidiary of Beeline Holdings, Inc. and also operates Beeline Labs, its innovation arm focused on next-generation lending solutions.
 
- At the core of the campaign was a public service announcement (PSA) strategy, which featured English and Spanish-language radio PSAs and on-campus CPR demonstrations. The messages reinforced the importance of family heart history, early detection, and CPR education, particularly for student-athletes and their families.
+ For more, visit www.makeabeeline.com
 
- To extend reach and credibility, the Association also collaborated with Black and multicultural media platforms. A national content integration curated by Sybil Wilkes’ “Check In & Check Up” with the State of Black Health: Public Health and Media Symposium at the National Press Club in Washington D.C; across the Black America Web platform, reaching more than one million monthly unique visitors. Additional national content releases tied to HCM Awareness Day and CPR Awareness Week (held June 1-7) resulted in thousands of placements and hundreds of millions of impressions.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- “When students, coaches and families understand both the risks of hypertrophic cardiomyopathy and how to respond immediately to sudden cardiac arrest, we create an environment where prevention and preparedness go hand in hand,” said Matthew Martinez, M.D., FAHA, FACC, an American Heart Association volunteer medical expert and a co-author of the 2024 American Heart Association/American College of Cardiology Guideline for the Management of Hypertrophic Cardiomyopathy.
+ Forward Looking Statements
 
- “By pairing evidence-based HCM education with Hands-Only CPR training, this campaign transforms awareness into lifesaving action,” said Martinez, who is an associate professor of medicine, the director of Sports Cardiology and the director of the Hypertrophic Cardiomyopathy Program at Atlantic Health Morristown Medical Center in Morristown, New Jersey. “Culturally responsive, campus-centered outreach, particularly across HBCU and HSI athletic communities, ensures that young athletes are not only informed about their heart health but also feel confident and prepared to step in and help save a life.”
-
- The campaign also came to life on campuses and at major athletic and leadership convenings across the country. Through interactive HCM education, Hands-Only CPR demonstrations and culturally relevant messaging, the Association engaged student- athletes and families at HBCU homecomings and rivalry games at Hampton University, Norfolk State University, Howard University and Xavier University of Louisiana and the Mid-Eastern Athletic Conference Basketball Tournament. Additional education took place at conferences such as the United Negro College Fund Leadership Conference; and the Hispanic Educational Technology Services Student Experience Summit & Showcase in Puerto Rico, which reached students from Hispanic-Serving Institutions and high schools across the island.
-
- The Heart Association strengthened relationships with athletic conferences, university leaders and student organizations while expanding its Heart Club, the Association’s student-led campus organization, to empower students as ongoing heart health ambassadors on their campuses. The HCM campaign demonstrated how sustained, culturally relevant engagement aligned with awareness moments and trusted partners can drive national impact. By centering communities disproportionately affected by sudden cardiac death and cardiovascular disease, the American Heart Association continues to advance health equity while helping save lives through education and action.
-
- The American Heart Association’s HCM awareness and education in athletes was made possible in part by a financial grant from the Bristol Myers Squibb Foundation.
-
- Additional Resources:
-
- * Spanish News Release (Coming Soon)
-* What Is HCM?
-* HCM In Young Adults and Student Athletes
-* Bystander CPR | Bystander CPR Infographic (PDF)
-* Hands-Only CPR Resources
-* Hands-Only CPR vs CPR with Breaths
-* Women and CPR
-* Cardiac Arrest vs. Heart Attack
-* Reducing Disparities for Out-of-Hospital Cardiac Arrest – Community Toolkit: English and Spanish versions available
-* Take 90 seconds to learn how to save a life at www.heart.org/HandsOnlyCPR.
-
- For more information about hypertrophic cardiomyopathy and resources for students, athletes and families, visit heart.org/HCMStudentAthlete.
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Devin T. Jones: Devin.Jones@Heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/college-students-nationwide-received-lifesaving-education-on-sudden-cardiac-death-7085569)
+[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-advances-blockchain-enabled-closings-as-mortgage-rates-dip-below-6-7085576)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heart-association-s-3-year-campaign-saves-young-athletes-from-sudden-cardiac-death/950d0e4ccc6d40c90814b5a89610a9e6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-capitalizes-on-lower-mortgage-rates-with-ai-powered-digital-platform/d188f9304d1fc8a4a96dfb34cda55167) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-concludes-three-year-campaign-address/202628678)
+Pickup - [https://advos.io/en](https://advos.io/en/beeline-holdings-leverages-blockchain-technology-as-mortgage-rat/202628702)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/396926-american-heart-association-concludes-three-year-campaign-addressing-sudden-cardiac-death-in-student-athletes)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/397133-beeline-holdings-leverages-blockchain-technology-as-mortgage-rates-fall-below-6)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337975-american-heart-association-schliesst-dreijahrige-kampagne-zur-bekampfung-des-plotzlichen-herztods-bei-schulerathleten-ab)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/337984-beeline-holdings-nutzt-blockchain-technologie-wahrend-hypothekenzinsen-unter-6-fallen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338355-la-asociacion-americana-del-corazon-concluye-campana-de-tres-anos-para-abordar-la-muerte-cardiaca-subita-en-estudiantes-atletas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338368-beeline-holdings-aprovecha-la-tecnologia-blockchain-mientras-las-tasas-hipotecarias-caen-por-debajo-del-6)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339081-lamerican-heart-association-conclut-une-campagne-de-trois-ans-sur-la-mort-subite-cardiaque-chez-les-etudiants-athletes)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339091-beeline-holdings-exploite-la-technologie-blockchain-alors-que-les-taux-hypothecaires-tombent-sous-les-6-)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337920-associacao-americana-do-coracao-conclui-campanha-de-tres-anos-para-combater-morte-subita-cardiaca-em-atletas-estudantis)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/337929-beeline-holdings-aproveita-tecnologia-blockchain-com-taxas-hipotecarias-abaixo-de-6)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/american-heart-association-concludes-three-year-campaign-address/202628678)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/beeline-holdings-leverages-blockchain-technology-as-mortgage-rat/202628702)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-heart-association-concludes-three-year-campaign-address/202628678)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beeline-holdings-leverages-blockchain-technology-as-mortgage-rat/202628702)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/396941-american-heart-association-concludes-three-year-hcm-awareness-campaign-targeting-hbcus-and-hsis)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/397143-beeline-holdings-leverages-blockchain-technology-as-mortgage-rates-fall-below-6)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202602/396963-american-heart-association-concludes-national-campaign-targeting-hcm-awareness-at-hbcus-and-hispanic-serving-institutions)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202602/338359-la-asociacion-americana-del-corazon-concluye-campana-nacional-de-concientizacion-sobre-la-miocardiopatia-hipertrofica-en-hbcu-e-instituciones-al-servicio-de-la-comunidad-hispana)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202602/396965-american-heart-association-concludes-national-campaign-addressing-hypertrophic-cardiomyopathy-in-young-athletes)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202602/396967-american-heart-association-concludes-national-hcm-awareness-campaign-targeting-hbcus-and-hsis)
+Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202602/397255-beeline-holdings-leverages-lower-mortgage-rates-with-blockchain-enhanced-digital-platform)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/25/filo6Yqm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/262/25/clubADcZ.webp)
