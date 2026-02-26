@@ -1,60 +1,64 @@
-# MiningNewsBreaks – Nicola Mining Inc. (TSX.V: NIM) (FSE: HLIA) (OTCQB: HUSIF) Reports Increased High-Grade Throughput at Merritt Mill From Blue Lagoon Partnership
+# AINewsBreaks – Knightscope, Inc. (NASDAQ: KSCP) Surpasses $2 Million in New Sales and Renewals
 
-This article has been disseminated on behalf of Nicola Mining Inc. and may include paid advertising.
+Knightscope (NASDAQ: KSCP) announced it has exceeded $2 million in new sales and client renewals, driven by continued demand for its Emergency Communication Devices and Autonomous Security Robots. The company reported 119 new ECD sales across sectors including healthcare, higher education, hospitality and local government, along with maintenance renewals for hundreds of deployed units, supporting recurring revenue growth. Knightscope also recorded 20 new Autonomous Security Robot sales and 21 renewals, including multiple long-term client extensions spanning health systems and a Fortune 500 entertainment company, reinforcing the traction of its Machine-as-a-Service model and expanding its footprint in autonomous physical security.
 
- Nicola Mining (TSX.V: NIM) (FSE: HLIA) (OTCQB: HUSIF) reported a material increase in throughput of high-grade gold and silver mill feed sourced from its partnership with Blue Lagoon Resources (CSE: BLLG) at the Dome Mountain Gold Project. The company has transitioned its fully permitted Merritt Mill to a flotation-only recovery circuit to better process sulphide-hosted mineralization, enhance metallurgical recoveries and improve concentrate grades, with high-grade gold-silver flotation concentrate sold to Ocean Partners UK Limited. Nicola also announced continued underground development at Dome Mountain, equipment procurement for planned bulk sample extraction at its Dominion Gold Project beginning July 2026 and reiterated its objective to pursue a planned first-quarter 2026 NASDAQ uplisting.
+ To view the full press release, visit https://ibn.fm/RJQr9
 
- To view the full press release, visit https://ibn.fm/f9oH4
+ About Knightscope
 
- About Nicola Mining
+ Knightscope is a security technology company building the Nation’s first Autonomous Security Force. The Company combines autonomous machines, advanced software, and human expertise to help protect people, property, and critical infrastructure. Knightscope’s long-term mission is to make the United States of America the safest country in the world. Learn more about us at www.knightscope.com
 
- Nicola Mining Inc. is a junior mining company listed on the Exchange and Frankfurt Exchange that maintains a 100% owned mill and tailings facility, located near Merritt, British Columbia. It has signed Mining and Milling Profit Share Agreements with high grade gold projects. Nicola’s fully permitted mill can process both gold and silver mill feed via gravity and flotation processes.
+ NOTE TO INVESTORS: The latest news and updates relating to KSCP are available in the company’s newsroom at https://ibn.fm/KSCP
 
- The Company owns 100% of the New Craigmont Project, a high-grade copper property, which covers an area of 10,913 hectares along the southern end of the Guichon Batholith and is adjacent to Highland Valley Copper, Canada’s largest copper mine. The Company also owns 100% of the Treasure Mountain Property, which includes 30 mineral claims and a mineral lease, spanning an area exceeding 2,200 hectares.
+ About AINewsWire
 
- NOTE TO INVESTORS: The latest news and updates relating to HUSIF are available in the company’s newsroom at https://ibn.fm/HUSIF
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- About MiningNewsWire
+ AINW is where breaking news, insightful content and actionable information converge.
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- MNW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit www.AINewsWire.com
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- For more information, please visit https://www.MiningNewsWire.com
+ AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
 
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
-
- MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
-
- MiningNewsWire is powered by IBN 
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-nicola-mining-inc-tsx-v-nim-fse-hlia-otcqb-husif-reports-increased-high-grade-throughput-at-merritt-mill-from-blue-lagoon-partnership/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-knightscope-inc-nasdaq-kscp-surpasses-2-million-in-new-sales-and-renewals/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nicola-mining-boosts-gold-silver-throughput-eyes-nasdaq-uplisting/33ff459696f005f301cc56ff7e727f42) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/knightscope-surpasses-2m-in-sales-with-security-robots-and-emergency-devices/d8110a032762e2132e44c86d8c7c9866) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/nicola-mining-reports-increased-high-grade-throughput-at-merritt/202628742)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/399912-knightscope-reports-over-2-million-in-new-sales-and-renewals-driven-by-autonomous-security-demand)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202602/399548-nicola-mining-reports-increased-high-grade-throughput-at-merritt-mill-through-blue-lagoon-partnership)
+Pickup - [https://advos.io/en](https://advos.io/en/knightscope-surpasses-2-million-in-security-technology-sales-and/202628751)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/338183-nicola-mining-meldet-gesteigerte-durchsatzraten-von-hochgradigem-erz-in-der-merritt-muhle-durch-partnerschaft-mit-blue-lagoon)
+Pickup - [https://burstable.news](https://burstable.news/news/202602/399948-knightscope-reports-over-2-million-in-new-sales-and-renewals-for-security-technology)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338578-nicola-mining-reporta-un-aumento-en-el-procesamiento-de-alto-grado-en-la-planta-merritt-gracias-a-la-asociacion-con-blue-lagoon)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/338191-knightscope-meldet-uber-2-millionen-us-dollar-an-neuen-verkaufen-und-verlangerungen-fur-sicherheitstechnologie)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339312-nicola-mining-annonce-une-augmentation-du-debit-de-minerai-a-haute-teneur-a-lusine-de-merritt-grace-au-partenariat-avec-blue-lagoon)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338589-knightscope-reporta-mas-de-2-millones-de-dolares-en-nuevas-ventas-y-renovaciones-para-su-tecnologia-de-seguridad)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/nicola-mining-reports-increased-high-grade-throughput-at-merritt/202628742)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339324-knightscope-annonce-plus-de-2-millions-de-dollars-de-nouvelles-ventes-et-renouvellements-pour-sa-technologie-de-securite)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nicola-mining-reports-increased-high-grade-throughput-at-merritt/202628742)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/338134-knightscope-reporta-mais-de-us-2-milhoes-em-novas-vendas-e-renovacoes-para-tecnologia-de-seguranca)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/399967-knightscope-surpasses-2-million-in-security-technology-sales-and-renewals)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/knightscope-reports-over-2-million-in-security-technology-sales/202628751)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/knightscope-reports-over-2-million-in-new-sales-and-renewals-for/202628751)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/399958-knightscope-exceeds-2-million-in-new-sales-and-renewals-as-demand-for-autonomous-security-solutions-grows)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/26/quitMvPo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/26/eachSuIo.webp)

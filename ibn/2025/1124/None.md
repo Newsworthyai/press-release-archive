@@ -1,52 +1,44 @@
-# InvestorNewsBreaks – Wearable Devices Ltd. (NASDAQ: WLDS) Launches Technical Roadshow in China With Leading Smart-Glasses Manufacturers
+# TechMediaBreaks – Safe Pro Group Inc. (NASDAQ: SPAI) To Meet Investors at Upcoming Virtual Conferences
 
-Wearable Devices (NASDAQ: WLDS), a technology growth company developing AI-powered touchless sensing wearables, said senior management is conducting a technical roadshow this week across Shenzhen, Shanghai and Beijing in response to increased inbound requests from top-tier Chinese consumer-electronics manufacturers. These companies, described as global leaders in smart glasses, are seeking closed-door technical sessions to evaluate integrating the Mudra neural band interface as a hands-free intent-to-action input layer for next-generation AI eyewear. Wearable Devices said industry momentum is shifting toward neural-band-driven interaction models, strengthening the Company’s position as a preferred technology partner for future AR and AI wearable products.
+Safe Pro Group (NASDAQ: SPAI), a developer of AI-enabled defense and security solutions, said it will participate in institutional investor meetings at two upcoming virtual conferences, where management will hold one-on-one sessions with portfolio managers and analysts. The Company will update investors on its AI-powered computer vision platform, scaling drone-based aerial services, and progress across its ballistic protection portfolio as it targets growth in defense, humanitarian, commercial and public safety markets. Meetings will be held at the Northland Capital Markets Growth Conference on Dec. 16, 2025, and the 28th Annual Needham Growth Conference on Jan. 15–16, 2026.
 
- To view the full press release, visit https://ibn.fm/qTalO
+ To view the full press release, visit https://ibn.fm/cACkZ
 
- About Wearable Devices
+ About Safe Pro Group Inc.
 
- Wearable Devices Ltd. (Nasdaq: WLDS, WLDSW) is a growth company pioneering human-computer interaction through its AI-powered neural input touchless technology. Leveraging proprietary sensors, software, and advanced AI algorithms, the Company’s consumer products – the Mudra Band and Mudra Link – are defining the neural input category both for wrist-worn devices and for brain-computer interfaces. These products enable touch-free, intuitive control of digital devices using gestures across multiple operating systems.
+ Safe Pro Group Inc. is a mission-driven technology company delivering AI-enabled security and defense solutions. Through cutting-edge platforms like SPOTD, Safe Pro provides advanced situational awareness tools for defense, humanitarian, and homeland security applications globally. It is a leading provider of artificial intelligence (AI) solutions specializing in drone imagery processing leveraging commercially available “off-the-shelf” drones with its proprietary machine learning and computer vision technology to enable rapid identification of explosives threats, providing a much safer and more efficient alternative to traditional human-based analysis methods. Built on a cloud-based ecosystem and powered by Amazon Web Services (AWS), Safe Pro Group’s scalable platform is targeting multiple markets that include commercial, government, law enforcement and humanitarian sectors where its Safe Pro AI software, Safe-Pro USA protective gear and Airborne Response drone-based services can work in synergy to deliver safety and operational efficiency.
 
- Operating through a dual-channel model of direct-to-consumer sales and enterprise licensing and collaborations, Wearable Devices empowers consumers with stylish, functional wearables for enhanced experiences in gaming, productivity, and XR. In the business sector, the Company provides enterprise partners with advanced input solutions for immersive and interactive environments, from augmented reality/virtual reality/XR to smart environments.
+ NOTE TO INVESTORS: The latest news and updates relating to SPAI are available in the company’s newsroom at http://ibn.fm/SPAI
 
- By setting the standard for neural input in the XR ecosystem, Wearable Devices is shaping the future of seamless, natural user experiences across some of the world’s fastest-growing tech markets. Wearable Devices’ ordinary shares and warrants trade on the Nasdaq Capital Market under the symbols “WLDS” and “WLDSW,” respectively.
+ About TechMediaWire
 
- NOTE TO INVESTORS: The latest news and updates relating to WLDS are available in the company’s newsroom at https://ibn.fm/WLDS
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- About InvestorWire
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.TechMediaWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-wearable-devices-ltd-nasdaq-wlds-launches-technical-roadshow-in-china-with-leading-smart-glasses-manufacturers/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-safe-pro-group-inc-nasdaq-spai-to-meet-investors-at-upcoming-virtual-conferences/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wearable-devices-expands-in-china-with-neural-band-tech-for-ai-eyewear/7ac8154c1ce83dce5c40b1a158967219) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safe-pro-group-to-showcase-ai-security-tech-at-key-investor-conferences/0e623d16292c204cf41ce2d321c1cf77) 
 
 
-Pickup - [https://faqstaq.news](https://faqstaq.news/news/202512/315496-faq-wearable-devices-ltd-s-technical-roadshow-in-china-and-neural-band-technology)
+Pickup - [https://faqstaq.news](https://faqstaq.news/news/202511/308535-faq-safe-pro-groups-participation-in-virtual-investor-conferences-and-ai-defense-solutions)
 
-Pickup - [https://news.trinzik.com/frontier-tech-news](https://news.trinzik.com/frontier-tech-news/202512/315484-wearable-devices-conducts-technical-roadshow-in-china-for-ai-powered-neural-interface-technology)
-
-Pickup - [https://advos.io/en](https://advos.io/en/wearable-devices-engages-chinese-smart-glasses-leaders-in-techni/202524912)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202512/315642-wearable-devices-ltd-engages-chinese-smart-glass-leaders-in-technical-roadshow-for-neural-interface-integration)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/wearable-devices-launches-china-technical-roadshow-for-ai-powere/202524912)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202511/311464-safe-pro-group-to-present-ai-defense-solutions-at-investor-conferences)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2512/2/pintGdvv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2511/25/gainWCjv.webp)

@@ -1,40 +1,42 @@
-# 420 with CNW — New Study Design Could Provide Workaround to Existing Research Hurdles
+# Novel Yeast Cell Platform Promises to Expedite the Development of Immunotherapies
 
-A pilot study conducted in Minnesota is pointing to a possible new way for scientists to study medical marijuana without becoming entangled in federal regulatory hurdles that have long limited clinical research in this area.
+Researchers have developed a technological platform that leverages yeast cells to test and understand new cancer treatments under development. The use of this platform promises to significantly reduce the costs and time needed in the drug development process.
 
- As more such studies are conducted and they provide additional scientific data on the benefits of using medical marijuana products, more patients could gain confidence in trying products from licensed companies like TerrAscend Corp. (TSX: TSND) (OTCQX: TSNDF) to help in symptom…
+ The use of immunotherapy to treat cancers is enjoying plenty of scientific attention, with many companies like Calidi Biotherapeutics Inc. (NYSE American: CLDI) exploring cutting-edge approaches…
 
  Read More>>
 
- About CNW420
+ About BioMedWire
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ BMW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.CannabisNewsWire.com
+ To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ For more information, please visit https://www.BioMedWire.com
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
 
- CannabisNewsWire is powered by IBN 
+ BioMedWireSan Francisco, CAwww.BioMedWire.com415.949.5050 OfficeEditor@BioMedWire.com
+
+ BioMedWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-new-study-design-could-provide-workaround-to-existing-research-hurdles/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/novel-yeast-cell-platform-promises-to-expedite-the-development-of-immunotherapies/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-design-offers-breakthrough-in-medical-cannabis-research/fb4cb9b9dbc46f086c22b27e8822acae) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yeast-cell-platform-accelerates-cancer-immunotherapy-development/2ea805749e034d8146504e488c4e3ed1) 
 
 
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202602/386944-minnesota-pilot-study-offers-new-pathway-for-medical-cannabis-research-amid-federal-hurdles)
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/2ea805749e034d8146504e488c4e3ed1)
 
-Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/fb4cb9b9dbc46f086c22b27e8822acae)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/2ea805749e034d8146504e488c4e3ed1)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/5/airyXVTu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/5/yawnpsIb.webp)
