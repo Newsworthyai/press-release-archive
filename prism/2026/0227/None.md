@@ -1,26 +1,72 @@
-# Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Provides Update on Washington State Legal Matters
+# Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Provides Patent Portfolio Update; 20 Texatron™ “Clam-Shell” Applications Filed; Significant Portfolio Expansion Planned for 2026
 
-Southlake, Texas, February 26, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Renewal Fuels, Inc. (OTC: RNWF) (“RNWF”, “American Fusion” or the “Company”), provides the following update regarding its pending civil action in King County Superior Court (Case No. 25-2-32689-6).
+Advancing Texatron™ Reactor Engineering Through Strategic Intellectual Property Expansion
 
- On February 26, 2026, the Court entered an order dismissing all claims against Justin Costello pursuant to Civil Rule 41. Because Mr. Costello is no longer a party to the action, the Court struck his Emergency Motion for Stay of All Proceedings.
+ 
 
- The Court separately entered an order striking the Company’s Motion for Entry of Default Judgment against the remaining corporate defendants on procedural grounds related solely to citation formatting requirements under Civil Rule 7 and King County Local Civil Rules.
+ * Expanding the Texatron™ Patent Portfolio for Commercial Deployment
+* Positioning for Long-Term Shareholder Value Through IP Expansion
+* Engineering a Commercial-Ready Aneutronic Fusion Framework
 
- Importantly:
+ 
 
- • Defaults entered against the corporate defendants remain in place.
+ Southlake, Texas, February 27, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Renewal Fuels, Inc. (OTC: RNWF) (“RNWF”, “American Fusion” or the “Company”), today provided a comprehensive intellectual property (IP) update regarding its Texatron™ fusion platform and proprietary “clam-shell” reactor architecture.
 
- • The Court did not question service, default, rescission, or the evidentiary record.
+ 
 
- • The ruling was procedural and did not address the merits of the Company’s claims.
+ 
 
- The underlying action seeks rescission of two 2021 asset purchase agreements and cancellation of approximately 1,683,000,000 shares issued in connection with those transactions for which the Company contends no consideration was received.
+ As of the date of this release, the Company has filed 20 patent applications with the United States Patent and Trademark Office (USPTO) covering core structural, confinement, and electromagnetic design elements of the Texatron™ system.
 
- The Company is in the process of refiling a corrected motion that complies with the Court’s procedural directives. The Company believes this to be last remaing material item outstanding to effect the Corporate action with FINRA for the Name Change and Voluntry Symbol Change.
+ Of the 20 applications filed, one application is currently in active prosecution with a USPTO Examiner, three priority applications are expected to begin examination with an Examiner in mid-2026 subject to USPTO and the remaining filings are progressing through the USPTO review process.
 
- Management is aware of commentary circulating online and emphasizes that the Court’s orders do not constitute a ruling against the Company on the substance of its claims.
+ The Company is currently developing approximately 240 additional patent applications in coordination with Chief Technology Officer Dr. John Brandenburg. These applications reflect ongoing engineering and architectural refinements and are expected to be filed in phases as development progresses and, if filed as contemplated, would result in a combined intellectual property portfolio of approximately 260 patent applications spanning core reactor architecture, fuel cycle optimization, system integration, and related technologies.
 
- The Company remains committed to resolving the disputed share issuances through the judicial process.
+ Intellectual Property as Strategic Foundation
+
+ The Company’s patent strategy is designed to establish layered protections across core reactor architecture, fuel cycle optimization, and integrated system design elements supporting the Texatron™ platform. Management indicated that filings are being sequenced to align with ongoing engineering refinements and long-term commercialization objectives.
+
+ Michael Smith, CLO of the Company, stated: “Our intellectual property strategy is being structured deliberately and in phases. We are prioritizing core architectural protections while building a portfolio intended to support regulatory positioning, commercial deployment, and long-term defensibility. Coordinating closely with technical leadership ensures that each filing aligns with the platform’s development roadmap.”
+
+ Texatron™: A Transformative Aneutronic Fusion Architecture
+
+ The Texatron™ platform is engineered around an aneutronic fusion pathway utilizing Helium-3 and Deuterium, significantly reducing neutron radiation compared to traditional deuterium-tritium fusion concepts. The system’s compact, modular “clam-shell” design incorporates a hollow toroidal chamber with a rifled interior surface intended to optimize electromagnetic confinement and fuel dynamics.
+
+ Key differentiators of the Texatron™ include:
+
+ * Aneutronic fuel mixture (Helium-3 and Deuterium)
+* Compact modular architecture suitable for distributed deployment
+* Innovative rifled toroidal interior geometry
+* Electromagnetic foil formation along interior ridges
+* Symmetrical and asymmetrical shell configurations
+* Direct energy concentration features
+
+ Management believes the Texatron™ platform is designed to support scalable, compact deployment objectives consistent with long-term clean energy development goals.
+
+ Filed Patent Applications
+
+ The 20 patent applications filed to date include:
+
+ 1. 18/354,637 – Systems, Methods and Apparatus of an Experimental Nuclear Fusion Reactor having a Hollow Toroidal Interior Chamber with a Rifled Interior Surface
+2. 19/456,407 – Systems, Methods and Apparatus… with Electromagnetic Foil Along a Ridge
+3. 19/457,819 – Systems, Methods and Apparatus… with Electromagnetic Foil Along a Ridge
+4. 19/464,602 – Experimental Fusion System Housing with Rifled Interior Surface Forming Electromagnetic Foil
+5. 19/464,616 – Experimental Fusion System Housing with Rifled Interior Surface Forming Electromagnetic Foil
+6. 19/466,407 – Fusion Confinement Device with Fuel Injector (Helium-3 and Deuterium) and Rifled Geometric Shape Acting as Electromagnetic Foil
+7. 19/466,409 – Fusion Confinement Device with Fuel Injector (Helium-3 and Deuterium) and Rifled Geometric Shape Acting as Electromagnetic Foil
+8. 19/529,098 – Hollow Toroidal Chamber with Coil Along Rifled Ridge
+9. 19/530,338 – Fusion Confinement Device with Rifled Geometric Shape and Mounted Coil
+10. 19/531,643 – Housing with Hollow Toroidal Interior Chamber and Coil Mounted to Rifled Ridge
+11. 19/532,688 – Symmetrical First and Second Half-Shell Forming Hollow Toroidal Interior Chamber
+12. 19/533,176 – Symmetric Half-Shell Fusion System with Fuel Injector (Helium-3/Deuterium Mixture)
+13. 19/533,254 – Symmetric Half-Shell Toroidal Chamber with Rifled Geometric Shape
+14. 19/534,730 – Asymmetric Shell Portions Forming Toroidal Interior Chamber
+15. 19/536,152 – Asymmetric Shell System with Fuel Injector (Helium-3/Deuterium Mixture)
+16. 19/537,143 – Asymmetric Shell Toroidal Chamber with Rifled Interior Surface
+17. 19/537,454 – Two-Shell System with Conductive Center Disk
+18. 19/537,769 – Two Half-Shell Fusion System with Conductive Round Center Piece and Fuel Injector
+19. 19/538,392 – Toroidal Chamber with Conductive Ring Between Shells
+20. 19/538,670 – Two-Shell Toroidal Chamber with Conductive Ring Center Piece
 
  For more information about Kepler Fusion Technologies and its Texatron™ platform, please visit: www.keplerfusion.com and americanfusionenergy.com
 
@@ -44,41 +90,19 @@ Southlake, Texas, February 26, 2026 – PRISM MediaWire (Press Release Service �
 
  
 
- The post Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Provides Update on Washington State Legal Matters first appeared on Prism Media Wire. 
+ The post Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Provides Patent Portfolio Update; 20 Texatron™ “Clam-Shell” Applications Filed; Significant Portfolio Expansion Planned for 2026 first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/renewal-fuels-inc-otc-rnwf-operating-as-american-fusion-provides-update-on-washington-state-legal-matters/)
+[Original/Source Press Release](https://prismmediawire.com/renewal-fuels-inc-otc-rnwf-operating-as-american-fusion-provides-patent-portfolio-update-20-texatron-clam-shell-applications-filed-significant-portfolio-expansion-p/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/renewal-fuels-advances-legal-battle-eyes-finra-approval-for-american-fusion-rebrand/e85bc6956e3a7eb0f97a700029f876b8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-files-20-patents-for-texatrontm-plans-240-more-for-clean-energy-breakthrough/ec6950bed033979fcab763a55965c72c) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/american-fusion-legal-proceeding-advances-as-court-dismisses-cla/202628770)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202602/400605-american-fusion-provides-update-on-washington-state-legal-proceedings)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202602/338210-american-fusion-gibt-aktualisierung-zu-gerichtsverfahren-im-bundesstaat-washington)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202602/338607-american-fusion-proporciona-actualizacion-sobre-los-procedimientos-legales-en-el-estado-de-washington)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202602/339342-american-fusion-fait-le-point-sur-les-procedures-judiciaires-dans-letat-de-washington)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202602/338152-american-fusion-atualiza-sobre-processos-legais-no-estado-de-washington)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/american-fusion-legal-proceedings-advance-as-court-dismisses-cla/202628770)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/renewal-fuels-provides-update-on-washington-state-legal-proceedi/202628770)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202602/400615-american-fusion-legal-proceedings-advance-as-court-dismisses-claims-against-former-executive)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202602/400659-renewal-fuels-secures-procedural-ruling-in-washington-litigation-while-maintaining-corporate-defaults)
-
-Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202602/400660-renewal-fuels-secures-procedural-ruling-in-washington-litigation-maintains-defaults-against-corporate-defendants)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/27/envyhh78.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/262/27/oxenM687.webp)
