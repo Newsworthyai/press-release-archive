@@ -1,38 +1,38 @@
-# Anthropic Claims Chinese AI Companies are “Distilling” Claude
+# 420 with CNW — Texas Grapples with Increasing Cases of Marijuana DUI
 
-Anthropic has accused three Chinese AI firms of misusing its Claude chatbot to strengthen their own systems, saying the activity violated its policies and highlights the need for tighter controls on advanced chip exports.
+As Texas lawmakers review how cannabis is regulated and enforced, safety advocates are drawing attention to what they describe as a mounting and often overlooked risk on the state’s roads: drivers impaired by marijuana. Texans for Safe & Drug Free Youth, a statewide prevention group, argues that limiting access to cannabis products remains the most reliable way to curb use and its consequences.
 
- The concerns expressed by Anthropic regarding unauthorized copying of AI solutions are likely to be of interest to other players in the tech space, such as GlobalTech Corp. (OTC: GLTK) since their own…
+ Stakeholders in the industry, such as Aurora Cannabis Inc. (NASDAQ: ACB) (TSX: ACB), look forward to a time when tools that…
 
  Read More>>
 
- About AINewsWire
+ About CNW420
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- AINW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit www.AINewsWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/anthropic-claims-chinese-ai-companies-are-distilling-claude/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-texas-grapples-with-increasing-cases-of-marijuana-dui/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/anthropic-accuses-chinese-ai-firms-of-misusing-claude-technology/b1dd99cadf270a2d0b69f5a74f03f1e1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-grapples-with-rising-marijuana-dui-cases-amid-regulatory-review/06ba9ae2ace70f319cd412b26bb8425b) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202602/400824-texas-safety-advocates-highlight-marijuana-impaired-driving-risks-amid-regulatory-review)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/27/envyPtEi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/27/pear0TF3.webp)
