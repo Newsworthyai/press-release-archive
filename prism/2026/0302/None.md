@@ -1,86 +1,96 @@
-# Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Announces Completion of Kepler Fusion Transaction and Advancement of Regulatory and Audit Milestones
+# AI Era Corp. (OTC: AERA) Appoints Ahmad Moradi as Chief Executive Officer to Advance Creator AI Ecosystem Globally
 
-Company Advances SEC Registration, PCAOB Audit Completion, and FINRA Name & Ticker Transition While Expanding Texatron™ Fusion Platform Patents
-
- 
-
- Key Highlights
-
- * Kepler acquisition officially closed; audit nearing completion.
-* Form 10 filing and EDGAR access in progress for SEC reporting.
-* Patent expansion and FINRA name/ticker transition advancing.
+Moradi to Scale UFilm.ai and Uflix.ai, Driving Global AI Streaming, NFT Monetization, and Next-Generation Creator Ecosystems
 
  
 
- Southlake, Texas, March 02, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Renewal Fuels, Inc. (OTC: RNWF) (“RNWF”, “American Fusion” or the “Company”), today announced that all closing conditions under its previously disclosed transaction with Kepler Fusion Technologies Inc. have been satisfied and the transaction is now formally closed.
+ MOUNT KISCO, N.Y., March 2, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – AI Era Corp. (OTC: AERA), a leading intellectual property (IP) firm specializing in Agentic AI-powered media and movie licensing, today announced the appointment of Ahmad Moradi as its new Chief Executive Officer. Moradi will lead the company in building a comprehensive creator AI ecosystem, leveraging technologies like UFilm.ai to empower filmmakers and content creators with seamless generation, licensing, and distribution—from concept to audience.
 
- The final contractual condition was completed with an effective date of February 27, 2026, establishing a definitive closing date for accounting purposes. This milestone provides clarity for purchase price accounting treatment and simplifies the Company’s year-end audit for fiscal year 2025, which is currently nearing completion.
+ Moradi, a seasoned visionary in the convergence of technology and media, transitions to this role to assist the company to enhance its global market presence. Moradi has served as Chairman and CEO of both public and private companies. This leadership appointment marks a definitive step in AERA’s evolution from an IP holding company into a global powerhouse of AI-driven content creation and distribution.
 
- Management indicated that formal completion of the transaction allows the Company to finalize acquisition accounting and related disclosures in coordination with its independent auditor, supporting continued progress toward full SEC reporting status.
+ The appointment comes at a pivotal moment as AERA accelerates the commercialization of its proprietary generative AI engines, UFilm.ai and its licensed flagship distribution platform Uflix.ai. Mr. Moradi will oversee the integration of these technologies into the newly launched projects such as AERA+, a revolutionary streaming ecosystem that offers “Always-On,” AI-curated content and Producer’s Room that connects producers with viewer in a pre-build virtual space in real-time.
 
- Separately, the Company confirmed that it refiled its Motion for Entry of Default Judgment in the pending Washington matter on February 27, 2026, with additional specificity as requested by the court. The Company will provide further updates as appropriate.
+ “Ahmad Moradi is a pioneer in the ‘Digital Media Room’ concept and understands the future of interactive broadcasting better than anyone in the industry. Having collaborated closely with Asia-Pacific Broadcasting Union (ABU) and the European Broadcasting Union (EBU), during our strategic inclusion in AI ERA, it became clear that Ahmad is the ideal leader to scale our Agentic AI assets. His expertise in AI-driven media streaming solutions will be instrumental as we transition into a high-growth phase of global distribution and monetization.”
 
- The Company continues to advance additional patent filings supporting the Texatron™ platform and remains focused on its regulatory initiatives, including preparation of its Form 10 registration statement under the Securities Exchange Act of 1934, which is substantially complete. The Company is in the process of obtaining required EDGAR access codes in order to file the Form 10 with the SEC and anticipates filing in the near term. The PCAOB audit for fiscal years 2024 and 2025 is nearing completion, with only a single substantive audit item outstanding prior to finalization. The Company is also progressing its corporate action with FINRA related to its transition to American Fusion and requests for multiple potential trading symbols, including preferences for AFTX, AMFN, or AFEI; pending completion of FINRA’s review and assignment process.
+ Chiyuan Deng, Chairman of AI Era Corp. As CEO, Mr. Moradi will focus on:
 
- For more information about Kepler Fusion Technologies and its Texatron™ platform, please visit: www.keplerfusion.com and americanfusionenergy.com
+ * Scaling the UFilm.ai Ecosystem: Utilizing AERA’s advanced generative AI to automate storyboard generation and video production, reducing traditional costs while maintaining studio-grade quality.
+* Expanding Global Distribution: Leveraging the licensed flagship platform Uflix.ai to deliver AI-generated short drama series and films directly to consumers.
+* Monetizing AI Assets: Bridging the gap between creation and consumption through the Film NFT Movie Marketplace (MMM) and AI Agent SaaS offerings.
 
- About Renewal Fuels, Inc. and American Fusion
+ “I am honored to lead AI Era Corp. at this transformative juncture The synergy between AERA’s generative engines and the distribution framework we built at AITV is unmatched. We are no longer just an IP firm; we are the architects of a new era where ‘AI Streaming’ is an intelligent, generative partner. My mission is to ensure that AERA remains at the forefront of this disruption, delivering value to our shareholders by redefining how the world creates and interacts with entertainment.”
 
- Renewal Fuels, Inc. (OTC: RNWF) is an advanced energy platform company focused on the development and commercialization of fusion energy technologies through its wholly owned subsidiary, Kepler Fusion Technologies. Following its previously announced merger with Kepler, the Company is operating under the American Fusion brand and has filed a corporate action with FINRA to change its legal name to American Fusion Inc. The Company’s strategy is centered on building a scalable, infrastructure-grade fusion energy platform supported by proprietary technology, disciplined intellectual property development, and long-term commercial deployment objectives.
+ Ahmad Moradi. About AI Era Corp. (OTC: AERA)
 
- About Kepler Fusion Technologies
+ AI Era Corp. is a New York-based intellectual property (IP) firm focused on the acquisition, development, and licensing of Agentic AI-powered creator media ecosystems. The Company owns the IP for UFilm.ai (Generative AI production), Uflix.ai (Distribution layer, the licensed flagship platform), and the NFT Movie Marketplace (MMM). AERA operates a physical movie theater and distribution hub in Mount Kisco, New York, providing a unique link between traditional cinema and next-gen AI technology.
 
- Kepler Fusion Technologies is an advanced energy technology company developing the Texatron™ aneutronic fusion platform. Kepler’s technology is designed to support modular, infrastructure-grade deployment for industrial, commercial, and grid-constrained applications. The Company’s development strategy emphasizes system-level engineering, disciplined intellectual property protection, and scalable architectures intended to support long-term commercial operation. Kepler Fusion Technologies operates as a wholly owned subsidiary of Renewal Fuels, Inc. (OTC: RNWF).
+ Visit: www.ufilm.ai | www.abcinemasny.com
 
  Forward-Looking Statements
 
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934, including statements regarding the Company’s plans, objectives, expectations, and intentions, such as statements relating to technology development and commercialization, patent filings, regulatory initiatives, SEC registration, audit completion, exchange uplisting, and future business operations. Words such as “anticipate,” “believe,” “expect,” “intend,” “may,” “plan,” “potential,” “should,” and “will” identify forward-looking statements. These statements are based on current expectations and involve risks and uncertainties that could cause actual results to differ materially, including risks related to technology development, intellectual property protection, regulatory approvals, capital availability, audit and SEC reporting timelines, exchange requirements, litigation matters, and general market and economic conditions. This release is provided for informational purposes only and does not constitute an offer to sell or a solicitation of an offer to buy any securities. The Company undertakes no obligation to update forward-looking statements except as required by law.
+ This press release contains “forward-looking statements” within the meaning of the Private Securities Litigation Reform Act of 1995. These statements relate to the Company’s management team changes, strategic transformation, and operational performance. Actual results may differ materially due to risks including business disruption, competitive uncertainties, and general economic conditions. The Company undertakes no obligation to update these statements after the date of this release.
 
- Source: Renewal Fuels, Inc.
+ Investor Relations Contact:
 
- The latest news and updates relating to $RNWF are available in the company’s newsroom at: https://tinyurl.com/rnwfnewsroom
+ Charles Tang
+
+ AI Era Corp. (OTC: AERA)
+
+ X: @ABIntlGroup
+
+ Email: ir@aieraco.com
+
+ Tel: (852) 2622 2891
+
+ Source: AI Era Corp.
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
  
 
- The post Renewal Fuels, Inc. (OTC: RNWF), Operating as American Fusion, Announces Completion of Kepler Fusion Transaction and Advancement of Regulatory and Audit Milestones first appeared on Prism Media Wire. 
+ The post AI Era Corp. (OTC: AERA) Appoints Ahmad Moradi as Chief Executive Officer to Advance Creator AI Ecosystem Globally first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/renewal-fuels-inc-otc-rnwf-operating-as-american-fusion-announces-completion-of-kepler-fusion-transaction-and-advancement-of-regulatory-and-audit-milestones/)
+[Original/Source Press Release](https://prismmediawire.com/ai-era-corp-otc-aera-appoints-ahmad-moradi-as-chief-executive-officer-to-advance-creator-ai-ecosystem-globally/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-closes-kepler-deal-advances-sec-filing-fusion-tech-patents/eb147abc02080ba16726f03565d13729) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-era-corp-taps-ahmad-moradi-as-ceo-to-lead-ai-streaming-revolution/5693d2fcc5d1eeb3b2a111bf41fa10e8) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/american-fusion-completes-kepler-acquisition-advances-sec-regist/202628882)
+Pickup - [https://advos.io/en](https://advos.io/en/ai-era-corp-appoints-new-ceo-to-lead-expansion-of-ai-powered-cre/202628894)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/401888-american-fusion-completes-kepler-acquisition-and-advances-regulatory-milestones-toward-sec-reporting)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402044-ai-era-corp-appoints-ahmad-moradi-as-ceo-to-lead-expansion-of-ai-creator-ecosystem)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338322-american-fusion-schliesst-kepler-ubernahme-ab-und-erreicht-regulatorische-meilensteine-auf-dem-weg-zur-sec-berichterstattung)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338333-ai-era-corp-ernennt-ahmad-moradi-zum-ceo-um-die-expansion-des-ki-ersteller-okosystems-zu-leiten)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338729-american-fusion-finaliza-la-adquisicion-de-kepler-y-avanza-en-hitos-regulatorios-hacia-la-presentacion-de-informes-ante-la-sec)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338742-ai-era-corp-nombra-a-ahmad-moradi-como-ceo-para-dirigir-la-expansion-del-ecosistema-de-creadores-de-ia)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339455-american-fusion-finalise-lacquisition-de-kepler-et-progresse-dans-les-etapes-reglementaires-vers-la-declaration-a-la-sec)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339468-ai-era-corp-nomme-ahmad-moradi-au-poste-de-pdg-pour-piloter-lexpansion-de-lecosysteme-de-creation-par-ia)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338264-american-fusion-conclui-aquisicao-da-kepler-e-avanca-em-marcos-regulatorios-rumo-ao-relatorio-na-sec)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ai-era-corp-appoints-new-ceo-to-lead-expansion-of-ai-powered-cre/202628894)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/american-fusion-completes-kepler-acquisition-advances-toward-sec/202628882)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ai-era-corp-appoints-new-ceo-to-lead-expansion-of-ai-powered-cre/202628894)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-fusion-completes-kepler-acquisition-and-advances-toward/202628882)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402054-ai-era-corp-names-ahmad-moradi-ceo-to-lead-expansion-of-ai-creator-ecosystem)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/401908-american-fusion-completes-kepler-acquisition-and-advances-toward-sec-registration)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/402037-ai-era-corp-appoints-ahmad-moradi-as-ceo-to-scale-ai-streaming-and-creator-ecosystems)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/401924-american-fusion-completes-kepler-acquisition-advances-toward-sec-reporting-status)
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202603/402058-ai-era-corp-appoints-new-ceo-to-lead-strategic-shift-toward-ai-driven-content-creation-and-distribution)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/338731-american-fusion-finaliza-la-adquisicion-de-kepler-y-avanza-hacia-el-estatus-de-informacion-ante-la-sec)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338275-ai-era-corp-nomeia-ahmad-moradi-como-ceo-para-liderar-expansao-do-ecossistema-de-criadores-de-ia)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/401925-american-fusion-completes-kepler-acquisition-and-advances-toward-sec-reporting-status)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/402059-ai-era-corp-appoints-new-ceo-to-lead-strategic-shift-toward-ai-driven-content-creation-and-distribution)
+
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202603/402062-ai-era-corp-appoints-new-ceo-to-lead-strategic-shift-toward-ai-driven-content-creation-and-distribution)
+
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202603/402063-ai-era-corp-appoints-new-ceo-to-lead-strategic-shift-toward-ai-driven-content-creation-and-distribution)
+
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202603/402064-ai-era-corp-appoints-new-ceo-to-lead-strategic-shift-from-ip-firm-to-global-ai-content-operator)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/2/eller4Om.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/2/roamiMdT.webp)

@@ -1,58 +1,48 @@
-# Upside Gold Advances Diamond Drilling Program for the Kena Gold-Copper Property
+# Scandium Canada Secures Federal Government Support of Up to $6.9m for Its Crater Lake Project
 
-CALGARY, AB - March 2, 2026 (NEWMEDIAWIRE) - Upside Gold Corp. (CSE : UG) ("Upside Gold" or the "Company") is pleased to release a preliminary report on its initial diamond drilling program for its 10,115 hectares Kena Gold-Copper Property (“Kena” or “Property”) in southeastern British Columbia, including results from the Company’s drill core assays completed in the fall of 2025.
+Scandium Canada is proud to advance Canada's leadership in critical minerals on the world stage with North America’s largest primary source of scandium and proprietary aluminum-scandium (Al-Sc) alloys
 
- Highlight
+ MONTREAL, QUEBEC - March 2, 2026 (NEWMEDIAWIRE) - Scandium Canada Ltd. (TSX-V: SCD) (the “Company”) is pleased to announce that it has signed a non-refundable contribution agreement of up to $6,915,478 under Natural Resources Canada’s Global Partnerships Initiative ("GPI") for the Company's Crater Lake scandium and rare earth elements project in Quebec and its proprietary Al-Sc alloys. The agreement was announced at the world's premier mining convention, PDAC 2026, by The Honourable Tim Hodgson, Minister of Energy and Natural Resources, and Guy Bourassa, Chief Executive Officer of Scandium Canada, marking a defining moment for the G7 Critical Minerals Production Alliance, led by Canada on the global stage.
 
- - Diamond drilling intersects multiple wide gold mineralization consistent with the Kena Historic Resource* gold grades including 178 metres starting from 15 metres depth of 0.36 g/t Au, 1.8 g/t Ag and 534 ppm Cu.
+ This federal support reflects the exceptional strategic value of the Crater Lake project, its proprietary Al-Sc alloys and the strength of the Company's scientific expertise and international partnerships.
 
- The first phase of drilling program comprised of 1,002 metres in three diamond drill holes designed to test the northeast margin of the Kena lode gold zone. The program intersected board zones of near-surface significant gold mineralization with elevated copper and silver values, local lateral expansion of the mineralized zone. The program was paused in November due to snow conditions and is expected to resume in June.
+ The GPI contribution represents 69% of the project costs presented and will be used to scale up the company’s patent-pending processes for the beneficiation, extraction, and purification of scandium and rare earth elements (REEs) through mineral processing test work and by progressing to FEL-3 engineering standards, completing detailed design and specifications, and developing a comprehensive cost estimate and execution schedule. Additionally, the project will carry out applied research with end users to optimize aluminium-scandium alloys products.
 
- Initial drilling demonstrates the width and continuity of the gold mineralization along the northeastern margin, with grades comparable to the Kena Historic Resource*. Future drilling will continue to test targets to the northeast, as well as additional priority targets to the southwest down dip and southeast along strike, extending beyond the boundaries of the Kena Historic Resource*. The three drillholes are shown on the following map, with significant intersections summarized in the table below. The true widths of the intersections are unknown.
+ International partnerships
 
- Click here to see the map
+ This federal support unlocks immediate value for the Company's strategic partners, without waiting for the Crater Lake mine to reach full production, through its Scandium+ division:
 
- Click here to see the table
+ * Granges Powder Metallurgy ("GPM"): Further to the Memorandum of Understanding signed with Gränges Powder Metallurgy ("GPM") in November 2025, Scandium Canada continues to advance the integration of its proprietary scandium-modified AA535 and AA7075 alloys into GPM's product offering without waiting for the Crater Lake mine to reach full production. GPM, a wholly owned subsidiary of the global aluminum technology company Granges Group, is a global supplier of spray-formed aluminum products and aluminum powders for additive manufacturing, and this collaboration brings to the world stage a compelling technological breakthrough in high-performance, scandium-enhanced alloys.
+* A second partner stands to benefit directly from Scandium Canada's specialized metallurgical knowledge for the recovery of scandium from polymetallic deposits. Scandium, being notoriously difficult to separate and purify from co-occurring nickel and cobalt mineralization, is a challenge that Scandium Canada's team is uniquely positioned to solve. This collaboration extends the reach of Canadian scientific expertise into international mining operations, creating value for both parties well ahead of Crater Lake's production timeline.
+* Finally, a third partner represents a natural strategic fit as Scandium Canada advances toward production. Both organizations share a commitment to building resilient, non-Chinese supply chains for critical minerals, and this partnership lays the groundwork for deeper collaboration as the Crater Lake project matures.
 
- QA/QC
+ "It is a privilege to be among the few Canadian companies selected under the GPI, a recognition that speaks directly to the strategic importance of Crater Lake as North America's largest primary source of scandium as well as our important developments of Al-Sc alloys amenable to 3D printing and advanced manufacturing in particular. NRCan's support is a crucial milestone that provides non-dilutive funding through 2028, allowing our team to focus entirely on execution,” declared Guy Bourassa, Chief Executive Officer, Scandium Canada. “Together with our international partners, we will accelerate the development of Crater Lake while continuing to advance our Scandium+ alloy commercialization efforts, demonstrating to the world that Canada is a reliable, world-class supplier of the critical materials our allies can depend on, supported by highly competent technical people."
 
- The collected 1-2 metre drill core samples were shipped by bonded carrier and submitted to ALS Canada Ltd laboratory in Kamloops and North Vancouver, B.C. ALS Canada Ltd. is an independent accredited testing laboratory having been assessed by the Standards Council of Canada (SCC) and found to conform to the requirements of ISO/IEC 17025:2017 for listed services. The Qualified Person inserted blind Au, Ag and Cu accredited analytical standards and quartz blanks with the submitted batch.
+ “Canada and our partners are putting real capital behind the secure and sustainable critical mineral supply chains that our economies and defence industries rely on,” said the Honourable Tim Hodgson, Minister of Energy and Natural Resources. “By working with companies like Scandium Canada, we are helping deliver the minerals the world needs and the prosperity and security Canadians deserve.”
 
- Rock samples analyses included gold and 34 multi-element inductively coupled plasma - atomic emission spectroscopy (ICP-AES) analysis by four acid digestion (Au-ICP21, ME-ICP61), following sample weighing, log in, and crushing with screening to -75 microns. ALS completed a standard package of internal laboratory QA/QC, including standards, blanks and duplicates.
+ ABOUT THE GLOBAL PARTNERSHIPS INITIATIVE
 
- The information in this press release has been reviewed and approved by Trevor Boyd, P.Geo., Vice President, Exploration of the Company and a Qualified Person for the technical information under NI 43-101 standards.
+ The Global Partnerships Initiative is a Natural Resources Canada program designed to support the development of critical minerals projects in Canada. The GPI program aims to strengthen domestic supply chains and advance Canada's position as a reliable supplier of critical minerals to global markets, particularly to allied nations seeking to reduce dependency on foreign sources.
 
- For more information on Upside Gold Corp., please visit the Company’s website at www.upsidegoldcorp.com.On behalf of Upside Gold Corp.
+ ABOUT SCANDIUM CANADA LTD.
 
- Sophy CesarCEO and Directorinfo@upsidegoldcorp.comwww.upsidegoldcorp.com
+ Scandium Canada (TSX-V: SCD) is a public company whose ultimate goal is to bring the world's leading primary source of scandium into production, enabling the development and commercialization of aluminum-scandium (Al-Sc) alloys. The Corporation is leveraging its Al-Sc alloy development subsidiary and the development of its Crater Lake mining project to meet the growing need for lighter, greener, longer-lasting, high-performance materials. The Corporation aims to become a market leader in scandium, while committing itself to building a more responsible economy through innovation and agility.
 
- About Upside Gold Corp.
+ FORWARD-LOOKING STATEMENTS
 
- Upside Gold Corp. is a Canadian gold-copper exploration company that has entered into an option agreement to acquire a 100% interest in the Kena Gold-Copper Project, located in southeastern British Columbia, approximately 7 kilometres southwest of Nelson. The Kena Project consists of 198 mineral claims covering 10,114.8 hectares, together with 11 crown grants covering approximately 92 hectares.
+ All statements in this press release including the paragraph “About Scandium Canada Ltd.” above, which essentially describes the Company's prospects, constitute “forward-looking information” or “forward-looking statements” within the meaning of applicable securities laws and are based on expectations, estimates, and projections made as of the date of this press release.
 
- The Company is focused on advancing the Kena Gold-Copper Project through systematic exploration and drilling programs.
+ Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable by the Corporation as of the time of such statements, are inherently subject to significant business, economic and competitive uncertainties, and contingencies. These estimates and assumptions may prove to be incorrect. Many of these uncertainties and contingencies can directly or indirectly affect, and could cause, actual results to differ materially from those expressed or implied in any forward-looking statements and future events, could differ materially from those anticipated in such statements. A description of assumptions used to develop such forward-looking information and a description of risk factors that may cause actual results to differ materially from forward-looking information can be found in the Corporation’s disclosure documents on the SEDAR+ website at www.sedarplus.ca.
 
- * The Kena Project hosts a historical gold resource comprising an Indicated Mineral Resource of 32,146,000 tonnes at an average grade of 0.544 g/t Au for 0.561 million ounces of gold, and an Inferred Mineral Resource of 177,507,000 tonnes at an average grade of 0.486 g/t Au for 2.77 million ounces of gold. The historical resource estimate is disclosed in the technical report entitled “NI 43-101 Resource Estimate for the Kena and Daylight Properties” prepared by Sue Bird, P.Eng. of Moose Mountain Technical Services, dated May 3, 2021, and filed on SEDAR on behalf of West Mining Corp.
+ By their very nature, forward-looking statements involve inherent risks and uncertainties, both general and specific, and risks exist that estimates, forecasts, projections and other forward-looking statements will not be achieved or that assumptions do not reflect future experience. Forward-looking statements are provided for the purpose of providing information about management’s endeavors to develop the Crater Lake project, and, more generally, its expectations and plans relating to the future. Readers are cautioned not to place undue reliance on these forward-looking statements as a number of important risk factors and future events could cause the actual outcomes to differ materially from the beliefs, plans, objectives, expectations, anticipations, estimates, assumptions and intentions expressed in such forward-looking statements. All of the forward-looking statements made in this press release are qualified by these cautionary statements and those made in our other filings with the securities regulators of Canada. The Corporation disclaims any intention or obligation to update or revise any forward-looking statement or to explain any material difference between subsequent actual events and such forward-looking statements, except to the extent required by applicable law.
 
- A Qualified Person, as defined by National Instrument 43-101, has not done sufficient work to classify the historical estimate as current mineral resources, and Upside Gold Corp. is not treating the historical estimate as current mineral resources. The historical estimate is provided for information purposes only and should not be relied upon. To upgrade the historical estimate as current mineral resource additional drilling needs to be completed. The historical estimate uses the categories set out in section 1.2 of the NI-43-101. The parameters and assumptions used are outlined in Bird 2021 and are provided as follows:
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- 1. Resources are reported using the 2014 CIM Definition Standards and were estimated using the 2019 CIM Best Practices Guidelines.
+ For additional information, please contact :
 
- 2. Mineral Resources that are not Mineral Reserves do not have demonstrated economic viability.
+ Scandium Canada Ltd.Guy BourassaChief Executive OfficerPhone: +1 (418) 580-2320Email: info@scandium-canada.com
 
- 3. The Mineral Resource has been confined by a “reasonable prospects of eventual economic extraction” pit using the following assumptions: US $2,000/oz. Au at a currency exchange rate of 0.77 US$ per $CDN; 99.95% payable Au; $4.30/oz Au offsite costs (refining, transport and insurance); a 3% NSR royalty; and uses a 88% metallurgical recovery for gold.
-
- 4. Pit slope angles are assumed at 45 degrees.
-
- 5. The specific gravity of the deposit has been assigned as 2.8 based on sg measurements in the Kena deposit
-
- Caution Regarding Forward-Looking Information
-
- This news release contains forward-looking information that involves substantial known and unknown risks and uncertainties, most of which are beyond the control of Upside Gold. Forward-looking statements include estimates and statements that describe Upside Gold's future plans, objectives or goals, including words to the effect that Upside Gold or its management expects a stated condition or result to occur. Forward-looking statements may be identified by such terms as "believes", "anticipates", "expects", "estimates", "may", "could", "would", "will", or "plan". Since forward-looking statements are based on assumptions and address future events and conditions, by their very nature they involve inherent risks and uncertainties. Although these statements are based on information currently available to Upside Gold, Upside Gold provides no assurance that actual results will meet management's expectations. Risks, uncertainties and other factors involved with forward-looking information could cause actual events, results, performance, prospects and opportunities to differ materially from those expressed or implied by such forward-looking information. Forward looking information in this news release includes, but is not limited to, Upside Gold’s objectives, goals or future plans, statements, details of the exploration results, potential mineralization, Upside Gold’s portfolio, treasury, management team and enhanced capital markets profile, the timing of the Transaction, the estimation of mineral resources, exploration and mine development plans, timing of the commencement of operations and estimates of market conditions.
-
- Factors that could cause actual results to differ materially from such forward-looking information include, but are not limited to, failure or inability to complete the Transaction on the terms as announced or at all, regulatory approval processes, failure to identify mineral resources, delays in obtaining or failures to obtain required governmental, regulatory, environmental or other project approvals, political risks, inability to fulfill the duty to accommodate First Nations and other indigenous peoples, uncertainties relating to the availability and costs of financing needed in the future, changes in equity markets, inflation, changes in exchange rates, fluctuations in commodity prices, delays in the development of projects, capital and operating costs varying significantly from estimates and the other risks involved in the mineral exploration and development industry, and those risks set out in Upside Gold public documents filed on SEDAR. Although Upside Gold believes that the assumptions and factors used in preparing the forward-looking information in this news release are reasonable, undue reliance should not be placed on such information, which only applies as of the date of this news release, and no assurance can be given that such events will occur in the disclosed time frames or at all. Upside Gold disclaims any intention or obligation to update or revise any forward-looking information, whether as a result of new information, future events or otherwise, other than as required by law.
-
- Neither the CSE nor its Regulation Services Provider accepts responsibility for the adequacy or accuracy of this news release.
+Website: www.scandium-canada.comLinkedIn: Scandium Canada Ltd.X: @ScandiumCanadaFacebook: Scandium CanadaInstagram: @scandiumcanada
 
  
 
@@ -60,39 +50,39 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/upside-gold-advances-diamond-drilling-program-for-the-kena-gold-copper-property-7085627)
+[Original/Source Press Release](https://www.newmediawire.com/news/scandium-canada-secures-federal-government-support-of-up-to-6-9m-for-its-crater-lake-project-7085634)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/upside-gold-hits-wide-near-surface-gold-in-bc-drilling-program/8d20cd3dc0254a8f2875499ff7d3ec7b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scandium-canada-secures-6-9m-federal-boost-for-critical-minerals-project/5cf56b421d0af106b7ec754b1f3abae0) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/upside-gold-reports-promising-initial-drilling-results-at-kena-g/202628880)
+Pickup - [https://advos.io/en](https://advos.io/en/scandium-canada-secures-69-million-federal-funding-for-critical/202628895)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/401890-upside-gold-reports-promising-initial-drilling-results-at-kena-gold-copper-property)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402043-scandium-canada-secures-69-million-federal-funding-for-critical-minerals-project)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338320-upside-gold-meldet-vielversprechende-erste-bohrungsergebnisse-auf-der-kena-gold-kupfer-liegenschaft)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338334-scandium-canada-erhalt-69-millionen-us-dollar-bundesmittel-fur-projekt-zu-kritischen-mineralien)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338727-upside-gold-reporta-prometedores-resultados-iniciales-de-perforacion-en-la-propiedad-kena-de-oro-cobre)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338743-scandium-canada-obtiene-69-millones-de-dolares-en-financiamiento-federal-para-proyecto-de-minerales-criticos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339453-upside-gold-annonce-des-resultats-de-forage-initiaux-prometteurs-sur-la-propriete-aurifere-et-cuprifere-kena)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339469-scandium-canada-obtient-un-financement-federal-de-69-millions-de-dollars-pour-son-projet-de-mineraux-critiques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338262-upside-gold-reporta-resultados-promissores-da-primeira-fase-de-perfuracao-na-propriedade-de-ouro-cobre-kena)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/scandium-canada-secures-69-million-federal-support-for-critical/202628895)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/upside-gold-reports-significant-gold-mineralization-in-initial-k/202628880)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/scandium-canada-secures-69-million-federal-support-for-critical/202628895)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/upside-gold-reports-initial-diamond-drilling-results-from-kena-g/202628880)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402053-scandium-canada-secures-69m-federal-support-for-critical-minerals-project-and-alloy-development)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/401910-upside-gold-reports-promising-initial-drilling-results-from-kena-gold-copper-property)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338276-scandium-canada-garante-financiamento-federal-de-us-69-milhoes-para-projeto-de-minerais-criticos)
 
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/401928-upside-gold-corp-reports-promising-initial-drilling-results-at-kena-gold-copper-property)
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/402060-scandium-canada-secures-69-million-federal-funding-for-critical-minerals-project)
 
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/339457-upside-gold-corp-rapporte-des-resultats-de-forage-initiaux-prometteurs-sur-la-propriete-aurifere-et-cuprifere-kena)
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/339470-scandium-canada-obtient-un-financement-federal-de-69-millions-de-dollars-pour-son-projet-de-mineraux-critiques)
 
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/401930-upside-gold-corp-reports-promising-initial-drilling-results-at-kena-gold-copper-property)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/402061-scandium-canada-secures-69-million-federal-funding-for-quebec-critical-minerals-project)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/2/urgetA8G.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/2/markIajp.webp)
