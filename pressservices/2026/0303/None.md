@@ -1,96 +1,68 @@
-# Transform Your Backyard with Custom Pools and Patios
+# New Early Intervention Center Opens in Woburn with No Waiting Lists for Children
 
-Creating Family-Friendly Outdoor Spaces: Custom Pools & Patios
+First Steps Opens Woburn Early Intervention Center Offering Immediate ABA Services
 
- Reinholds, United States - February 28, 2026 / A Plus Landscaping /
+ Woburn, United States - February 28, 2026 / First Steps Developmental Services /
 
- From Pools to Patios: A Plus Landscaping Creates Harmonious Outdoor Retreats for Every Family
+ First Steps Developmental Services today announced the opening of its new early intervention center in Woburn, providing evidence-based Applied Behavior Analysis (ABA) services for young children with autism spectrum disorder and Down syndrome. The center is now accepting new patients with no waiting lists, addressing a critical gap in access to early intervention services in the region.
 
-Reinholds, PA - A Plus Landscaping, a family-operated outdoor living contractor serving South Central Pennsylvania, is transforming the concept of a backyard sanctuary-providing fully integrated, design-to-build services that blend custom pools, patios, and outdoor living spaces into cohesive family-friendly retreats.
+The Woburn facility serves children ages 0–6 and is designed to support early developmental needs through individualized, developmentally appropriate ABA therapy. First Steps works closely with families and caregivers to support communication, social skills, and early learning during this foundational stage of development.
 
-In contrast to conventional contractors who typically manage only one facet of a project, A Plus Landscaping offers a comprehensive solution-covering everything from excavation to the final hardscaping-to assist homeowners in transforming their backyards into functional, memory-making destinations.
+“There is a clear demand in this region for timely, high-quality early intervention services delivered by a team that truly listens to families,” said Jarrod Scalzo, Founder and CEO of First Steps Developmental Services. “I was inspired to start First Steps to help children make meaningful progress early in life and to empower parents and caregivers with the knowledge and support they need to advocate for their children.”
 
-"Homeowners should not have to coordinate with multiple contractors to create a backyard they adore," stated Marcus Waldner, the founder of A Plus Landscaping. "We focus on comprehensive outdoor environments-custom pools, patios, decks, kitchens, lighting-managed under one roof, with craftsmanship and care that endure for generations."
+Scalzo, a Board Certified Behavior Analyst (BCBA), brings more than 20 years of experience in special education and early intervention. He will mark two decades in the field in February 2026.
 
-A Complete Backyard Vision, Seamlessly Executed
+First Steps accepts most major insurance plans for ABA services. Beginning January 1, 2026, Massachusetts insurance providers are also required to cover ABA therapy for individuals diagnosed with Down syndrome, further expanding access to services for families across the state.
 
-The firm's all-encompassing outdoor design/build approach initiates with a personalized design and culminates in a backyard space ready for enjoyment, tailored to each family's lifestyle and entertaining needs.
+The center is staffed by licensed Board Certified Behavior Analysts and highly trained support professionals and is currently enrolling families from Middlesex, Essex, and Suffolk counties.
 
-Key services encompass:
+About First Steps Developmental ServicesFirst Steps Developmental Services is an insurance-funded early intervention provider serving children ages 0–6 with autism spectrum disorder and Down syndrome. Based in Woburn, Massachusetts, the center delivers evidence-based ABA therapy focused on communication, social development, and early learning in a supportive clinical environment.
 
-* Custom Pools: Ranging from compact, family-friendly pools to intricate waterscapes featuring spas, waterfalls, and custom decking, A Plus Landscaping designs water features that harmonize aesthetics with practicality.
-* Patios: Each paver patio is uniquely designed for layout, function, and durability-perfect for everything from serene morning coffees to lively summer gatherings.
-* Outdoor Living Features: Fire pits, seating walls, outdoor kitchens, pergolas, lighting systems, and more-all thoughtfully integrated to enhance how families utilize their spaces both day and night.
+For more information about eligibility, insurance coverage, or enrollment, visit https://www.firststepsds.com or contact info@firststepsds.com.
 
-All paver patios are supported by a 15-year craftsmanship warranty and are executed by in-house teams with decades of hardscape experience.
+ [](https://press-releases-production.s3.amazonaws.com/images/3Oh9bsqKhIggniudpoWKcBfatDbnHXHU5OQJ8Qcv.jpg) [](https://firststepsds.com) Contact Information:
 
-Designed for Families, Built for Life
-
-While numerous companies in the outdoor living sector position themselves as "luxury," A Plus Landscaping adopts a distinct perspective-prioritizing approachability, trust, and lasting quality for families across a diverse range of budgets.
-
-"Whether you are constructing a patio for the kids to enjoy or developing a complete outdoor sanctuary, our team manages everything-and we treat your space as if it were our own," added Marcus.
-
-Serving homeowners throughout Lancaster, Harrisburg, West Chester, and neighboring areas, A Plus Landscaping continues to expand through word-of-mouth and exceptional 5-star client experiences.
-
-Learn more or schedule a consultation at: https://apluslandscaping.com
-
-About A Plus Landscaping
-
-A Plus Landscaping is a comprehensive design/build outdoor contractor located in Reinholds, PA. Recognized for its all-in-one project management, the company specializes in patios, custom pools, outdoor living environments, and paver driveways. Its family-oriented approach, craftsmanship, and single-contractor model make it the preferred partner for backyard renovations in Central Pennsylvania.
-
-Press Release Contact:
-
-Name: A Plus Landscaping
-
-Email: info@apluslandscaping.com
-
-Phone: (717) 335‑1690‬
-
-Address: 85 Creamery Rd, Reinholds, PA 17569
-
- [](https://press-releases-production.s3.amazonaws.com/images/O2P7gHne7kOHmub1LFXPUx3haFYSzptu2lVQNv7F.jpg) [](https://apluslandscaping.com) Contact Information:
-
- A Plus Landscaping
+ First Steps Developmental Services
 
  
 
-85 Creamery Rd Reinholds  Reinholds, Philadelphia 17569United States
+18 Commerce Way, Suite 1500  Woburn, MA 01801United States
 
- Joe Esh +1-717-335-1690‬ https://apluslandscaping.com 
+ Jarrod Scalzo (781) 460-9756 https://firststepsds.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/transform-your-backyard-with-custom-pools-and-patios-415628)
+[Original/Source Press Release](https://mediawiretoday.com/new-early-intervention-center-opens-in-woburn-with-no-waiting-lists-for-children-411294)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a-plus-landscaping-transforms-backyards-into-family-friendly-outdoor-retreats/4d8e65eb1ef2fa1bc3ab4a57ca4192e4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-steps-opens-woburn-early-intervention-center-with-immediate-aba-services/a772175ea4c8b07a2da106bfce718739) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/pennsylvania-landscaping-company-offers-comprehensive-backyard-t/202628903)
+Pickup - [https://advos.io/en](https://advos.io/en/new-woburn-early-intervention-center-eliminates-waiting-lists-fo/202628925)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/402138-a-plus-landscaping-offers-comprehensive-outdoor-design-services-for-family-friendly-backyard-retreats)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402169-new-woburn-early-intervention-center-eliminates-waiting-lists-for-children-with-autism-and-down-syndrome)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338341-a-plus-landscaping-bietet-umfassende-aussenbereichsgestaltung-fur-familienfreundliche-gartenoasen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338754-nuevo-centro-de-intervencion-temprana-en-woburn-elimina-listas-de-espera-para-ninos-con-autismo-y-sindrome-de-down)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338751-a-plus-landscaping-ofrece-servicios-integrales-de-diseno-exterior-para-refugios-familiares-en-patios-traseros)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339479-le-nouveau-centre-dintervention-precoce-de-woburn-supprime-les-listes-dattente-pour-les-enfants-autistes-et-trisomiques)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339477-a-plus-landscaping-propose-des-services-complets-de-conception-exterieure-pour-des-arriere-cours-familiales)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338304-novo-centro-de-intervencao-precoce-em-woburn-elimina-listas-de-espera-para-criancas-com-autismo-e-sindrome-de-down)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338283-a-plus-landscaping-oferece-servicos-abrangentes-de-design-exterior-para-retiros-familiares-no-quintal)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/new-woburn-early-intervention-center-eliminates-waiting-lists-fo/202628925)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pennsylvania-landscaping-company-offers-comprehensive-backyard-t/202628903)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/new-woburn-early-intervention-center-eliminates-waiting-lists-fo/202628925)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/comprehensive-outdoor-design-approach-creates-cohesive-family-re/202628903)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338363-neues-woburn-fruhforderzentrum-beseitigt-wartelisten-fur-kinder-mit-autismus-und-down-syndrom)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402143-a-plus-landscapings-integrated-approach-transforms-backyard-renovations-in-pennsylvania)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402279-first-steps-opens-woburn-early-intervention-center-with-immediate-aba-services-access)
 
-Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/202603/402144-integrated-design-build-approach-transforms-backyard-spaces-in-pennsylvania)
+Pickup - [https://news.bostondailytribune.com/curated](https://news.bostondailytribune.com/curated/202603/402360-new-early-intervention-center-opens-in-woburn-to-address-critical-service-gap-for-young-children)
 
-Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202603/402145-a-plus-landscaping-offers-comprehensive-outdoor-living-solutions-for-pennsylvania-homeowners)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/402378-new-early-intervention-center-opens-in-woburn-to-address-critical-service-gap-for-young-children)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/263/3/beanHHcH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/263/3/milkMwoy.webp)
