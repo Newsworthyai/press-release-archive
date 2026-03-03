@@ -1,68 +1,71 @@
-# RunAnywhere Launches Production-Grade On-Device AI Platform to Power Enterprise-Scale AI on Devices
+# Advancing Influenza Vaccine Development: Sino Biological Launches Antigens for the 2026-2027 Northern Hemisphere Influenza Vaccine Strains
 
-RunAnywhere Enables Enterprises to Run and Manage Multimodal AI on Devices in Days, Not Months
+HOUSTON, TEXAS - March 3, 2026 (NEWMEDIAWIRE) - The World Health Organization (WHO) has announced its recommendations for the 2026–2027 Northern Hemisphere influenza vaccine composition. The update highlights two key developments: the continued spread of A (H3N2) subclade K and the growing circulation of new B/Victoria lineage strains. In rapid response, Sino Biological, Inc. (Shenzhen Stock Exchange: 301047.SZ), a global leader in recombinant technology, has launched a comprehensive panel of antigens for the 2026-2027 Northern Hemisphere influenza vaccine strains to accelerate influenza vaccine development.
 
- SAN FRANCISCO, CA - March 3, 2026 (NEWMEDIAWIRE) - RunAnywhere, a YC W26-backed company, today announced the public launch of its production-grade on-device AI platform, introducing a unified infrastructure layer that enables enterprises to deploy, manage, and scale multimodal AI applications directly on mobile and edge devices.
+ Decoding the 2026-2027 Northern Hemisphere Influenza Vaccine Strains
 
- As on-device AI adoption accelerates, enterprises are discovering that running a model locally is only the first step. The real challenge is operating AI reliably across fragmented hardware environments at scale. RunAnywhere addresses this gap with a production-ready SDK and centralized control plane designed for real-world deployment.
+ Since its identification in August 2025, H3N2 subclade K (J.2.4.1) has become the dominant influenza A strain worldwide. Defined by the T135K and S144N mutations, this strain exhibits enhanced immune escape, prompting WHO’s selection of A/Darwin/1454/2025 (egg-based, cell-based) as the new H3N2 reference viruses. The H1N1 component has been updated to A/Missouri/11/2025 (egg-based, cell-based).
 
- “Getting a model to run on a single device is straightforward. Operating multimodal AI across thousands or millions of devices is not,” said Sanchit Monga, Co-Founder of RunAnywhere. “RunAnywhere gives enterprises the structure, visibility, and control they need to move from prototype to production with confidence.”
+ Alongside H3N2, influenza B activity is rising sharply. In regions such as Hong Kong and the U.S., the proportion of B/Victoria lineage viruses recently increased from 6% to over 20%. These trends led WHO to recommendations B/Tokyo/EIS13-175/2025 (egg-based) and B/Pennsylvania/14/2025 (cell-based) strains for the upcoming season.
 
- Unlike traditional on-device runtimes that focus solely on inference, RunAnywhere enables organizations to package full AI applications, coordinate multiple models, deploy across mixed fleets, push over-the-air updates, enforce governance policies, monitor performance in real time, and intelligently route workloads between device and cloud when needed.
+ Sino Biological’s Comprehensive Reagents for 2026-2027 Influenza Vaccine Research
 
- This unified approach reduces integration timelines from months to days while improving reliability and cost predictability. Enterprises can prioritize low latency, privacy, and offline functionality without building complex orchestration systems internally.
+ To support global influenza vaccine research and development, Sino Biological has launched an extensive portfolio of recombinant antigens for the 2026-2027 Northern Hemisphere influenza vaccine strains, spanning key viral antigens including Hemagglutinin (HA), Neuraminidase (NA), and Nucleoprotein (NP). These include:
 
- “Enterprises don’t just need optimized inference. They need a vendor-agnostic operational layer that works across hardware generations and operating systems,” said Shubham Malhotra, Co-Founder of RunAnywhere. “We abstract the complexity of fragmented device ecosystems so teams can focus on shipping AI products faster.”
+ * H1N1 Reagents: A/Missouri/11/2025 (H1N1) HA Trimer (HEK293 cell-expressed, purity ≥90% verified by SEC-MALS, activity validated by ELISA), NA, and NP antigens are available now.
+* H3N2 Subclade K Proteins: Recombinant HA, NA, NP aligned with A/Darwin/1454/2025 - available now.
+* Influenza B Reagents: In development for B/Tokyo/EIS13-175/2025 and B/Pennsylvania/14/2025.
+* Stable HA Trimers: High-purity, SEC-MALS–validated trimeric HA maintaining native conformation for accurate immune characterization.
 
- RunAnywhere supports multimodal workloads including large language models, speech-to-text, text-to-speech, and vision models. Its architecture enables consistent performance across diverse CPUs, GPUs, and hardware accelerators while avoiding vendor lock-in.
+ "Our mission is to provide the scientific community with the highest quality tools as rapidly as possible when infectious disease evolution threatens global health preparedness," said Dr. Rob Burgess, Chief Business Officer at Sino Biological US. "Sino Biological remains committed to delivering reliable reagents that advance global influenza preparedness and vaccine innovation."
 
- The platform is designed for industries where latency, privacy, and reliability are essential, including fintech, healthcare, gaming, and other regulated sectors.
+ About Sino Biological
 
- Developers and enterprises can access documentation and learn more at www.runanywhere.ai.
+ Sino Biological is a global biotechnology company specializing in high-quality recombinant proteins, antibodies, and customized research services. Serving researchers in more than 90 countries, Sino Biological supports basic research, drug discovery, vaccine development, and diagnostics through its comprehensive product portfolio, proprietary quality systems, and innovative research platforms.
 
- About RunAnywhere
+ Forward-Looking Statements
 
- RunAnywhere is a production-grade on-device AI platform that enables organizations to deploy, orchestrate, update, and observe multimodal AI applications directly on devices. With unified SDKs, over-the-air updates, policy controls, observability, vendor-agnostic architecture, and intelligent cloud fallback, RunAnywhere provides the infrastructure required to operate on-device AI at enterprise scale.
+ Certain statements in this document are "forward-looking statements" within the meaning of the Private Securities Litigation Reform Act. These statements are based on Sino Biological management's current expectations and are subject to uncertainty and changes in circumstances. Actual results may differ materially from those included in these statements due to a variety of factors, over which Sino Biological has no control. Sino Biological assumes no obligation to update these forward-looking statements and does not intend to do so.
 
- Media Contact:Veronica Welchronnie@vewpr.comVEW Media
+ For media inquiries or partnership opportunities, please contact:
+
+ Sino Biological, Inc.gmo@sinobiological.cnwww.sinobiological.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/runanywhere-launches-production-grade-on-device-ai-platform-to-power-enterprise-scale-ai-on-devices-7085651)
+[Original/Source Press Release](https://www.newmediawire.com/news/advancing-influenza-vaccine-development-sino-biological-launches-antigens-for-the-2026-2027-northern-hemisphere-influenza-vaccine-strains-7085658)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/runanywhere-launches-platform-to-deploy-enterprise-ai-on-devices-in-days/789722eca0cd93a18ca1ce19b03abd12) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/who-updates-flu-vaccine-strains-as-sino-biological-launches-antigens-for-2026-2027-season/b6676a29244116b90c27a50e4a56159b) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/runanywhere-launches-platform-to-accelerate-enterprise-on-device/202628938)
+Pickup - [https://advos.io/en](https://advos.io/en/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/402538-runanywhere-launches-production-grade-platform-for-enterprise-on-device-ai-deployment)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402615-sino-biological-launches-antigens-for-2026-2027-influenza-vaccine-strains-following-who-recommendations)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338376-runanywhere-startet-produktionsreife-plattform-fur-unternehmensweite-ki-bereitstellung-auf-geraten)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338384-sino-biological-bringt-antigene-fur-die-who-empfohlenen-influenza-impfstoffstamme-2026-2027-auf-den-markt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338795-runanywhere-lanza-una-plataforma-de-grado-de-produccion-para-el-despliegue-de-ia-en-dispositivos-empresariales)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338799-sino-biological-lanza-antigenos-para-las-cepas-de-la-vacuna-contra-la-influenza-2026-2027-siguiendo-las-recomendaciones-de-la-oms)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339513-runanywhere-lance-une-plateforme-de-qualite-production-pour-le-deploiement-dia-sur-les-appareils-en-entreprise)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339522-sino-biological-lance-des-antigenes-pour-les-souches-vaccinales-contre-la-grippe-2026-2027-conformement-aux-recommandations-de-loms)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338319-runanywhere-lanca-plataforma-de-producao-para-implantacao-de-ia-em-dispositivos-empresariais)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/runanywhere-launches-platform-to-simplify-enterprise-on-device-a/202628938)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/runanywhere-launches-production-grade-on-device-ai-platform-for/202628938)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/402677-sino-biological-launches-antigen-panel-for-who-recommended-2026-2027-influenza-strains-supporting-vaccine-development)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402567-runanywhere-launches-production-grade-platform-for-enterprise-on-device-ai-deployment)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/338802-sino-biological-lanza-panel-de-antigenos-para-cepas-de-influenza-recomendadas-por-la-oms-para-2026-2027-apoyando-el-desarrollo-de-vacunas)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/402511-runanywhere-platform-accelerates-enterprise-on-device-ai-deployment)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338327-sino-biological-lanca-antigenos-para-as-estirpes-da-vacina-contra-a-gripe-2026-2027-de-acordo-com-as-recomendacoes-da-oms)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/402598-runanywhere-launches-production-grade-on-device-ai-platform-for-enterprise-deployment)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/402603-runanywhere-launches-production-grade-on-device-ai-platform-for-enterprise-deployment)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402631-sino-biological-launches-antigens-for-2026-2027-influenza-vaccine-strains-following-who-recommendations)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/3/chefcj12.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/3/froglVyX.webp)

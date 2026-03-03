@@ -1,74 +1,63 @@
-# Event Management Is Dead. Long Live Humanity.
+# LUMA Launches Security-First AI Platform to Eliminate “Shadow AI” and Accelerate High-Stakes Revenue Pursuits
 
-Munich, Germany (Newsworthy.ai) Tuesday Mar 3, 2026 @ 3:00 PM Europe/Berlin — What happens when a veteran event professional asks an AI to honestly assess his profession's future — and then publishes the unfiltered answer?
+Dallas, Texas (Newsworthy.ai) Tuesday Mar 3, 2026 @ 10:00 AM Central — LUMA (www.askluma.io) today announced the launch of its security-first AI platform, designed for organizations where speed, precision, and control directly impact revenue and risk. As recent studies show that 9 out of 10 employees use AI on the job—often through unauthorized or "Shadow AI" tools—LUMA provides a governed, enterprise-grade alternative built specifically for high-stakes environments.
 
- Dominik Markoč has spent three decades planning corporate events, conferences, and incentives for international clients. He belongs to the first generation of event professionals who adopted the internet as a working tool — and the interplay between human expertise and technology has fascinated him ever since. Now he has published a conversation that challenges the future of his entire profession. His conversation partner: an artificial intelligence.
+ Unlike broad, open-ended AI tools, LUMA (the Library Utilization Management Assistant) is designed to address the two major enterprise challenges of trust and payoff by focusing on secure, controlled use cases tied to specific business outcomes. The platform turns an organization’s internal knowledge library into a governed execution engine, ensuring that teams can securely find and synthesize complex information without compromising security policy. LUMA was created by RocketDocs, a B2B SaaS company focused on Strategic Response Management/ Proposal software and AI-powered knowledge management.
 
- The unscripted dialogue between Markoč, founder of Munich-based event agency Servicebroker GmbH, and Claude, an AI assistant by Anthropic (model Opus 4.6), is the centerpiece of eventmanagementisdead.com — an initiative designed to spark reflection and invite an open discourse on the future of human work. The impulse comes from the human; the co-creation is what's new. It is a manifesto for symbiosis — human expertise and technology, united for the benefit of people.
+ "RocketDocs has worked for decades with the largest and most highly regulated organizations helping them to manage critical content," said Perry Robinson, Chairman & CEO of RocketDocs. "With LUMA, we are addressing whether AI can be trusted with sensitive information and whether it can deliver real business ROI. LUMA is built to do both."
 
- The exchange covers uncomfortable territory. Where exactly does AI outperform a seasoned event professional? At what point does human judgment become irreplaceable? And what happens to an industry built on relationships when algorithms start handling the logistics? Along the way, the AI poses a surprising question of its own to the event manager. Markoč lets the answers stand, even when they challenge his own role.
+ Governed Execution for Revenue Pursuits LUMA is differentiated as a vertical application provider that puts company knowledge directly to work in core revenue and operational activities. By keeping response workflows and sensitive collaboration inside one governed system, LUMA reduces coordination drag and improves consistency across teams.
 
- "AI frees you from the part that never defined you anyway — administering. What remains is what you actually set out for," says the AI. "AI offers tools — but no goosebumps!" says Dominik Markoč.
+ Key features of the platform include: * Authorized Knowledge Grounding: LUMA limits AI activity to a company’s authorized knowledge sources rather than the open internet.
+* Vertical AI Applications: The platform features specialized assistants, including an AI Solutions Engineer and an AI RFP Manager, to support sales proposal preparation and RFx questionnaire responses.
+* Hierarchical Prioritization: Users can prioritize specific content in their Knowledge Base to ensure the most relevant information is applied first by Generative AI processes.
+* Enterprise-Grade Governance: Features include permission-aware access to content, controlled knowledge scope, administrative oversight, and workflow accountability.
 
- What makes the project unusual is the approach: an experienced event professional and an AI engage in a conversation that is both practical and philosophical — about sensory experience, empathy, creativity, and conquering hearts. Event management serves as a microcosm: one of many professions navigating the same transformation, from design and music to law and logistics.
+ A Standalone Leader in Secure AI While originating from the expertise of RocketDocs, LUMA is a standalone AI platform designed to help teams work faster and more effectively while maintaining a trustworthy operating model. The roadmap for LUMA includes rapid expansion into vertical applications for Customer Success and HR teams, covering use cases from account-plan preparation to onboarding and policy guidance.
 
- Beyond the dialogue, the website includes eight practical AI prompt tools for event professionals, from venue research to run-of-show planning — a snapshot, not a textbook, acknowledging that the technology evolves faster than any guide can follow.
-
- The full conversation and background on the project are available at eventmanagementisdead.com/en/article
-
- Frequently Asked Questions Can AI replace human event managers?According to Dominik Markoč, AI excels at logistics, data analysis, and administrative tasks — but cannot replicate the human qualities that make events memorable: empathy, sensory judgment, improvisation under pressure, and the ability to create genuine emotional connections between people.
-
- What is the difference between event management and event design?The eventmanagementisdead.com project argues that AI is transforming "event management" (the logistical, administrative process) into a largely automated function, while "event design" — the creative, human-centered craft of shaping experiences — becomes more important than ever.
-
- How does AI change the role of event professionals?Rather than replacing event professionals, AI shifts their focus. When technology handles budgets, scheduling, and venue research, professionals can concentrate on what only humans can deliver: reading a room, building trust with clients, and designing moments that resonate emotionally.
-
- What AI tools are useful for event planning?The website features eight practical AI prompt examples covering venue research, run-of-show planning, and more. These are designed as starting points for event professionals exploring AI integration, tested across ChatGPT, Claude, and Microsoft Copilot.
-
- Why did an event agency publish a conversation with AI?Servicebroker GmbH chose to publicly examine the disruption in its own industry rather than ignore it. The project is a documented, real-time exploration of how human expertise and artificial intelligence can coexist — intended as both a professional resource and a time capsule of a pivotal moment in the industry.
-
- About Dominik Markoč Dominik Markoč is the founder and managing director of Servicebroker GmbH, an event agency based in Munich. As a certified event management professional (IHK — Germany's Chamber of Commerce), marketing specialist (BAW), and long-standing instructor for event and tourism professions, he has been working as an event entrepreneur since 1999. He advises companies on complex challenges in strategic event procurement and the targeted planning and execution of events for 50 to 5,000 guests.
-
- About [Servicebroker GmbH](https://www.servicebroker.de/en) Servicebroker GmbH is a family-owned event agency — the name itself a declaration of intent: human expertise paired with technological tools, a working symbiosis for better service to people. With eventmanagementisdead.com, the agency chose to publicly examine the disruption happening inside its own field, and to share that examination openly.
-
- As event managers, designers, and specialists in strategic event procurement, the company stands out for its creativity, service passion, and decades of expertise. A special focus is placed on sustainable and socially responsible event management. The agency is explicitly inclusive and promotes diversity. Dominik Markoč runs Servicebroker as a family business in which Annegret Markoč — a certified event technology specialist — is an equal partner and co-owner. Their professional credo: "Conquer hearts with your events!"
-
- Press Contact:Servicebroker GmbHDominik Markoč, Managing DirectorMetzstraße 14b, 81667 Munich, GermanyTel.: +49 89 60068060Email: Email ContactWeb: www.servicebroker.deLinkedIn: linkedin.com/in/servicebroker
-
- Project website: eventmanagementisdead.com 
+ LUMA is available now. To learn more about how LUMA is turning institutional knowledge into a repeatable operating advantage, visit https://askluma.io/. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603032185/event-management-is-dead-long-live-humanity)
+[Original/Source Press Release](https://newsworthy.ai/news/202603032197/luma-launches-security-first-ai-platform-to-eliminate-shadow-ai-and-accelerate-high-stakes-revenue-pursuits)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/event-pro-publishes-raw-ai-dialogue-is-event-management-dead/38fabd56f11f296f7f6407f7ab33f5af) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-enterprises/08f854a5ff49654e6adb642ecaa3cb04) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/event-professional-publishes-unfiltered-ai-dialogue-on-industrys/202628937)
+Pickup - [https://advos.io/en](https://advos.io/en/luma-launches-security-first-ai-platform-to-combat-shadow-ai-in/202628944)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/402539-event-professional-publishes-unfiltered-ai-dialogue-on-industrys-future)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402617-luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-high-stakes-business-environments)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338375-event-experte-veroffentlicht-ungefilterten-ki-dialog-zur-zukunft-der-branche)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338382-luma-startet-sicherheitsorientierte-ki-plattform-zur-bekampfung-von-schatten-ki-in-risikoreichen-geschaftsumgebungen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338794-profesional-de-eventos-publica-dialogo-sin-filtros-con-ia-sobre-el-futuro-de-la-industria)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338800-luma-lanza-una-plataforma-de-ia-centrada-en-la-seguridad-para-combatir-la-ia-en-la-sombra-en-entornos-empresariales-de-alto-riesgo)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339512-un-professionnel-des-evenements-publie-un-dialogue-non-filtre-avec-une-ia-sur-lavenir-du-secteur)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339520-luma-lance-une-plateforme-ia-axee-sur-la-securite-pour-lutter-contre-lia-fantome-dans-les-environnements-professionnels-a-haut-risque)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338318-profissional-de-eventos-publica-dialogo-sem-filtros-com-ia-sobre-o-futuro-do-setor)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338325-luma-lanca-plataforma-de-ia-com-foco-em-seguranca-para-combater-a-ia-sombra-em-ambientes-empresariais-de-alto-risco)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/event-professional-publishes-unfiltered-ai-dialogue-on-industrys/202628937)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/luma-launches-security-first-ai-platform-to-combat-shadow-ai-in/202628944)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/event-professional-publishes-unfiltered-ai-dialogue-on-industrys/202628937)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/402624-luma-launches-security-first-ai-platform-for-high-stakes-enterprise-environments)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402569-event-professional-publishes-unfiltered-ai-dialogue-on-industrys-future)
+Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/202603/402675-luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-high-stakes-texas-organizations)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/402512-event-professional-publishes-unfiltered-ai-dialogue-on-industrys-future)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/402679-luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-texas-businesses)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/402600-event-professional-publishes-ai-dialogue-challenging-industrys-future)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/338807-luma-lanza-una-plataforma-de-ia-con-enfoque-en-seguridad-para-combatir-la-ia-en-la-sombra-en-empresas-de-texas)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/402684-luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-high-stakes-organizations)
+
+Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/202603/402686-texas-based-luma-launches-security-first-ai-platform-to-combat-shadow-ai-risks-in-enterprise-environments)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/luma-launches-security-first-ai-platform-to-combat-shadow-ai-in/202628944)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402633-luma-launches-security-first-ai-platform-to-combat-shadow-ai-in-high-stakes-business-environments)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/3/rushZp2U.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/3/deep1JiQ.webp)

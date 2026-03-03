@@ -1,42 +1,38 @@
-# Dr. Sajad Zalzala Establishes New Longevity and Healthcare Leadership Scholarship for Undergraduate Students Nationwide
+# AI Receptionist for Med Spas: New Data Reveals $100K+ Annual Revenue Loss from Missed Calls
 
-DETROIT, MI, March 03, 2026 /24-7PressRelease/ -- Dr. Sajad Zalzala, a prominent physician and longevity specialist, announces the launch of the Dr. Sajad Zalzala Scholarship for Healthcare Professionals. This initiative aims to support the next generation of medical leaders who are committed to transforming the healthcare landscape through preventive medicine and root-cause interventions. The scholarship is currently accepting applications from undergraduate students across the United States who demonstrate academic excellence and a forward-thinking vision for the future of health. As the Co-Founder and Chief Medical Officer of AgelessRx, Dr. Sajad Zalzala focuses his career on extending the human healthspan.   This scholarship reflects his dedication to shifting the medical paradigm from reactive disease treatment to proactive age management. By providing financial assistance to aspiring clinicians and researchers, Dr. Sajad Zalzala seeks to foster innovation in how modern medicine addresses chronic illness and aging.  The Dr. Sajad Zalzala Scholarship for Healthcare Professionals is open to students who meet the following criteria: current enrollment as an undergraduate at an accredited U.S. college or university; pursuit of a degree intended for a healthcare profession, including pre-med, nursing, public health, or biomedical sciences; maintenance of a minimum cumulative GPA of 3.0 on a 4.0 scale; completion of an original 500-to-750-word essay; submission of all required documents by the established deadline; a documented desire to enter the healthcare workforce; ensuring all essays are the original work of the applicant; submissions must be in PDF or Word format; files must be labeled as LastName_FirstName_ScholarshipEssay; full name, university, and graduation year must appear on the essay; responses must address root-cause challenges in modern healthcare; applicants must describe their future role in healthcare solutions; applications must be received by the cutoff date; the student's institution must be fully accredited; and applicants must be studying within the United States.  Through this program, Dr. Sajad Zalzala invites students to explore the concept of moving beyond symptoms. The required essay asks applicants to identify a significant challenge in modern healthcare—such as technology integration or chronic disease prevention—and propose how their future careers will contribute to a solution. Dr. Sajad Zalzala believes that the integration of functional medicine and telehealth is essential for global health accessibility. The scholarship provides a one-time award of $1,500 to the selected recipient. The application window is currently open, with a submission deadline of September 15, 2026. Following a comprehensive review of all entries, the winner will be officially announced on October 15, 2026. Interested students can find full application details and the submission portal by visiting the official website at https://drsajadzalascholarship.com/.  Dr. Sajad Zalzala, MD, is a physician and entrepreneur specializing in longevity and preventive care. A graduate of the Wayne State University School of Medicine, he has served as a clinical investigator for the PEARL Trial and as an advisor to numerous telehealth startups. His work continues to lead the shift toward evidence-based age management and global health span extension. 
+LOS ANGELES, CA, March 03, 2026 /24-7PressRelease/ -- A new industry analysis reveals that med spas across the United States may be losing more than $100,000 per year in revenue due to missed calls, delayed follow-up, and inconsistent booking systems.  As competition intensifies in the aesthetics industry, capturing inbound demand has become a critical growth lever. Many med spas invest heavily in paid advertising, SEO, and social media marketing — yet fail to capture 100% of inbound calls during peak hours and after business hours.  According to internal performance benchmarks analyzed by Lani AI, even three missed calls per day can result in more than $130,000 in lost annual revenue for a med spa with a $600 average booking value and a 30% call-to-booking conversion rate.  "Most med spa owners focus on generating more leads," said Donny, a board executive of Lani AI. "But the real opportunity often lies in capturing the demand they're already paying for. Missed calls don't disappear — they go to competitors."  The study highlights several common revenue leaks:  • Unanswered inbound calls during peak hours • No after-hours call handling • Slow speed-to-lead on web inquiries • Lack of automated missed-call text-back • No centralized KPI tracking for booking rate or revenue per appointment  To address these gaps, Lani AI has launched an AI Receptionist for Med Spas designed to answer calls instantly, book appointments directly into existing calendars, automate SMS follow-up, and provide real-time KPI visibility.  Unlike traditional call answering services, AI-powered reception systems can operate 24/7 without increasing payroll costs — making them particularly attractive for growth-focused med spas and multi-location operators.  The company has also released a free Med Spa Revenue Calculator that allows operators to estimate how much revenue they may be losing due to missed calls and no-shows.  Med spa owners can calculate their potential revenue leakage here: https://www.talktolani.com/revenue-calculator  For qualifying businesses, Lani AI is offering a limited 7-Day AI Receptionist Pilot to demonstrate measurable improvements in booking rate and call capture performance.  To learn more or apply for the pilot: https://www.talktolani.com/medspa  Lani AI is an AI-powered receptionist and revenue infrastructure platform designed for service-based businesses. The platform answers calls instantly, automates follow-up, tracks KPIs, and increases booking rates without increasing payroll.   For more information, visit: https://www.talktolani.com 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/532344/dr-sajad-zalzala-establishes-new-longevity-and-healthcare-leadership-scholarship-for-undergraduate-students-nationwide)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/532385/ai-receptionist-for-med-spas-new-data-reveals-100k-annual-revenue-loss-from-missed-calls)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sajad-zalzala-launches-1500-healthcare-scholarship-for-future-medical-leaders/841898918d2cc2404f9cde7e3017d3ef) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/med-spas-lose-100k-yearly-to-missed-calls-ai-solution-launched/650acefc2af5755a8fea4d42e9a66a63) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/dr-sajad-zalzala-launches-1500-scholarship-for-future-healthcare/202628919)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/402731-med-spas-lose-over-100000-annually-due-to-missed-calls-and-inefficient-booking-systems)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/402175-dr-sajad-zalzala-launches-1500-scholarship-for-future-healthcare-leaders-focused-on-preventive-medicine)
+Pickup - [https://advos.io/en](https://advos.io/en/med-spas-losing-over-100k-annually-from-missed-calls-ai-solution/202628956)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338360-dr-sajad-zalzala-startet-1500-dollar-stipendium-fur-kunftige-gesundheitsfuhrer-mit-fokus-auf-praventivmedizin)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402747-med-spas-face-100k-annual-revenue-loss-from-missed-calls-ai-solutions-emerge)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338298-dr-sajad-zalzala-lanca-bolsa-de-estudos-de-us-1500-para-futuros-lideres-da-saude-com-foco-em-medicina-preventiva)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338395-med-spas-verlieren-jahrlich-uber-100000-us-dollar-durch-verpasste-anrufe-ki-losungen-bieten-abhilfe)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/dr-sajad-zalzala-launches-1500-scholarship-for-future-healthcare/202628919)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338815-los-spas-medicos-pierden-mas-de-100000-anuales-por-llamadas-perdidas-emergen-soluciones-de-ia)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/dr-sajad-zalzala-launches-scholarship-to-foster-next-generation/202628919)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339533-les-centres-de-medecine-esthetique-perdent-plus-de-100-000-de-revenus-annuels-a-cause-des-appels-manques-les-solutions-dia-emergent)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338770-el-dr-sajad-zalzala-lanza-una-beca-de-1500-para-futuros-lideres-sanitarios-enfocados-en-medicina-preventiva)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338337-clinicas-de-estetica-perdem-mais-de-us-100-mil-anualmente-com-chamadas-perdidas-solucoes-de-ia-surgem-como-alternativa)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339500-le-dr-sajad-zalzala-lance-une-bourse-de-1-500-pour-les-futurs-leaders-de-la-sante-axes-sur-la-medecine-preventive)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/med-spas-lose-over-100000-annually-from-missed-calls-ai-solution/202628956)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402285-dr-sajad-zalzala-launches-1500-scholarship-to-foster-next-generation-of-preventive-healthcare-leaders)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/med-spas-losing-over-100k-annually-from-missed-calls-ai-solution/202628956)
 
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202603/402339-dr-sajad-zalzala-launches-scholarship-to-foster-next-generation-of-preventive-healthcare-leaders)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/402380-new-scholarship-targets-future-healthcare-leaders-in-preventive-medicine)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202603/402408-dr-sajad-zalzala-launches-scholarship-to-foster-preventive-healthcare-leaders)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402767-med-spas-face-100k-annual-revenue-loss-from-missed-calls-ai-solutions-emerge)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/263/3/mossz6YW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/263/3/harp2rtX.webp)
