@@ -1,56 +1,52 @@
-# GBH Host Edgar B. Herwick III to Present the 58th Annual Bell Ringer Awards
+# UGI System Upgrades Set to Begin Next Week in Shamokin Dam Borough
 
-Boston, MA - March, 4, 2026
+for immediate release - march 4, 2026
 
-The PR Club of New England is proud to announce that Edgar B. Herwick III, GBH News host, will present the 58th Annual Bell Ringer Awards. The awards ceremony will take place on June 4, 2026 at the Museum of Science in Boston and will honor PR and communications campaigns, events, students, and professionals.
+UGI Utilities is scheduled to begin a system upgrade project in Shamokin Dam Borough on Monday, March 9, 2026. The work is part of UGI’s commitment to provide safe and reliable service and provides opportunities for some homes and businesses along the project route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* The PR Club of New England announces that GBH News host Edgar B. Herwick III will present the 58th Annual Bell Ringer Awards on June 4, 2026 at the Museum of Science in Boston.
-* GBH will receive all proceeds from the annual Bell Ringers 50/50 Raffle.
-* The PR Club opens nominations for its 2026 Professional Awards, with submissions due April 21, 2026 and winners announced at the Bell Ringer Awards ceremony.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-system-upgrades-set-to-begin-next-week-in-shamokin-dam-borough)UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-[Click image above to view full announcement.](https://the-pr-club.reportablenews.com/pr/gbh-host-edgar-b-herwick-iii-to-present-the-58th-annual-bell-ringer-awards)About PR ClubFounded in 1948, the PR Club (formerly the Publicity Club of New England) strives to promote and encourage involvement in the communications industry and specifically the professions of public relations, promotions, and marketing. Get additional information about monthly PR Club programs, social and networking events, exclusive content and the Bell Ringer Awards Ceremony at www.PRClub.org.
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Contacts:Kaitlin Cooney, PR Club Presidentadmin@prclub.org
-
-Source: The PR Club
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://the-pr-club.reportablenews.com/pr/gbh-host-edgar-b-herwick-iii-to-present-the-58th-annual-bell-ringer-awards)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-system-upgrades-set-to-begin-next-week-in-shamokin-dam-borough)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gbh-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer-awards/5e62d03aec0d17facfc5355dd90d441c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-utilities-launches-shamokin-dam-system-upgrade-offers-gas-conversion/d6dabcc412981d56c8733b52586a9d44) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/gbh-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer/202628983)
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-utilities-announces-natural-gas-system-upgrades-in-shamokin/202628991)
 
-Pickup - [https://news.bostondailytribune.com/curated](https://news.bostondailytribune.com/curated/202603/403076-gbh-news-host-to-present-58th-annual-bell-ringer-awards-forging-journalism-pr-partnership)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/403164-ugi-utilities-announces-natural-gas-system-upgrades-in-shamokin-dam-borough)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/403061-gbh-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer-awards-for-pr-club-of-new-england)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338429-ugi-utilities-kundigt-modernisierung-des-erdgasnetzes-im-shamokin-dam-borough-an)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338421-gbh-moderator-edgar-b-herwick-iii-prasentiert-die-58-jahrlichen-bell-ringer-awards-des-pr-club-of-new-england)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338850-ugi-utilities-anuncia-mejoras-en-el-sistema-de-gas-natural-en-el-municipio-de-shamokin-dam)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338841-edgar-b-herwick-iii-presentador-de-gbh-sera-el-maestro-de-ceremonias-de-los-58o-premios-bell-ringer-del-pr-club-de-nueva-inglaterra)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339571-ugi-utilities-annonce-des-ameliorations-du-systeme-de-gaz-naturel-dans-le-borough-de-shamokin-dam)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339563-edgar-b-herwick-iii-animateur-de-gbh-presentera-les-58e-bell-ringer-awards-du-pr-club-de-la-nouvelle-angleterre)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338373-ugi-utilities-anuncia-melhorias-no-sistema-de-gas-natural-no-municipio-de-shamokin-dam)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338365-apresentador-da-gbh-edgar-b-herwick-iii-sera-o-mestre-de-cerimonias-do-58o-premio-bell-ringer-do-pr-club-da-nova-inglaterra)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ugi-utilities-announces-natural-gas-system-upgrades-in-shamokin/202628991)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/403077-gbh-news-host-to-present-58th-annual-bell-ringer-awards-forging-journalism-pr-partnership)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ugi-utilities-announces-natural-gas-system-upgrades-in-shamokin/202628991)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/gbh-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer/202628983)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403185-ugi-utilities-announces-natural-gas-system-upgrades-in-shamokin-dam-borough)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gbh-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer/202628983)
+Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/202603/403194-ugi-utilities-announces-shamokin-dam-infrastructure-upgrade-project-with-natural-gas-conversion-opportunities)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403066-gbh-news-host-edgar-b-herwick-iii-to-present-58th-annual-bell-ringer-awards-in-boston)
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/403197-ugi-utilities-announces-shamokin-dam-infrastructure-upgrade-project-with-natural-gas-conversion-opportunities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/4/icy1ZxJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/4/chipYcly.webp)
