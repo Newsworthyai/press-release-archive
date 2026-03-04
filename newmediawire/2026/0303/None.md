@@ -1,71 +1,80 @@
-# Advancing Influenza Vaccine Development: Sino Biological Launches Antigens for the 2026-2027 Northern Hemisphere Influenza Vaccine Strains
+# HomeToGo Partners With Amadeus to Bring Its Vacation Rental Inventory to Bistro Portal Users
 
-HOUSTON, TEXAS - March 3, 2026 (NEWMEDIAWIRE) - The World Health Organization (WHO) has announced its recommendations for the 2026–2027 Northern Hemisphere influenza vaccine composition. The update highlights two key developments: the continued spread of A (H3N2) subclade K and the growing circulation of new B/Victoria lineage strains. In rapid response, Sino Biological, Inc. (Shenzhen Stock Exchange: 301047.SZ), a global leader in recombinant technology, has launched a comprehensive panel of antigens for the 2026-2027 Northern Hemisphere influenza vaccine strains to accelerate influenza vaccine development.
+LUXEMBOURG - March 3, 2026 (NEWMEDIAWIRE) - HomeToGo SE (Frankfurt Stock Exchange: HTG), Europe’s leading vacation rental group, today announced a strategic partnership with Amadeus, a global travel technology leader connecting the travel ecosystem. Through this partnership, HomeToGo is providing a dedicated vacation rental redistribution gateway to a large audience of travel agencies using Amadeus Bistro Portal, the leading tourism search and offer comparison tool. Powered by HomeToGo_PRO Doppelgänger, HomeToGo’s suite of redistribution solutions, the integration allows all licensed Amadeus travel agencies to seamlessly access and book from HomeToGo’s extensive portfolio of high-quality vacation rentals. This opens the door for Amadeus Bistro Portal users by making it easier than ever for agencies to match their clients with the perfect stay.
 
- Decoding the 2026-2027 Northern Hemisphere Influenza Vaccine Strains
+ Through Amadeus Bistro Portal, the company reaches a broad network of travel agencies across the DACH region. The new HomeToGo_PRO Doppelgänger solution for Amadeus delivers a fully customized, seamlessly integrated platform. It combines an intuitive user interface with robust B2B features, including wishlist sharing and comprehensive booking overviews, all designed specifically for professional travel agencies.
 
- Since its identification in August 2025, H3N2 subclade K (J.2.4.1) has become the dominant influenza A strain worldwide. Defined by the T135K and S144N mutations, this strain exhibits enhanced immune escape, prompting WHO’s selection of A/Darwin/1454/2025 (egg-based, cell-based) as the new H3N2 reference viruses. The H1N1 component has been updated to A/Missouri/11/2025 (egg-based, cell-based).
+ Key benefits include:
 
- Alongside H3N2, influenza B activity is rising sharply. In regions such as Hong Kong and the U.S., the proportion of B/Victoria lineage viruses recently increased from 6% to over 20%. These trends led WHO to recommendations B/Tokyo/EIS13-175/2025 (egg-based) and B/Pennsylvania/14/2025 (cell-based) strains for the upcoming season.
+ * Intuitive search and booking: Travel agencies can easily browse and reserve high-quality vacation rentals worldwide while earning competitive commissions on every booking.
+* Seamless integration: The gateway integrates with core booking and consultation platforms, such as integration with key central reservation systems and Paxlounge, to ensure frictionless communication with customers.
+* Dedicated support: Partners benefit from access to HomeToGo’s specialized B2B customer experience team, a hallmark of all HomeToGo_PRO Doppelganger solutions.
 
- Sino Biological’s Comprehensive Reagents for 2026-2027 Influenza Vaccine Research
+ Dr. Patrick Andrae, Co-Founder & CEO of HomeToGo: “We are excited to partner with Amadeus to bring the strength of HomeToGo’s vacation rental portfolio directly to its network of travel agencies. This solution underlines the capabilities of our HomeToGo_PRO Doppelgänger technology, delivering a fully integrated experience tailored to the needs of the B2B travel agency market, which seamlessly fits into the professional tools agents use every day. This collaboration of two technology leaders in travel marks another important step in our vision to unlock better stays, empowering travel professionals with an extensive selection of high-quality vacation rental inventory.”
 
- To support global influenza vaccine research and development, Sino Biological has launched an extensive portfolio of recombinant antigens for the 2026-2027 Northern Hemisphere influenza vaccine strains, spanning key viral antigens including Hemagglutinin (HA), Neuraminidase (NA), and Nucleoprotein (NP). These include:
+ Ljiliana Budalic, Director Product Management Leisure at Amadeus: “In our partnership with HomeToGo, we see significant synergies. HomeToGo has an excellent international footprint and shares our strong focus on the needs of travel agencies. By integrating the HomeToGo solution, we have significantly expanded the available travel portfolio. At the same time, the content can be searched and compared seamlessly together with the existing Bistro Portal content - a real added value for the travel agency advisory process.”
 
- * H1N1 Reagents: A/Missouri/11/2025 (H1N1) HA Trimer (HEK293 cell-expressed, purity ≥90% verified by SEC-MALS, activity validated by ELISA), NA, and NP antigens are available now.
-* H3N2 Subclade K Proteins: Recombinant HA, NA, NP aligned with A/Darwin/1454/2025 - available now.
-* Influenza B Reagents: In development for B/Tokyo/EIS13-175/2025 and B/Pennsylvania/14/2025.
-* Stable HA Trimers: High-purity, SEC-MALS–validated trimeric HA maintaining native conformation for accurate immune characterization.
+ Experience the gateway at ITB 2026Prospective and existing Amadeus agency partners attending ITB 2026 are invited to visit the HomeToGo booth (Hall 9, #209) for a live demonstration of the new gateway. Experience the integration firsthand on Tuesday, March 3, from 4:00–6:00 PM or Wednesday, March 4, from 4:00-6:00 PM. In addition, ITB attendees can visit the Amadeus booth (Hall 5.1, #112) for a live demo throughout the convention. Amadeus partners interested in exploring these benefits can also take advantage of a complimentary trial. For further details, please contact your Amadeus Account Manager.
 
- "Our mission is to provide the scientific community with the highest quality tools as rapidly as possible when infectious disease evolution threatens global health preparedness," said Dr. Rob Burgess, Chief Business Officer at Sino Biological US. "Sino Biological remains committed to delivering reliable reagents that advance global influenza preparedness and vaccine innovation."
+ About the HomeToGo GroupHomeToGo was founded in 2014 in Berlin, Germany. Today HomeToGo is Europe’s leading vacation rental group, combining its B2B Software & tech-enabled Service Solutions segment, HomeToGo_PRO, with its AI-powered B2C Marketplace. HomeToGo is the official travel partner and top sponsor of German Bundesliga football club 1. FC Union Berlin.
 
- About Sino Biological
+ HomeToGo_PRO offers innovative Software & tech-enabled Service Solutions for everyone who wants to be successful with vacation rentals, with a special focus on SaaS for hosts. With 20M+ vacation rental offers across thousands of trusted partners, HomeToGo’s AI-powered B2C Marketplace seamlessly connects travelers with the world’s largest selection of vacation rentals to find the perfect home for any trip.
 
- Sino Biological is a global biotechnology company specializing in high-quality recombinant proteins, antibodies, and customized research services. Serving researchers in more than 90 countries, Sino Biological supports basic research, drug discovery, vaccine development, and diagnostics through its comprehensive product portfolio, proprietary quality systems, and innovative research platforms.
+ HomeToGo was born and built in Europe. While HomeToGo SE's registered office is located in Luxembourg, HomeToGo GmbH is headquartered in Berlin, Germany. HomeToGo operates localized apps and websites in more than 30 countries. HomeToGo SE is listed on the Frankfurt Stock Exchange under the stock ticker “HTG” (ISIN LU2290523658). For more information visit: www.hometogo.com/about
 
- Forward-Looking Statements
+ About AmadeusAmadeus makes the experience of travel better for everyone, everywhere by inspiring innovation, partnerships and responsibility to people, places and planet.
 
- Certain statements in this document are "forward-looking statements" within the meaning of the Private Securities Litigation Reform Act. These statements are based on Sino Biological management's current expectations and are subject to uncertainty and changes in circumstances. Actual results may differ materially from those included in these statements due to a variety of factors, over which Sino Biological has no control. Sino Biological assumes no obligation to update these forward-looking statements and does not intend to do so.
+ Our technology powers the travel and tourism industry. Inspiring more open ways of working. More connected ways of thinking, centered around the traveler. Our open platform connects the global travel and hospitality ecosystem. From startups to big industry players and governments too. Together, transforming how travel works.
 
- For media inquiries or partnership opportunities, please contact:
+ We are working to make travel a force for social and environmental good. A collective responsibility to protect and improve the people and places we visit, ensuring travel continues to make positive contribution to our world.
 
- Sino Biological, Inc.gmo@sinobiological.cnwww.sinobiological.com
+ We apply innovation to meet new needs, to solve real challenges. Our truly diverse global workforce, made up of 150 nationalities, is passionate about travel and technology.
+
+ We are an IBEX 35 company, listed on the Spanish Stock Exchange under AMS.MC. We have also been recognized by the Dow Jones Sustainability Index for the last 13 years.
+
+ Amadeus. It’s how travel works better.Learn more about Amadeus at www.amadeus.com
+
+ Media ContactIsabel Nackepress@hometogo.com
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/advancing-influenza-vaccine-development-sino-biological-launches-antigens-for-the-2026-2027-northern-hemisphere-influenza-vaccine-strains-7085658)
+[Original/Source Press Release](https://www.newmediawire.com/news/hometogo-partners-with-amadeus-to-bring-its-vacation-rental-inventory-to-bistro-portal-users-7085663)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/who-updates-flu-vaccine-strains-as-sino-biological-launches-antigens-for-2026-2027-season/b6676a29244116b90c27a50e4a56159b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hometogo-amadeus-partner-to-bring-vacation-rentals-to-travel-agencies/cef10d983470cdbe54d9193949ecd571) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
+Pickup - [https://advos.io/en](https://advos.io/en/hometogo-and-amadeus-partnership-expands-vacation-rental-access/202628959)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/402615-sino-biological-launches-antigens-for-2026-2027-influenza-vaccine-strains-following-who-recommendations)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/402791-hometogo-and-amadeus-partnership-expands-vacation-rental-access-for-travel-agencies)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338384-sino-biological-bringt-antigene-fur-die-who-empfohlenen-influenza-impfstoffstamme-2026-2027-auf-den-markt)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338398-hometogo-und-amadeus-erweitern-mit-partnerschaft-den-zugang-zu-ferienwohnungen-fur-reiseburos)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338799-sino-biological-lanza-antigenos-para-las-cepas-de-la-vacuna-contra-la-influenza-2026-2027-siguiendo-las-recomendaciones-de-la-oms)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338818-la-asociacion-entre-hometogo-y-amadeus-amplia-el-acceso-a-alquileres-vacacionales-para-agencias-de-viajes)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339522-sino-biological-lance-des-antigenes-pour-les-souches-vaccinales-contre-la-grippe-2026-2027-conformement-aux-recommandations-de-loms)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339536-le-partenariat-entre-hometogo-et-amadeus-elargit-lacces-aux-locations-de-vacances-pour-les-agences-de-voyage)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338342-parceria-entre-hometogo-e-amadeus-amplia-acesso-a-aluguel-por-temporada-para-agencias-de-viagens)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/sino-biological-launches-antigens-for-2026-2027-influenza-vaccin/202628946)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hometogo-partners-with-amadeus-to-integrate-vacation-rentals-int/202628959)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/402677-sino-biological-launches-antigen-panel-for-who-recommended-2026-2027-influenza-strains-supporting-vaccine-development)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hometogo-and-amadeus-partnership-expands-vacation-rental-access/202628959)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/338802-sino-biological-lanza-panel-de-antigenos-para-cepas-de-influenza-recomendadas-por-la-oms-para-2026-2027-apoyando-el-desarrollo-de-vacunas)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402796-hometogo-partners-with-amadeus-to-integrate-vacation-rentals-into-travel-agency-platforms)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338327-sino-biological-lanca-antigenos-para-as-estirpes-da-vacina-contra-a-gripe-2026-2027-de-acordo-com-as-recomendacoes-da-oms)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/402631-sino-biological-launches-antigens-for-2026-2027-influenza-vaccine-strains-following-who-recommendations)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/402817-hometogo-and-amadeus-partnership-integrates-vacation-rentals-into-travel-agency-platforms)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/3/froglVyX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/3/pintQRnF.webp)
