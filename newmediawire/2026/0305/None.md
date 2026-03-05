@@ -1,66 +1,104 @@
-# Silver Crown Royalties Announces Acceleration Event for $8.25 Listed Warrants
+# Why Copper ETFs Could Be Worth A Closer Look As An Artificial Intelligence Play
 
-TORONTO, ON - March 5, 2026 (NEWMEDIAWIRE) - Silver Crown Royalties Inc. (Cboe: SCRI, OTCQX: SLCRF, BF: QS0) (“Silver Crown”, “SCRi”, the “Corporation”, or the “Company”) is pleased announce that an Acceleration Event (as defined in the warrant indenture dated November 4, 2025 between the Company and Odyssey Trust Company (the “Warrant Indenture”)) has occurred. As a result of the Acceleration Event, the Company has delivered notice to the registered holders of the common share purchase warrants with an exercise price of $8.25 issued under the Warrant Indenture (the “Warrants”) that the Expiry Time (as defined in the Warrant Indenture) has been accelerated to 5:00 p.m. (Toronto time) on April 6, 2026. The Warrants are listed on the Cboe Canada Exchange under the symbol SCRI.WT.C.
+By Drew Voros, Benzinga
 
- Pursuant to the terms of the Warrant Indenture, the occurrence of an Acceleration Event permits the Company to accelerate the Expiry Time of the Warrants upon providing the required notice to warrant holders. Any Warrants that remain unexercised after 5:00 p.m. (Toronto time) on April 6, 2026 will automatically expire and will thereafter be void and of no further force or effect.
+ DETROIT, MICHIGAN - March 5, 2026 (NEWMEDIAWIRE) - For the latest standardized performance and holdings of the Sprott Copper Miners and Sprott Junior Copper Miners ETFs, please visit the individual website pages COPP and COPJ. Past performance is no guarantee of future results.
 
- Warrant holders who wish to exercise their Warrants are encouraged to contact their investment advisors or Odyssey Trust Company, the warrant agent under the Warrant Indenture who can be reached at corptrust@odysseytrust.com, for instructions on how to complete the exercise process prior to the accelerated Expiry Time.
+ As artificial intelligence becomes more of a fixture in everyday life and business, one key commodity could stand to see increased demand from the construction of AI infrastructure and the ongoing support of industries that revolve around it.
 
- ABOUT SILVER CROWN ROYALTIES INC.
+ Copper demand, both in construction and technical infrastructure, could continue to increase as economies around the globe increase their focus on infrastructure.
 
- Founded by seasoned industry professionals, Silver Crown Royalties (Cboe: SCRI | OTCQX: SLCRF | BF: QS0) is a publicly traded silver royalty company dedicated to generating free cash flow. Silver Crown currently holds five silver royalties. Its business model offers investors exposure to precious metals, providing a natural hedge against currency devaluation while mitigating the adverse effects of production-related cost inflation. Silver Crown strives to minimize the economic burden on mining projects while simultaneously maximizing shareholder returns. For further information, please contact:
+ The metal is a chemical element that is soft, malleable and ductile with very high thermal and electrical conductivity. Copper is used as a conductor of heat and electricity and is easily mined and processed. The metal occurs naturally but can also be used cast and shaped in a mold for a variety of uses.
 
- Silver Crown Royalties Inc.Peter Bures, Chairman and CEOT: (416) 481-1744 | pbures@silvercrownroyalties.com
+ Like with other precious and strategic metals, exchange-traded funds offer easy access to the metal rather than having to open a commodity brokerage account. Of course, ordinary brokerage fees apply. For investors looking to potentially capitalize on the metal, some funds offer mining options as a play and can be accessed through ETFs focused on mining companies.
 
- FORWARD-LOOKING STATEMENTS
+ ETFs May Allow For Efficient Copper Miners Investing*
 
- This release contains certain “forward looking statements” and certain “forward-looking information” as defined under applicable Canadian and U.S. securities laws. Forward-looking statements and information can generally be identified by the use of forward-looking terminology such as “may”, “will”, “should”, “expect”, “intend”, “estimate”, “anticipate”, “believe”, “continue”, “plans” or similar terminology. The forward-looking information contained herein is provided for the purpose of assisting readers in understanding management’s current expectations and plans relating to the future. Readers are cautioned that such information may not be appropriate for other purposes. Forward-looking statements and information include, but are not limited to, any Warrants that remain unexercised after 5:00 p.m. (Toronto time) on April 6, 2026, will automatically expire and will thereafter be void and of no further force or effect. Forward-looking statements and information are based on forecasts of future results, estimates of amounts not yet determinable and assumptions that, while believed by management to be reasonable, are inherently subject to significant business, economic and competitive uncertainties and contingencies.
+ Fund options include Sprott Copper Miners ETF (NASDAQ: COPP) from Sprott, which launched in March of 2024 and has attracted $290 million in assets under management as of Feb. 18 and carries an expense ratio of 0.65%.
 
- Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the actual actions, events or results to be materially different from those expressed or implied by such forward-looking information, including but not limited to: the impact of general business and economic conditions; the absence of control over mining operations from which SCRI will purchase silver and other metals or from which it will receive royalty payments and risks related to those mining operations, including risks related to international operations, government and environmental regulation, delays in mine construction and operations, actual results of mining and current exploration activities, conclusions of economic evaluations and changes in project parameters as plans continue to be refined; accidents, equipment breakdowns, title matters, labor disputes or other unanticipated difficulties or interruptions in operations; SCRI’s ability to enter into definitive agreements and close proposed royalty transactions; the inherent uncertainties related to the valuations ascribed by SCRI to its royalty interests; problems inherent to the marketability of silver and other metals; the inherent uncertainty of production and cost estimates and the potential for unexpected costs and expenses; industry conditions, including fluctuations in the price of the primary commodities mined at such operations, fluctuations in foreign exchange rates and fluctuations in interest rates; government entities interpreting existing tax legislation or enacting new tax legislation in a way which adversely affects SCRI; stock market volatility; regulatory restrictions; liability, competition, the potential impact of epidemics, pandemics or other public health crises on SCRI’s business, operations and financial condition, loss of key employees. SCRI has attempted to identify important factors that could cause actual results to differ materially from those contained in forward looking statements, there may be other factors that cause results not to be as anticipated, estimated or intended. There can be no assurance that such statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. SCRI undertakes no obligation to update forward-looking information except as required by applicable law. Such forward-looking information represents management's best judgment based on information currently available. There can be no assurance that forward-looking statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, the reader is cautioned not to place undue reliance on forward-looking statements.
+ There is also a potential play on junior copper miners with Sprott Junior Copper Miners ETF (NASDAQ: COPJ), which has $375 million in AUM as of Feb.18 and has an expense ratio of 0.35%.
 
- This document does not constitute an offer to sell, or a solicitation of an offer to buy, securities of the Company in Canada, the United States, or any other jurisdiction. Any such offer to sell or solicitation of an offer to buy the securities described herein will be made only pursuant to subscription documentation between the Company and prospective purchasers. Any such offering will be made in reliance upon exemptions from the prospectus and registration requirements under applicable securities laws, pursuant to a subscription agreement to be entered into by the Company and prospective investors.
+ AI Likely Drives Growth Expansion
 
- CBOE CANADA DOES NOT ACCEPT RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS NEWS RELEASE.
+ New global facilities are needed to keep pace with growth projections for artificial intelligence. According to UN Trade and Development statistics, the AI market is forecast to rise from roughly $200-$400 billion to more than $1.8 trillion-$4.8 trillion by 2030-2033. One key building material for those projects will be copper, for use from plumbing to electrical infrastructure, as the industry builds out to meet growth.
+
+ At the forefront of AI governance initiatives are the G7 countries (U.S., Canada, France, Germany, Italy, Japan and the United Kingdom). Other countries are watching how those initiatives develop for adaptation.
+
+ Furthermore, the companies seen shaping the AI landscape are multinational giants such as Apple, Meta, Open A.I., Microsoft and Nvidia that have the resources to invest into AI now and into the future. Bechtel Corp., Turner Construction Co., Kiewet Corp., Fluor Corp., DPR Construction and AECOM all have annual revenues between $14 billion and $23 billion.
+
+ An increasing share of revenues from those countries could correlate with increased copper demand.
+
+ Copper’s Supply Chain
+
+ Copper can be found throughout the world. Chile produces the most copper, extracting 5.3 million tons in 2024, followed by the Democratic Republic of the Congo (3.3M tons), Peru (2.6M tons) and China (1.8M tons). Production is expected to grow in the mid-single digits throughout this decade, according to the UN Trade and Development organization.
+
+ Due to copper’s essential role in the green energy transition and industries stepping away from fossil fuels, its demand is growing and, for many observers, is expected to be sustained.
+
+ By the early 2030s, this demand is expected to exceed supply by more than 6 million metric tonnes annually, with copper consumption rising from 25 million metric tons in 2021 to 39 million metric tons by 2040, according to the UN Trade and Development statistics.
+
+ However, current mining rates may only see a 16% increase in primary copper production by 2040, far below the needed 56%, indicating a substantial shortfall. While recycled copper currently bridges some of the supply gap, new mines and improved recycling are essential to prevent severe copper shortages by 2040, according to Addionics.
+
+ Riding The Wave
+
+ Total return performance has also been robust for COPP and COPJ, with COPP up 98% in the past year and COPJ at 140%, as of February 2026. At the same time, it is necessary to keep in mind that past performance does not guarantee future performance.
+
+ Access to metal has gotten easier over the years, with the funds mentioned that can all be purchased through any online brokerage or by asking your financial advisor. Check out Sprott’s website for more information here.
+
+ *An ETF is described as efficient when it is structured to seek its intended investment exposure with relatively low costs and limited operational frictions, such as tracking differences or trading spreads. Efficiency does not imply better performance or results and can vary over time.
+
+ None of the company names mentioned above comprise current holdings of either COPP or COPJ. All holdings are subject to change.
+
+ Featured image from Shutterstock.
+
+ This content was originally published on Benzinga. Read further disclosures here.
+
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
+
+ An investor should consider the investment objectives, risks, charges and expenses of each fund carefully before investing. To obtain a fund’s Prospectus, which contains this and other information, contact your financial professional, call 1.888.622.1813 or visit SprottETFs.com. Read the Prospectus carefully before investing.
+
+ Exchange Traded Funds (ETFs) are considered to have continuous liquidity because they allow for an individual to trade throughout the day, which may indicate higher transaction costs and result in higher taxes when fund shares are held in a taxable account.
+
+ The funds are non-diversified and can invest a greater portion of assets in securities of individual issuers, particularly those in the natural resources and/or precious metals industry, which may experience greater price volatility. Relative to other sectors, natural resources and precious metals investments have higher headline risk and are more sensitive to changes in economic data, political or regulatory events, and underlying commodity price fluctuations. Risks related to extraction, storage and liquidity should also be considered.
+
+ Shares are not individually redeemable. Investors buy and sell shares of the funds on a secondary market. Only “authorized participants” may trade directly with the fund, typically in blocks of 10,000 shares.
+
+ Sprott Asset Management USA, Inc. is the Investment Adviser to the Sprott ETFs. ALPS Distributors, Inc. is the Distributor for the Sprott ETFs and is a registered broker-dealer and FINRA Member. ALPS Distributors, Inc. is not affiliated with Sprott Asset Management USA, Inc.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/silver-crown-royalties-announces-acceleration-event-for-8-25-listed-warrants-7085693)
+[Original/Source Press Release](https://www.newmediawire.com/news/why-copper-etfs-could-be-worth-a-closer-look-as-an-artificial-intelligence-play-7085695)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-crown-accelerates-warrant-expiry-to-april-2026/2b0b04c4bb94b04985dbdf164cd9cf64) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-boom-fuels-copper-demand-spotlighting-mining-etfs-as-key-investment-play/a89a6276c694b498866f3f564cfd1df3) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/silver-crown-royalties-accelerates-warrant-expiry-to-april-2026/202629022)
+Pickup - [https://advos.io/en](https://advos.io/en/copper-etfs-emerge-as-strategic-investment-amid-ai-infrastructur/202629030)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/403379-silver-crown-royalties-announces-acceleration-of-warrant-expiry-to-april-2026)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/403593-copper-etfs-gain-attention-as-ai-infrastructure-demand-drives-metals-strategic-importance)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338461-silver-crown-royalties-kundigt-vorverlegung-des-optionsscheinablaufs-auf-april-2026-an)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338469-kupfer-etfs-gewinnen-an-bedeutung-da-ki-infrastrukturbedarf-die-strategische-relevanz-des-metalls-vorantreibt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338883-silver-crown-royalties-anuncia-la-aceleracion-del-vencimiento-de-los-warrants-a-abril-de-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338893-los-etf-de-cobre-captan-atencion-mientras-la-demanda-de-infraestructura-de-ia-impulsa-la-importancia-estrategica-del-metal)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339606-silver-crown-royalties-annonce-lavancement-de-lecheance-des-bons-de-souscription-a-avril-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339615-les-etf-sur-le-cuivre-attirent-lattention-alors-que-la-demande-dinfrastructures-dia-renforce-limportance-strategique-du-metal)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338404-silver-crown-royalties-anuncia-antecipacao-do-vencimento-de-warrants-para-abril-de-2026)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338412-etfs-de-cobre-ganham-atencao-a-medida-que-a-demanda-por-infraestrutura-de-ia-impulsiona-a-importancia-estrategica-do-metal)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/silver-crown-royalties-accelerates-warrant-expiry-prompting-inve/202629022)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/copper-etfs-gain-attention-as-ai-infrastructure-drives-demand-fo/202629030)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/silver-crown-royalties-accelerates-warrant-expiry-to-april-2026/202629022)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/403648-ai-infrastructure-boom-drives-copper-demand-amid-supply-constraints)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403454-silver-crown-royalties-accelerates-warrant-expiry-signaling-potential-capital-infusion)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/copper-etfs-gain-attention-as-ai-infrastructure-demand-drives-me/202629030)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/403510-silver-crown-royalties-accelerates-warrant-expiry-to-april-2026-following-trigger-event)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403616-copper-etfs-emerge-as-strategic-investment-amid-ai-infrastructure-expansion)
 
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/403514-silver-crown-royalties-accelerates-warrant-expiry-to-april-2026-following-trigger-event)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/339607-silver-crown-royalties-accelere-lecheance-des-bons-de-souscription-a-avril-2026-suite-a-un-evenement-declencheur)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/403523-silver-crown-royalties-accelerates-warrant-expiry-to-april-2026-following-trigger-event)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/403621-ai-infrastructure-expansion-drives-copper-demand-creating-investment-opportunities-through-mining-etfs)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/icyBh6B.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/knotOwrk.webp)
