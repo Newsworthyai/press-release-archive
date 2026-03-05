@@ -1,104 +1,98 @@
-# Why Copper ETFs Could Be Worth A Closer Look As An Artificial Intelligence Play
+# Catalyst Crew Technologies Corp. Announces Corporate Mission and Strategic Objectives for 2026
 
-By Drew Voros, Benzinga
+CARACAS, VENEZUELA - March 5, 2026 (NEWMEDIAWIRE) - Catalyst Crew Technologies Corp. (OTC: CCTC) (the “Company”) today announced its corporate mission statement and strategic objectives for 2026 as the Company continues executing its transition toward artificial intelligence-enabled healthcare technology solutions focused on emerging markets.
 
- DETROIT, MICHIGAN - March 5, 2026 (NEWMEDIAWIRE) - For the latest standardized performance and holdings of the Sprott Copper Miners and Sprott Junior Copper Miners ETFs, please visit the individual website pages COPP and COPJ. Past performance is no guarantee of future results.
+ The Company also wishes to clarify that a previous press release inadvertently included an incorrect link to the Company’s previously filed Current Report on Form 8-K. The correct link to the filing is available at:
 
- As artificial intelligence becomes more of a fixture in everyday life and business, one key commodity could stand to see increased demand from the construction of AI infrastructure and the ongoing support of industries that revolve around it.
+ https://www.sec.gov/Archives/edgar/data/1477960/000147793226001029/cctc_8k.htm
 
- Copper demand, both in construction and technical infrastructure, could continue to increase as economies around the globe increase their focus on infrastructure.
+ Corporate Mission
 
- The metal is a chemical element that is soft, malleable and ductile with very high thermal and electrical conductivity. Copper is used as a conductor of heat and electricity and is easily mined and processed. The metal occurs naturally but can also be used cast and shaped in a mold for a variety of uses.
+ Our mission is to develop scalable, artificial intelligence-driven healthcare technologies that improve access, efficiency, and care coordination across emerging markets. By combining digital health infrastructure, data intelligence, and strategic partnerships, the Company aims to support more connected and effective healthcare delivery systems, with an initial focus on Latin America.
 
- Like with other precious and strategic metals, exchange-traded funds offer easy access to the metal rather than having to open a commodity brokerage account. Of course, ordinary brokerage fees apply. For investors looking to potentially capitalize on the metal, some funds offer mining options as a play and can be accessed through ETFs focused on mining companies.
+ 2026 Strategic Objectives
 
- ETFs May Allow For Efficient Copper Miners Investing*
+ As part of its operational roadmap, the Company has identified several strategic priorities for 2026 designed to support the continued development of its AI-enabled healthcare platform.
 
- Fund options include Sprott Copper Miners ETF (NASDAQ: COPP) from Sprott, which launched in March of 2024 and has attracted $290 million in assets under management as of Feb. 18 and carries an expense ratio of 0.65%.
+ Key objectives include:
 
- There is also a potential play on junior copper miners with Sprott Junior Copper Miners ETF (NASDAQ: COPJ), which has $375 million in AUM as of Feb.18 and has an expense ratio of 0.35%.
+ Advance AI-Enabled Healthcare Platform Development - Continue developing the Company’s core artificial intelligence-driven healthcare technology framework designed to support digital care coordination, healthcare data analytics, and operational efficiency across healthcare systems.
 
- AI Likely Drives Growth Expansion
+ Expand Digital Health Infrastructure Initiatives - Advance initiatives in telehealth services, remote patient monitoring technologies, and healthcare data integration systems designed to improve healthcare accessibility and operational efficiency.
 
- New global facilities are needed to keep pace with growth projections for artificial intelligence. According to UN Trade and Development statistics, the AI market is forecast to rise from roughly $200-$400 billion to more than $1.8 trillion-$4.8 trillion by 2030-2033. One key building material for those projects will be copper, for use from plumbing to electrical infrastructure, as the industry builds out to meet growth.
+ Establish Strategic Healthcare and Technology Partnerships - Pursue partnerships with healthcare providers, technology developers, and regional organizations that may support platform development and future deployment opportunities.
 
- At the forefront of AI governance initiatives are the G7 countries (U.S., Canada, France, Germany, Italy, Japan and the United Kingdom). Other countries are watching how those initiatives develop for adaptation.
+ Evaluate Targeted Technology Acquisitions - Identify and evaluate potential acquisitions or technology integrations that may accelerate development of the Company’s AI healthcare platform and digital infrastructure.
 
- Furthermore, the companies seen shaping the AI landscape are multinational giants such as Apple, Meta, Open A.I., Microsoft and Nvidia that have the resources to invest into AI now and into the future. Bechtel Corp., Turner Construction Co., Kiewet Corp., Fluor Corp., DPR Construction and AECOM all have annual revenues between $14 billion and $23 billion.
+ Strengthen Operational and Corporate Infrastructure - Continue developing the operational, governance, and compliance framework necessary to support the Company’s long-term growth and responsibilities as a public company.
 
- An increasing share of revenues from those countries could correlate with increased copper demand.
+ Expand Market Engagement in Latin America - Focus initial market engagement efforts across Latin America, where the Company believes digital healthcare infrastructure and artificial intelligence-driven technologies may support improved healthcare access and system efficiency.
 
- Copper’s Supply Chain
+ “Our mission reflects a disciplined commitment to developing scalable digital healthcare technologies designed to address real operational challenges in healthcare delivery,” said Dr. Kevin Rodan Levy, Chief Executive Officer of Catalyst Crew Technologies Corp. “Throughout 2026, we are focused on advancing the foundational technologies, partnerships, and operational infrastructure that will support the long-term development of our platform.”
 
- Copper can be found throughout the world. Chile produces the most copper, extracting 5.3 million tons in 2024, followed by the Democratic Republic of the Congo (3.3M tons), Peru (2.6M tons) and China (1.8M tons). Production is expected to grow in the mid-single digits throughout this decade, according to the UN Trade and Development organization.
+ About Catalyst Crew Technologies Corp.
 
- Due to copper’s essential role in the green energy transition and industries stepping away from fossil fuels, its demand is growing and, for many observers, is expected to be sustained.
+ Catalyst Crew Technologies Corp. is an artificial intelligence-driven healthcare technology company focused on developing scalable digital health solutions for emerging markets, with an initial emphasis on Latin America. The Company is actively executing its strategic transition into AI-enabled healthcare and pursuing opportunities across telehealth infrastructure, remote patient monitoring, healthcare data analytics, and integrated digital care platforms designed to improve access, efficiency, and care coordination.
 
- By the early 2030s, this demand is expected to exceed supply by more than 6 million metric tonnes annually, with copper consumption rising from 25 million metric tons in 2021 to 39 million metric tons by 2040, according to the UN Trade and Development statistics.
+ Through technology development initiatives, strategic partnerships, and targeted acquisitions, CCTC is building an integrated healthcare technology platform positioned to address the growing demand for modernized healthcare delivery systems across emerging markets.
 
- However, current mining rates may only see a 16% increase in primary copper production by 2040, far below the needed 56%, indicating a substantial shortfall. While recycled copper currently bridges some of the supply gap, new mines and improved recycling are essential to prevent severe copper shortages by 2040, according to Addionics.
+ Forward-Looking Statements
 
- Riding The Wave
+ This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934. Forward-looking statements include, but are not limited to, statements regarding the Company’s business strategy, leadership initiatives, strategic transactions, operational execution, regulatory matters, and future operations.
 
- Total return performance has also been robust for COPP and COPJ, with COPP up 98% in the past year and COPJ at 140%, as of February 2026. At the same time, it is necessary to keep in mind that past performance does not guarantee future performance.
+ Forward-looking statements are based on current expectations and assumptions that involve risks and uncertainties. Actual results may differ materially from those expressed or implied due to various factors, including but not limited to the Company’s ability to successfully implement its business plan, secure financing, complete acquisitions, comply with regulatory requirements, and general market and economic conditions.
 
- Access to metal has gotten easier over the years, with the funds mentioned that can all be purchased through any online brokerage or by asking your financial advisor. Check out Sprott’s website for more information here.
+ The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
 
- *An ETF is described as efficient when it is structured to seek its intended investment exposure with relatively low costs and limited operational frictions, such as tracking differences or trading spreads. Efficiency does not imply better performance or results and can vary over time.
+ Disclaimer
 
- None of the company names mentioned above comprise current holdings of either COPP or COPJ. All holdings are subject to change.
+ This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company. This announcement relates solely to a change in corporate strategy and proposed corporate actions and does not represent the completion of commercial deployment or revenue-generating operations.
 
- Featured image from Shutterstock.
+ The Company is a development-stage enterprise and has not generated revenues from its newly announced business direction. There can be no assurance that the Company will successfully implement its business plan, complete acquisitions, secure financing, obtain regulatory approvals, or generate revenues.
 
- This content was originally published on Benzinga. Read further disclosures here.
+ Any investment decision should be made solely on the basis of information contained in the Company’s filings with the U.S. Securities and Exchange Commission and other publicly available documents. The Company’s securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company’s SEC filings before making any investment decision.
 
- This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
+ No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
 
- An investor should consider the investment objectives, risks, charges and expenses of each fund carefully before investing. To obtain a fund’s Prospectus, which contains this and other information, contact your financial professional, call 1.888.622.1813 or visit SprottETFs.com. Read the Prospectus carefully before investing.
+ Investor Relations Contact
 
- Exchange Traded Funds (ETFs) are considered to have continuous liquidity because they allow for an individual to trade throughout the day, which may indicate higher transaction costs and result in higher taxes when fund shares are held in a taxable account.
-
- The funds are non-diversified and can invest a greater portion of assets in securities of individual issuers, particularly those in the natural resources and/or precious metals industry, which may experience greater price volatility. Relative to other sectors, natural resources and precious metals investments have higher headline risk and are more sensitive to changes in economic data, political or regulatory events, and underlying commodity price fluctuations. Risks related to extraction, storage and liquidity should also be considered.
-
- Shares are not individually redeemable. Investors buy and sell shares of the funds on a secondary market. Only “authorized participants” may trade directly with the fund, typically in blocks of 10,000 shares.
-
- Sprott Asset Management USA, Inc. is the Investment Adviser to the Sprott ETFs. ALPS Distributors, Inc. is the Distributor for the Sprott ETFs and is a registered broker-dealer and FINRA Member. ALPS Distributors, Inc. is not affiliated with Sprott Asset Management USA, Inc.
+ +1 (787) 476-2350ir@catalystcrew.ai
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/why-copper-etfs-could-be-worth-a-closer-look-as-an-artificial-intelligence-play-7085695)
+[Original/Source Press Release](https://www.newmediawire.com/news/catalyst-crew-technologies-corp-announces-corporate-mission-and-strategic-objectives-for-2026-7085700)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-boom-fuels-copper-demand-spotlighting-mining-etfs-as-key-investment-play/a89a6276c694b498866f3f564cfd1df3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-crew-technologies-unveils-2026-ai-healthcare-strategy-for-emerging-markets/6b91cfd51cfa0d848bcd73c2893d7b8f) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/copper-etfs-emerge-as-strategic-investment-amid-ai-infrastructur/202629030)
+Pickup - [https://advos.io/en](https://advos.io/en/catalyst-crew-technologies-outlines-ai-healthcare-strategy-for-e/202629041)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/403593-copper-etfs-gain-attention-as-ai-infrastructure-demand-drives-metals-strategic-importance)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/403723-catalyst-crew-technologies-corp-outlines-ai-healthcare-mission-and-2026-strategic-objectives)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338469-kupfer-etfs-gewinnen-an-bedeutung-da-ki-infrastrukturbedarf-die-strategische-relevanz-des-metalls-vorantreibt)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338479-catalyst-crew-technologies-corp-skizziert-ki-mission-im-gesundheitswesen-und-strategische-ziele-fur-2026)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338893-los-etf-de-cobre-captan-atencion-mientras-la-demanda-de-infraestructura-de-ia-impulsa-la-importancia-estrategica-del-metal)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338903-catalyst-crew-technologies-corp-delinea-su-mision-de-ia-en-el-sector-sanitario-y-sus-objetivos-estrategicos-para-2026)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339615-les-etf-sur-le-cuivre-attirent-lattention-alors-que-la-demande-dinfrastructures-dia-renforce-limportance-strategique-du-metal)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339625-catalyst-crew-technologies-corp-presente-sa-mission-dia-dans-le-secteur-de-la-sante-et-ses-objectifs-strategiques-pour-2026)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338412-etfs-de-cobre-ganham-atencao-a-medida-que-a-demanda-por-infraestrutura-de-ia-impulsiona-a-importancia-estrategica-do-metal)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338422-catalyst-crew-technologies-corp-apresenta-missao-de-ia-na-saude-e-objetivos-estrategicos-para-2026)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/copper-etfs-gain-attention-as-ai-infrastructure-drives-demand-fo/202629030)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/catalyst-crew-technologies-corp-announces-ai-healthcare-strategy/202629041)
 
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/403648-ai-infrastructure-boom-drives-copper-demand-amid-supply-constraints)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/catalyst-crew-technologies-corp-announces-ai-healthcare-mission/202629041)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/copper-etfs-gain-attention-as-ai-infrastructure-demand-drives-me/202629030)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403732-catalyst-crew-technologies-outlines-ai-healthcare-strategy-for-emerging-markets)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403616-copper-etfs-emerge-as-strategic-investment-amid-ai-infrastructure-expansion)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/403718-catalyst-crew-technologies-outlines-2026-strategy-for-ai-healthcare-expansion-in-emerging-markets)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/403621-ai-infrastructure-expansion-drives-copper-demand-creating-investment-opportunities-through-mining-etfs)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/403759-catalyst-crew-technologies-announces-ai-healthcare-mission-and-2026-strategic-objectives)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/knotOwrk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/wolfLgvX.webp)
