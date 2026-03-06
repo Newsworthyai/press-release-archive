@@ -1,74 +1,60 @@
-# Biohacking Index Spotlights Leaders from Functional Longevity Summit
+# South African Wellness Brand The Harvest Table Preparing to Launch Clean Collagen and Plant-Based Nutrition on Amazon
 
-Scottsdale, AZ (Newsworthy.ai) Thursday Mar 5, 2026 @ 9:30 AM Eastern — The three-day Functional Longevity Summit, hosted by Boston BioLife in Arizona, brought together physicians, researchers, and health innovators focused on the future of personalized precision medicine.
+Boca Raton, Florida (Newsworthy.ai) Thursday Mar 5, 2026 @ 4:40 PM America/Phoenix — The Harvest Table, the South African wellness brand known for its clean-label collagen and whole-food nutrition products, has announced plans to make its range available soon to U.S. consumers through Amazon.
 
- Unlike many wellness events, the summit combined scientific lectures, continuing medical education, and hands-on demonstrations of emerging health technologies.
+ The upcoming launch on Amazon represents the next phase of The Harvest Table’s introduction to the American market, expanding access to the brand’s approach to simple, nutrient-dense nutrition.
 
- Several companies featured at the event are now highlighted in the February Biohacking Index Monthly Wellness Report, which identifies promising health solutions based on expert nominations, practitioner feedback, and scientific research.
+ Founded by Catherine Clark and rooted in a mission to support everyday wellbeing through high-quality, clean ingredients, The Harvest Table has built a loyal customer base in South Africa by producing supplements made without added fillers, preservatives, artificial flavors, or dyes.
 
- Test, Don’t Guess A central theme throughout the summit was the shift toward precision, data-driven medicine.
+ Products Planned for Amazon The initial product lineup expected to be available includes:
 
- Clinicians emphasized a simple principle: test, don’t guess.
+ * Bovine Collagen Granules 350 g (12.3 oz) Pouch
+* Multi Collagen Granules 350 g (12.3 oz) Pouch
+* Multi Collagen Radiance 350 g (12.3 oz) Pouch
+* Vegan Protein Powder 550 g (19.4 oz) Pouch
 
- Advanced diagnostics—like those offered by Generation Lab—allow physicians to identify the underlying drivers of disease using biomarkers, metabolic data, and functional testing.
+ Designed for Everyday Wellbeing Across the entire range, The Harvest Table products are designed to:
 
- Instead of treating symptoms alone, the goal is to identify and address the root cause for each individual patient.
+ * Nourish daily wellbeing, not treat or cure medical conditions
+* Support foundational systems including gut health, joint mobility, skin integrity, and energy
+* Deliver highly bioavailable nutrients that help support long-term vitality
 
- New Approaches to Chronic Disease Former spinal surgeon Dr. Jeff Gross shared how regenerative strategies may help some patients avoid invasive procedures.
+ The products are designed for everyday use, supporting wellbeing through clean, food-based nutrition.
 
- His company, reCellebrate, focuses on nutraceutical approaches designed to support cellular repair and recovery as part of a broader integrative care strategy.
+ Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house in a custom-built facility in South Africa that:
 
- A Therapy Gaining Attention One of the most discussed clinical technologies at the summit was Therapeutic Plasma Exchange (TPE), presented by Lifespan Edge.
+ * Passes annual Food Safety Assessment (FSA) audits
+* Meets GMP requirements
+* Is recognized as a Food Safe Facility
+* Is Halaal-certified by the Muslim Judicial Council (MJC)
 
- The therapy has been used in hospital medicine for decades to treat certain autoimmune and neurological conditions. Interest is now expanding as researchers explore its role in inflammatory disease and longevity.
+ Product Attributes & Certifications Products entering the U.S. market are gluten-free and biodegradable, and export products are Halaal-certified at the product level by the National Independent Halaal Trust (NIHT). Sustainability is emphasized through recyclable packaging and responsible manufacturing practices.
 
- Lifespan Edge currently operates clinics in Texas and Puerto Rico, with a Florida location opening soon.
+ “Our goal has always been to make good nutrition simple and trustworthy,” said Catherine Clark, Founder of The Harvest Table. “Launching on Amazon allows us to introduce our approach to clean, everyday wellness to a much broader audience.”
 
- Longevity expert Dr. Michael Roizen, former Chief Wellness Officer at Cleveland Clinic, also spoke at the summit about extending healthspan through preventative medicine.
+ “Expanding into the U.S. through Amazon is an exciting step for our brand,” added Sam Clark, CEO of The Harvest Table. “It allows consumers to easily discover products built on transparency, ingredient integrity, and consistent quality.”
 
- Tools Supporting Health Optimization Several companies showcased technologies designed to support everyday health and recovery:
+ Availability timing and additional details will be announced soon.
 
- • Relax Saunas presented its portable infrared sauna system for heat therapy and metabolic support• N1O1, working alongside nitric oxide researcher Dr. Nathan Bryan, focuses on supporting nitric oxide pathways that influence circulation and vascular health• Alvara Life introduced an adaptogenic honey/"nectar" formulation designed to support energy, recovery, and stress resilience• Halotherapy Solutions demonstrated respiratory wellness technologies including its Halo Pocket device• InhaleH2, founded by molecular hydrogen researcher Dr. Tyler LeBaron, presented hydrogen inhalation systems for home and clinical use. In a world of fridge technology, experts like Dr. LeBaron are leading the charge with safe and efficacious cutting edge tech to help transform lives.
+ For more information, visit The Harvest Table website, and their Instagram and Facebook channels.
 
- Why This Matters As longevity medicine evolves, clinicians are increasingly seeking evidence-based tools that go beyond symptom management.
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
 
- The collaboration between Boston BioLife, NDNR (Naturopathic Doctor News & Review), and Wellness Eternal’s Biohacking Index Monthly Wellness Report aims to highlight emerging solutions that support personalized, root-cause medicine.
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
 
- For patients and practitioners alike, the shift is clear:
-
- Healthcare is moving away from one-size-fits-all treatment—and toward precision strategies designed for the individual. 
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603052201/biohacking-index-spotlights-leaders-from-functional-longevity-summit)
+[Original/Source Press Release](https://newsworthy.ai/news/202603052207/south-african-wellness-brand-the-harvest-table-preparing-to-launch-clean-collagen-and-plant-based-nutrition-on-amazon)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/functional-longevity-summit-advances-personalized-medicine-revolution/55c8755a079ad6d87356c3a918cab157) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-expands-to-u-s-via-amazon/d50215b882d6c1ba3a1ea5be1eb47fe0) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/functional-longevity-summit-highlights-shift-toward-precision-da/202629034)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/403665-functional-longevity-summit-drives-shift-toward-personalized-precision-medicine)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338473-functional-longevity-summit-treibt-wandel-hin-zu-personalisierter-prazisionsmedizin-voran)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338897-la-cumbre-de-longevidad-funcional-impulsa-el-cambio-hacia-la-medicina-de-precision-personalizada)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339619-le-sommet-sur-la-longevite-fonctionnelle-accelere-la-transition-vers-une-medecine-de-precision-personnalisee)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338416-cupula-da-longevidade-funcional-impulsiona-mudanca-rumo-a-medicina-personalizada-de-precisao)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/functional-longevity-summit-drives-shift-toward-precision-root-c/202629034)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/biohacking-index-highlights-emerging-precision-medicine-solution/202629034)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403682-biohacking-index-report-highlights-precision-medicine-innovations-from-functional-longevity-summit)
-
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/202603/403685-functional-longevity-summit-highlights-shift-toward-personalized-precision-medicine)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/5/pinkwRNb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/5/meanDYxn.webp)

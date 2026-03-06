@@ -1,98 +1,52 @@
-# Catalyst Crew Technologies Corp. Announces Corporate Mission and Strategic Objectives for 2026
+# HeartBeam (BEAT) Enrolls First Patients in ALIGN-ACS Pilot Study for Heart Attack Detection
 
-CARACAS, VENEZUELA - March 5, 2026 (NEWMEDIAWIRE) - Catalyst Crew Technologies Corp. (OTC: CCTC) (the “Company”) today announced its corporate mission statement and strategic objectives for 2026 as the Company continues executing its transition toward artificial intelligence-enabled healthcare technology solutions focused on emerging markets.
+LOS ANGELES, CA - March 5, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT), a medical technology company focused on transforming cardiac care by providing powerful cardiac insights, today announced the enrollment of the first patients in its ALIGN-ACS pilot study evaluating the HeartBeam System for heart attack detection. The first patients were enrolled by Prof. Dr. Vladan Vukcevic at the University Clinical Center of Serbia in Belgrade, marking a key step toward generating the clinical data needed to expand the HeartBeam System’s indication beyond arrhythmia assessment to include heart attack detection.
 
- The Company also wishes to clarify that a previous press release inadvertently included an incorrect link to the Company’s previously filed Current Report on Form 8-K. The correct link to the filing is available at:
+ To view the full press release, visit https://ibn.fm/636rp
 
- https://www.sec.gov/Archives/edgar/data/1477960/000147793226001029/cctc_8k.htm
+ About HeartBeam Inc.
 
- Corporate Mission
+ HeartBeam Inc. is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar directions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024 and the 12-lead ECG synthesis software in December 2025(1) . The Company holds over 20 issued patents related to technology enablement.
 
- Our mission is to develop scalable, artificial intelligence-driven healthcare technologies that improve access, efficiency, and care coordination across emerging markets. By combining digital health infrastructure, data intelligence, and strategic partnerships, the Company aims to support more connected and effective healthcare delivery systems, with an initial focus on Latin America.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- 2026 Strategic Objectives
+ The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
- As part of its operational roadmap, the Company has identified several strategic priorities for 2026 designed to support the continued development of its AI-enabled healthcare platform.
+ Forward Looking Statements
 
- Key objectives include:
-
- Advance AI-Enabled Healthcare Platform Development - Continue developing the Company’s core artificial intelligence-driven healthcare technology framework designed to support digital care coordination, healthcare data analytics, and operational efficiency across healthcare systems.
-
- Expand Digital Health Infrastructure Initiatives - Advance initiatives in telehealth services, remote patient monitoring technologies, and healthcare data integration systems designed to improve healthcare accessibility and operational efficiency.
-
- Establish Strategic Healthcare and Technology Partnerships - Pursue partnerships with healthcare providers, technology developers, and regional organizations that may support platform development and future deployment opportunities.
-
- Evaluate Targeted Technology Acquisitions - Identify and evaluate potential acquisitions or technology integrations that may accelerate development of the Company’s AI healthcare platform and digital infrastructure.
-
- Strengthen Operational and Corporate Infrastructure - Continue developing the operational, governance, and compliance framework necessary to support the Company’s long-term growth and responsibilities as a public company.
-
- Expand Market Engagement in Latin America - Focus initial market engagement efforts across Latin America, where the Company believes digital healthcare infrastructure and artificial intelligence-driven technologies may support improved healthcare access and system efficiency.
-
- “Our mission reflects a disciplined commitment to developing scalable digital healthcare technologies designed to address real operational challenges in healthcare delivery,” said Dr. Kevin Rodan Levy, Chief Executive Officer of Catalyst Crew Technologies Corp. “Throughout 2026, we are focused on advancing the foundational technologies, partnerships, and operational infrastructure that will support the long-term development of our platform.”
-
- About Catalyst Crew Technologies Corp.
-
- Catalyst Crew Technologies Corp. is an artificial intelligence-driven healthcare technology company focused on developing scalable digital health solutions for emerging markets, with an initial emphasis on Latin America. The Company is actively executing its strategic transition into AI-enabled healthcare and pursuing opportunities across telehealth infrastructure, remote patient monitoring, healthcare data analytics, and integrated digital care platforms designed to improve access, efficiency, and care coordination.
-
- Through technology development initiatives, strategic partnerships, and targeted acquisitions, CCTC is building an integrated healthcare technology platform positioned to address the growing demand for modernized healthcare delivery systems across emerging markets.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934. Forward-looking statements include, but are not limited to, statements regarding the Company’s business strategy, leadership initiatives, strategic transactions, operational execution, regulatory matters, and future operations.
-
- Forward-looking statements are based on current expectations and assumptions that involve risks and uncertainties. Actual results may differ materially from those expressed or implied due to various factors, including but not limited to the Company’s ability to successfully implement its business plan, secure financing, complete acquisitions, comply with regulatory requirements, and general market and economic conditions.
-
- The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
-
- Disclaimer
-
- This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company. This announcement relates solely to a change in corporate strategy and proposed corporate actions and does not represent the completion of commercial deployment or revenue-generating operations.
-
- The Company is a development-stage enterprise and has not generated revenues from its newly announced business direction. There can be no assurance that the Company will successfully implement its business plan, complete acquisitions, secure financing, obtain regulatory approvals, or generate revenues.
-
- Any investment decision should be made solely on the basis of information contained in the Company’s filings with the U.S. Securities and Exchange Commission and other publicly available documents. The Company’s securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company’s SEC filings before making any investment decision.
-
- No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
-
- Investor Relations Contact
-
- +1 (787) 476-2350ir@catalystcrew.ai
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/catalyst-crew-technologies-corp-announces-corporate-mission-and-strategic-objectives-for-2026-7085700)
+[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-enrolls-first-patients-in-align-acs-pilot-study-for-heart-attack-detection-7085711)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-crew-technologies-unveils-2026-ai-healthcare-strategy-for-emerging-markets/6b91cfd51cfa0d848bcd73c2893d7b8f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-enrolls-first-patients-in-groundbreaking-heart-attack-detection-study/78bdac6c3291700d7633eedc6f385948) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/catalyst-crew-technologies-outlines-ai-healthcare-strategy-for-e/202629041)
+Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-enrolls-first-patients-in-align-acs-pilot-study-for-he/202629046)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/403723-catalyst-crew-technologies-corp-outlines-ai-healthcare-mission-and-2026-strategic-objectives)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/403779-heartbeam-initiates-align-acs-pilot-study-for-heart-attack-detection-technology)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338479-catalyst-crew-technologies-corp-skizziert-ki-mission-im-gesundheitswesen-und-strategische-ziele-fur-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338484-heartbeam-startet-align-acs-pilotstudie-zur-herzinfarkterkennungstechnologie)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338903-catalyst-crew-technologies-corp-delinea-su-mision-de-ia-en-el-sector-sanitario-y-sus-objetivos-estrategicos-para-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/338909-heartbeam-inicia-el-estudio-piloto-align-acs-para-su-tecnologia-de-deteccion-de-infartos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339625-catalyst-crew-technologies-corp-presente-sa-mission-dia-dans-le-secteur-de-la-sante-et-ses-objectifs-strategiques-pour-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339630-heartbeam-lance-letude-pilote-align-acs-pour-sa-technologie-de-detection-des-crises-cardiaques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338422-catalyst-crew-technologies-corp-apresenta-missao-de-ia-na-saude-e-objetivos-estrategicos-para-2026)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338427-heartbeam-inicia-estudo-piloto-align-acs-para-tecnologia-de-deteccao-de-ataque-cardiaco)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/catalyst-crew-technologies-corp-announces-ai-healthcare-strategy/202629041)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-initiates-pilot-study-for-portable-heart-attack-detect/202629046)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/catalyst-crew-technologies-corp-announces-ai-healthcare-mission/202629041)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-enrolls-first-patients-in-align-acs-pilot-study-for-he/202629046)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403732-catalyst-crew-technologies-outlines-ai-healthcare-strategy-for-emerging-markets)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/403792-heartbeam-enrolls-first-patients-in-align-acs-pilot-study-for-heart-attack-detection-technology)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/403718-catalyst-crew-technologies-outlines-2026-strategy-for-ai-healthcare-expansion-in-emerging-markets)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/403759-catalyst-crew-technologies-announces-ai-healthcare-mission-and-2026-strategic-objectives)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/403797-heartbeam-enrolls-first-patients-in-align-acs-study-for-heart-attack-detection-technology)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/wolfLgvX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/5/bestbPh4.webp)
