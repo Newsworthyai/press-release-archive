@@ -1,54 +1,50 @@
-# Bitcoin Bancorp to Present at NIBA’s 152nd Investment Conference in Fort Lauderdale Florida on March 11-12
+# SS Innovations Announces Completion of an $18.6 Million Private Placement to Support Growth Initiatives
 
-Executives Will Deliver Corporate Presentation and Host One-on-one Meetings with Members of the Investment and Digital Asset Communities
+Financing led by Certain of the Company’s Directors and Executive Officers
 
  
 
- LAS VEGAS, NV, March 9, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Bitcoin Bancorp, Inc. (OTC: BCBC) (“Bitcoin Bancorp” or the “Company”), the holder of foundational patents for Bitcoin ATMs, and among a small number of publicly traded Bitcoin ATM network owner/operators, today announced that the Company will present at the National Investment Banking Association (“NIBA”) 152nd Investment Conference taking place March 11-12 [2026] at The Westin Fort Lauderdale Beach Resort.
+ Fort Lauderdale, FL, March 9, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – SS Innovations International, Inc. (the “Company” or “SS Innovations”) (Nasdaq: SSII), a developer of innovative surgical robotic technologies dedicated to making robotic surgery affordable and accessible to a global population, today announced that on March 6, 2026, the Company completed a private placement of its common stock (the “Private Placement”) which generated approximately $18.6 million in gross proceeds, before deducting offering expenses.
 
- During the event, Bitcoin Bancorp executives will deliver a corporate presentation and participate in one-on-one meetings with investors, investment professionals and any members of the broader digital-asset community attending the conference.
+ In the offering, the Company offered and sold a total of 5,774,839 shares of common stock consisting of:
 
- “Presenting at NIBA provides an opportunity to engage directly with the investment community and discuss Bitcoin Bancorp’s strategy as we continue expanding our licensed Bitcoin ATM network and retail digital-asset infrastructure,” said Eric Noveshen, Director of Bitcoin Bancorp. “We believe the Company occupies a unique position within the market as we work to scale secure and compliant retail access points for digital assets.”
+ * an aggregate of 1,300,006 shares of common stock at an average price of $4.00 per share, or a total of approximately $5.2 million, to Dr. Sudhir Srivastava, our Chairman and Chief Executive Officer ($2.0 million), Dr. Frederic H. Moll, our Vice-Chairman ($2.0 million), and Tim Adams, a director ($1.197 million); and
 
- Across its growing network, Bitcoin Bancorp is focused on pairing access to digital assets with strong fraud-prevention and compliance controls. The Company believes that expanding retail access to cryptocurrency must be matched with responsible operating standards designed to keep the in-store experience safe, transparent, and familiar for everyday consumers. This approach is especially relevant as Bitcoin Bancorp works to align its recently announced retail rollout strategy with regional and nationally recognized convenience-store chains – a strategy that management plans to highlight during the NIBA conference.
+ * an aggregate of 4,474,833 shares of common stock at $3.00 per share, or a total of approximately $13.4 million, to existing and new investors, led by Manipal Global Health Services, an existing shareholder.
 
- Mr. Noveshen continued, “We look forward to meeting with investors in person and discussing how our next-generation licensed Bitcoin ATMs position the Company for long-term growth within the digital-asset infrastructure sector.”
+ SS Innovations intends to use the net proceeds from this financing for working capital and other general corporate purposes, including advancing the Company’s global expansion efforts.
 
- For investor and general information, please email contact@BitcoinBancorp.com or call us at (775) 237-8856.
+ In connection with a $2.5 million investment by one of the non-affiliate investors in the Private Placement, SS Innovations will pay a FINRA member firm a cash commission of $175,000 (7% of the investment) and issue to such firm five-year warrants to purchase 41,667 shares of our common stock at an exercise price of $3.45 per share.
 
- About Bitcoin Bancorp, Inc.
+ Dr. Sudhir Srivastava, Chairman of the Board and Chief Executive Officer of SS Innovations, commented, “The net proceeds from this financing will advance our growth initiatives in India and other existing global markets, while supporting our preparation for entry into the United States and European Union markets. We anticipate that the U.S. Food and Drug Administration will complete its review of our 510(k) premarket notification for our SSi Mantra surgical robotic system by mid-2026. We also continue along the pathway towards a European Union CE marking certification for the SSi Mantra, which we believe we can also obtain in 2026.”
 
- Headquartered in Las Vegas, Nevada, Bitcoin Bancorp, Inc. (OTC: BCBC) – is a diversified digital asset infrastructure and Banking-as-a-Service (BaaS) company focused on expanding secure retail access to cryptocurrency and next-generation financial services through licensed Bitcoin ATM networks, blockchain technologies, and Web 3.0–enabled platforms. As previously announced, Bitcoin Bancorp, through its wholly owned subsidiary First Bitcoin Capital LLC, owns and exclusively licenses foundational intellectual property related to Bitcoin ATMs, including U.S. Patent Nos. US9135787B1 and US10332205B1. Bitcoin Bancorp owns Bitcoin ATMs that are operated by licensed third-party operators within the jurisdictions in which they reside, forming a growing network of compliant retail access points for digital assets across convenience-store and retail environments. Bitcoin Bancorp is committed to advancing blockchain-enabled financial infrastructure through secure technology platforms, strategic retail partnerships, and responsible operating standards. Bitcoin Bancorp is not licensed as a bank in the United States and does not provide custody or banking services
+ Dr. Srivastava continued, “Insider participation in this financing reflects our strong confidence in SS Innovations’ future and our commitment to democratizing access to world-class surgical robotic care. We appreciate the continuing support of Manipal Global Health Services, a large existing shareholder, and welcome a respected group of new shareholders in the Company.”
 
- Shareholders, potential investors, and others should note that we announce material events and material financial information to our shareholders and the public using our website and the social media addresses listed below, as well as in our OTC Markets’ disclosures, press releases, public conference calls, and webcasts. We also use social media to communicate with our email subscribers and the public about Bitcoin Bancorp, services, and other related information. It is possible that the information we post on social media could be deemed to be material information. Therefore, we encourage shareholders, the media, and others interested in Bitcoin Bancorp to review the information we post on Bitcoin Bancorp’s social media channels listed below. This list may be updated from time to time.
+ The securities being sold in the Private Placement have not been registered under the Securities Act of 1933, as amended (the “Securities Act”), or applicable state securities laws and accordingly may not be offered or sold in the United States absent registration with the Securities and Exchange Commission or an applicable exemption from the registration requirements of the Securities Act and such applicable state securities laws.
 
- Join our newsletter and view our Blog at: https://bitcoinbancorp.com/blog/
+ This press release does not constitute an offer to sell or the solicitation of an offer to buy these securities, nor shall there be any sale of these securities in any state or jurisdiction in which such offer, solicitation or sale would be unlawful prior to registration or qualification under the securities laws of any such state or jurisdiction.
 
- Follow us at:
+ About SS Innovations
 
- Website: https://www.BitcoinBancorp.com/
+ SS Innovations International, Inc. (Nasdaq: SSII) develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of robotic surgical procedures including cardiac surgery. An American company headquartered in India, SS Innovations plans to expand the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions. Visit the Company’s website at ssinnovations.com or LinkedIn for more information and updates.
 
- X (f/k/a Twitter): @BCBC_stock
+ About the SSi Mantra
 
- Reddit: https://www.reddit.com/r/BULT/
+ The SSi Mantra surgical robotic system is a user-friendly, modular, multi-arm system with many advanced technology features, including: 3 to 5 modular robotic arms, an open-faced ergonomic surgeon command center, a large 3D 4K monitor, a touch panel monitor for all patient related information display, a virtual real-time image of the robotic patient side arm carts, and the ability for superimposition of 3D models of diagnostic imaging. A vision cart provides the table-side team with the same magnified 3D 4K view as the surgeon to provide better safety and efficiency. The SSi Mantra utilizes over 40 different types of robotic endo-surgical instruments to support different specialties, including cardiac surgery. The SSi Mantra has been clinically validated in India in more than 100 different types of surgical procedures.
 
- Facebook: https://www.facebook.com/BulletBlockchainInc/
+ Forward Looking Statements
 
- Instagram: https://www.instagram.com/bitcoin_bancorp/#
+ This press release may contain statements that are not historical facts and are considered forward-looking within the meaning of the Private Securities Litigation Reform Act of 1995. The words “anticipate,” “assume,” “believe,” “estimate,” “expect,” “will,” “intend,” “may,” “plan,” “project,” “should,” “could,” “seek,” “designed,” “potential,” “forecast,” “target,” “objective,” “goal,” or the negatives of such terms or other similar expressions to identify such forward-looking statements. These statements relate to future events or SS Innovations’ future financial performance and involve known and unknown risks, uncertainties and other factors that may cause our actual results, levels of activity, performance, or achievements to be materially different from any future results, levels of activity, performance or achievements expressed or implied by these forward-looking statements. Except as required by applicable law, including the securities laws of the United States and the rules and regulations of the SEC, we do not assume any obligation to update any forward-looking statement.
 
- LinkedIn: https://www.linkedin.com/in/bitcoin-bancorp-inc/
+ Investor Contact:The Equity GroupKalle Ahl, CFAT: (303) 953-9878kahl@theequitygroup.com
 
- Medium: https://medium.com/@bitcoinbancorp
+ Devin Sullivan, Managing DirectorT: (212) 836-9608dsullivan@theequitygroup.com
 
- Find investor and general information at: https://www.otcmarkets.com/stock/BCBC/overview
+ Media Contact:RooneyPartners LLCKate BarretteT: (212) 223-0561kbarrette@rooneypartners.com
 
- Forward-Looking Statements:
+ Source: SS Innovations International, Inc.
 
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. Statements in this press release that are not statements of historical or current fact constitute “forward-looking statements.” Such forward-looking statements involve known and unknown risks, uncertainties, and other unknown factors that could cause the Company’s actual operating results to be materially different from any historical results or from any future results expressed or implied by such forward-looking statements. In addition to these factors, actual future performance, outcomes, and results may differ materially because of more general factors, including (without limitation) general industry and market conditions and growth rates, economic conditions, and governmental and public policy changes. The forward-looking statements included in this press release represent the Company’s views as of the date of this press release, and these views could change at some point in the future. However, the Company specifically disclaims any obligation to do so. These forward-looking statements should not be relied upon as representing the Company’s views as of any date subsequent to the date of the press release. In addition to statements that explicitly describe these risks and uncertainties, readers are urged to consider statements that contain terms such as “anticipate,” “anticipates,” “believes,” “belief,” “envision,” “expects,” “expect,” “intend,” “plans,” “plans,” “plan,” to be uncertain and forward-looking.
-
- Contact us: contact@BitcoinBancorp.com
-
- SOURCE: Bitcoin Bancorp, Inc. f/k/a Bullet Blockchain, Inc.
+ The latest news and updates relating to $SSII are available in the company’s newsroom at: https://tinyurl.com/ssiinewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
@@ -56,19 +52,39 @@ Executives Will Deliver Corporate Presentation and Host One-on-one Meetings with
 
  
 
- The post Bitcoin Bancorp to Present at NIBA’s 152nd Investment Conference in Fort Lauderdale Florida on March 11-12 first appeared on Prism Media Wire. 
+ The post SS Innovations Announces Completion of an $18.6 Million Private Placement to Support Growth Initiatives first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/bitcoin-bancorp-to-present-at-nibas-152nd-investment-conference-in-fort-lauderdale-florida-on-march-11-12/)
+[Original/Source Press Release](https://prismmediawire.com/ss-innovations-announces-completion-of-an-18-6-million-private-placement-to-support-growth-initiatives/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-bancorp-to-present-at-niba-conference-showcasing-atm-network-expansion/476281fff18b88adaceb05fe1dd1dd69) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-secures-18-6m-to-fuel-global-robotic-surgery-expansion/cc1d6247ea21ffb462ddc8fa4125c13d) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ss-innovations-secures-186-million-in-private-placement-to-advan/202629271)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/405875-ss-innovations-secures-186-million-in-private-placement-to-advance-surgical-robotics-expansion)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339105-ss-innovations-obtiene-186-millones-de-dolares-en-colocacion-privada-para-impulsar-la-expansion-en-robotica-quirurgica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339861-ss-innovations-leve-186-millions-de-dollars-en-placement-prive-pour-accelerer-son-expansion-dans-la-robotique-chirurgicale)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ss-innovations-secures-186-million-in-private-placement-to-advan/202629271)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ss-innovations-secures-186-million-in-private-placement-to-advan/202629271)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406029-ss-innovations-secures-186-million-in-private-placement-to-fuel-global-surgical-robotics-expansion)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338685-ss-innovations-sichert-sich-186-millionen-us-dollar-durch-privatplatzierung-fur-den-ausbau-der-chirurgischen-robotik)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338628-ss-innovations-levanta-us-186-milhoes-em-colocacao-privada-para-avancar-na-expansao-da-robotica-cirurgica)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/406119-ss-innovations-raises-186-million-in-private-placement-to-fuel-surgical-robot-expansion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/9/glueuozs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/9/kiss9TaT.webp)
