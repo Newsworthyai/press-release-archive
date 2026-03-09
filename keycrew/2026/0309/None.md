@@ -1,52 +1,74 @@
-# What Alex Passler’s First 60 Days at Vallist Reveal About the Future of Premium Flex Workspace
+# Property Management Is the Next Industry That “Just Works” – Until It Doesn’t
 
-LONDON – Two months into operations at Finlaison House, Alex Passler‘s bet on premium flexible workspace is paying off in ways that have surprised even the former WeWork executive himself.
+On Friday nights in the 1990s, millions of Americans would drive across town, stand in line at Blockbuster, and hope the movie they wanted was still on the shelf. If it wasn’t, they settled for something else. And if they returned it late? They paid a fee they resented but never questioned.
 
- “Co-working spaces typically are relatively loud, buzzing places.” says Passler. “By design, we achieved a somewhat calming environment, which has been really well received. That was probably not even intentional, it just so happened that people are really embracing a slightly more toned down, quiet, and exclusive environment.”
+ That was just how it worked.
 
- The revelation challenges conventional wisdom in the flexible workspace industry, where energy and buzz have long been considered selling points. At Vallist‘s Holborn location, the opposite approach is resonating with professionals seeking productive environments rather than social scenes.
+ Until it wasn’t.
 
- Passler, former Head of WeWork Asia Pacific and The Americas Real Estate teams, launched Vallist with a hypothesis about changing workspace demands. The first sixty days have validated that thesis faster than anticipated.
+ It is a pattern Ben Handelman, Director of Automation and Operational Intelligence at Keasy, knows well, and one he believes is about to repeat itself in property management.
 
- “We’re in an interesting phase now,” Passler notes. “When you’re new to the market, people are using us as a test case. They’ll come in, experience working from there, see how it is, and then decide if it’s something for them long term.”
+ What Netflix understood, and what Blockbuster missed, wasn’t about movies. It was about incentive alignment. Blockbuster made more money when the customer experience got worse. Late returns, long lines, scarce inventory: these weren’t bugs in the business model. They were features. Netflix flipped that entirely. For the first time, a media company made more money when customers were happier. Same content, same audience, radically different architecture.
 
- The testing phenomenon has attracted unexpected demographics. Rather than the anticipated freelancers and small companies, Vallist is seeing larger corporations send team members to evaluate the space before committing.
+ You could tell the same story about taxis and Uber. In major cities, taxi companies controlled access through medallions, restricted supply to keep prices high, and dispatched drivers through human operators. Drivers were paid by meter time and route length, meaning longer trips and slower routes were good for revenue. Passengers optimized for getting somewhere quickly. Drivers were paid when it took longer. Uber did not buy medallions or hire drivers. It built a marketplace that connected supply to demand dynamically, and for the first time made more money when trips were faster, routes were cleaner, and idle time was lower. Same roads, same riders, radically different incentives.
 
- “We’ve actually had some quite big companies come in and use the space,” Passler reveals. “They’ll send one or two team members to go out, try it out, and report back on their experience.”
+ Or travel agents and Expedia. The pattern Handelman identifies is almost eerie in its consistency: a highly fragmented, headcount-driven industry with a conflict of interest baked into its revenue model, followed by an outsider who re-aligns incentives through technology, and then a collapse that, in retrospect, looks inevitable.
 
- The landlord partnership model, which eliminates lease risk through white-label management agreements, enables Vallist to maintain quality standards without the pressure to maximize occupancy immediately. This patient approach allows for curated member selection rather than rapid fill rates.
+ Property management, he argues, is next.
 
- “I think it’s a robust business plan and very good alignment with the landlord on how we run the space, which gives us the possibility to say no and be a bit more selective on the type of clientele that we bring in,” Passler explains. “We make sure that the clients we do bring into the space align with each other and create benefits by co-using or co-working in the same area.”
+ The structure is almost identical. Leasing, maintenance, renewals, compliance, vendor dispatch: most of it still happens locally and manually. Companies grow by hiring more coordinators, more leasing agents, more maintenance staff. And while many have layered in software and automation, the underlying model is largely unchanged. Technology helps a human make a decision, but the human still makes it.
 
- The strategy accepts slower initial ramp-up in exchange for long-term stickiness. “I’m sure we ramp up our occupancy a bit slower this way, but I think in the long term it keeps people stickier, provides a better experience, and that’s only possible with great alignment with the landlord,” Passler adds.
+ The conflict of interest runs deep. Maintenance markups, turnover fees, after-hours premiums: the more friction in the system, the more revenue it generates. Owners want occupancy, stability, and controlled costs. The incentive structure often rewards the opposite.
 
- Work Club memberships, Vallist’s alternative to traditional hot-desking, are following a different trajectory. After a slower start requiring market education, demand is accelerating as awareness builds.
+ What is different now, Handelman believes, is that the tools to re-architect this model actually exist. Not just to digitize the old workflows, but to move decision-making itself into systems rather than people. When the same situation happens twice, it should not require fresh judgment the second time. The system should recognize it, apply known rules, and route only the genuinely novel cases to human review.
 
- The Holborn location’s proximity to major law firms has shaped operational priorities. Vallist invested heavily in soundproofing and cybersecurity infrastructure to meet the demands of legal and financial services professionals handling sensitive information.
+ This is what Handelman means when he talks about “full-stack AI”: not replacing people, but being intentional about where judgment lives. People remain essential for empathy, authority, and compliance. But when decision quality lives in the system rather than in any individual, something important changes. Outcomes stay consistent even as teams evolve, and efficiency compounds rather than simply scales.
 
- As Passler evaluates lessons for future locations, the early data points toward maintaining the premium positioning while refining the office mix to include smaller suites that generate faster deal flow alongside the larger corporate spaces.
+ The companies that win the next wave of property management, in his view, won’t be the ones with the most staff or the most sophisticated dashboards. They’ll be the ones that figured out how to make the business model work with the landlord’s interests, not against them, and built systems disciplined enough to stay that way as they grow.
 
- About Vallist Vallist delivers premium flexible workspace through landlord partnerships that eliminate lease risk and enable patient investment in design, technology, and hospitality. Founded by former WeWork executive Alex Passler, Vallist creates hospitality-led environments for professionals who prioritize quality, privacy, and genuine service. Learn more at https://vallist.com.
+ Buildings aren’t going away. Residents aren’t going away. But highly fragmented, headcount-scaled, friction-monetized coordination layers have a poor historical track record once aligned incentives and technology-enabled scale enter a market.
+
+ History doesn’t repeat. But it does rhyme.
+
+ Ben Handelman is Director of Automation and Operational Intelligence at Keasy, a property management company built on flat-fee pricing, AI-driven workflows, and landlord control.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/what-alex-passlers-first-60-days-at-vallist-reveal-about-the-future-of-premium-flex-workspace/)
+[Original/Source Press Release](https://keycrew.co/journal/property-management-is-the-next-industry-that-just-works-until-it-doesnt/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vallist-s-quiet-co-working-bet-pays-off-attracts-big-corporations/2e7c181eeaf94c3b0735b7502e27c890) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/property-management-s-netflix-moment-ai-aligns-incentives/35adbce9b2867208756bdcbbc7082377) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/vallists-quiet-workspace-strategy-challenges-industry-norms-in-f/202629284)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406268-property-management-faces-disruption-as-ai-realigns-industry-incentives)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/406102-vallists-quiet-workspace-model-challenges-industry-norms-in-first-60-days)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/406292-property-management-faces-disruption-as-technology-realigns-industry-incentives)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338688-vallists-ruhiges-arbeitsplatzmodell-stellt-in-den-ersten-60-tagen-branchennormen-in-frage)
+Pickup - [https://advos.io/en](https://advos.io/en/property-management-industry-faces-disruption-as-technology-real/202629290)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/406345-property-management-industry-faces-disruption-through-incentive-realignment-and-ai-technology)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339159-la-industria-de-gestion-de-propiedades-enfrenta-una-disrupcion-mediante-la-realineacion-de-incentivos-y-la-tecnologia-de-ia)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338732-immobilienverwaltungsbranche-steht-vor-umwalzung-durch-anreizneuausrichtung-und-ki-technologie)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339917-lindustrie-de-la-gestion-immobiliere-confrontee-a-une-disruption-par-le-realignement-des-incitations-et-la-technologie-dia)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338671-setor-de-gestao-de-propriedades-enfrenta-disrupcao-com-realinhamento-de-incentivos-e-tecnologia-de-ia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/property-management-industry-faces-disruption-through-incentive/202629290)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/property-management-faces-disruption-as-technology-realigns-indu/202629290)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/406479-property-management-faces-disruption-as-technology-aligns-incentives-between-owners-and-service-providers)
+
+Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202603/406489-property-management-faces-disruption-as-technology-aligns-incentives-between-owners-and-service-providers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/263/9/hintU37v.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/263/9/join6sze.webp)

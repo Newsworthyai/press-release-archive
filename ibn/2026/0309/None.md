@@ -1,46 +1,54 @@
-# InvestorNewsBreaks – Nicola Mining Inc. (TSX.V: NIM) (FSE: HLIA) (OTCQB: HUSIF) Provides Update on Proposed Nasdaq Listing via ADR Structure
+# Ongoing Digital Monitoring Could Make Immunotherapy More Accessible
 
-This article has been disseminated on behalf of Nicola Mining Inc. and may include paid advertising.
+Ongoing digital monitoring could be about to solve one of modern medicine’s most frustrating access problems. Life-extending cancer immunotherapies exist and there are numerous patients who could benefit from such therapies, but a mandatory hospital stay requirement currently makes access to immunotherapy nigh impossible for rural and underserved patients.
 
- Nicola Mining (TSX.V: NIM) (FSE: HLIA) (OTCQB: HUSIF) provided an update on its previously announced plan to pursue a Nasdaq listing through an American Depositary Receipt (“ADR”) structure, a strategy intended to provide access to U.S. capital markets while preserving the company’s existing share capital structure on its home exchange. The company noted that ADRs can be structured to meet Nasdaq price requirements without requiring a reverse share consolidation, allowing Nicola to maintain its current share count while expanding access to U.S. investors through a dual-market trading framework. Nicola also confirmed that its proposed listing remains under Nasdaq review pursuant to Rule IM-5101-3, adopted in December 2025, which grants the exchange expanded discretionary authority to evaluate qualitative risks such as potential market manipulation before approving an initial listing.
+ As more patients access these transformational treatments, many more firms would be encouraged to join the ranks of entities like Calidi Biotherapeutics Inc. (NYSE American: CLDI) seeking to…
 
- To view the full press release, visit https://ibn.fm/sGlQt
+ Read More>>
 
- About Nicola Mining
+ About TinyGems
 
- Nicola Mining Inc. is a junior mining company listed on the Exchange and Frankfurt Exchange that maintains a 100% owned mill and tailings facility, located near Merritt, British Columbia. It has signed Mining and Milling Profit Share Agreements with high grade gold projects. Nicola’s fully permitted mill can process both gold and silver mill feed via gravity and flotation processes.
+ TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
 
- The Company owns 100% of the New Craigmont Project, a high-grade copper property, which covers an area of 10,913 hectares along the southern end of the Guichon Batholith and is adjacent to Highland Valley Copper, Canada’s largest copper mine. The Company also owns 100% of the Treasure Mountain Property, which includes 30 mineral claims and a mineral lease, spanning an area exceeding 2,200 hectares.
+ To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
 
- NOTE TO INVESTORS: The latest news and updates relating to HUSIF are available in the company’s newsroom at https://ibn.fm/HUSIF
+ For more information, please visit https://www.TinyGems.com
 
- About InvestorWire
+ Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
 
- For more information, please visit https://www.InvestorWire.com
-
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ TinyGems is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nicola-mining-inc-tsx-v-nim-fse-hlia-otcqb-husif-provides-update-on-proposed-nasdaq-listing-via-adr-structure/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/ongoing-digital-monitoring-could-make-immunotherapy-more-accessible/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nicola-mining-pursues-nasdaq-listing-via-adr-to-tap-u-s-markets/119e837782a93b3915ff61aac5a30499) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-monitoring-breaks-barriers-to-cancer-immunotherapy-access/6f9856128e743c0bddfa3ff07dd871f1) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/nicola-mining-pursues-nasdaq-listing-through-adr-structure-to-ac/202629277)
+Pickup - [https://advos.io/en](https://advos.io/en/digital-monitoring-could-expand-access-to-cancer-immunotherapy-f/202629295)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/406109-nicola-mining-inc-provides-update-on-proposed-nasdaq-listing-via-adr-structure)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/406524-digital-monitoring-could-expand-access-to-cancer-immunotherapy-for-rural-patients)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338737-digitale-uberwachung-konnte-zugang-zu-krebs-immuntherapie-fur-landliche-patienten-erweitern)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339184-la-monitorizacion-digital-podria-ampliar-el-acceso-a-la-inmunoterapia-contra-el-cancer-para-pacientes-rurales)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339922-la-surveillance-numerique-pourrait-elargir-lacces-a-limmunotherapie-anticancereuse-pour-les-patients-ruraux)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338676-monitoramento-digital-pode-ampliar-acesso-a-imunoterapia-para-cancer-em-pacientes-rurais)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/digital-monitoring-could-expand-access-to-cancer-immunotherapy-f/202629295)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/digital-monitoring-may-expand-access-to-cancer-immunotherapy-for/202629295)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406534-digital-monitoring-could-expand-access-to-cancer-immunotherapy-treatments)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/9/joltdUCs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/9/yarnISvF.webp)

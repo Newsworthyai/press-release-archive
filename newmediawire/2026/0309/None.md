@@ -1,64 +1,50 @@
-# Williams Safety &amp; Rescue LLC Launches SiteTracks: Transforming Safety Services With Proprietary Digital Technology
+# LIXTE Biotechnology (LIXT) Advances Lead Compound in Tumor Immunogenicity Research
 
-Innovative SaaS Solution Delivers Real-Time Safety Tracking and Compliance for Oil & Gas, Construction, and Refinery Sectors
+LOS ANGELES, CA - March 9, 2026 (NEWMEDIAWIRE) - Immunotherapy has transformed cancer treatment over the past decade, yet one of oncology’s most persistent challenges remains: Many tumors simply do not respond. Even breakthrough approaches such as PD-1 and PD-L1 inhibitors and CAR-T cell therapies can fail in tumors that remain immunologically “cold” or invisible to the immune system. Researchers are increasingly focused on strategies that make tumors more visible and susceptible to immune attack, and LIXTE Biotechnology Holdings (NASDAQ: LIXT) is developing a compound designed to contribute to that effort. Its lead candidate, LB-100, targets a cellular enzyme involved in tumor biology and immune regulation, with the goal of enhancing responsiveness to existing cancer therapies.
 
- HOUSTON, TEXAS - March 9, 2026 (NEWMEDIAWIRE) - Williams Safety & Rescue LLC, a recognized leader in turnkey safety solutions, is proud to announce the launch of SiteTracks, a proprietary SaaS digital platform designed to revolutionize safety services tracking across the oil and gas, construction, and refinery turnaround industries.
+ * The promise of immunotherapy lies in its ability to harness the body’s own immune defenses to recognize and destroy malignant cells
+* LB-100, the lead compound developed by LIXTE Biotechnology, is part of this emerging wave of tumor-sensitizing agents
+* The company is advancing LB-100 through clinical development in collaboration with academic and research institutions
 
- SiteTracks empowers organizations to monitor and manage a comprehensive range of safety metrics, safety behavioral monitoring including measurable manhours worked, safety observations, key performance indicators (KPIs), lockout/tagout (LOTO), safety audits and permits to work. This innovative technology supports HSSE managers in tracking real-time safety incidents, implementing corrective actions, and following incident resolutions, all from a unified digital dashboard. Built-in features enable the collection and storage of live video feeds, real-time photographs, and digital records, facilitating seamless compliance and audit readiness.
+ The promise of immunotherapy lies in its ability to harness the body’s own immune defenses to recognize and destroy malignant cells. Drugs targeting immune checkpoints such as PD-1 and PD-L1 have delivered durable responses in melanoma, lung cancer and other malignancies. According to the National Cancer Institute, immune checkpoint inhibitors work by blocking proteins that prevent T cells from attacking…
 
- As a full-service provider, Williams Safety & Rescue LLC sets itself apart by offering both expert safety services such as on-site HSE managers, safety techs, safety training, safety equipment and advanced in-house software in one integrated package. SiteTracks distinguishes the company from competitors by delivering a holistic solution that addresses every aspect of safety management, from field operations to executive oversight.
+ Read More
 
- SiteTracks’ real-time monitoring capabilities allow management to receive instant email and SMS alerts for urgent incidents, ensuring swift response and ongoing risk mitigation. The platform’s intuitive cloud based interface and robust digital storage mean’s safety data is always accessible, accurate, and secure - helping organizations meet regulatory demands and maintain a culture of safety excellence.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Williams Safety & Rescue LLC remains committed to advancing safety innovations, providing industry professionals with the tools and expertise they need to protect their teams and achieve operational excellence.
+ Forward Looking Statements
 
- Media Contact:John Williams Chief Executive Officer5718 Westheimer Rd. #1000Houston, TX 770571-855-SAFE-OPSWilliams-Safety.com
-
- Social Media Links:
-
- Williams Safety & Rescue: Company Page Admin | LinkedIn
-
- https://www.facebook.com/WilliamsSafetyRescue
-
- https://www.instagram.com/williamssafetyrescue/
-
- https://www.youtube.com/@WilliamsSafetyRescue
-
- 
-
- 
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/williams-safety-rescue-llc-launches-sitetracks-transforming-safety-services-with-proprietary-digital-technology-7085753)
+[Original/Source Press Release](https://www.newmediawire.com/news/lixte-biotechnology-lixt-advances-lead-compound-in-tumor-immunogenicity-research-7085763)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/williams-safety-launches-sitetracks-real-time-safety-platform-for-high-risk-industries/d61676068428789ad906fc561726928b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lixte-biotech-targets-cold-tumors-with-new-immunotherapy-enhancer/164f57b5fabc835e85261557e9497334) 
 
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/williams-safety-rescue-launches-sitetracks-platform-to-digitize/202629273)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406509-lixte-biotechnology-advances-tumor-sensitizing-compound-lb-100-to-address-immunotherapy-resistance)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/williams-safety-rescue-llc-launches-sitetracks-digital-platform/202629273)
+Pickup - [https://advos.io/en](https://advos.io/en/lixte-biotechnology-advances-tumor-sensitizing-compound-to-addre/202629294)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406027-williams-safety-rescue-launches-sitetracks-saas-platform-to-transform-industrial-safety-management)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/406525-lixte-biotechnology-advances-lb-100-compound-to-address-immunotherapy-resistant-tumors)
 
-Pickup - [https://advos.io/en](https://advos.io/en/williams-safety-rescue-launches-sitetracks-platform-to-digitize/202629273)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338736-lixte-biotechnology-bringt-lb-100-verbindung-voran-um-immuntherapieresistente-tumore-zu-behandeln)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/406108-williams-safety-rescue-launches-sitetracks-platform-to-digitize-safety-management-in-texas-industries)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339183-lixte-biotechnology-avanza-el-compuesto-lb-100-para-abordar-tumores-resistentes-a-la-inmunoterapia)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/339131-williams-safety-rescue-lanza-la-plataforma-sitetracks-para-digitalizar-la-gestion-de-seguridad-en-las-industrias-de-texas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339921-lixte-biotechnology-fait-progresser-le-compose-lb-100-pour-cibler-les-tumeurs-resistantes-a-limmunotherapie)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/406118-williams-safety-rescue-launches-sitetracks-platform-to-transform-industrial-safety-management)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338675-lixte-biotechnology-avanca-com-composto-lb-100-para-combater-tumores-resistentes-a-imunoterapia)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338630-williams-safety-rescue-lanca-plataforma-sitetracks-para-transformar-a-gestao-de-seguranca-industrial)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/lixte-biotechnology-advances-compound-targeting-immunologically/202629294)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/406117-williams-safety-rescue-launches-sitetracks-platform-to-digitize-safety-management-in-high-risk-industries)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lixte-biotechnology-advances-tumor-immunogenicity-research-with/202629294)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/9/harp7wl6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/9/milkEASw.webp)
