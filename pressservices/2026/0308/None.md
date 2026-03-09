@@ -1,51 +1,39 @@
-# Lucas Orthodontic Group: Expert Orthodontic Care in Nashville, TN
+# Feldman Orthodontics Sponsors 15th Annual Cheshire Road Race
 
-Transform Your Smile with Nashville's Leading Orthodontists
+Join Us for the 15th Annual Cheshire Road Race Sponsored by Feldman Orthodontics
 
- Nashville, United States - March 8, 2026 / Lucas Orthodontic Group /
+ Cheshire, United States - March 8, 2026 / Feldman Orthodontics /
 
- Lucas Orthodontic Group has established itself as a leading provider of orthodontic care in Nashville, TN. With a commitment to transforming smiles and enhancing the overall dental health of their patients, the team at Lucas Orthodontic Group specializes in a range of orthodontic services, including traditional braces, Invisalign, and other innovative treatments. Their modern approach to orthodontics, combined with a family-like atmosphere, ensures that every patient receives the highest level of care tailored to their individual needs.
+ Feldman Orthodontics is excited to announce its sponsorship of the 15th Annual Cheshire Road Race, set to take place on April 12, 2026. This event has become a cherished tradition in the community, with Feldman Orthodontics proudly supporting it since its inception in 2012. The road race is expected to attract around 2,000 runners and an equal number of spectators, all coming together to raise money for local charities. The Cheshire Road Race has raised nearly $2,000,000 for worthy causes, and Feldman Orthodontics looks forward to continuing this tradition.
 
-The orthodontists at Lucas Orthodontic Group are highly trained professionals who bring a wealth of experience to their practice. They understand that each patient is unique, which is why they take the time to develop personalized treatment plans that address specific dental concerns. Whether a patient is seeking braces for the first time or exploring the benefits of Invisalign, the team is dedicated to providing comprehensive consultations and ongoing support throughout the treatment process.
+The Cheshire Road Race has grown significantly over the years, becoming a highlight on the local calendar. It not only promotes health and fitness but also fosters a sense of community spirit. Participants of all ages and skill levels are encouraged to join in, whether they are seasoned runners or first-time participants. The funds raised during the Cheshire Road Race will be distributed to various local charities, helping to support initiatives that address critical needs in the community. The impact of these contributions is significant, as they help to improve the quality of life for many individuals and families in the area.
 
-Braces remain one of the most popular orthodontic solutions, and the orthodontists at Lucas Orthodontic Group are well-versed in the latest techniques and technologies. They offer a variety of braces options, including metal braces, ceramic braces, and lingual braces, allowing patients to choose the style that best fits their lifestyle and aesthetic preferences. The team is committed to making the braces experience as comfortable and effective as possible, ensuring that patients achieve the beautiful smiles they desire.
+Feldman Orthodontics, known for its commitment to providing exceptional orthodontic care, is dedicated to giving back to the community it serves. The practice has established itself as a leading orthodontist in Cheshire CT, Wallingford CT, and North Haven CT, offering a range of services that include traditional braces, clear aligners, and other innovative orthodontic treatments. By sponsoring the Cheshire Road Race, Feldman Orthodontics aims to give back to their patients and the community they serve.
 
-In addition to traditional braces, Lucas Orthodontic Group is proud to offer Invisalign, a revolutionary clear aligner system that has transformed the way orthodontic treatment is approached. Invisalign is particularly appealing to adults and teens who prefer a more discreet option for straightening their teeth. The orthodontists at Lucas Orthodontic Group are certified providers of Invisalign, and they utilize advanced technology to create custom aligners that gradually shift teeth into their desired positions. This innovative treatment not only enhances the aesthetic appeal of orthodontic care but also provides patients with the convenience of removable aligners, making it easier to maintain oral hygiene and enjoy their favorite foods.
+Feldman Orthodontics encourages everyone in the community to participate in this exciting event. Whether you are running, walking, or cheering from the sidelines, your involvement helps to strengthen the bonds within the community and supports vital local causes. As an orthodontist in Cheshire CT, Feldman Orthodontics understands the importance of community engagement. The practice has always prioritized building relationships with patients and their families, and sponsoring the Cheshire Road Race is a natural extension of that commitment. By actively participating in local events, Feldman Orthodontics aims to inspire others to get involved and make a positive impact.
 
-The expertise of the orthodontists at Lucas Orthodontic Group extends beyond just braces and Invisalign. They are also skilled in a variety of other orthodontic treatments, including early intervention for children, surgical orthodontics, and adult orthodontics. The team believes in the importance of early assessment and intervention, as addressing orthodontic issues at a young age can lead to more effective treatment outcomes. They work closely with parents to educate them about the best times to seek orthodontic care for their children, ensuring that every child has the opportunity to achieve a healthy and beautiful smile.
+The 15th Annual Cheshire Road Race promises to be a memorable event, filled with excitement and purpose. With the support of Feldman Orthodontics and the participation of the community, this year's race is poised to be one of the best yet. The practice looks forward to seeing familiar faces and welcoming new participants as they come together to support local charities and celebrate the spirit of community.
 
-At Lucas Orthodontic Group, patient comfort and satisfaction are top priorities. The orthodontists and their staff strive to create a welcoming environment where patients feel at ease. From the moment a patient walks through the door, they are greeted with friendly smiles and compassionate care. The team takes the time to listen to each patient's concerns and answer any questions they may have, fostering a sense of trust and confidence in the treatment process.
+In conclusion, Feldman Orthodontics is proud to sponsor the 15th Annual Cheshire Road Race on April 12, 2026. This event not only showcases the dedication of local runners and spectators but also highlights the importance of giving back to the community. With an expected turnout of 2,000 runners and spectators, the race aims to raise $2 million for local causes, making a significant difference in the lives of many. As an orthodontist in Wallingford CT and North Haven CT, Feldman Orthodontics is committed to promoting health, wellness, and community spirit through this beloved event. Join in the fun and support a great cause at the Cheshire Road Race!
 
-The practice is equipped with state-of-the-art technology that enhances the efficiency and effectiveness of orthodontic treatments. Digital imaging and 3D scanning allow for precise treatment planning, while advanced software helps the orthodontists track progress and make necessary adjustments along the way. This commitment to utilizing the latest technology ensures that patients receive the best possible care and outcomes.
+Learn more on https://feldmanorthodontics.net/our-practice/what-makes-us-different/
 
-In addition to their clinical expertise, the orthodontists at Lucas Orthodontic Group are dedicated to ongoing education and professional development. They stay current with the latest advancements in orthodontics through continuous training and participation in industry conferences. This dedication to learning allows them to provide patients with the most effective and innovative treatment options available.
+ [](https://press-releases-production.s3.amazonaws.com/images/6jYULNuZAAC09OdDqbxa5eA11dDB79bNNhWz59Tw.jpg) [](https://feldmanorthodontics.net) Contact Information:
 
-The positive impact of orthodontic treatment on a person's self-esteem and quality of life cannot be overstated. Many patients report feeling more confident and happy after completing their orthodontic journey. The team at Lucas Orthodontic Group takes great pride in helping individuals achieve their dream smiles, and they celebrate each patient's success as if it were their own.
-
-Community involvement is also a core value at Lucas Orthodontic Group. The orthodontists and staff actively participate in local events and initiatives, demonstrating their commitment to giving back to the Nashville community. They believe that building strong relationships with their patients and the community at large is essential to fostering a positive environment for everyone.
-
-As a top orthodontist in Nashville, Lucas Orthodontic Group is dedicated to making orthodontic care accessible to all. They offer flexible financing options and work with various insurance plans to ensure that patients can receive the treatment they need without financial strain. The team understands that investing in a beautiful smile is an important decision, and they strive to make the process as seamless and affordable as possible.
-
-In conclusion, Lucas Orthodontic Group stands out as a premier orthodontist in Nashville, TN, offering expert care in braces, Invisalign, and more. With a focus on personalized treatment, advanced technology, and a commitment to patient satisfaction, the orthodontists at Lucas Orthodontic Group are transforming smiles and improving lives. Their dedication to creating beautiful smiles for patients of all ages, combined with their family-like atmosphere, makes them a trusted choice for anyone seeking orthodontic care in Nashville. Whether a patient is considering braces for themselves or their child, they can feel confident that they will receive the highest level of care and support at Lucas Orthodontic Group.
-
-Learn more on https://www.lucasorthodonticgroup.com/location/orthodontist-in-nashville-tn/
-
- [](https://press-releases-production.s3.amazonaws.com/images/dIG8K8M9oD4fG6YU2WB04fytZnzATAFvogrjpdSp.jpg) [](https://lucasorthodonticgroup.com) Contact Information:
-
- Lucas Orthodontic Group
+ Feldman Orthodontics
 
  
 
-4525 Harding Pike Suite 110  Nashville, TN 37205United States
+435 Highland Ave. Suite 200  Cheshire, CT 06410United States
 
- Ginny Fahey (629) 260-7397 https://lucasorthodonticgroup.com 
+ Mary Kate Thompson +12039490800+ https://feldmanorthodontics.net 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/lucas-orthodontic-group-expert-orthodontic-care-in-nashville-tn-417286)
+[Original/Source Press Release](https://mediawiretoday.com/feldman-orthodontics-sponsors-15th-annual-cheshire-road-race-417332)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nashville-s-lucas-orthodontic-group-transforms-smiles-with-expert-care/b0f4dba7b3a35d48c79120fe20ecc703) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feldman-orthodontics-sponsors-15th-annual-cheshire-road-race-for-charity/1ae841bf6f508feda560bed531802eee) 
 
  
 
@@ -53,4 +41,4 @@ Learn more on https://www.lucasorthodonticgroup.com/location/orthodontist-in-nas
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/263/8/quipHYxw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/263/8/echoPh09.webp)
