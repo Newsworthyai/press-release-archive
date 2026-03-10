@@ -1,80 +1,66 @@
-# Wellness Brand The Harvest Table Expands U.S. Rollout with Planned Launch on Walmart.com
+# AirTrap Introduces a Modern Alternative to Traditional Spore Trap Sampling
 
-Boca Raton, Florida (Newsworthy.ai) Tuesday Mar 10, 2026 @ 4:00 AM Pacific — 
+New York (Newsworthy.ai) Tuesday Mar 10, 2026 @ 9:00 AM Eastern — For more than three decades, indoor air quality professionals have used spore trap cassettes — small air-sampling devices that collect mold spores and other airborne particles for laboratory analysis. The core cassette design introduced in the mid-1990s remains the most common format for airborne particulate sampling today.
 
- The Harvest Table, the South African wellness brand known for its clean-label collagen and whole-food nutrition products, has announced plans to make its range available soon to U.S. consumers through Walmart.com.
+ AirTrap introduces a modern alternative built on that established sampling methodology while refining key aspects of the cassette’s physical design to improve usability in the field, consistency in the laboratory, and material efficiency.
 
- The upcoming launch on Walmart’s online marketplace represents another milestone in The Harvest Table’s introduction to American consumers, expanding access to the brand’s simple approach to nutrient-dense, everyday nutrition.
+ AirTrap air sampling cassettes are now available throughout North America exclusively through AirTrap.us, providing inspectors, laboratories, restoration professionals, schools, and government agencies with an additional option in the marketplace for airborne particle sampling.
 
- Founded by Catherine Clark and rooted in a mission to support everyday wellbeing through high-quality ingredients, The Harvest Table has built a loyal customer base in South Africa by producing supplements made without added fillers, preservatives, artificial flavors, or dyes.
+ In 1995, Dan Baxter, director of Research and Development at Aerosol Research Associates, Inc. introduced the Air-O-Cell cassette, which became widely adopted in mold and indoor air quality investigations. AirTrap reflects a collaborative effort to revisit and update the cassette design to better align with current inspection demands, laboratory workflows, and environmental considerations.
 
- Products Planned for Walmart.com The initial product lineup expected to be available includes:
+ AirTrap cassettes are fully compatible with standard air sampling pumps and established laboratory analysis methods, allowing seamless integration into existing inspection procedures without changes to sampling technique.
 
- * Bovine Collagen Granules 350 g (12.3 oz) Pouch
-* Multi Collagen Granules 350 g (12.3 oz) Pouch
-* Multi Collagen Radiance 350 g (12.3 oz) Pouch
-* Vegan Protein Powder 550 g (19.4 oz) Pouch
+ The updated design incorporates several practical refinements:
 
- Designed for Everyday Wellbeing Across the entire range, The Harvest Table products are designed to:
+ * A flip-top cap system engineered to reduce handling errors and minimize sample contamination during transport
+* Approximately 46% less plastic compared to traditional cassette designs
+* A recyclable housing to support more sustainable testing practices
+* Durable polypropylene construction for field reliability
+* A flatter collection surface designed to improve image clarity during laboratory analysis, including digital and AI-assisted microscopy
 
- * Nourish daily wellbeing, not treat or cure medical conditions
-* Support foundational systems including gut health, joint mobility, skin integrity, and energy
-* Deliver highly bioavailable nutrients that help support long-term vitality
+ AirTrap is ideal for indoor air quality assessments, post-remediation verification, real estate inspections, school and university testing programs, cleanroom clearance, and routine environmental monitoring.
 
- The products are designed for everyday use, supporting wellbeing through clean, food-based nutrition.
+ By modernizing the cassette design while preserving established sampling principles, AirTrap delivers long-overdue improvements — compatible with existing equipment and familiar workflows.
 
- Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house in a custom-built facility in South Africa that:
+ For more information, visit www.airtrap.us.
 
- * Passes annual Food Safety Assessment (FSA) audits
-* Meets GMP requirements
-* Is recognized as a Food Safe Facility
-* Is Halaal-certified by the Muslim Judicial Council (MJC)
+ About [AirTrap.us](https://airtrap.us/) AirTrap.us is the exclusive North American distributor of AirTrap products, supporting inspectors, laboratories, restoration professionals, and institutional clients throughout the United States and Canada.
 
- Product Attributes & Certifications Products entering the U.S. market are gluten-free and biodegradable, and export products are Halaal-certified at the product level by the National Independent Halaal Trust (NIHT). Sustainability is emphasized through recyclable packaging and responsible manufacturing practices.
-
- “Our goal has always been to make good nutrition simple and trustworthy,” said Catherine Clark, Founder of The Harvest Table. “Making our products available through Walmart’s online marketplace helps introduce our approach to clean, everyday wellness to a wider group of consumers.”
-
- “Expanding through major online marketplaces allows us to reach people who are actively looking for better nutrition options they can trust,” added Sam Clark, CEO of The Harvest Table. “As we grow in the U.S., we remain focused on maintaining the quality standards and transparency that define our brand.”
-
- Availability timing and additional details will be announced soon.
-
- For more information, visit The Harvest Table website, and their Instagram and Facebook channels.
-
- About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
-
- Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
-
- With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
+ About Apacor UK Apacor UK is a manufacturer of diagnostic and environmental sampling devices serving global laboratory and environmental health markets. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603102222/wellness-brand-the-harvest-table-expands-us-rollout-with-planned-launch-on-walmartcom)
+[Original/Source Press Release](https://newsworthy.ai/news/202603102223/airtrap-introduces-a-modern-alternative-to-traditional-spore-trap-sampling)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-launches-on-walmart-com/750c645280d29222a2dc7c1fe6d1e348) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/airtrap-revolutionizes-air-sampling-with-modern-cassette-design/836612e35c91ee2c193685b9f9b914b2) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/south-african-wellness-brand-the-harvest-table-expands-us-presen/202629331)
+Pickup - [https://advos.io/en](https://advos.io/en/airtrap-launches-modernized-air-sampling-cassette-with-sustainab/202629341)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/406944-south-african-wellness-brand-the-harvest-table-announces-us-expansion-through-walmartcom)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/407046-airtrap-launches-modernized-air-sampling-cassette-for-indoor-air-quality-testing)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338772-sudafrikanische-wellness-marke-the-harvest-table-kundigt-us-expansion-uber-walmartcom-an)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338782-airtrap-fuhrt-modernisierte-luftprobensammelkassette-fur-innenraumluftqualitatsmessungen-ein)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339222-la-marca-de-bienestar-sudafricana-the-harvest-table-anuncia-su-expansion-a-eeuu-a-traves-de-walmartcom)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339236-airtrap-lanza-una-capsula-de-muestreo-de-aire-modernizada-para-pruebas-de-calidad-del-aire-interior)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339961-la-marque-sud-africaine-de-bien-etre-the-harvest-table-annonce-son-expansion-aux-etats-unis-via-walmartcom)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339971-airtrap-lance-une-cassette-dechantillonnage-dair-modernisee-pour-les-tests-de-qualite-de-lair-interieur)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338711-marca-sul-africana-de-bem-estar-the-harvest-table-anuncia-expansao-para-os-eua-atraves-do-walmartcom)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338721-airtrap-lanca-capsula-de-amostragem-de-ar-modernizada-para-testes-de-qualidade-do-ar-interior)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/south-african-wellness-brand-the-harvest-table-expands-us-access/202629331)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/airtrap-launches-modernized-air-sampling-cassette-for-environmen/202629341)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/south-african-wellness-brand-the-harvest-table-expands-us-presen/202629331)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/airtrap-introduces-modern-alternative-to-traditional-spore-trap/202629341)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406954-south-african-wellness-brand-the-harvest-table-expands-us-presence-through-walmartcom-launch)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/407107-airtrap-launches-modernized-air-sampling-cassette-for-indoor-air-quality-industry)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/407214-airtrap-introduces-modernized-spore-trap-cassette-design-for-air-quality-testing)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/407231-airtrap-modernizes-mold-spore-sampling-with-redesigned-cassette-system)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/10/isleofgd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/10/smogw7BP.webp)
