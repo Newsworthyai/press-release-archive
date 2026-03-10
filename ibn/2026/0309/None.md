@@ -1,54 +1,38 @@
-# Ongoing Digital Monitoring Could Make Immunotherapy More Accessible
+# 420 with CNW — Washington State Lawmakers Send Bill Allowing MMJ Use in Hospitals to Governor
 
-Ongoing digital monitoring could be about to solve one of modern medicine’s most frustrating access problems. Life-extending cancer immunotherapies exist and there are numerous patients who could benefit from such therapies, but a mandatory hospital stay requirement currently makes access to immunotherapy nigh impossible for rural and underserved patients.
+Lawmakers in Washington State have approved a proposal that would allow patients with terminal illnesses to use medical marijuana in certain healthcare facilities, including hospices, hospitals, and nursing homes. The measure now awaits action from Governor Bob Ferguson.
 
- As more patients access these transformational treatments, many more firms would be encouraged to join the ranks of entities like Calidi Biotherapeutics Inc. (NYSE American: CLDI) seeking to…
+ Such regulatory reforms premised on compassionate grounds are a welcome development to major players in the medical marijuana industry, such as Trulieve Cannabis Corp. (CSE: TRUL) (OTCQX: TCNNF) that focus on making…
 
  Read More>>
 
- About TinyGems
+ About CNW420
 
- TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TinyGems.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TinyGems is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/ongoing-digital-monitoring-could-make-immunotherapy-more-accessible/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-washington-state-lawmakers-send-bill-allowing-mmj-use-in-hospitals-to-governor/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-monitoring-breaks-barriers-to-cancer-immunotherapy-access/6f9856128e743c0bddfa3ff07dd871f1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/washington-approves-medical-marijuana-use-in-hospitals-for-terminally-ill/244de618e35f700512b0580028d0d817) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/digital-monitoring-could-expand-access-to-cancer-immunotherapy-f/202629295)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/406524-digital-monitoring-could-expand-access-to-cancer-immunotherapy-for-rural-patients)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338737-digitale-uberwachung-konnte-zugang-zu-krebs-immuntherapie-fur-landliche-patienten-erweitern)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339184-la-monitorizacion-digital-podria-ampliar-el-acceso-a-la-inmunoterapia-contra-el-cancer-para-pacientes-rurales)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339922-la-surveillance-numerique-pourrait-elargir-lacces-a-limmunotherapie-anticancereuse-pour-les-patients-ruraux)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338676-monitoramento-digital-pode-ampliar-acesso-a-imunoterapia-para-cancer-em-pacientes-rurais)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/digital-monitoring-could-expand-access-to-cancer-immunotherapy-f/202629295)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/digital-monitoring-may-expand-access-to-cancer-immunotherapy-for/202629295)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/406534-digital-monitoring-could-expand-access-to-cancer-immunotherapy-treatments)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202603/406599-washington-state-lawmakers-approve-medical-cannabis-access-in-healthcare-facilities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/9/yarnISvF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/9/tintpYM2.webp)
