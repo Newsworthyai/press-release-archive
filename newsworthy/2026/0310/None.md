@@ -1,66 +1,58 @@
-# AirTrap Introduces a Modern Alternative to Traditional Spore Trap Sampling
+# Pharos Premium Infused Beverages Names Actor and Stuntman Tim Neff as Brand Ambassador and Investor, Debuts Cinematic Campaign Exclusively with High Times
 
-New York (Newsworthy.ai) Tuesday Mar 10, 2026 @ 9:00 AM Eastern — For more than three decades, indoor air quality professionals have used spore trap cassettes — small air-sampling devices that collect mold spores and other airborne particles for laboratory analysis. The core cassette design introduced in the mid-1990s remains the most common format for airborne particulate sampling today.
+Los Angeles, CA (Newsworthy.ai) Tuesday Mar 10, 2026 @ 2:15 PM Pacific — 
 
- AirTrap introduces a modern alternative built on that established sampling methodology while refining key aspects of the cassette’s physical design to improve usability in the field, consistency in the laboratory, and material efficiency.
+ Pharos Premium Infused Beverages, a cannabis beverage company redefining the future of infused experiences, today announced that Tim Neff has officially joined the company as both a brand ambassador and investor. The announcement is accompanied by the release of a bold, cinematic brand film, created by Tim Neff and Ismahawk, the action-driven production studio behind globally viewed cinematic campaigns and narrative. The film will premiere exclusively with High Times.
 
- AirTrap air sampling cassettes are now available throughout North America exclusively through AirTrap.us, providing inspectors, laboratories, restoration professionals, schools, and government agencies with an additional option in the marketplace for airborne particle sampling.
+ More than a traditional endorsement, Neff’s partnership with Pharos reflects a shared commitment to craftsmanship, creativity, and culture. As both an investor and creative collaborator, Neff brings his multidisciplinary background in filmmaking to help shape the brand’s evolving visual and narrative identity.
 
- In 1995, Dan Baxter, director of Research and Development at Aerosol Research Associates, Inc. introduced the Air-O-Cell cassette, which became widely adopted in mold and indoor air quality investigations. AirTrap reflects a collaborative effort to revisit and update the cassette design to better align with current inspection demands, laboratory workflows, and environmental considerations.
+ Tim Neff and Ismahawk together bring a cinematic storyline anchored in action, tension, and character-driven storytelling — pushing the boundaries of what cannabis brand content can be.
 
- AirTrap cassettes are fully compatible with standard air sampling pumps and established laboratory analysis methods, allowing seamless integration into existing inspection procedures without changes to sampling technique.
+ The production team includes:
 
- The updated design incorporates several practical refinements:
+ * Tim Neff, Co-Director, Writer, Producer, Actor and Action Designer
+* Danny Shepherd, Co-Director and Producer
+* Jeremy Le, Director of Photography
+* Angela Domanico, Associate Producer & Makeup Artist
+* Ian Volner, 1st Assistant Director
+* Preston Scott, 1st Assistant Camera
+* Michael “Doc” Deitch, Camera Operator
 
- * A flip-top cap system engineered to reduce handling errors and minimize sample contamination during transport
-* Approximately 46% less plastic compared to traditional cassette designs
-* A recyclable housing to support more sustainable testing practices
-* Durable polypropylene construction for field reliability
-* A flatter collection surface designed to improve image clarity during laboratory analysis, including digital and AI-assisted microscopy
+ The cast features: Tim Neff as “Alexander Vale”, the Bond-like hero promoting the brand while winning the day.
 
- AirTrap is ideal for indoor air quality assessments, post-remediation verification, real estate inspections, school and university testing programs, cleanroom clearance, and routine environmental monitoring.
+ Vladislav Litvinenko as “Red Eye”, the villain perturbed at losing the game and his Pharos to Vale.
 
- By modernizing the cassette design while preserving established sampling principles, AirTrap delivers long-overdue improvements — compatible with existing equipment and familiar workflows.
+ Anastasia Lutz, the “Waitress” with perfectly timed comedy chops, delivery and empathy for Red Eye’s loss and her drink order mishap.
 
- For more information, visit www.airtrap.us.
+ Lance Brazil as “Satch”, another villain angered at the turnout of the game.
 
- About [AirTrap.us](https://airtrap.us/) AirTrap.us is the exclusive North American distributor of AirTrap products, supporting inspectors, laboratories, restoration professionals, and institutional clients throughout the United States and Canada.
+ Ivan Fuchs as the “Dealer” just trying to run an honest game while chaos ensues.
 
- About Apacor UK Apacor UK is a manufacturer of diagnostic and environmental sampling devices serving global laboratory and environmental health markets. 
+ “Tim is not only a compelling creative force, he’s a true leader and partner,” said Mary Bernuth, CEO of Pharos Premium Infused Beverages. “His belief in the brand, his investment, and his willingness to push creative limits alongside us reflects exactly where Pharos is headed.”
+
+ Neff echoed the sentiment, emphasizing the importance of collaboration:
+
+ “The creative process from start to finish is a complex, multifaceted one. The whole team is crucial, and has been assembled with their diverse expertise, honed professionalism and easily collaborative function in mind. Each individual brings a piece of the puzzle, the storytelling and the means to make it a reality. I’ve been lucky to create within a group I love, where I can test limits, try new things, and always know we’ll capture something amazing and take storytelling to another level.”
+
+ The exclusive High Times release marks the first chapter in a larger creative partnership between Pharos Brands and Neff, with additional content, appearances, and brand integrations planned throughout the year.
+
+ About Pharos Brands Pharos Brands is a premium infused beverage company offering a line of 5mg and 10mg THC-infused sparkling fruit drinks inspired by the ancient Pharos lighthouse of Alexandria, a symbol of guidance and clarity. The company focuses on flavor, quality, and education, helping consumers across the country explore and experience cannabis safely and enjoyably. For more information on Pharos, please contact your distributor or visit pharosbrands.com.
+
+ About Tim Neff Tim Neff is a filmmaker, a working actor, producer and stuntman. He specializes in storytelling as a whole, while having a keen eye and knowhow for action designing and performance. Having grown up immersed in diverse cultures, Neff brings a nuanced understanding of human communication and physical storytelling to every project he undertakes. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603102223/airtrap-introduces-a-modern-alternative-to-traditional-spore-trap-sampling)
+[Original/Source Press Release](https://newsworthy.ai/news/202603102226/pharos-premium-infused-beverages-names-actor-and-stuntman-tim-neff-as-brand-ambassador-and-investor)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/airtrap-revolutionizes-air-sampling-with-modern-cassette-design/836612e35c91ee2c193685b9f9b914b2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pharos-partners-with-tim-neff-in-cinematic-cannabis-brand-film-launch/6bcc71fc03567e25a6a09712032581f5) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/airtrap-launches-modernized-air-sampling-cassette-with-sustainab/202629341)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/407046-airtrap-launches-modernized-air-sampling-cassette-for-indoor-air-quality-testing)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338782-airtrap-fuhrt-modernisierte-luftprobensammelkassette-fur-innenraumluftqualitatsmessungen-ein)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339236-airtrap-lanza-una-capsula-de-muestreo-de-aire-modernizada-para-pruebas-de-calidad-del-aire-interior)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/339971-airtrap-lance-une-cassette-dechantillonnage-dair-modernisee-pour-les-tests-de-qualite-de-lair-interieur)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338721-airtrap-lanca-capsula-de-amostragem-de-ar-modernizada-para-testes-de-qualidade-do-ar-interior)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/airtrap-launches-modernized-air-sampling-cassette-for-environmen/202629341)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/airtrap-introduces-modern-alternative-to-traditional-spore-trap/202629341)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/407107-airtrap-launches-modernized-air-sampling-cassette-for-indoor-air-quality-industry)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/407214-airtrap-introduces-modernized-spore-trap-cassette-design-for-air-quality-testing)
-
-Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/407231-airtrap-modernizes-mold-spore-sampling-with-redesigned-cassette-system)
+Pickup - [https://newscrafters.com](https://newscrafters.com/article/david-mcinnis/tim-neff-joins-forces-with-pharos-premium-infused-beverages-in-a-trailblazing-partnership)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/10/smogw7BP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/10/pinkQCVS.webp)
