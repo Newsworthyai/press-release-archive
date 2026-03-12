@@ -1,0 +1,18 @@
+# Associated Asset Management (AAM) Promotes Scott McCarthy to Vice President of the Southeast Region
+
+MYRTLE BEACH, SC, March 12, 2026 /24-7PressRelease/ -- Associated Asset Management (AAM), a nationally recognized leader in community association management and accounting services, is pleased to announce the promotion of Scott McCarthy to Vice President of the Southeast Region. Based in AAM's Myrtle Beach office, McCarthy will lead regional operations, advance strategic growth initiatives, and further strengthen partnerships with Boards and communities throughout the Southeast.  McCarthy brings to AAM more than 21 years of experience in the community management industry, including 15 years serving directly as a Community Manager. Since joining AAM in 2023, he has played an integral leadership role in the Myrtle Beach region, leveraging experience that spans from high-rise buildings to large-scale single-family home communities.  He has been instrumental in driving the Southeast Region's continued growth, cultivating strong relationships both within AAM and with the communities it serves. Known for his collaborative approach, McCarthy actively shares ideas, supports his peers, and invests in the development of those around him, making a meaningful impact across teams and with clients.  "Scott's promotion reflects the exceptional leadership and integrity he brings to AAM each day," said Amanda Shaw, President of AAM. "He has strengthened our presence throughout the Southeast by creating strong partnerships, empowering his teams, and consistently delivering operational excellence. We are confident the region will continue to thrive under his leadership."  McCarthy holds the AMS and prestigious PCAM designations through the Community Associations Institute (CAI) and earned his associate degree in business administration. He also served two years as Chairman of the CAI Grand Strand Advisory Council, supporting professional education and advocacy efforts for community association leaders across the region.  "I'm proud to step into this leadership role and continue working alongside such dedicated professionals," said McCarthy. "The strength of our region comes from our people and the partnerships we've built. I'm committed to maintaining our collaborative culture while driving continued growth across the Southeast."  ABOUT AAM Founded in 1990, Associated Asset Management (AAM) is a professional Community Association Management Company dedicated to delivering total peace of mind. Over the last 36 years, AAM has grown to be one of the foremost providers of professional community association services in the United States. AAM specializes in the forward planning and management of master-planned, single-family, condominium, active adult, urban high-rise, and mid-rise communities, as well as providing consulting services for accounting, marketing, and operational organizations. AAM combines association management, accounting, compliance, developer services, and customer care under one roof, creating a cohesive and coordinated environment needed to provide exceptional community association management. For more information, visit www.associatedasset.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/532712/associated-asset-management-aam-promotes-scott-mccarthy-to-vice-president-of-the-southeast-region)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aam-promotes-scott-mccarthy-to-vice-president-of-southeast-region/53f70bdc5919f3dd9e886a7388c3901c) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/263/12/herbu68e.webp)
