@@ -1,64 +1,82 @@
-# Pelican Acquisition (PELI) Announces Arctic Logistics Agreement Supporting Greenland Energy Drilling Campaign
+# AEVIS VICTORIA SA - Infracore SA Publishes Audited 2025 Consolidated Results and AGM Proposals
 
-LOS ANGELES, CA - March 11, 2026 (NEWMEDIAWIRE) - Pelican Acquisition (NASDAQ: PELI) announced that the leadership team behind the formation of Greenland Energy Company has entered into a strategic logistics agreement with Canadian maritime group Desgagnés to support cargo transportation for planned drilling operations in Greenland’s Jameson Land Basin. The agreement, coordinated with and approved by Royal Arctic Line, provides specialized ice-class vessels and Arctic beach-landing capabilities required to mobilize equipment and crews for the upcoming exploration campaign. The arrangement was executed by March GL Company, which along with Greenland Exploration Ltd. is set to merge with Pelican; upon completion of the business combination, the combined entity is expected to operate as Greenland Energy Company and list on Nasdaq under the ticker symbol “GLND.”
+Dr. Stephan Thaler and Celine Amaudruz Will be Proposed for Election to the Board of Directors
 
- To view the full press release, visit https://nnw.fm/bWVbY
+ FRIBOURG, SWITZERLAND - March 11, 2026 (NEWMEDIAWIRE) - Infracore SA (Infracore), a leading Swiss healthcare real estate company, today publishes its audited consolidated results for the financial year 2025 and outlines the proposals to be submitted to the Annual General Meeting (AGM) to be held on 25 March 2026, including the proposal to elect two new independent members to the Board of Directors.
 
- About Greenland Exploration Limited
+ In 2025, Infracore generated rental income of CHF 66.1 million and total revenue including revaluation gains of CHF 82.5 million. The Group recorded EBITDA of CHF 76.7 million, corresponding to an EBITDA margin of 93.0% of total revenue including revaluation. Profit for the period amounted to CHF 55.8 million, representing 67.6% of total revenue including revaluation.
 
- Greenland Exploration Limited is a Texas-based entity focused on developing strategic positions in North American energy assets. Through its partnerships, Greenland aims to deliver long-term shareholder value in a dynamic and evolving energy market.
+ At year-end, the market value of investment properties (including properties under construction and development projects) stood at CHF 1.412 billion, reflecting the continued strengthening of the portfolio. The portfolio is valued by the independent appraiser Wüest Partner AG, using the discounted cash flow (DCF) method.
 
- About March GL Company
+ Infracore’s portfolio continues to stand out for its exceptionally high occupancy: the investment portfolio achieved an occupancy rate of 98.7% in 2025, implying a very low vacancy rate of approximately 1.3%.
 
- March GL Company, a privately-owned Texas Corporation, entered into an agreement with 80 Mile for drilling to commence at the Jameson oil and gas basin in Greenland. March GL will fund 100% of the costs associated with up to two exploration wells, which are designed to delineate the sedimentary structure and energy potential of the Jameson Land Basin. In return, March GL will earn through 80 Mile’s subsidiary company up to 70% interest in the entire basin. March GL Company will be appointed as the Field Operations Manager.
+ Infracore also highlights its recurring cash-generation capacity: cash flow from operating activities before changes in working capital amounted to CHF 42.2 million (a commonly used proxy for Funds From Operations, “FFO”), representing 51.2% of total revenue including revaluation.
 
- For more information, visit the company’s website at www.MarchGL.com
+ In terms of balance sheet strength, shareholders’ equity amounted to CHF 688.7 million. In addition, Infracore reports a conservative leverage profile. Net debt amounted to CHF 627.8 million. Relative to the market value of the property portfolio of CHF 1.412 billion, this corresponds to a Net Loan-to-Value (Net LTV) of 44.5%.
 
- About Pelican Acquisition Corporation
+ Based on these results, the Board of Directors will propose to the AGM a dividend corresponding to a payout ratio of 95% of Infracore’s profit excluding result from revaluation.
 
- Pelican Acquisition Corporation is a blank check company formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses. Pelican is not limited to any particular industry or geographic region in identifying prospective targets.
+ Infracore also announces a strengthening of its Board’s independent representation, planning to have a majority of independent Board members. Two new independent candidates - Dr. Stephan Thaler and Céline Amaudruz - will be proposed for election to the Board of Directors at the AGM. Subject to their election, the Board will comprise three independent members, including Chairman Martin Gafner, alongside Dr. Stephan Thaler and Celine Amaudruz, in addition to one representative of Medical Properties Trust, Inc., Edward K. Aldag, and one representative of AEVIS VICTORIA SA, Antoine Hubert. The five board members with varied backgrounds, expertise and perspectives, whereof a majority is independent, align with best practice corporate governance.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Infracore sees growing demand for efficient capital allocation and modern infrastructure solutions among public and private healthcare institutions. As Switzerland’s leading hospital real estate specialist and development partner, Infracore is well positioned to expand its sale-and-leaseback activities, leveraging its know-how in structuring long-term partnerships with hospitals.
 
- The latest news and updates relating to PELI are available in the company’s newsroom at https://ibn.fm/PELI
+ The consolidated financial statements have been prepared in accordance with Swiss GAAP FER and were authorized for issue by the Board of Directors on 18 February 2026. The statutory auditor concludes that the consolidated financial statements present a true and fair view in accordance with Swiss GAAP FER and comply with Swiss law.
 
- Forward Looking Statements
+ For more information: Media and investor relations: c/o Dynamics Group, ZurichAlexandre Muller, amu@dynamicsgroup.ch, +41 79 635 64 13
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ About Infracore SAInfracore SA is a Swiss healthcare real estate company that owns, develops and manages hospital and clinic properties under long-term leases. Headquartered in Fribourg, the Group’s portfolio comprises 47 properties across 19 prime locations in Switzerland, totaling 221’157 sqm and a market value of CHF 1.41 billion. The assets are almost fully let under long-duration, inflation-indexed leases, predominantly to entities of Swiss Medical Network. Infracore generates recurring income from its stabilized portfolio and pursues growth through campus optimizations, extensions and selective developments, supported by a pipeline of about 42’053 sqm development potential. Infracore is jointly controlled by Medical Properties Trust, Inc. and AEVIS VICTORIA SA. www.infracore.ch.
+
+ About Medical Properties Trust, Inc. Medical Properties Trust, Inc. is a self-advised real estate investment trust formed in 2003 to acquire and develop net-leased hospital facilities. From its inception in Birmingham, Alabama, the Company has grown to become one of the world’s largest owners of hospital real estate with 384 facilities and approximately 39,000 licensed beds in nine countries and across three continents as of December 31, 2025. MPT’s financing model facilitates acquisitions and recapitalizations and allows operators of hospitals to unlock the value of their real estate assets to fund facility improvements, technology upgrades and other investments in operations. www.medicalpropertiestrust.com.
+
+ About AEVIS VICTORIA SA AEVIS VICTORIA SA invests in healthcare, hospitality & lifestyle and infrastructure. AEVIS′s main shareholdings are Swiss Medical Network Holding SA (76.3%, directly and indirectly), the only Swiss private network of hospitals present in the country's three main language regions, MRH Switzerland AG, a luxury hotel group managing eleven hotels in Switzerland and abroad, Infracore SA (30%, directly and indirectly), a real estate company dedicated to healthcare-related infrastructure, Swiss Hotel Properties SA, a hospitality real estate division, and NESCENS SA, a brand dedicated to better aging. AEVIS is listed on the Swiss Reporting Standard of the SIX Swiss Exchange (AEVS.SW). www.aevis.com.
+
+ Biography of the proposed new Board MembersCeline Amaudruz is a Swiss citizen born in 1979. Subject to her election, she will be an independent member of the Board of Directors within the meaning of the Swiss Code of Best Practice. She holds a M.A. in Law from the University of Geneva. She currently serves as managing director and relationship manager at Reyl Intesa Sanpaolo. She is president and board member of various companies and foundations, including President of Groupe Minoteries SA, board member of Geneve Aeroport and former president of TP Publicite SA. She previously served as Senior Expert Business Development and Head of Sustainability at Hirslanden AG. Celine Amaudruz has been vice-president of the Swiss People's Party (SVP) since 2016 and a member of the Swiss National Council since 2011. She is an experienced leader with extensive experience in management and business development across public and private sectors.
+
+ Dr. Stephan P. Thaler is a Swiss citizen born in 1962. Subject to his election, he will be an independent member of the Board of Directors within the meaning of the Swiss Code of Best Practice. He holds a PhD in Business Economics and is a Certified Board Member (HSG). Dr. Stephan P. Thaler currently serves as senior advisor (since 2025) and former CEO (until 2025) of Swiss Life Investment Foundation, where he was responsible for a real estate portfolio of CHF 9 billion. He served as chair of the Real Estate Investment Committee of Swiss Life Investment Foundation. His prior board and committee experience includes positions as independent board member and audit committee member of leading FINMA-regulated banks, including American Express Bank SA, Standard Chartered Bank (Switzerland) and Habib Bank Zurich. He also has board member experience in the health insurance and IT sectors serving as chair of the board of Taggeldkasse für Schweizerische Bildende Künstler and as board member of aXenta. Dr. Stephan P. Thaler is an executive and leader with extensive experience in the areas of real estate, institutional asset and risk management, and governance.
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pelican-acquisition-peli-announces-arctic-logistics-agreement-supporting-greenland-energy-drilling-campaign-7085809)
+[Original/Source Press Release](https://www.newmediawire.com/news/aevis-victoria-sa-infracore-sa-publishes-audited-2025-consolidated-results-and-agm-proposals-7085820)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-forms-arctic-logistics-partnership-ahead-of-nasdaq-listing/662cad945f3323b9ecdbf4f4893c9c7c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/infracore-posts-strong-2025-results-proposes-new-independent-board-members/2316422421a7479fcb73b186d3c97e6d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/pelican-acquisition-secures-arctic-logistics-for-greenland-energ/202629471)
+Pickup - [https://advos.io/en](https://advos.io/en/infracore-sa-reports-strong-2025-financial-results-and-proposes/202629486)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/408913-pelican-acquisition-announces-arctic-logistics-agreement-for-greenland-energy-drilling-operations)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/409313-infracore-sa-reports-strong-2025-financial-results-and-proposes-board-enhancements)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338906-pelican-acquisition-kundigt-logistikvereinbarung-fur-arktische-bohrungen-in-gronland-an)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338920-infracore-sa-meldet-starke-finanzergebnisse-fur-2025-und-schlagt-erweiterungen-des-verwaltungsrats-vor)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339365-pelican-acquisition-anuncia-acuerdo-logistico-artico-para-operaciones-de-perforacion-energetica-en-groenlandia)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339381-infracore-sa-reporta-solidos-resultados-financieros-para-2025-y-propone-mejoras-en-su-consejo-de-administracion)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340125-pelican-acquisition-annonce-un-accord-logistique-arctique-pour-les-operations-de-forage-energetique-au-groenland)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340140-infracore-sa-annonce-de-solides-resultats-financiers-pour-2025-et-propose-des-ameliorations-au-sein-de-son-conseil-dadministration)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338846-pelican-acquisition-anuncia-acordo-de-logistica-artica-para-operacoes-de-perfuracao-da-greenland-energy)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338860-infracore-sa-reporta-fortes-resultados-financeiros-de-2025-e-propoe-aprimoramentos-no-conselho)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pelican-acquisition-announces-arctic-logistics-agreement-for-gre/202629471)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/infracore-sa-reports-strong-2025-financial-results-and-proposes/202629486)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pelican-acquisition-secures-arctic-logistics-agreement-for-green/202629471)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/infracore-sa-reports-strong-2025-financial-results-and-proposes/202629486)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/408923-pelican-acquisition-secures-arctic-logistics-agreement-for-greenland-energy-drilling-campaign)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/409323-infracore-sa-reports-strong-2025-financial-results-and-proposes-governance-strengthening)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/408973-pelican-acquisition-announces-arctic-logistics-agreement-for-greenland-exploration-campaign)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202603/409277-infracore-sa-reports-strong-2025-financial-results-and-proposes-new-independent-board-members)
 
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/408974-pelican-acquisition-announces-arctic-logistics-agreement-for-greenland-energy-exploration)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/409351-infracore-sa-reports-strong-2025-financial-results-and-proposes-governance-enhancements)
+
+Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202603/409353-infracore-reports-strong-2025-financial-results-and-proposes-governance-enhancements)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/409355-infracore-sa-reports-strong-2025-financial-results-and-proposes-governance-enhancements)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/11/apexhRiX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/11/silkbt3A.webp)
