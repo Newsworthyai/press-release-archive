@@ -1,158 +1,48 @@
-# Aemetis Reports Fourth Quarter and Full Year 2025 Results as Dairy RNG Platform Scales
+# APPlife Digital Solutions Engages PCG Advisory and PRISM Digital Media to Strengthen Investor Relations and Boost Market Presence
 
-Dairy RNG production increased 61% year over year in Q4 2025; ethanol plant efficiency upgrade expected to increase plant cash flow from operations by approximately $32 million annually
-
- 
-
- * Aemetis Biogas segment net income increased to $12.2 million in Q4 2025
-* Aemetis Biogas segment increased annual revenues and production tax credits by 53%
-* Dairy RNG production increased 61% year over year in Q4 2025
-* Aemetis Biogas achieved annual segment net income of $6.9 million
-* Capital investments increased 28% over the prior year to $26.0 million, supporting dairy RNG expansion and ethanol plant energy efficiency upgrades
-* Dairy digester projects generated cash proceeds of $18 million during 2025 from the sale of investment tax credits
-* Ethanol and Biogas operations generated additional income of $10.4 million from production tax credits during the fourth quarter of 2025
-* MVR ethanol plant efficiency upgrade expected to increase cash flow from operations by approximately $32 million annually after completion in 2026
+Demonstrating Strong Focus on Enhanced Communications and Investor Outreach
 
  
 
- CUPERTINO, Calif., March 12, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Aemetis, Inc. (NASDAQ: AMTX), a renewable natural gas and renewable fuels company focused on low and negative carbon intensity products, today announced its financial results for the fourth quarter and year ending December 31, 2025.
+ SANTA BARBARA, CA, March 12, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – APPlife Digital Solutions, Inc. (OTCID: ALDS) (“APPlife” or “the Company”), a business incubator and portfolio manager specializing in e-commerce and marketplace solutions, today announced that it has retained PCG Advisory, a leading firm specializing in investor relations, strategic communications, and digital strategies, along with PRISM Digital Media, experts in digital marketing, public relations, and brand development.
 
- “Revenues for the full year of 2025 were $197.6 million plus production tax credit income of $10.4 million for total income of $208.0 million,” said Todd Waltz, Chief Financial Officer of Aemetis. “Capital expenditures for carbon intensity reduction and the expansion of biogas production capacity were $26 million for 2025 as our engineering and construction teams moved forward with low carbon initiatives and the dairy RNG project buildout,” added Waltz.
+ This dual engagement aims to heighten APPlife’s profile in the capital markets, foster deeper connections with institutional and retail investors, and deliver clear, consistent messaging about the Company’s growth strategy, operational advancements, and long-term vision in the evolving e-commerce landscape.
 
- “In addition to achieving important operational milestones during 2025 in all of the business segments, the dairy RNG segment generated net income of $12.2 million for the fourth quarter of 2025 while we continued building the infrastructure that supports long-term growth across our renewable energy platform,” said Eric McAfee, Chairman and CEO of Aemetis. “With RNG production scaling, ethanol plant efficiency improvements underway, and federal clean fuel incentives beginning to be monetized, we believe Aemetis is positioned for meaningful growth in revenue and cash flow as we move through 2026. We are pleased to see policy support from the White House and Congress in the One Big Beautiful Bill that is now being implemented as well as the exciting California legislative approval of year-round E15 in October 2025 which allows the ethanol market to grow by 50% in the state to offset rising gasoline prices.”
+ “Partnering with PCG Advisory and PRISM Digital Media underscores our dedication to transparent and effective stakeholder communication,” said Michael Hill, Chief Executive Officer of APPlife Digital Solutions. “As we advance our initiatives and expand our portfolio of next-generation e-commerce solutions, proactive and strategic outreach is essential to building trust, showcasing our momentum, and unlocking the full potential of APPlife for our investors.”
 
- Aemetis achieved key milestones during 2025, reflecting our commitment to innovation, sustainability, and growth in the renewable energy sector.
+ Barrett Evans, Chief Financial Officer of APPlife Digital Solutions, commented: “We are at a pivotal moment in executing our roadmap to develop cutting-edge e-commerce and marketplace platforms. Collaborating with PCG Advisory will enable us to connect more effectively with a wider audience of investors, ensuring our compelling story and value creation opportunities are well understood by both institutional and individual shareholders.”
 
- The Aemetis Dairy RNG platform continued to scale during 2025, reaching 12 operating digesters that produced approximately 405,000 MMBtu of renewable natural gas during the year.
+ Jeff Ramson, Founder and CEO of PCG Advisory, stated: “APPlife is building meaningful infrastructure in the automotive e-commerce space, and we look forward to helping the company communicate that progress to the investment community. Our focus will be strengthening investor engagement and expanding market awareness through strategic messaging and integrated digital communications.”
 
- Biogas segment:
+ ABOUT APPLIFE DIGITAL SOLUTIONS, INC.APPlife Digital Solutions Inc., with offices in Santa Barbara, CA, and Las Vegas, NV, is a business incubator and portfolio manager that creates and invests in e-commerce and marketplace solutions. The Company creates, invests, and builds ecommerce and marketplace solutions for buyers and sellers. Through its portfolio companies, APPlife develops solutions to provide buyers with the best buying experiences and sellers with the best-selling experiences possible. Current projects include: LiftKits4Less, an e-commerce platform and the largest online seller of Suspension Lift Systems. Sugar Auto Parts, the first automotive-specific multi-seller online marketplace.
 
- * $15 million of RNG revenue
-* $5 million of production tax credits
-* $18 million of investment tax credit proceeds
+ For more information, visit www.applifedig.com.
 
- Dairy RNG production increased 61% year over year in the fourth quarter, reflecting continued expansion of the company’s dairy digester network.
+ About PCG Advisory, Inc.
 
- * The California Air Resource Board approved 7 new Low Carbon Fuel Standard (LCFS) pathways for our Renewable Natural Gas business, increasing from the negative 150 default value to an average carbon intensity score of negative 380.
-* Signed $27 million agreement with NPL to construct H2S and compression units for 15 new dairy digesters.
+ PCG Advisory is a leading investor relations firm dedicated to the delivery of top-tier strategic services that encompass investor relations, capital markets navigation, digital strategies and corporate communications for innovative and emerging companies from around the globe. PCG Advisory has extensive experience with life sciences, technology and other emerging growth companies. PCG Advisory is part of PCG Holdings Inc., a holding company for a network of resources dedicated to the discovery and creation of value in the small and micro-cap equity market that was founded in 2008. All subsidiaries of PCG Holdings are geared toward helping investors identify value where it is not most obvious by facilitating a dynamic flow of information between its clients and the investment community.
 
- Ethanol segment:
+ For more information, please go to: www.pcgadvisory.com
 
- The Aemetis 65 million gallon per year ethanol plant in Keyes, California generated $158.3 million of revenue and production tax credits during 2025.
+ About PRISM Digital Media:
 
- During the year, the company signed an agreement with NPL Construction to complete the procurement and installation of a Mechanical Vapor Recompression (MVR) system at the Keyes plant, which is expected to significantly improve plant economics.
+ PRISM Digital Media is a comprehensive communications network specializing in investor relations, public relations, brand development, and digital marketing for public and private companies. Leveraging a broad network of investor-centric brand partners and media distribution capabilities, PRISM Digital Media delivers content creation, syndication, and strategic communications programs tailored to each client. PRISM Digital Media is a strategic partner of PCG Advisory.
 
- When completed, the MVR system is expected to:
+ For more information, please visit www.prismdigitalmedia.com
 
- * Reduce natural gas consumption
-* Lower the carbon intensity of ethanol production
-* Increase plant cash flow from operations by approximately $32 million per year
+ FORWARD-LOOKING STATEMENTS
 
- India Biofuels:
+ This news release includes forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934, as amended, regarding, among other things, our plans, strategies, and prospects — both business and financial. Although we believe that our plans, intentions, and expectations reflected in or suggested by these forward-looking statements are reasonable, we cannot assure you that we will achieve or realize these plans, acquisitions, intentions, or expectations. Forward-looking statements are inherently subject to risks, uncertainties, and assumptions. Many of the forward-looking statements contained in this news release may be identified by the use of forward-looking words such as “believe,” “expect,” “anticipate,” “should,” “planned,” “will,” “may,” “intend,” “estimated,” and “potential,” among others. Important factors that could cause actual results to differ materially from the forward-looking statements we make in this news release include market conditions and those set forth in reports or documents that we file from time to time with the United States Securities and Exchange Commission. All forward-looking statements attributable to APPlife Digital Solutions, Inc. or a person acting on its behalf are expressly qualified in their entirety by this cautionary language.
 
- The Aemetis biodiesel production facility in India generated $29.7 million of revenue during 2025, utilizing about 10% of the plant capacity of 80 million gallons per year of biodiesel production.
+ Contact Information:APPlife Digital SolutionsInvestor RelationsTel: (805) 500-3205Email: ir@applifedig.com
 
- India remains a large and growing market for renewable fuels supported by government blending mandates and expanding fuel demand, as well as global geopolitical issues that strongly support the expansion of biofuels production in India.
+ PCG Advisory, Inc.
 
- Appointed a new CFO with IPO experience for our India subsidiary. The India subsidiary is targeting a public listing in 2026.
+ Jeff Ramson, CEOj
 
- These accomplishments demonstrate Aemetis’ successful progress in advancing sustainable energy solutions and contributing towards a lower-carbon economy.
+ ramson@pcgadvisory.com
 
- Today, Aemetis will host an earnings review call at 11:00 a.m. Pacific time (PT).
-
- Live Participant Dial In (Toll Free): +1-888-506-0062 entry code 452750
-
- Live Participant Dial In (International): +1-973-528-0011 entry code 452750
-
- Webcast URL: https://www.webcaster5.com/Webcast/Page/2211/53629
-
- For the presentation and details on the call, please visit http://www.aemetis.com/investors/conference-calls/.
-
- Financial Results for the Three Months Ended December 31, 2025
-
- Revenues and production tax credits were $53.7 million for the fourth quarter of 2025, an increase from $47.0 million from the fourth quarter of 2024. Biogas segment sold 108,000 MMBtu’s during the fourth quarter. The ethanol gallons sold were slightly lower at 14.3 million gallons during the fourth quarter of 2025 compared to 15.7 million gallons during the fourth quarter of 2024. Average ethanol selling price rose from $1.93 during the fourth quarter of 2024 to $2.01 during the fourth quarter of 2025. Biodiesel sales fell from $3.0 million during the fourth quarter of 2024 to $600 thousand due to the broader structural challenges in India’s biodiesel program, which appeared to end with the initiation of the follow-on offer and resumption of sales the end of December 2025.
-
- Cost of Goods Sold decreased from $49.0 million during the fourth quarter of 2024 to $45.9 million during the fourth quarter of 2025, due to the lower cost of corn and lower corn grind.
-
- Gross profit for the fourth quarter of 2025 was $7.7 million, compared to a gross loss of $2.0 million during the same period in 2024. Included in gross profit is depreciation expense of $2.4 million.
-
- Selling, general and administrative expenses fell from $11.4 million during the fourth quarter of 2024 to $10.2 million during the fourth quarter of 2025.
-
- Operating loss was $2.5 million for the fourth quarter of 2025, compared to an operating loss of $13.5 million during the fourth quarter of 2024.
-
- Net loss was $5.3 million for the fourth quarter of 2025, compared to a net loss of $16.2 million for the fourth quarter of 2024.
-
- Income tax benefit reflects the sale of $11.0 million of tax credits during the fourth quarter of 2025.
-
- Cash at the end of the fourth quarter of 2025 was $4.9 million, compared to $898 thousand at the end of the fourth quarter of 2024.
-
- Financial Results for the Twelve Months Ended December 31, 2025
-
- Revenues and production tax credits were $208.0 million for the twelve months ended December 31, 2025, with Biogas reporting $5.3 million and California Ethanol reporting $5.1 million from production tax credits that became effective in January 2025, compared to $268 million revenue for 2024. California Ethanol segment ended the year with $8.5 million less revenue than the year ended 2024 due to lower production associated with lower grind levels. India Biodiesel decreased $63.2 million from delays in follow-on OMC tender sales due to broader structural challenges in India’s biodiesel program, which appeared to end with the initiation of the follow-on offer and resumption of sales at the end of December 2025.
-
- Cost of Goods Sold decreased to $208.7 million during twelve months ending December 31, 2025 compared to $268.2 million during the twelve months ending December 31, 2024.
-
- Gross loss for the twelve months ended December 31, 2025, was $768 thousand, compared to a gross loss of $580 thousand during the same period in 2024. Our Dairy Renewable Natural Gas segment posted $9.6 million of gross profit for the year ended December 31, 2025 compared to $5.4 million gross profit for the year ended December 31, 2024. Included in gross profit is depreciation expense of $4.1 million in 2025 and $3.0 million in 2024 respectively.
-
- Selling, general and administrative expenses improved at $36.5 million during the twelve months ended December 31, 2025, compared to $39.8 million during the same period in 2024.
-
- Operating loss was $37.2 million for the twelve months ending December 31, 2025, compared to an operating loss of $40.4 million for the same period in 2024.
-
- Income tax benefit of $18.7 million during 2025 and $10.8 million during 2024 represent tax credit sales of $18.0 million and $12.3 million, respectively.
-
- Net loss was $77.0 million for the twelve months ending December 31, 2025, compared to a net loss of $87.5 million during the same period in 2024.
-
- Cash at the end of the fourth quarter of 2025 was $4.9 million compared to $898 thousand on December 31, 2024. Investments in our low carbon initiatives increased property, plant, and equipment by $26.0 million during the twelve months ending December 31, 2025.
-
- About Aemetis
-
- Headquartered in Cupertino, California, Aemetis is a diversified renewable natural gas and biofuels company focused on the development and operation of innovative technologies that lower energy costs and reduce emissions. Founded in 2006, Aemetis is operating and expanding a California biogas digester network and pipeline system to convert dairy waste gas into Renewable Natural Gas. Aemetis owns and operates a 65 million gallon per year ethanol production facility in California’s Central Valley near Modesto that supplies about 80 dairies with animal feed. Aemetis owns and operates an 80 million gallon per year production facility on the East Coast of India producing high quality biodiesel and refined glycerin. To utilize the byproducts from ethanol production, Aemetis is developing a sustainable aviation fuel plant and a CO2 sequestration project in California. For additional information about Aemetis, please visit www.aemetis.com.
-
- Company Contact:Todd Waltz
-
- Chief Financial Officer(408) 213-0925twaltz@aemetis.com
-
- External Investor Relations Contact:Kirin SmithPCG Advisory Group(646) 863-6519ksmith@pcgadvisory.com
-
- Non-GAAP Financial Information
-
- We have provided non-GAAP measures as a supplement to financial results based on GAAP. A reconciliation of the non-GAAP measures to the most directly comparable GAAP measures is included in the accompanying supplemental data. Adjusted EBITDA is defined as net income/(loss) plus (to the extent deducted in calculating such net income) interest and amortization expense, gain on debt extinguishment, bad debt expense, income tax expense or benefit, intangible and other amortization expense, accretion expense, depreciation expense, loss on asset disposal and share-based compensation expense.
-
- Adjusted EBITDA is not calculated in accordance with GAAP and should not be considered as an alternative to net income/(loss), operating income or any other performance measures derived in accordance with GAAP or to cash flows from operating, investing or financing activities as an indicator of cash flows or as a measure of liquidity. Adjusted EBITDA is presented solely as a supplemental disclosure because management believes that it is a useful performance measure that is widely used within the industry in which we operate. In addition, management uses Adjusted EBITDA for reviewing financial results, budgeting, and planning purposes. EBITDA measures are not calculated in the same manner by all companies and, accordingly, may not be an appropriate measure for comparison between companies.
-
- Safe Harbor Statement
-
- This news release contains forward-looking statements, including statements regarding our assumptions, projections, expectations, targets, intentions or beliefs about future events or other statements that are not historical facts. Forward-looking statements in this news release include, without limitation, statements relating to our five-year growth plan; trends in market conditions with respect to prices for inputs for our products versus prices for our products; our ability to fund, develop, build, maintain and operate digesters, facilities and pipelines for our Dairy Renewable Natural Gas segment; our ability to fund, develop and operate our Sustainable Aviation Fuel, Renewable Diesel, and Carbon Capture and Sequestration projects, including obtaining required permits; our ability to receive awarded grants by meeting all of the required conditions, including meeting the minimum contributions; our ability to fund, develop and operate our sustainable aviation fuel and renewable biodiesel projects; our intention to repurchase the Series A preferred units relating to our Aemetis Biogas subsidiary and the expected valuation premium thereof; and our ability to raise additional capital. Words or phrases such as “anticipates,” “may,” “will,” “should,” “believes,” “estimates,” “expects,” “intends,” “plans,” “predicts,” “projects,” “showing signs,” “targets,” “view,” “will likely result,” “will continue” or similar expressions are intended to identify forward-looking statements. These forward-looking statements are based on current assumptions and predictions and are subject to numerous risks and uncertainties. Actual results or events could differ materially from those set forth or implied by such forward-looking statements and related assumptions due to certain factors, including, without limitation, competition in the ethanol, biodiesel and other industries in which we operate, commodity market risks including those that may result from current weather conditions, financial market risks, customer adoption, counter-party risks, risks associated with changes to federal policy or regulation, and other risks detailed in our reports filed with the Securities and Exchange Commission, including Annual Reports on Form 10-K, Quarterly Reports on Form 10-Q, and other filed documents. We are not obligated, and do not intend, to update any of these forward-looking statements at any time unless an update is required by applicable securities laws.
-
- AEMETIS, INC.
-
- CONSOLIDATED CONDENSED STATEMENTS OF OPERATIONS
-
- (In thousands, except per share data)
-
- 
-
- AEMETIS, INC.
-
- CONSOLIDATED CONDENSED BALANCE SHEETS
-
- (In thousands)
-
- 
-
- RECONCILIATION OF ADJUSTED EBITDA TO NET INCOME / (LOSS)
-
- (In thousands, unaudited)
-
- 
-
- PRODUCTION AND PRICE PERFORMANCE
-
- (unaudited)
-
- Source: Aemetis, Inc.
-
- The latest news and updates relating to $AMTX are available in the company’s newsroom at: https://tinyurl.com/amtxnewsroom
+ Source: APPlife Digital Solutions, Inc.
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
@@ -160,19 +50,41 @@ Dairy RNG production increased 61% year over year in Q4 2025; ethanol plant effi
 
  
 
- The post Aemetis Reports Fourth Quarter and Full Year 2025 Results as Dairy RNG Platform Scales first appeared on Prism Media Wire. 
+ The post APPlife Digital Solutions Engages PCG Advisory and PRISM Digital Media to Strengthen Investor Relations and Boost Market Presence first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/aemetis-reports-fourth-quarter-and-full-year-2025-results-as-dairy-rng-platform-scales/)
+[Original/Source Press Release](https://prismmediawire.com/applife-digital-solutions-engages-pcg-advisory-and-prism-digital-media-to-strengthen-investor-relations-and-boost-market-presence/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aemetis-rng-soars-61-ethanol-upgrade-to-boost-cash-flow-by-32m-annually/c74af98ee68e3dc40b19d00dd00417f4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/applife-digital-solutions-boosts-investor-relations-with-pcg-advisory-and-prism-digital-media/4ef811f283aa18348d2c1837667119fc) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/applife-digital-solutions-retains-investor-relations-firms-to-en/202629545)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/409998-applife-digital-solutions-retains-pcg-advisory-and-prism-digital-media-for-enhanced-investor-communications)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338976-applife-digital-solutions-beauftragt-pcg-advisory-und-prism-digital-media-fur-verbesserte-investor-kommunikation)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339444-applife-digital-solutions-contrata-a-pcg-advisory-y-prism-digital-media-para-mejorar-sus-comunicaciones-con-inversores)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340209-applife-digital-solutions-retient-les-services-de-pcg-advisory-et-prism-digital-media-pour-renforcer-ses-communications-avec-les-investisseurs)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338919-applife-digital-solutions-contrata-pcg-advisory-e-prism-digital-media-para-aprimorar-comunicacoes-com-investidores)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/applife-digital-solutions-partners-with-investor-relations-firms/202629545)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/applife-digital-solutions-retains-investor-relations-firms-to-en/202629545)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410011-applife-digital-solutions-strengthens-investor-communications-with-dual-agency-engagement)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/410057-applife-digital-solutions-engages-pcg-advisory-and-prism-digital-media-to-enhance-investor-communications)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202603/410060-applife-digital-solutions-engages-pcg-advisory-and-prism-digital-media-to-enhance-investor-communications)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/12/camc0Pi5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/12/pearkc2c.webp)

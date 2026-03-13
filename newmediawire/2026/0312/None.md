@@ -1,50 +1,83 @@
-# Beeline Holdings (BLNE) Partners With TYTL to Scale Tokenized Residential Real Estate Equity Platform
+# 3U HOLDING AG: Preliminary Figures for the Financial Year 2025 and Outlook for 2026
 
-LOS ANGELES, CA - March 12, 2026 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE) announced a strategic partnership with TYTL Corp., a blockchain-enabled platform focused on tokenizing deed-recorded fractional equity interests in U.S. residential real estate as real-world assets. The companies have already completed their first 11 fractional equity transactions and launched an initial portfolio, with plans to scale the platform using Beeline’s digital mortgage and title infrastructure. Under the agreement, Beeline will facilitate fractional equity transactions under the BeelineEquity brand while its subsidiary Beeline Title will serve as exclusive title and settlement provider, supporting closings, escrow and recording workflows before TYTL mints tokens representing the deed-recorded ownership interests. The companies say the model integrates traditional real estate closing processes with blockchain verification, targeting a U.S. housing market estimated at $110 trillion in property value with roughly $39 trillion in available homeowner equity.
+MARBURG, GERMANY - March 12, 2026 (NEWMEDIAWIRE) - 3U HOLDING AG (ISIN DE0005167902) announces its preliminary, as yet unaudited, figures for the financial year 2025 and releases its outlook for the financial year 2026.
 
- To view the full press release, visit https://ibn.fm/U6VGD
+ Highlights of the financial year 2025 (preliminary)
 
- About Beeline Holdings Inc.
+ * Consolidated revenue 2025 of around EUR 53.0 million (previous year: EUR 55.7 million), marginally below adjusted expectations
+* EBITDA 2025 of approximately EUR -3.7 million (previous year: EUR 3.8 million) due to higher expenses and restructuring measures, especially in the HVAC segment
+* ITC and Renewable Energies segments develop in line with planning; HVAC segment burdened by strategic realignment and market environment
+* Substantial increase in non-current assets due to repowering the Langendorf Wind Farm and supplementing the Bitcoin portfolio
 
- Beeline Holdings Inc. is a diversified digital mortgage platform that combines AI-powered origination technology with a growing suite of home equity and financial services products. Beeline closes loans in 14-21 days and operates Beeline Title as an integrated closing and settlement services provider.
+ Performance in 2025
 
- For more information, visit the company’s website at www.MakeABeeline.com
+ In the financial year 2025, the 3U Group generated revenue of around EUR 53.0 million, thus falling marginally short of the year-earlier figure of EUR 55.7 million, as expected. The result was mainly attributable to the decline in the ITC segment’s revenue and to an e-commerce environment characterized by restructuring measures. This development was offset by a largely stable trend in the Renewable Energies segment, along with revenue growth on the back of acquiring the EMPUR Group which was integrated into in the HVAC business.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ The Group’s EBITDA declined to around EUR –3.7 million (previous year: EUR 3.8 million). Contributing factors here included the notable increase in personnel expenses, higher other operating expenses, also in connection with acquisitions both implemented and planned, as well as expenses totalling around EUR 1.6 million for restructuring measures.
 
- Forward Looking Statements
+ The 3U Group’s net assets and financial position remain sound despite the result. As of 31 December 2025, total assets rose notably essentially due to the increase in non-current assets, specifically in property, plant and equipment as part of investments made in the Renewable Energies segment. The Group’s equity base remains resilient and provides adequate financial headroom for progressing down the path of growth and transformation.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Segment performance in 2025
+
+ Sales revenue of EUR 13.2 million generated in the financial year 2025 in the ITC segment fell considerably short of the year-earlier figure of EUR 19.2 million, and thus in line with planning. The decline is largely due to the virtual discontinuation of the Voice Retail business, along with strategic adjustments in other business lines. Segment EBITDA decreased to around EUR 2.8 million (previous year: EUR 4.4 million). The margin nevertheless remained at a sound level. Emphasis continues to be placed on profitable product segments, expanding the Managed Services activities, and taking the digitalization of the products and services on offer forward.
+
+ In the reporting year 2025, the Renewable Energies segment reported a slight downturn in revenue to around EUR 4.6 million (previous year: EUR 4.8 million), due mainly to the conversion work planned under the Langendorf Wind Farm repowering project. EBITDA dropped to around EUR 2.9 million (previous year: EUR 3.5 million) while nevertheless remaining at a high level. The completion of the Langendorf repowering project and the full commissioning of the new wind turbines at the start of 2026 marks the achievement of an important milestone for the Group under its growth strategy in the Renewable Energies segment, while forming the basis for a substantial increase in revenue and earnings in the years ahead.
+
+ Thanks to the activities of the EMPUR Group, the revenue generated by the HVAC segment rose to around EUR 36.2 million in the financial year 2025 (previous year: EUR 32.5 million). In terms of organic growth, revenue nevertheless remained notably below the previous year’s level. Business was characterised by a persistently difficult market environment, subdued construction activities and a great deal of uncertainty on the part of customers. As expected, segment EBITDA dropped to around EUR -6.4 million (previous year: EUR -2.0 million), resulting in particular from the marked increase in personnel expenses, higher consultancy costs, and non-recurrent restructuring expenses of around EUR 1.2 million. The measures taken by 3U, which include a focused product portfolio, optimizing procurement and logistics processes, along with the integration of the EMPUR Group, have set in place the prerequisites for a gradual improvement in profitability.
+
+ Outlook for 2026
+
+ Despite the financial year 2025 which, in many respects, can be deemed a year of transition, the Management Board assesses the point of departure for 2026 as favourable. The rigorous strategic realignment of the HVAC segment, expanding capacities in the Renewable Energies segment, and focusing on profitable business lines in the ITC segment should contribute to significantly boosting revenue and profit in 2026.
+
+ In terms of the financial year 2026, and without factoring in potential acquisitions in the future, the Management Board anticipates an increase in consolidated revenue in a range of approximately EUR 55.0 million to EUR 60.0 million, as well as earnings before interest, taxes, depreciation and amortization (EBITDA) of around EUR 6.0 million to EUR 8.0 million, which equates to an EBITDA margin of approximately 12 %. In the ITC segment, sales revenue in 2026 is expected at the level of the financial year 2025, namely at around EUR 13.0 million, along with a higher EBITDA of approximately EUR 3.5 million, and profitability therefore continuing at a high level. In the Renewable Energies segment - now that the Langendorf repowering project has been completed and in view of further measures - the Management Board is expecting sales revenue to more than double to over EUR 10.0 million, accompanied by much higher EBITDA of around EUR 8.0 million. The HVAC segment is expected to deliver sales revenue of around EUR 35.0 million in 2026, along with a significant improvement in, but still negative, EBITDA of approximately EUR -1.0 million. In 3U HOLDING AG as a separate entity, the Management Board expects revenue to settle in a range of between EUR 2.0 million and EUR 2.5 million in 2026. The Holding’s EBITDA is anticipated in a corridor of around EUR -3.0 million to EUR -4.0 million due, among other aspects, to higher administrative expenses in connection with transformation and digitalization initiatives.
+
+ Publication of the 2025 Annual Report
+
+ The final, audited figures for the financial year 2025 will be published, as scheduled, on 31 March 2026, along with the 2025 Annual Report. Further information on the Group’s development, its segments and outlook will be presented in detail in the context of reporting.
+
+ A webcast will be held for this purpose on 31 March 2026 at 10:00 CET, together with CFO Christoph Hellrung and Uwe Knoke, Board member responsible for strategy and business development. Parties interested participating in the webcast can register here.
+
+ Contact: Thomas Fritsche, Investor RelationsTel.: +49 (0)6421 999 - 1200email: IR@UUU.de
+
+ About 3U: 3U HOLDING AG based in Marburg, Germany, was founded in 1997. As the operating management and investment holding company, it heads up the 3U Group. With a view to increasing the value for the shareholders, employees, customers, suppliers and all stakeholders, the company acquires, operates and sells companies in the three segments of ITC (Information and Telecommunications Technology), Renewable Energies and HVAC (Heating, Ventilation and Air Conditioning Technology. The 3U Group operates successfully and profitably with its business models in mega trends in all three segments and is striving to attain market leadership in particular with its e-commerce business model. 3U HOLDING AG shares are traded on XETRA, Tradegate and on German regional stock exchanges (ISIN: DE0005167902; identifier: UUU). More information can be found at www.UUU.de.
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-partners-with-tytl-to-scale-tokenized-residential-real-estate-equity-platform-7085829)
+[Original/Source Press Release](https://www.newmediawire.com/news/3u-holding-ag-preliminary-figures-for-the-financial-year-2025-and-outlook-for-2026-7085834)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-and-tytl-partner-to-tokenize-39t-in-u-s-home-equity/53a06d09552245a7a219825f78e00f32) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/3u-holding-ag-reports-2025-transition-forecasts-2026-rebound-with-strategic-shifts/512d16832b46a9272be6ca72d2b9c81e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/beeline-holdings-partners-with-tytl-to-scale-tokenized-residenti/202629541)
+Pickup - [https://advos.io/en](https://advos.io/en/3u-holding-ag-reports-preliminary-2025-results-and-optimistic-20/202629552)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/409954-beeline-holdings-partners-with-tytl-to-scale-tokenized-residential-real-estate-equity-platform)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/410090-3u-holding-ag-reports-preliminary-2025-results-and-optimistic-2026-outlook-amid-strategic-realignment)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338972-beeline-holdings-geht-partnerschaft-mit-tytl-ein-um-plattform-fur-tokenisierte-eigenheimanteile-zu-skalieren)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/338985-3u-holding-ag-meldet-vorlaufige-ergebnisse-fur-2025-und-optimistische-aussichten-fur-2026-im-rahmen-strategischer-neuausrichtung)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339439-beeline-holdings-se-asocia-con-tytl-para-escalar-plataforma-de-tokenizacion-de-capital-inmobiliario-residencial)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339452-3u-holding-ag-informa-resultados-preliminares-de-2025-y-perspectiva-optimista-para-2026-en-medio-de-realineacion-estrategica)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340204-beeline-holdings-sassocie-a-tytl-pour-developper-une-plateforme-de-tokenisation-des-capitaux-propres-immobiliers-residentiels)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340216-3u-holding-ag-presente-ses-resultats-preliminaires-2025-et-un-bilan-optimiste-pour-2026-dans-le-cadre-dun-realignement-strategique)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338915-beeline-holdings-parceira-da-tytl-para-expandir-plataforma-de-tokenizacao-de-participacoes-em-imoveis-residenciais)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338926-3u-holding-ag-divulga-resultados-preliminares-de-2025-e-projecao-otimista-para-2026-em-meio-a-realinhamento-estrategico)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/beeline-holdings-partners-with-tytl-to-scale-tokenized-residenti/202629541)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/3u-holding-ag-reports-preliminary-2025-results-and-optimistic-20/202629552)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beeline-holdings-partners-with-tytl-to-scale-tokenized-residenti/202629541)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/3u-holding-ag-reports-preliminary-2025-results-and-2026-outlook/202629552)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/409985-beeline-holdings-partners-with-tytl-to-scale-tokenized-residential-real-estate-equity-platform)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410101-3u-holding-ag-reports-preliminary-2025-results-and-optimistic-2026-outlook-amid-strategic-transition)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/410112-3u-holding-ag-reports-challenging-2025-results-but-projects-strong-recovery-in-2026)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/12/flaxZMfD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/12/chefeHDN.webp)
