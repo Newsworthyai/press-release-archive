@@ -1,58 +1,42 @@
-# InvestorNewsBreaks – Suntex Enterprises Inc. (OTC: SNTX) Proposes Dividend Distribution to Golden Triangle Ventures Shareholders
+# 420 with CNW — Study Suggests Marijuana Compounds Could Potentially Reverse Liver Disorder
 
-Suntex Enterprises (OTC: SNTX) announced plans to pursue a proposed dividend distribution of Suntex Enterprises shares to shareholders of Golden Triangle Ventures (OTCID: GTVH), subject to regulatory review and approval. The proposed corporate action, expected to be submitted to FINRA, is currently anticipated to be structured at an approximate 30:1 ratio and is intended to align Golden Triangle Ventures shareholders with operating businesses under discussion for potential acquisition by Suntex Enterprises as the company works to expand its diversified operating platform.
+Compounds derived from marijuana may offer a new direction for addressing one of the most widespread chronic liver illnesses worldwide, according to recent findings from researchers at Hebrew University of Jerusalem.
 
- To view the full press release, visit https://ibn.fm/SpaZ3
+ These research findings provide additional support for the views of cannabis firms like Canopy Growth Corp. (NASDAQ: CGC) (TSX: WEED) that believe the full therapeutic potential of…
 
- About Suntex Enterprises, Inc.
+ Read More>>
 
- Suntex Enterprises, Inc. is a diversified operating company focused on building and scaling businesses in construction, development, and infrastructure-related sectors. The Company’s strategy emphasizes disciplined growth, operational transparency, and long-term shareholder value creation.
+ About CNW420
 
- For more information on the company, please visit: http://www.suntexenterprises.com/
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- About InvestorWire
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-suntex-enterprises-inc-otc-sntx-proposes-dividend-distribution-to-golden-triangle-ventures-shareholders/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-study-suggests-marijuana-compounds-could-potentially-reverse-liver-disorder/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/suntex-enterprises-proposes-dividend-to-golden-triangle-ventures-shareholders/4fc6498a562acce77e2d16086b5dd1de) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marijuana-compounds-may-reverse-chronic-liver-disease-study-finds/f6d775712fe30e78f857cc09c766f79b) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/suntex-enterprises-proposes-dividend-distribution-to-golden-tria/202629601)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202603/410740-cannabis-compounds-show-promise-for-treating-chronic-liver-disease-supporting-industry-therapeutic-claims)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/410581-suntex-enterprises-proposes-dividend-distribution-to-golden-triangle-ventures-shareholders)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/study-suggests-marijuana-compounds-could-potentially-reverse-liv/202629612)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339032-suntex-enterprises-schlagt-dividendenzahlung-an-aktionare-von-golden-triangle-ventures-vor)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339501-suntex-enterprises-propone-distribucion-de-dividendos-a-accionistas-de-golden-triangle-ventures)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340265-suntex-enterprises-propose-une-distribution-de-dividendes-aux-actionnaires-de-golden-triangle-ventures)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/suntex-enterprises-proposes-dividend-distribution-to-golden-tria/202629601)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/suntex-enterprises-proposes-dividend-distribution-to-golden-tria/202629601)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338973-suntex-enterprises-propoe-distribuicao-de-dividendos-aos-acionistas-da-golden-triangle-ventures)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/410638-suntex-enterprises-proposes-share-distribution-to-golden-triangle-ventures-shareholders)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410618-suntex-enterprises-proposes-dividend-distribution-to-golden-triangle-ventures-shareholders)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410737-cannabis-compounds-show-potential-for-reversing-chronic-liver-disease-in-new-study)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/13/rushEzun.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/13/nukeCZGZ.webp)

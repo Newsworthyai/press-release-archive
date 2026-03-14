@@ -1,26 +1,16 @@
-# Pelican Acquisition (PELI) Partner Greenland Energy CEO Warns of Structural Oil Supply Risks in Benzinga Interview
+# FG Nexus (FGNX) Ranked Top SPAC Sponsor by Median Returns in EarlyBirdCapital Study
 
-LOS ANGELES, CA - March 13, 2026 (NEWMEDIAWIRE) - Pelican Acquisition (NASDAQ: PELI) partner Greenland Energy’s incoming CEO Robert Price said global energy markets may be underestimating structural risks to oil supply, citing geopolitical chokepoints such as the Strait of Hormuz and declining long-term investment in conventional production. In an exclusive interview with Benzinga, Price emphasized that frontier exploration efforts, including the company’s work in Greenland’s Jameson Land Basin, are aimed at addressing future supply constraints rather than short-term price movements, arguing that long-cycle conventional resources will remain essential to maintaining global energy security.
+LOS ANGELES, CA - March 13, 2026 (NEWMEDIAWIRE) - FG Nexus (NASDAQ: FGNX) (NASDAQ: FGNXP) was recognized as the top-performing SPAC sponsor by median returns and the second-ranking sponsor by average returns in an industry study conducted by EarlyBirdCapital. The recognition reflected the track record of FG Merchant Partners’ leadership team, including Larry Swets, Hassan Baqar, Kyle Cerminara and Joe Moglia, whose experience across the SPAC lifecycle included participation in 10 SPACs over nearly two decades as sponsors, officers, directors or advisors, completing multiple business combinations while maintaining a disciplined, value-oriented approach focused on long-term shareholder value.
 
- To view the full article, visit https://ibn.fm/vyGU3
+ To view the full press release, visit https://ibn.fm/bAsi0
 
- About Greenland Exploration Limited
+ About FG Nexus
 
- Greenland Exploration Limited is a Texas-based entity focused on developing strategic positions in North American energy assets. Through its partnerships, Greenland aims to deliver long-term shareholder value in a dynamic and evolving energy market.
+ FG Nexus is focused on building a digital asset treasury and a leading platform for the tokenization of real-world assets. To enhance the yield on its treasury, the company will stake its ETH and implement additional yield strategies while positioning itself as a strategic gateway into digital-asset-powered finance, including tokenized RWAs and stablecoin-based yield solutions.
 
- About March GL Company
-
- March GL Company, a privately-owned Texas Corporation, entered into an agreement with 80 Mile for drilling to commence at the Jameson oil and gas basin in Greenland. March GL will fund 100% of the costs associated with up to two exploration wells, which are designed to delineate the sedimentary structure and energy potential of the Jameson Land Basin. In return, March GL will earn through 80 Mile’s subsidiary company up to 70% interest in the entire basin. March GL Company will be appointed as the Field Operations Manager.
-
- For more information, visit the company’s website at www.MarchGL.com
-
- About Pelican Acquisition Corporation
-
- Pelican Acquisition Corporation is a blank check company formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses. Pelican is not limited to any particular industry or geographic region in identifying prospective targets.
+ For more information about the company, please visit https://fgnexus.io/
 
  Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
-
- The latest news and updates relating to PELI are available in the company’s newsroom at https://ibn.fm/PELI
 
  Forward Looking Statements
 
@@ -30,33 +20,33 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pelican-acquisition-peli-partner-greenland-energy-ceo-warns-of-structural-oil-supply-risks-in-benzinga-interview-7085845)
+[Original/Source Press Release](https://www.newmediawire.com/news/fg-nexus-fgnx-ranked-top-spac-sponsor-by-median-returns-in-earlybirdcapital-study-7085846)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-ceo-warns-of-underestimated-oil-supply-risks/eccdfe6389dfd3982fe22e32127f4fe4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fg-nexus-tops-spac-rankings-eyes-digital-asset-tokenization/c69ec76749be8e7aabfc055ccf283929) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/greenland-energy-ceo-warns-of-structural-oil-supply-risks-cites/202629606)
+Pickup - [https://advos.io/en](https://advos.io/en/fg-nexus-tops-spac-sponsor-performance-rankings-in-earlybirdcapi/202629608)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/410668-greenland-energy-ceo-warns-of-structural-oil-supply-risks-highlights-frontier-exploration-strategy)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/410689-fg-nexus-recognized-as-top-performing-spac-sponsor-in-earlybirdcapital-study)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339037-greenland-energy-ceo-warnt-vor-strukturellen-olversorgungsrisiken-und-hebt-frontier-explorationsstrategie-hervor)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339039-fg-nexus-in-earlybirdcapital-studie-als-bestperformender-spac-sponsor-anerkannt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339511-el-ceo-de-greenland-energy-advierte-sobre-riesgos-estructurales-en-el-suministro-de-petroleo-y-destaca-estrategia-de-exploracion-en-fronteras)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339513-fg-nexus-reconocido-como-patrocinador-de-spac-de-mayor-rendimiento-en-estudio-de-earlybirdcapital)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340271-le-pdg-de-greenland-energy-met-en-garde-contre-les-risques-structurels-dapprovisionnement-petrolier-et-souligne-la-strategie-dexploration-en-zones-frontalieres)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340273-fg-nexus-reconnu-comme-le-sponsor-de-spac-le-plus-performant-dans-letude-dearlybirdcapital)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338979-ceo-da-greenland-energy-alerta-sobre-riscos-estruturais-no-fornecimento-de-petroleo-e-destaca-estrategia-de-exploracao-em-fronteiras)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/338981-fg-nexus-reconhecida-como-patrocinadora-de-spac-com-melhor-desempenho-em-estudo-da-earlybirdcapital)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/greenland-energy-ceo-warns-of-structural-oil-supply-risks-highli/202629606)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/fg-nexus-recognized-as-top-performing-spac-sponsor-in-earlybirdc/202629608)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/greenland-energy-ceo-warns-of-structural-oil-supply-risks-in-glo/202629606)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fg-nexus-recognized-as-top-performing-spac-sponsor-in-industry-s/202629608)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410678-greenland-energy-ceo-warns-of-structural-oil-supply-risks-cites-geopolitical-chokepoints-and-investment-decline)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/410711-fg-nexus-recognized-as-top-performing-spac-sponsor-in-earlybirdcapital-study)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/13/pineqPrG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/13/idea0M4w.webp)
