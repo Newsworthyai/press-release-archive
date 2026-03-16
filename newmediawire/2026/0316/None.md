@@ -1,64 +1,60 @@
-# CHARBONE Confirms the Delivery of New UHP Hydrogen Orders in New York State, One of the Main American Technology Hubs
+# Space To The Seas: Ascent Solar Technologies Now Focusing On Bringing More Solar Tech To Marine Markets
 
-BROSSARD, QUEBEC - March 16, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a North American producer and distributor specializing in clean Ultra High Purity (“UHP”) hydrogen and strategic industrial gases, confirms today that new orders for UHP hydrogen from an existing customer located in New York State have been fully delivered, further strengthening the Company's commercial presence in one of the leading technology and industrial hubs in the United States.
+By Meg Flippin, Benzinga
 
- These deliveries follow the press release published on January 14, 2026, in which CHARBONE announced its first order for UHP clean hydrogen from this American customer. The continued orders and their operational execution confirm the establishment of a long-term business relationship with a key player in a leading technology ecosystem in the United States.
+ DETROIT, MICHIGAN - March 16, 2026 (NEWMEDIAWIRE) - The marine solar panel market is projected to reach $5 billion by 2035, growing at a CAGR of 13.1% over 2025-2035, and Ascent Solar Technologies Inc. (NASDAQ: ASTI) could be one to watch. As the developer of featherweight, flexible and durable CIGS thin-film photovoltaic (PV), not only are its marine-ready solar panels durable and saltwater-resistant, the company reports they are also cost-effective. Ascent counts several big names, from NASA’s Marshall Space Flight Center to the Georgia Institute of Technology, as partners and is increasingly expanding into marine applications.
 
- A strategic market at the heart of the American "Tech Valley"
+ Powering Water Vessels With An Edge
 
- New York State, particularly the region often referred to as "Tech Valley", is one of the most dynamic technology and industrial clusters in North America, especially in the sectors:
+ Ascent Solar’s CIGS solar cells are finding interest in the marine industry because they are thin-film PV cells that weigh very little and are flexible. Since they perform well in low light, they are becoming an increasingly popular choice for space exploration, drones and surface and underwater vehicles (both military and commercial). What Ascent Solar says gives it an edge over competitors is its ability to deliver solar arrays in six to eight weeks, much faster than rivals that Ascent says have lead times of nine to 12 months. The company is betting that its manufacturing prowess will be a big advantage for OEM boatbuilders and integrators needing responsive supply chains.
 
- - Microelectronics
+ It doesn’t hurt that Ascent Solar already has a history in the marine market. The company has delivered modules for testing in saltwater and for underwater monitoring applications, demonstrating the potential of remote systems under extreme conditions. This is critical for ocean monitoring, offshore platforms and long-range vessels. Their performance in low light and extreme temperatures also fits unpredictable marine environments. The company also believes its patented Monolithic Integration (MI) technology gives it an edge. This tech allows panels to continue generating power even if they are partially damaged or punctured. This is critical for solar-powered boats in the deep ocean; if a traditional solar panel is damaged by a wave or heavy winds, all of its cells typically fail.
 
- - Semiconductors
+ Mooring The Customers
 
- - Advanced materials
+ With its expertise, it is no surprise that Ascent Solar is becoming more active in the maritime market. An ocean monitoring company is currently testing the functionality and durability of Ascent’s PVs in aquatic terrestrial applications to enable persistent equipment operation. Meanwhile, Georgia Tech is integrating solar arrays directly into the wings of unmanned aerial vehicles (UAVs) designed for ocean monitoring. These solar-powered seaplanes are being developed for persistent, long-range maritime surveillance. Ascent Solar sees its panels as a solution for persistent ocean buoys, sensors, autonomous underwater vehicle (AUV) surface charging and electric boat hulls. Beyond traditional surface PVs, the company’s tech has drawn interest from developers of autonomous vehicles, a niche but rapidly expanding area within the broader marine solar market, reports the company.
 
- - Defense technologies
+ By combining rapid manufacturing with extreme durability, Ascent Solar is positioning itself to be at the helm of the next generation of green ships and applications. To learn more about Ascent, click here.
 
- - Advanced industrial manufacturing
+ Featured image from Shutterstock.
 
- In these industries, the availability of a reliable supply of ultra-high-purity industrial gases is critical for operations and process quality. The delivery of these new UHP hydrogen orders confirms CHARBONE's ability to effectively serve these high-tech markets, while strengthening its commercial footprint in the northeastern United States.
+ This content was originally published on Benzinga. Read further disclosures here.
 
- Towards a North American platform for UHP industrial gases
-
- While continuing to develop its clean UHP hydrogen production, CHARBONE is progressively rolling out an expanded range of specialty and ultra-high purity industrial gases, including: UHP oxygen, helium and certain strategic gases for advanced technology and industrial markets.
-
- This approach is part of the Company's strategy to develop an integrated UHP industrial gas distribution platform in North America, capable of meeting the growing needs of high-tech industries.
-
- In this context, CHARBONE is also working on the gradual implementation of a regional storage and distribution hub infrastructure, designed to support reliable supply and commercial growth in strategic markets.
-
- Management statement
-
- “The delivery of these new UHP hydrogen orders in New York State confirms not only the strength of our business relationship with this American customer, but also the relevance of our positioning in some of the most demanding technology ecosystems in North America,” said Dave Gagnon, CHARBONE’s Chief Executive Officer and Chairman of the Board. “Our vision is clear: to progressively build a North American platform for strategic and ultra-high-purity industrial gases, with clean hydrogen as its core molecule. Advanced technology markets demand extremely high supply standards, and CHARBONE intends to play an increasing role in this ecosystem in the coming years.”
-
- About CHARBONE CORPORATION CHARBONE is a developer and producer of clean Ultra High Purity (UHP) hydrogen with a growing industrial gas distribution platform. Through a modular approach, CHARBONE is focused on developing a network of clean hydrogen production facilities throughout North America and select markets abroad, starting with its flagship Sorel-Tracy project in Quebec. The Company’s integrated model reduces risk, enhances scalability, and enables diversified revenue streams through partnerships in helium and other specialty gases. CHARBONE is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gas solutions while supporting underserved industrial gas customers and accelerating the shift to localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). Visit www.charbone.com.
-
- Forward-Looking Statements
-
- This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Management’s Discussion & Analysis for the period ended September 30, 2025, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
-
- Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
-
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- Contact Charbone Corporation Telephone: +1 450 678 7171 Email: ir@charbone.com Benoit Veilleux CFO and Corporate Secretary
-
- 
+ This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/charbone-confirms-the-delivery-of-new-uhp-hydrogen-orders-in-new-york-state-one-of-the-main-american-technology-hubs-7085862)
+[Original/Source Press Release](https://www.newmediawire.com/news/space-to-the-seas-ascent-solar-technologies-now-focusing-on-bringing-more-solar-tech-to-marine-markets-7085866)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-delivers-new-uhp-hydrogen-orders-in-new-york-s-tech-valley/2ef0b3a87316f99ddd10b0ff773e0bed) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ascent-solar-charts-course-in-5b-marine-solar-market-with-rapid-tech/61b27716c9e83b1c32ada53737222b1e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ascent-solar-technologies-expands-marine-solar-market-presence-w/202629642)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/411077-ascent-solar-technologies-expands-focus-on-marine-solar-market-with-flexible-durable-panels)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339072-ascent-solar-technologies-erweitert-fokus-auf-den-maritimen-solarmarkt-mit-flexiblen-langlebigen-panels)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339546-ascent-solar-technologies-amplia-su-enfoque-en-el-mercado-solar-marino-con-paneles-flexibles-y-duraderos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340305-ascent-solar-technologies-elargit-sa-cible-sur-le-marche-solaire-marin-avec-des-panneaux-flexibles-et-durables)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339015-ascent-solar-technologies-amplia-foco-no-mercado-solar-marinho-com-paineis-flexiveis-e-duraveis)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/411087-marine-solar-panel-market-poised-for-growth-as-ascent-solar-technologies-focuses-on-durable-solutions)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ascent-solar-technologies-expands-focus-to-marine-solar-market-w/202629642)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ascent-solar-technologies-expands-focus-on-marine-solar-panel-ma/202629642)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/411082-ascent-solar-technologies-expands-focus-on-marine-solar-market-with-flexible-thin-film-technology)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/16/riceyNOJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/16/join6d6t.webp)
