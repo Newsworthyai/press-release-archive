@@ -1,64 +1,52 @@
-# Catalyst Crew Technologies Strengthens Corporate Governance With Appointment of OTC Markets Premium Securities Counsel
+# Golden Cariboo Resources Acquires Placer Claims at Halo Zone; Provides Drilling Update
 
-CARACAS, VENEZUELA - March 16, 2026 (NEWMEDIAWIRE) - Catalyst Crew Technologies Corp. (OTC: CCTC) (the “Company”) today announced that it has retained Brian Higley, a securities attorney based in Utah, to serve as securities counsel to the Company.
+VANCOUVER, BC - March 17, 2026 (NEWMEDIAWIRE) - Golden Cariboo Resources Ltd. (the “Company”) (CSE:GCC) (OTC:GCCFF) (WKN:A402CQ) (FSE:3TZ) announces that it has acquired 13 cells of placer claims at the Halo zone, totaling 250 ha. This purchase for 100% of the placer rights is for the sum of $60,000CAD (SIXTY THOUSAND DOLLARS).
 
- Mr. Higley advises public companies on corporate governance, securities law compliance, regulatory matters, and capital markets activities. In this role, he will assist the Company with ongoing securities law compliance, regulatory filings, and other corporate legal matters as the Company continues executing its strategic transition into artificial intelligence-enabled healthcare technology.
+ In addition to the placer claim acquisition, Golden Cariboo Resources wishes to provide an update on active drilling. Drill hole QGQ25-28 is ongoing, currently at a depth of 715.00m (2345.80 ft). It has intersected intermittent quartz-carbonate veining, silicification and disseminated and stringer pyrite mineralization as seen in the picture HERE. This drilling is targeting northwest of the Halo zone.
 
- Mr. Higley is listed on the OTC Markets website as one of a limited group of Premium Legal Service Providers, a designation that identifies experienced securities attorneys who assist public companies with regulatory compliance, disclosure matters, and capital markets activities. According to OTC Markets, only nine legal service providers are currently listed within this premium category on the OTC Markets website (www.otcmarkets.com).
+ The technical information in this news release has been reviewed and approved by Jean Pautler, an independent consultant commissioned by the Company. Jean Pautler is a Professional Geoscientist (P.Geo.) registered with the Association of Professional Engineers and Geoscientists of the Province of BC (“APEGBC”) and licensed by Engineers and Geoscientists BC, and is a “Qualified Person” with respect to NI 43-101.
 
- “Maintaining strong governance and regulatory compliance is an important priority for the Company,” said Dr. Kevin Rodan Levy, Chief Executive Officer of Catalyst Crew Technologies Corp. “We are pleased to work with Mr. Higley as we continue strengthening the Company’s legal and compliance infrastructure as a public company.”
+ About Golden Cariboo Resources Ltd.
 
- The engagement reflects the Company’s continued commitment to maintaining appropriate legal, governance, and regulatory compliance frameworks as it advances its strategic initiatives.
+ Golden Cariboo Resources Ltd. is rediscovering the Cariboo Gold Rush by proceeding with highly targeted drilling and trenching programs on its Quesnelle Gold Quartz Mine property which is bordered by Osisko Development, partly intertwined with them at the north end of the Cariboo Gold Project, and located along a favourable corridor adjacent to the Spanish and Eureka thrust faults over a 94,899 hectare (234,501 acre) area. Historically, over 101 placer gold creeks on the 90-kilometer (56 mile) trend, from the Cariboo Hudson mine north to the Quesnelle Gold Quartz Mine property, have recorded production with successful placer mining continuing to this day.
 
- For more details about the Company, visit https://catalystcrewai.com, or access its official filings through the U.S. Securities and Exchange Commission website at www.sec.gov.
+ Golden Cariboo’s Quesnelle Gold Quartz Mine property is 4 kilometers (2.5 miles) northeast of, and road accessible from, Hixon in central British Columbia. The Property includes the Quesnelle Quartz gold-silver deposit, which was discovered in 1865 and developed over a footprint of about 150m x 150m (less than 6 acres) at the Main zone straddling Hixon Creek. Overall, the geological setting of the gold mineralization at the Company’s Quesnelle Gold Quartz Mine property shows strong similarities with the Spanish Mountain gold deposit, situated 120 km (75 miles) towards the southeast along the same geological trend. As a sediment-hosted vein (SHV) deposit, the Spanish Mountain deposit is considered to belong to the epizonal orogenic subclass of gold deposits which include some of the world’s largest deposits such as Muruntau, Uzbekistan and Bendigo, Australia.
 
- About Catalyst Crew Technologies Corp.
+ For further information please contact:
 
- Catalyst Crew Technologies Corp. is an artificial intelligence-driven healthcare technology company focused on developing scalable digital health solutions for emerging markets, with an initial emphasis on Latin America. The Company is actively executing its strategic transition into AI-enabled healthcare and pursuing opportunities across telehealth infrastructure, remote patient monitoring, healthcare data analytics, and integrated digital care platforms designed to improve access, efficiency, and care coordination.
+ GOLDEN CARIBOO RESOURCES LTD “J. Frank Callaghan”
 
- Through technology development initiatives, strategic partnerships, and targeted acquisitions, CCTC is building an integrated healthcare technology platform positioned to address the growing demand for modernized healthcare delivery systems across emerging markets.
+ J. Frank Callaghan, President & CEOTel: 604-669-6463
 
- Forward-Looking Statements
+ VISIT OUR WEBSITE FOR MORE DETAILSwww.goldencariboo.com
 
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934. Forward-looking statements include, but are not limited to, statements regarding the Company’s business strategy, leadership initiatives, strategic transactions, operational execution, regulatory matters, and future operations.
+ LIKE AND FOLLOWInstagram, Facebook, X (Twitter), LinkedIn
 
- Forward-looking statements are based on current expectations and assumptions that involve risks and uncertainties. Actual results may differ materially from those expressed or implied due to various factors, including but not limited to the Company’s ability to successfully implement its business plan, secure financing, complete acquisitions, comply with regulatory requirements, and general market and economic conditions.
+ Neither the “CSE” Canadian Securities Exchange nor its Regulation Service Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
+ Cautionary Statements:
 
- Disclaimer
+ This news release contains statements which constitute “forward-looking information” within the meaning of applicable securities laws, including statements regarding the plans, intentions, beliefs and current expectations of the Company with respect to future business activities and plans of the Company. Forward-looking information is often identified by the words “may”, “would”, “could”, “should”, “will”, “intend”, “plan”, “anticipate”, “believe”, “estimate”, “expect” or similar expressions and includes information regarding; the expectation that the Company will receive all necessary exemptions and approvals to complete the Offering; the expectation that the Company will complete the Offering on the terms disclosed, or at all; the expectation that the proceeds will be used for property exploration and for general working capital; the Company’s exploration plans with respect to its Quesnelle Gold Quartz Mine property; and the anticipated participation of the insider in the Offering.
 
- This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company.
+ Such forward-looking statements are based on a number of assumptions of management, including, without limitation, that the Company will receive all necessary exemptions and approvals to complete the Offering; that the Company will complete the Offering on the terms disclosed, or at all; that the proceeds will be used for property exploration and for general working capital; that the Company will have the resources required to proceed with its exploration plans; that the Company will not run into regulatory or other barriers in carrying out its business plans; that the insider will participate in the Offering, on the terms and conditions and in the amount currently expected by management; and that the Company will be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis anticipated.
 
- The Company is a development-stage enterprise and has not generated revenues from its newly announced business direction. There can be no assurance that the Company will successfully implement its business plan, complete acquisitions, secure financing, obtain regulatory approvals, or generate revenues.
+ Additionally, forward-looking information involve a variety of known and unknown risks, uncertainties and other factors which may cause the actual plans, intentions, activities, results, performance or achievements of the Company to be materially different from any future plans, intentions, activities, results, performance or achievements expressed or implied by such forward-looking statements. Such risks include, without limitation: that the Company will not receive the necessary exemptions and approvals to complete the Offering; that the Company will not complete the Offering on the terms disclosed, or at all; that the Company will be unable to use the proceeds for property exploration and for general working capital; that the Company may incur unanticipated costs; that the Company may not have the resources required to pursue its exploration plans; that the Company’s operations could be adversely affected by possible future government legislation policies and controls or by changes in applicable laws and regulations; that the insider may not participate in the Offering on the terms and conditions and in the amount currently expected by management, or at all; and that the Company may not be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis currently expected. Such forward-looking information represents management’s best judgment based on information currently available. No forward-looking statement can be guaranteed and actual future results may vary materially. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. Neither the Company nor any of its representatives make any representation or warranty, express or implied, as to the accuracy, sufficiency or completeness of the information in this news release. Neither the Company nor any of its representatives shall have any liability whatsoever, under contract, tort, trust or otherwise, to you or any person resulting from the use of the information in this news release by you or any of your representatives or for omissions from the information in this news release.
 
- Any investment decision should be made solely on the basis of information contained in the Company’s filings with the U.S. Securities and Exchange Commission and other publicly available documents. The Company’s securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company’s SEC filings before making any investment decision.
-
- No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
-
- Investor Relations Contact+1 (787) 476-2350ir@catalystcrew.ai
-
- 
-
- 
-
- 
+ The forward-looking statements herein speak only as of the date they were originally made. The Company has no intention and undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/catalyst-crew-technologies-strengthens-corporate-governance-with-appointment-of-otc-markets-premium-securities-counsel-7085877)
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-cariboo-resources-acquires-placer-claims-at-halo-zone-provides-drilling-update-7085878)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-crew-bolsters-governance-with-premium-otc-markets-legal-counsel/22a6f8102850e5300ab1757bc2c40ed4) 
-
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/411378-catalyst-crew-technologies-retains-securities-counsel-amid-ai-healthcare-transition)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-cariboo-expands-halo-zone-with-placer-claims-reports-promising-drill-results/cef30c0581bae1306f04fed60c1bd87f) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/17/fondi779.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/17/ellaOs19.webp)
