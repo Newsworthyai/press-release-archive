@@ -1,48 +1,53 @@
-# MiningNewsBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) Featured In MiningNewsWire Editorial On Gold Market Trends
+# LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) Prepares for Gold Pour and Anticipates Straightforward Path to Profitability with Positive PEA
 
-This article has been disseminated on behalf of LaFleur Minerals and may include paid advertising.
+Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and may include paid advertising.
 
- LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) announced its inclusion in a MiningNewsWire editorial highlighting how rising gold prices are reshaping new mine development, noting the company’s progress in Québec’s Abitibi Gold Belt through a favorable Preliminary Economic Assessment for the Swanson Gold Project, supportive drilling results and ongoing refurbishment of the Beacon Gold Mill as it advances toward potential production.
+ * Recent analysis by Zacks Small Cap Research underscores the positive strategic position of Canadian gold developer LaFleur Minerals as it prepares to restart gold production at its Beacon Gold Mill this year
+* LaFleur’s assets include its wholly owned Beacon Gold Mill, nearby district-scale Swanson Gold Deposit within the renowned Abitibi belt, and a strategic proximity to skilled labor and equipment suppliers in the already established Val d’Or, Quebec mining camp
+* LaFleur recently completed a Preliminary Economic Assessment (“PEA”) that outlining the potential for profitability thanks to its scalable mining project and established processing infrastructure, highlighted by a rapid payback period and capital efficiency with expected 65% IRR after taxes
+* LaFleur updated its 2024 mineral resource estimate (“MRE”) with a 30% increase in the indicated MRE category to over 160,000 ounces of contained gold, and to over 66,000 ounces of contained gold in the inferred category
 
- To view the full press release, visit https://ibn.fm/QevBj
+ A recently completed Preliminary Economic Assessment (“PEA”) is substantiating near-term gold producer LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF)‘s profile as a junior gold developer positioned to capitalize on the pairing of its scalable Swanson Gold Deposit and its fully permitted Beacon Gold Mill in Eastern Canada’s Tier‑1 Abitibi gold belt, as it prepares to restart gold production during Q2-2026.
 
- About LaFleur Minerals Inc.
+ The PEA highlights the project’s capital efficiency and economic returns that are anticipated to be significant, particularly at market prices recorded throughout 2025 and into 2026. The PEA establishes a Net Present Value (“NPV”) of C$101 million (5% value creation) and places Internal Rate of Return (“IRR”) expectations at 65% after taxes — highlighting a potential investment profitability that features…
 
- LaFleur Minerals is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The Company’s mission is to advance mining projects with a laser focus on our resource-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 18,304 hectares (183 km(2)) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has recently consolidated a large land package along a major structural break that hosts the Swanson, Bartec and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. Lafleur Minerals’ fully permitted and refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects.
+ Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at http://ibn.fm/LFLRF
+ NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
 
- About MiningNewsWire
+ Qualified Person Statement:
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ All scientific and technical information contained in this article has been reviewed and approved by Louis Martin, P.Geo. (OGQ), Exploration Manager and Technical Advisor of the company and considered a Qualified Person for the purposes of NI 43-101.
 
- MNW is where breaking news, insightful content and actionable information converge.
+ About Rocks & Stocks
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://www.MiningNewsWire.com
+ R&S is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
+ For more information, please visit https://RocksAndStocks.news
 
- MiningNewsWire is powered by IBN 
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-fse-3wk0-featured-in-miningnewswire-editorial-on-gold-market-trends/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/lafleur-minerals-inc-cse-lflr-otcqb-lflrf-prepares-for-gold-pour-and-anticipates-straightforward-path-to-profitability-with-positive-pea/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-gains-spotlight-as-gold-boom-fuels-swanson-project-advance/7bd6aebc2c8b0531c4c67bae8826094a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-poised-for-gold-production-restart-with-strong-economic-projections/3552b15630ca8bb6f0c0e93ad0f8ed8c) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/lafleur-minerals-featured-in-editorial-on-gold-market-trends-ami/202629755)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/411827-lafleur-minerals-featured-in-editorial-on-gold-market-trends-amid-swanson-project-progress)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412408-lafleur-minerals-prepares-for-gold-production-with-positive-economic-assessment)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/17/ideaAE7A.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/17/miel2PNK.webp)

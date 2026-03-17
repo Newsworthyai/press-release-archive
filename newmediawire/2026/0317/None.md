@@ -1,91 +1,106 @@
-# tZERO Launches Halo: A New Standard for AI-Powered Digital Asset Transactions
+# FILMART and EntertainmentPulse Open Today
 
-New Tool Allows Users to Connect AI Agents to Digital Asset Wallets With Configurable Parameters for Payments, Transfers, and Trading
+- Record number of participating countries and regions drives global exchange and collaboration in film and entertainment content
 
- NEW YORK, NY - March 17, 2026 (NEWMEDIAWIRE) - tZERO Group, Inc., a leading innovator in blockchain-powered multi-asset infrastructure, today announced the beta launch of tZERO Halo - a first-of-its-kind tool designed to give AI agents the ability to transact with digital assets on behalf of users within a framework of security parameters defined by the account holder.
+ HONG KONG, - March 17, 2026 (NEWMEDIAWIRE) - The 30th Hong Kong International Film and TV Market (FILMART) and EntertainmentPulse, organised by the Hong Kong Trade Development Council (HKTDC), is taking place from March 17 to 20 at the Hong Kong Convention and Exhibition Centre. The four-day event gathers global film and entertainment industry leaders to showcase new productions and cutting-edge technologies, while fostering discussions on international market trends and opportunities.
 
- As AI agents become integral to how individuals and institutions interact with financial systems - automating payments, executing purchases, and managing digital workflows – the need for a trusted, regulated layer to govern those transactions has never been more urgent. Halo is that layer.
+ The Entertainment Expo Hong Kong, encompassing eight major entertainment events including FILMART and EntertainmentPulse, held its kick-off ceremony this afternoon at the FILMART venue. The ceremony was officiated by Chan Kwok Ki, Chief Secretary for Administration of HKSAR, Rosanna Law, Secretary for Culture, Sports and Tourism of HKSAR, Professor Frederick Ma, Chairman of the HKTDC, Dr Peter Lam, Chairman, HKTDC Entertainment Industry Advisory Committee, Dr Wilfred Wong, Chairman, Hong Kong International Film Festival Society, Qin Zhengui, Deputy Director General of Film Bureau and Managing Director of Screenplay Planning Center of the Publicity Department of Central Committee of Communist Party of China, Yang Yong, Deputy Director-General, Department of International Cooperation (Office of Hong Kong, Macao and Taiwan Affairs), National Radio and Television Administration, and representatives from the Expo’s event organisers.
 
- What Halo Does
+ The Expo is co-organised by the HKTDC and sponsored by the Cultural and Creative Industries Development Agency (CCIDA), the Film Development Fund, and the Culture, Sports and Tourism Bureau. This year's opening ceremony celebrates both the 30th edition of FILMART and the 50th milestone of the Hong Kong International Film Festival (HKIFF), reaffirming their role in driving continuous growth for the city's entertainment industry.
 
- Halo provides users with a secure digital asset wallet environment that they can connect directly to AI agents – including the most advanced AI platforms. Once connected, users define the rules: maximum spend per day, approved asset types, permitted destinations, and transaction windows. The AI can then act within those constraints automatically - and any transaction that exceeds set limits requires explicit user approval before it can proceed.
+ At the kick-off ceremony of the Hong Kong Entertainment Expo cum 30th FILMART and 50th HKIFF Celebration, Professor Frederick Ma, Chairman of the HKTDC, stated: “The HKTDC celebrates its 60th anniversary this year and FILMART has been around for half of the HKTDC’s existence, making 2026 a special year for us. Over the years, FILMART has grown to become the world-recognised leading entertainment content marketplace of Asia, as well as a must-join event for the global entertainment industry. For the 30th edition, FILMART is more international than ever, presenting productions of over 790 exhibitors across a record high participation of 38 countries and regions, connecting them with 7,700 business visitors from about 50 countries and regions.”
 
- The result is a new category of financial infrastructure: machine-to-machine (M2M) transaction capability that gives AI the autonomy to execute – without surrendering the user’s control.
+ Rising international participation with exhibitors driving cross-regional film and entertainment exchange
 
- Key Capabilities
+ This year’s FILMART has attracted a record number of participating countries and regions. Exhibitors from emerging markets such as Belgium, Myanmar, Poland, Sri Lanka, and Uzbekistan are joining for the first time. Other participating countries and regions include the Chinese Mainland, Taiwan, France, Germany, Italy, Korea, Malaysia, the Philippines, Thailand, the United Kingdom, the United States and Vietnam, bringing broader international representation and further enhancing the event’s global reach. The Mainland contingent has expanded significantly, with a number of new provinces and municipalities participating, including Chongqing, Fujian, Guizhou, Shandong and Sichuan. Various leading mainland film and entertainment companies, including Tencent Video, Bilibili, iQIYI and Youku, are exhibiting at FILMART, leveraging the platform to expand their presence in overseas markets.
 
- * Guardrailed AI transaction execution - users define daily limits, asset allowlists, destination rules, and trading windows
-* Native wallet creation linked to each user account, custodied via tZERO’s vault infrastructure
-* Direct API key integration with leading AI platforms
-* Pending approval queue for any transaction that exceeds user-defined parameters
+ Major Hong Kong film and entertainment companies are also participating this year. Sil-Metropole Organisation and Mei Ah Entertainment will showcase their latest productions created using virtual reality and AI, highlighting the distinctive appeal of Hong Kong’s culture. Other local exhibitors include Media Asia, Edko Films, Golden Scene, Entertaining Power, Muse Communication, RTHK, Television Broadcasts Limited, MakerVille, i-Cable Communications, and more, will unveil upcoming projects and productions, offering new partnership and investment opportunities for industry players worldwide.
 
- Why It Matters
+ A total of 40 events will take place during FILMART. Highlights include the “Forum on International Communication Cooperation and Innovation for a New Vision”, organised by the International Cooperation Department of National Radio and Television Administration of China, and the “International Short Drama Association 2026 Asian Forum”. Major mainland production companies, such as Youhug Media and Linmon Picture Media, will also hold content showcases and launch events during the market. On the business front, multiple cooperation agreements will be signed at FILMART; the Sichuan Pavilion will host a project signing ceremony covering areas such as copyright trading and strategic collaboration. International participants are also actively engaging with the global industry. Thailand’s Ministry of Culture will present the country’s latest film and television projects, while activities organised by ICEX Spain Trade & Investment will explore creative collaboration and co-production opportunities between the Asian and European markets.
 
- The convergence of artificial intelligence and digital assets is moving quickly. AI agents are already being deployed to handle payments, automate purchasing, and manage digital service subscriptions. The missing piece has been a regulated, secure infrastructure layer that enables that activity without exposing users to unconstrained AI spending or counterparty risk.
+ Producers Connect draws broad international participation to foster cross-border co-production
 
- tZERO is uniquely positioned to build that layer. As one of only three SEC- and FINRA-regulated digital custody special purpose broker-dealers in the United States, with SEC- and FINRA-regulated ATS and broker-dealer registrations and a decade of operational history, tZERO brings end-to-end institutional-grade infrastructure to a challenge that the broader market has only begun to recognize.
+ Producers Connect, jointly organised by the HKSAR’s Culture, Sports and Tourism Bureau, the Cultural and Creative Industries Development Agency, the Hong Kong Film Development Council and the HKTDC, returns this year. Partnering with 10 international film institutions, including those from Chinese Mainland, Indonesia, Italy, Korea, Malaysia, the Philippines, Slovenia, Spain, the United Kingdom and Vietnam, the programme brings together more than 100 producers from Hong Kong and across the globe. Through a series of small group business matching sessions, Producers Connect designed to foster cross-cultural exchange and unlock new collaboration opportunities.
 
- "The future of finance is AI working on our behalf within boundaries we set. And AI interoperability of wallet and smart contract architecture is poised to be the critical top-down force function for tokenization of financial and other assets," said Alan Konevsky, CEO at tZERO. "Halo is our first step in building that layer leveraging the unique programmability features of smart contract technology - another reason for “why tokenize”. We are doing so in a compliant and responsible way that admires the potential of AI interoperability for the tokenization technology and financial system but also respects its boundaries and potential, and need for guardrails. It’s real, it’s in progress, and it’s built on the end-to-end regulatory and operational foundation only tZERO can provide."
+ To further discuss emerging co-production trends, a dedicated forum themed “International Coproductions in an Evolving Film Industry Landscape” will be held tomorrow afternoon. The session will feature a distinguished line-up of speakers sharing forward-looking perspectives, including Peter Chan, renowned Hong Kong director, Janet Yang, Golden Globe-winning producer, and Singaporean Cannes-winning director Anthony Chen, alongside other industry professionals with extensive international co-production experience. Together they will share the latest developments in co-production from multiple perspectives and explore how Hong Kong and Asia’s film industries can broaden their global development horizon.
 
- “AI systems are increasingly capable of performing complex digital tasks,” said Chris Russell, Chief Information Security Officer & Head of Tokenization at tZERO. “tZERO Halo is designed to give users a secure way to let AI agents transact while maintaining clear limits and oversight. It’s a first step toward the next generation of automated financial infrastructure, and our goal is to help ensure those interactions happen within secure, transparent, and well-controlled environments.”
+ In addition, the fireside chats series will focus on business opportunities across key markets, including Asia, ASEAN and Europe, as well as the market strategies and commercial value associated with intellectual property expansion and the remaking of classic IP. A series of workshops will also be organised to enable industry professionals to better grasp emerging technologies and evolving market models while enhancing flexibility and possibilities for cross-regional collaboration.
 
- Closed Beta Details
+ AI Hub returns with upgraded scale to support mainland enterprises going global
 
- tZERO Halo is currently available by invitation only through a closed beta program. Access requests can be submitted at t0direct.com. Approved users will receive onboarding instructions directly from the tZERO team. The beta is intentionally capacity-constrained to ensure quality of experience and to inform the product’s path toward a broader alpha release.
+ The AI Hub, first introduced at last year’s FILMART to wide acclaim, returns this year with an expanded presence. Organised by the HKTDC and co-organised by the Hong Kong Association of Motion Picture Post Production Professionals, the AI Hub brings together leading mainland AI and technology companies, including Alibaba Cloud, Kling AI, MiniMax, Vidu, Nanjing Xuanjia Network Technology Co., Ltd., Daogu Culture Limited, and more. These exhibitors will present their latest applications and technological breakthroughs in areas such as AI generated content (AIGC), AI-generated short dramas and AI animation. Beyond showcasing cutting-edge technologies, the upgraded AI Hub also focuses on fostering commercial collaboration, supporting mainland technology enterprises as they go global and expand into new markets. Academic institutions, including The University of Hong Kong, The Hong Kong Academy for Performing Arts and Lingnan University, are also actively participating, contributing to the advancement of innovation in local film and entertainment production.
 
- The closed beta represents the first milestone in a broader AI transaction infrastructure roadmap that tZERO is building in parallel with its tokenization engine, blockchain-native transfer agent, and capital markets platform.
+ To further strengthen industry capabilities in AI adoption, this year’s edition also introduces the AI Academy, newly established with support from the CCIDA and the Film Development Fund. Through 18 thematic workshops, industry experts will explain practical applications and emerging trends of AI technologies across the filmmaking process, helping practitioners navigate transformation and upgrading across multiple stages - from creative development and filming to post-production and content promotion.
 
- Future iterations will expand functionality to support additional digital assets and more advanced automated workflows in a compliant manner.
+ A dedicated panel session will be held tomorrow under the theme “Human-in-the-Loop: Balancing Cinematic Craft and Generative AI”. The panel will feature leading voices from the AI technology sector, including Yuhang Cheng, COO of the Midjourney China Club; Yunan Zhang, Vice President of MiniMax; and Fu Binxing, CEO of China Huace Film & TV Co., Ltd. Together they will explore the Human-in-the-Loop model of content creation, examining how filmmakers can effectively harness AI to enhance content quality while retaining creative leadership.
 
- tZERO Media ContactJulie Ros, Head of Marketing & Communicationsmarketing@tzero.com
+ EntertainmentPulse explores film financing and global opportunities for short dramas
 
- About tZERO
+ Held alongside FILMART, the fifth edition of EntertainmentPulse examines some of the most pressing issues in today’s film and entertainment market, including the global expansion of short dramas, opportunities and future directions for international co-productions, emerging models of collaboration between AI and film production, and the creation and expansion of global animation IP. Through these discussions, the forum provides the industry with in-depth and forward-looking market insights.
 
- tZERO Group, Inc. (tZERO) and its broker-dealer subsidiaries provide an innovative liquidity platform for private companies and assets. We offer institutional-grade solutions for issuers looking to digitize their capital table through blockchain technology, and make such equity available for trading on an alternative trading system. tZERO, through its broker-dealer subsidiaries, democratizes access to private assets by providing a simple, automated, and efficient trading venue to broker-dealers, institutions, and investors. All technology services are offered through tZERO Technologies, LLC. For more information, please visit our website.
+ This year’s EntertainmentPulse also includes a dedicated session on film financing and investment. Industry leaders such as Justin Deimen, Managing Partner of Goldfinch International; Bennett Pozil, Executive Vice President and Head of Corporate Banking at East West Bank; and Catherine Ying, President of CMC Pictures and Pearl Studio, will share insights on financing trends and strategies in the Asian film industry, examining how film projects and co-productions can enter new markets while unlocking the commercial value derived from film and television IP. As the micro-short dramas boom continues to gain global momentum, the forum also features a dedicated seminar on this fast-growing format. Speakers include Wang Xiangbin, Founder and CEO of DataEye, a Mainland Chinese big-data company specialising in content marketing analytics, and Xiaoqian Chen, Vice President of Mansen (Shenzhen) Culture Media Co., Ltd, a major short dramas platform. They will examine the latest trends in the international expansion of Chinese mainland’s short dramas and explore emerging opportunities in overseas markets. Another highlight is a panel discussion featuring the production teams behind the Hong Kong Film Awards-nominated film Ciao UFO - including Amy Chin, Patrick Leung and Kong Ho Yan - alongside the team behind Unidentified Murder, represented by Kwok Ka Hei, Fung Wai Sze and Lee Chun Kit. Moderated by veteran Hong Kong film critic Thomas Shin, the discussion will explore how Hong Kong filmmakers preserve local cultural characteristics while responding flexibly to evolving market dynamics, opening up new possibilities for the development of the city’s film industry.
 
- About tZERO Digital Asset Securities, LLC
+ HKIFF Industry Project Market provides platform for industry exchange
 
- tZERO Digital Asset Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the broker-dealer custodian of all digital asset securities offered on tZERO’s online brokerage platform. More information about tZERO Digital Asset Securities may be found on FINRA’s BrokerCheck.
+ The 24th Hong Kong – Asia Film Financing Forum (HAF), the core section of the HKIFF Industry Project Market, runs for three consecutive days from today (17-19 March 2026) within the FILMART venue. This year’s selection features 42 film projects from 22 countries and regions, representing a wide range of development stages. Among them, 13 are animation or genre projects spanning themes such as family-driven narratives, comedy, thriller, fantasy, action and science fiction, showcasing the diversity and creative vitality of Asian storytelling. All shortlisted projects will be presented alongside FILMART during the HKIFF Industry Project Market, providing opportunities for project teams to exchange ideas with industry professionals, present their latest development progress and creative direction, and foster collaboration across Asia and the wider international film community.
 
- About tZERO Securities, LLC
+ FILMART and EntertainmentPulse
 
- tZERO Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the operator of the tZERO Securities ATS. More information about tZERO Securities may be found on FINRA’s BrokerCheck.
+ Date: 17 – 20 March 2026Website:FILMART -  http://www.hktdc.com/hkfilmartEntertainementPulse - https://hkfilmart.hktdc.com/conference/hkfilmart/en/programme
 
- Forward-Looking Statements by tZero
+ Entertainment Expo
 
- This release contains forward-looking statements. In addition, from time to time, tZERO, its subsidiaries, or its representatives may make forward-looking statements orally or in writing. These forward-looking statements are based on expectations and projections about future events, which is derived from currently available information. Such forward-looking statements relate to future events or future performance, including financial performance and projections; growth in revenue and earnings; and business prospects and opportunities. You can identify forward-looking statements by those that are not historical in nature, particularly those that use terminology such as “may,” “should,” “expects,” “anticipates,” “contemplates,” “estimates,” “believes,” “plans,” “projected,” “predicts,” “potential,” or “hopes” or the negative of these or similar terms. In evaluating these forward-looking statements, you should consider various factors, including, without limitation: the ability of tZERO and its subsidiaries to change the direction; tZERO’s ability to keep pace with new technology and changing market needs; performance of individual transactions; regulatory developments and matters; and competition. These and other factors may cause actual results to differ materially from any forward-looking statement. Forward-looking statements are only predictions. The forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or their respective representatives, may not occur, and actual events and results may differ materially and are subject to risks, uncertainties and assumptions. tZERO, its subsidiaries, and its representatives are not obligated to publicly update or revise any forward-looking statement, whether as a result of uncertainties and assumptions, the forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or its representatives might not occur. 
+ Date: 15 March – 19 April 2026
+
+ Spectacular events: Three founding projects - Hong Kong International Film & TV Market (FILMART), Hong Kong International Film Festival (HKIFF), Hong Kong Film Awards (HKFA); and five core events: Asian Film Awards (AFA), Digital Entertainment Summit (DES), EntertainmentPulse (EP), Hong Kong - Asia Fim Financing Forum (HAF), Microfilm Production Support Scheme (Music)
+
+ Photo Download: https://bit.ly/4sPaX8q
+
+ Media Enquiries:
+
+ For enquiries, please contact:
+
+ Raconteur PR Agency
+
+ Betsy Tse
+
+Tel: (852) 9742 7338
+
+Email: betsytse@raconteur.hk
+
+ Molisa Lau
+
+Tel: (852) 6187 7786
+
+Email: molisalau@raconteur.hk
+
+ HKTDC Communication and Public Affairs Department:
+
+ Serena Cheung
+
+Tel: (852) 2584 4272
+
+Email: serena.hm.cheung@hktdc.org
+
+ HKTDC Mediaroom: http://mediaroom.hktdc.com/tc
+
+ About HKTDC
+
+ The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/tzero-launches-halo-a-new-standard-for-ai-powered-digital-asset-transactions-7085882)
+[Original/Source Press Release](https://www.newmediawire.com/news/filmart-and-entertainmentpulse-open-today-7085889)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tzero-launches-halo-first-tool-letting-ai-safely-transact-digital-assets/67d6686aa2370401172b93ac81fefe9c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/filmart-2026-breaks-records-with-global-film-ai-innovation/19d73aa42910f65caf01a8e04371099d) 
 
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/411555-tzero-launches-beta-tool-enabling-ai-agents-to-transact-with-digital-assets-under-user-defined-security-parameters)
-
-Pickup - [https://advos.io/en](https://advos.io/en/tzero-launches-halo-beta-creating-regulated-infrastructure-for-a/202629745)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/411606-tzero-launches-halo-beta-creating-secure-infrastructure-for-ai-powered-digital-asset-transactions)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339097-tzero-startet-halo-beta-und-schafft-sichere-infrastruktur-fur-ki-gesteuerte-transaktionen-mit-digitalen-assets)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/tzero-launches-halo-beta-creating-regulated-infrastructure-for-a/202629745)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339594-tzero-lanza-halo-beta-creando-una-infraestructura-segura-para-transacciones-de-activos-digitales-impulsadas-por-ia)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340352-tzero-lance-halo-beta-creant-une-infrastructure-securisee-pour-les-transactions-dactifs-numeriques-alimentees-par-lia)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339061-tzero-lanca-halo-beta-criando-infraestrutura-segura-para-transacoes-de-ativos-digitais-com-inteligencia-artificial)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tzero-launches-halo-beta-for-ai-powered-digital-asset-transactio/202629745)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/411749-tzero-launches-halo-beta-ai-powered-digital-asset-transaction-platform-with-built-in-guardrails)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412405-filmart-and-entertainmentpulse-2026-set-new-records-with-expanded-global-participation-and-ai-focus)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/17/yawnR2Wt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/17/rain0nhH.webp)
