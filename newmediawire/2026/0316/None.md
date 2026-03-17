@@ -1,60 +1,92 @@
-# Space To The Seas: Ascent Solar Technologies Now Focusing On Bringing More Solar Tech To Marine Markets
+# B2i Digital Highlights OTCQX Best 50 Virtual Investor Conference as a Featured Conference
 
-By Meg Flippin, Benzinga
+Executive Presentations From 11 Companies Recognized in the 2026 OTCQX Best 50
 
- DETROIT, MICHIGAN - March 16, 2026 (NEWMEDIAWIRE) - The marine solar panel market is projected to reach $5 billion by 2035, growing at a CAGR of 13.1% over 2025-2035, and Ascent Solar Technologies Inc. (NASDAQ: ASTI) could be one to watch. As the developer of featherweight, flexible and durable CIGS thin-film photovoltaic (PV), not only are its marine-ready solar panels durable and saltwater-resistant, the company reports they are also cost-effective. Ascent counts several big names, from NASA’s Marshall Space Flight Center to the Georgia Institute of Technology, as partners and is increasingly expanding into marine applications.
+ Direct Access to Management Teams Through Live Presentations, Real-Time Q&A and 1x1 Meetings
 
- Powering Water Vessels With An Edge
+ NEW YORK, NY - March 16, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. is highlighting the OTCQX Best 50 Virtual Investor Conference taking place March 19, 2026. The OTCQX Best 50 Virtual Investor Conference is a B2i Digital Featured Conference.
 
- Ascent Solar’s CIGS solar cells are finding interest in the marine industry because they are thin-film PV cells that weigh very little and are flexible. Since they perform well in low light, they are becoming an increasingly popular choice for space exploration, drones and surface and underwater vehicles (both military and commercial). What Ascent Solar says gives it an edge over competitors is its ability to deliver solar arrays in six to eight weeks, much faster than rivals that Ascent says have lead times of nine to 12 months. The company is betting that its manufacturing prowess will be a big advantage for OEM boatbuilders and integrators needing responsive supply chains.
+ The 2026 OTCQX Best 50 represents companies from 13 countries with market capitalizations ranging from $146M to $289B and more than $60B in U.S. trading volume last year, and the March 19th conference will feature executive presentations from 11 of those companies.
 
- It doesn’t hurt that Ascent Solar already has a history in the marine market. The company has delivered modules for testing in saltwater and for underwater monitoring applications, demonstrating the potential of remote systems under extreme conditions. This is critical for ocean monitoring, offshore platforms and long-range vessels. Their performance in low light and extreme temperatures also fits unpredictable marine environments. The company also believes its patented Monolithic Integration (MI) technology gives it an edge. This tech allows panels to continue generating power even if they are partially damaged or punctured. This is critical for solar-powered boats in the deep ocean; if a traditional solar panel is damaged by a wave or heavy winds, all of its cells typically fail.
+ This conference brings together companies across industries, from semiconductors and aviation to precious metals and grocery retail, united by their standing as top-performing OTCQX issuers. Investors can watch live presentations, ask questions in real time, and request one-on-one meetings with management teams through the VIC platform. Replays are available on demand after the event.
 
- Mooring The Customers
+ B2i Digital partners with Virtual Investor Conferences (VIC) as the Official Marketing Partner, supporting each event through digital marketing, social media, digital profiles of presenting companies, and direct investor outreach.
 
- With its expertise, it is no surprise that Ascent Solar is becoming more active in the maritime market. An ocean monitoring company is currently testing the functionality and durability of Ascent’s PVs in aquatic terrestrial applications to enable persistent equipment operation. Meanwhile, Georgia Tech is integrating solar arrays directly into the wings of unmanned aerial vehicles (UAVs) designed for ocean monitoring. These solar-powered seaplanes are being developed for persistent, long-range maritime surveillance. Ascent Solar sees its panels as a solution for persistent ocean buoys, sensors, autonomous underwater vehicle (AUV) surface charging and electric boat hulls. Beyond traditional surface PVs, the company’s tech has drawn interest from developers of autonomous vehicles, a niche but rapidly expanding area within the broader marine solar market, reports the company.
+ “The OTCQX Best 50 is one of the strongest lineups on the VIC calendar. These are companies that have already earned recognition for their market performance and disclosure standards, and now investors get to hear directly from their leadership teams, ask questions live, and request one-on-one meetings. That combination of quality and access is what makes this event stand out,” said David Shapiro, Chief Executive Officer of B2i Digital.
 
- By combining rapid manufacturing with extreme durability, Ascent Solar is positioning itself to be at the helm of the next generation of green ships and applications. To learn more about Ascent, click here.
+ For more details, please visit: https://b2idigital.com/otc-market-march-19-otcqx-best-50-virtual-investor-conference
 
- Featured image from Shutterstock.
+ Presenting companies include:
 
- This content was originally published on Benzinga. Read further disclosures here.
+ 9:30 AM EDT: Ucore Rare Metals, Inc.
 
- This post contains sponsored content. This content is for informational purposes only and is not intended to be investing advice.
+ 10:00 AM EDT: Ahold Delhaize
+
+ 10:30 AM EDT: Impala Platinum Holdings Ltd.
+
+ 11:00 AM EDT: Luca Mining Corp.
+
+ 11:30 AM EDT: Infineon Technologies AG
+
+ 12:00 PM EDT: Heliostar Metals Ltd.
+
+ 12:30 PM EDT: Deutsche Lufthansa AG
+
+ 1:00 PM EDT: J Sainsbury plc
+
+ 1:30 PM EDT: Altius Minerals Corp.
+
+ 2:00 PM EDT: Guanajuato Silver Co. Ltd.
+
+ 2:30 PM EDT: Endeavour Mining PLC
+
+ For registration and company profiles, please visit:https://www.virtualinvestorconferences.com/wcc/eh/4814904/category/147952/march-19th-otcqx-best-50-virtual-investor-conference?utm_source=b2i&utm_medium=marketing&utm_campaign=0326OTCQXBest50
+
+ Throughout the year, Virtual Investor Conferences feature public companies from exchanges worldwide, including NYSE, Nasdaq, TSX, TSXV, CSE, ASX, LSE, and the OTC Markets. All public companies are welcome to participate. Virtual Investor Conferences is an OTC Markets Group Inc. property.
+
+ About B2i Digital, Inc.B2i Digital, Inc. partners with investor conferences, public companies, and capital-markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Acting as The Capital Markets Matchmaker℠, B2i Digital connects investors and companies through digital marketing, investor conferences, and direct meetings, supported by a proprietary network of more than 1.5 million market participants. Its mantra, From Marketing to Meetings℠, reflects this integrated approach. Founded in 2021 by former Maxim Group investment banker and Chief Marketing Officer, David Shapiro, B2i Digital is headquartered in New York City.
+
+ B2i Digital Contact InformationDavid ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.com
+
+ B2i Digital Social Mediahttps://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://bsky.app/profile/b2idigital.bsky.social
+
+ About Virtual Investor ConferencesVirtual Investor Conferences is the leading proprietary investor conference series that provides an interactive forum for publicly traded companies to meet directly with investors online. VIC offers companies efficient access to a broad investor audience through live presentations, Q&A sessions, and one-on-one meetings. Investors benefit from direct access to executive management teams and the ability to view presentations live or on demand.
+
+ Virtual Investor Conferences Contact InformationOTC Markets Group Inc.Virtual Investor Conferenceshttps://www.virtualinvestorconferences.cominfo@virtualinvestorconferences.com
+
+ Disclosure & DisclaimerB2i Digital, Inc. is the Official Marketing Partner of Virtual Investor Conferences. Content is for informational purposes only and is not investment advice. B2i Digital, Inc. is not a broker-dealer or investment adviser.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/space-to-the-seas-ascent-solar-technologies-now-focusing-on-bringing-more-solar-tech-to-marine-markets-7085866)
+[Original/Source Press Release](https://www.newmediawire.com/news/b2i-digital-highlights-otcqx-best-50-virtual-investor-conference-as-a-featured-conference-7085869)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ascent-solar-charts-course-in-5b-marine-solar-market-with-rapid-tech/61b27716c9e83b1c32ada53737222b1e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-otcqx-firms-to-present-at-virtual-investor-conference-offering-direct-access/8508b768ec522a573e45d57d8efce268) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ascent-solar-technologies-expands-marine-solar-market-presence-w/202629642)
+Pickup - [https://advos.io/en](https://advos.io/en/otcqx-best-50-virtual-investor-conference-to-feature-top-perform/202629668)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/411077-ascent-solar-technologies-expands-focus-on-marine-solar-market-with-flexible-durable-panels)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/411355-b2i-digital-showcases-otcqx-best-50-virtual-investor-conference-featuring-top-performing-companies)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339072-ascent-solar-technologies-erweitert-fokus-auf-den-maritimen-solarmarkt-mit-flexiblen-langlebigen-panels)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339095-b2i-digital-prasentiert-otcqx-best-50-virtual-investor-conference-mit-top-unternehmen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339546-ascent-solar-technologies-amplia-su-enfoque-en-el-mercado-solar-marino-con-paneles-flexibles-y-duraderos)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339573-b2i-digital-presenta-la-conferencia-virtual-de-inversores-otcqx-best-50-con-las-empresas-de-mejor-desempeno)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340305-ascent-solar-technologies-elargit-sa-cible-sur-le-marche-solaire-marin-avec-des-panneaux-flexibles-et-durables)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340329-b2i-digital-presente-la-conference-virtuelle-otcqx-best-50-mettant-en-avant-les-entreprises-les-plus-performantes)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339015-ascent-solar-technologies-amplia-foco-no-mercado-solar-marinho-com-paineis-flexiveis-e-duraveis)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339041-b2i-digital-apresenta-conferencia-virtual-de-investidores-otcqx-best-50-com-empresas-de-alto-desempenho)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/411087-marine-solar-panel-market-poised-for-growth-as-ascent-solar-technologies-focuses-on-durable-solutions)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/otcqx-best-50-virtual-investor-conference-to-feature-11-top-perf/202629668)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/ascent-solar-technologies-expands-focus-to-marine-solar-market-w/202629642)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/otcqx-best-50-virtual-investor-conference-to-feature-executive-p/202629668)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ascent-solar-technologies-expands-focus-on-marine-solar-panel-ma/202629642)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/411082-ascent-solar-technologies-expands-focus-on-marine-solar-market-with-flexible-thin-film-technology)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/411360-otcqx-best-50-virtual-investor-conference-to-feature-executive-presentations-from-top-performing-companies)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/16/join6d6t.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/16/tileXBXA.webp)

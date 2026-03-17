@@ -1,38 +1,38 @@
-# First Data Center in Europe Using Microgrid Comes Online
+# 420 with CNW — Texas to Start Enforcing Smokable Hemp Ban Law on March 31
 
-Europe has taken an important step in powering its fast-growing digital economy with the launch of the first data center in the region that operates using a microgrid. The new facility, located near Dublin, Ireland, is designed to run independently from the national electricity grid, providing a new solution to the rising energy demands of modern technology.
+New regulations approved by Texas health officials will force retailers to remove smokable hemp products from store shelves before the end of March.
 
- As tech firms develop innovative solutions like leveraging microgrids to power their data centers, entities like AI Maverick Intel Inc. (OTC: AIMV) using AI to offer value-added solutions to…
+ It would be interesting to hear what licensed marijuana companies like Curaleaf Holdings Inc. (CSE: CURA) (OTCQX: CURLF) operating in other…
 
  Read More>>
 
- About TechMediaWire
+ About CNW420
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/first-data-center-in-europe-using-microgrid-comes-online/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-texas-to-start-enforcing-smokable-hemp-ban-law-on-march-31/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/europe-s-first-microgrid-powered-data-center-launches-in-ireland/b5af179f0ab004b95b6bc7f725552832) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-bans-smokable-hemp-impacting-retailers-and-cannabis-market/b1dfa30dc7895e46cd89bae64877c782) 
 
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/411277-europes-first-microgrid-powered-data-center-launches-near-dublin-to-address-digital-economy-energy-demands)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202603/411352-texas-health-officials-approve-regulations-banning-smokable-hemp-products)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/16/divekjnw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/16/dualVtxq.webp)
