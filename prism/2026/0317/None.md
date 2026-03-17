@@ -1,48 +1,26 @@
-# Sono-Tek Announces Technical Collaboration with Diamond Quanta to Support Precision Coating Integration for Engineered Diamond Applications
+# SKYX to Participate in the 38th Annual ROTH Conference
 
-MILTON, N.Y., March 17, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Sono-Tek Corporation (Nasdaq: SOTK), a global provider of precision ultrasonic coating systems, today announced a technical collaboration with Diamond Quanta (DQ), a developer of engineered diamond-on-glass and engineered-diamond materials for optics, thermal, semiconductor, and quantum systems.
+MIAMI, FL, March 17, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – SKYX Platforms Corp. (NASDAQ: SKYX) (d/b/a SKYX Technologies) (the “Company” or “SKYX”), a highly disruptive smart home platform technology company with over 100 pending and issued patents globally and 60 lighting and home décor websites, with a mission to make homes and buildings become safe and smart as the new standard, today announced that management will participate in the 38th Annual ROTH Conference, taking place March 22–24, 2026 in Dana Point, California.
 
- Under the collaboration, Sono-Tek’s precision ultrasonic coating technology is expected to be integrated into Diamond Quanta’s manufacturing workflow to support repeatable thin-film deposition and multilayer integration across engineered diamond applications.
+ Founder and Executive Chairman Rani Kohen and CEO Lenny Sokolow will host one-on-one meetings with institutional investors and analysts during the conference.
 
- The collaboration is focused on strengthening process repeatability, film uniformity, and manufacturability as Diamond Quanta advances its materials platform toward OEM qualification and scalable manufacturing environments.
+ “We look forward to engaging with the investment community at the ROTH Conference, as we continue to grow market penetration of our advanced safe-smart platform technologies for both builder and retail segments and remain focused on expanding strategic partnerships, as well as driving long-term value for our shareholders.”
 
- Supporting Standardized Process Architecture
+ Lenny Sokolow, CEO of SKYX Platforms
 
- Diamond Quanta has described its approach as a standardized process architecture designed to integrate engineered diamond interfaces into repeatable, qualification-ready manufacturing workflows compatible with existing semiconductor and electronics toolchains.
+ The ROTH Conference is one of the premier gatherings for emerging growth companies and institutional investors, bringing together executive management teams, institutional investors, family offices, and industry professionals for company presentations and one-on-one meetings.
 
- Through this collaboration, Sono-Tek systems are expected to support:
+ For further details, invitation requests, or to arrange a meeting with SKYX management, please contact your ROTH representative or reach out to SKYX investor relations.
 
- • Repeatable thin-film deposition within multilayer diamond stacks• Improved coating uniformity and process consistency• Structured progression toward OEM qualification environments• Alignment with established semiconductor and electronics manufacturing ecosystems
+ About SKYX Platforms Corp.
 
- “Sono-Tek’s precision ultrasonic coating systems are designed to enable consistent, high-uniformity thin-film integration across advanced device architectures. We are pleased to collaborate with Diamond Quanta as they advance their engineered diamond technologies toward scalable manufacturing.”
+ As electricity is a standard in every home and building, our mission is to make homes and buildings become safe-advanced and smart as the new standard. SKYX has a series of highly disruptive advanced-safe-smart platform technologies, with over 100 U.S. and global patents and patent pending applications. Additionally, the Company owns 60 lighting and home decor websites for both retail and commercial segments. Our technologies place an emphasis on high quality and ease of use, while significantly enhancing both safety and lifestyle in homes and buildings. We believe that our products are a necessity in every room in both homes and other buildings in the U.S. and globally. For more information, please visit our website at https://skyplug.com/ or follow us on LinkedIn.
 
- Steve Harshbarger, Chief Executive Officer of Sono-Tek
+ Investor Relations Contact:Jeff RamsonPCG Advisoryjramson@pcgadvisory.com
 
-“Establishing a repeatable manufacturing architecture requires not only breakthrough materials but standardized process modules that OEMs can adopt with confidence. Our collaboration with Sono-Tek strengthens the integration layer of our engineered diamond-on-glass platform and supports disciplined progression toward scalable qualification.”
+ Source: SKYX Platforms Corp.
 
- Adam Khan, Founder and CEO of Diamond Quanta
-
- About Sono-Tek
-
- Sono-Tek Corporation (Nasdaq: SOTK) designs and manufactures precision ultrasonic coating systems used to apply thin films across a wide range of advanced manufacturing applications. The Company’s systems serve customers in microelectronics, alternative energy, medical devices, advanced industrial manufacturing, and research and development markets worldwide.
-
- Sono-Tek’s technology enables uniform, repeatable thin-film deposition and supports the transition from development to scalable production environments. The Company distributes its products globally through a combination of direct sales personnel, independent distributors, and sales representatives.
-
- For more information about Diamond Quanta, please visit www.diamondquanta.com.
-
- Safe Harbor Statement
-
- This news release contains forward looking statements regarding future events and the future performance of Sono-Tek Corporation that involve risks and uncertainties that could cause actual results to differ materially. These “forward-looking statements’ are based on currently available competitive, financial and economic data and our operating plans. They are inherently uncertain, and investors must recognize that events could turn out to be significantly different from our expectations and could cause actual results to differ materially. These factors include, among other considerations, general economic and business conditions, including political, regulatory, tax, competitive and technological developments affecting our operations or the demand for our products; inflationary and supply chain pressures; continued strength of sales to the medical device market; continued private and public funding for the clean energy sector; continued strong demand for Sono-Tek’s suite of thin film coating solutions and application consulting services in the clean energy and other markets; maintenance of order backlog; evolving tariff policies; timely development and market acceptance of new products and continued customer validation of our coating technologies; adequacy of financing; capacity additions, the ability to enforce patents; maintenance of operating leverage; consummation of order proposals; completion of large orders on schedule and on budget; successful transition from primarily selling ultrasonic nozzles and components to a more complex business providing complete machine solutions and higher value subsystems; and realization of quarterly and annual revenues within the forecasted range of sales guidance. We undertake no obligation to update any forward-looking statement.
-
- For more information
-
- Sono-Tek Corp.Stephen J. BagleyChief Financial OfficerPh: (845) 795-2020info@sono-tek.com
-
- Investor RelationsKirin SmithPCG Advisory, Inc.ksmith@pcgadvisory.com
-
- Source: Sono-Tek Corp.
-
- The latest news and updates relating to $SOTK are available in the company’s newsroom at: https://tinyurl.com/sotknewsroom
+ The latest news and updates relating to $SKYX are available in the company’s newsroom at:https://tinyurl.com/skyxnewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
@@ -50,19 +28,39 @@ MILTON, N.Y., March 17, 2026 – PRISM MediaWire (Press Release Service – Pres
 
  
 
- The post Sono-Tek Announces Technical Collaboration with Diamond Quanta to Support Precision Coating Integration for Engineered Diamond Applications first appeared on Prism Media Wire. 
+ The post SKYX to Participate in the 38th Annual ROTH Conference first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/sono-tek-announces-technical-collaboration-with-diamond-quanta-to-support-precision-coating-integration-for-engineered-diamond-applications/)
+[Original/Source Press Release](https://prismmediawire.com/skyx-to-participate-in-the-38th-annual-roth-conference/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sono-tek-diamond-quanta-partner-to-advance-engineered-diamond-manufacturing/648079719e125d7f422ab6cddf18eb4f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skyx-platforms-to-showcase-smart-home-tech-at-prestigious-roth-investor-conference/9795089816ef834e17d2e40d40e961da) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/skyx-platforms-to-engage-investors-at-roth-conference-amid-smart/202629744)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/411607-skyx-platforms-to-engage-investors-at-38th-annual-roth-conference)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339096-skyx-platforms-wird-investoren-auf-der-38-jahrlichen-roth-konferenz-ansprechen)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/skyx-platforms-to-engage-investors-at-roth-conference-amid-smart/202629744)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339593-skyx-platforms-se-reunira-con-inversores-en-la-38a-conferencia-anual-de-roth)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340351-skyx-platforms-rencontrera-les-investisseurs-lors-de-la-38e-conference-annuelle-roth)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339060-skyx-platforms-se-apresentara-a-investidores-na-38a-conferencia-anual-roth)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/skyx-platforms-to-engage-investors-at-roth-conference-amid-smart/202629744)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/411750-skyx-platforms-to-engage-investors-at-roth-conference-amid-smart-home-technology-push)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/411803-skyx-platforms-to-engage-investors-at-roth-conference-to-advance-smart-home-technology-adoption)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/17/neonQXpF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/17/rushA_22.webp)
