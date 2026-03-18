@@ -1,110 +1,86 @@
-# Blue Lagoon's Milling Partner Has Processed 3,000 Tonnes of Dome Mountain Material Producing Over 210 Tonnes of Gold &amp; Silver Concentrate
+# HKTDC Launches GreenBiz HK Campaign in Bangkok
 
-VANCOUVER, BC - March 18, 2026 (NEWMEDIAWIRE) - Blue Lagoon Resources Inc. (CSE: BLLG; OTCQB: BLAGF; FSE: 7BL) is pleased to provide an operational update from its milling partner, Nicola Mining Inc. (“Nicola”), regarding the ongoing processing of mineralized material from our Dome Mountain underground mine.
+- Deepening Hong Kong-Thailand Collaboration in Green Finance, Innovation and Sustainable Urban Development
 
- To date, Nicola has processed approximately 2,954 dry tonnes of Dome Mountain high-grade mineralized material at its milling facility in Merritt, B.C., at a weighted average feed grade of 9.7 g/t gold (Au) and approximately 35.6 g/t silver (Ag). This material has yielded over 210 dry tonnes of gold and silver flotation concentrate which is then bagged and readied for sale and shipment to Ocean Partners. Excellent gold recovery of 93.4% has been achieved in Nicola’s flotation mill.
+ HONG KONG - March 18, 2026 (NEWMEDIAWIRE) - The Hong Kong Trade Development Council (HKTDC) organised the GreenBiz HK campaign in Bangkok – comprising a GreenBiz HK Forum with dedicated thematic sessions, networking events and business matching meetings – alongside a Hong Kong Green Team delegation. The campaign aims to foster collaboration between Hong Kong and Thailand in the green economy.
 
- The 210 dry tonnes of concentrate produced to date is comprised of 188 physically bagged tonnes, with a further approximately 22 tonnes of concentrate currently held in the circuit stock tanks and representing an average in-process inventory.
+ One of the highlights, the GreenBiz HK Forum, was held today at the Grande Centre Point Lumphini Hotel, attracting over 550 representatives from government and business across Thailand. Dr Chadchart Sittipunt, Governor of Bangkok, was the Guest of Honour and delivered opening remarks at the forum. The forum promoted exchange in green finance, green technology, supply chain and sustainable smart city development, strengthening the long-standing Hong Kong-Thai economic and business ties, while showcasing Hong Kong’s role as an international green finance and innovation hub.
 
- As of March 17, 2026, an estimated 1,828 tonnes of unprocessed mineralized material remains on stockpiles at the Nicola facility. This material will yield additional gold and silver concentrate as milling operations continue. The mill’s second concentrate filter has recently been commissioned, and a second concentrate thickener is expected to be operational shortly, further improving concentrate handling capacity and plant operating time.
+ Anna Cheung, Assistant Executive Director of the HKTDC, said: “Hong Kong is well established as a superconnector and super value-adder. Its thriving ecosystem for green innovation and sustainable development combines policy support with strong finance flows, targeted R&D funding, dedicated innovation clusters and scalable solutions. To promote the city’s status as an international green finance and innovation centre, GreenBiz HK enables business leaders and experts from Hong Kong and Thailand across different fields to exchange practical insights and experiences, while exploring mutually beneficial opportunities and partnerships that align with global trends.”
 
- “We are very encouraged by the consistent production results from Nicola’s mill and the excellent gold recovery from our Dome Mountain material. With nearly 3,000 tonnes now processed, we continue to build cash flow. The remaining stockpile at the mill, along with continuing trucking from Dome Mountain, ensures production will continue over the weeks ahead, and we look forward to providing further updates as shipments are completed,” said Rana Vig, President and CEO of Blue Lagoon Resources.
+ Dr Chadchart Sittipunt, Governor of Bangkok said: “The green transition is not a challenge any city or country can address alone - it requires strong partnerships, shared vision, and collective action across the public and private sectors. The GreenBiz HK Forum is an important platform connecting Hong Kong’s green strengths with Bangkok’s sustainable development ambitions through meaningful business partnerships.”
 
- The scientific and technical data contained in this news release was approved by Ted VanderWart, P.Geo., a qualified person as defined in NI 43-101 and a consultant to the Company. All tonnage and grade figures were provided to Blue Lagoon by Nicola Mining Inc. The concentrate assays were completed at Base Met Labs, an accredited metallurgical testing facility located in Kamloops, BC.
+ Multi-faceted forums spotlight green finance and innovation
 
- For further information, please contact:
+ In the “Hong Kong-Thailand Partnerships for Sustainability and Innovation” plenary session, leading government and business figures from Hong Kong and Thailand explored cross-border collaboration in green finance, innovation and sustainable development. Ms Chaoni Huang, Executive Vice President of the Hong Kong Green Finance Association (HKGFA); Managing Director, Head of Sustainable Finance and Transition, Asia, HSBC, Dr Kang Qu, Managing Director of Sustainability Strategy at Bank of China (Hong Kong), together with Dr Kim Mak, Chairman of ATAL Engineering Group and Mr John Lo, Founder of the Asia Carbon Institute, highlighted Hong Kong’s strengths as an international green finance hub and demonstrated how innovative financing tools are accelerating corporate ESG transformation.
 
- Rana VigPresident and Chief Executive OfficerTelephone: 604-218-4766Email: rana@bllg.ca
+ Dr Kim Mak, Chairman of ATAL Engineering Group, discussed the latest applications of green technologies, green buildings and smart city solutions, while Mr John Lo, Founder of the Asia Carbon Institute, shared practical insights on decarbonisation and ESG strategies. Mr Huang Weiwei, Chief Strategic Development Officer of China and Senior Vice Chairman of CP China, Charoen Pokphand Group from Thailand presented the company’s experience in renewable energy and environmental technologies, noting how Hong Kong’s capital platforms, professional services and global connectivity can support Thai enterprises in advancing the Bio–Circular–Green (BCG) economic model and expanding overseas. The session underscored the potential for deeper collaboration in green finance, sustainable technology and urban innovation.
 
- About Blue Lagoon Resources Inc.
+ Two concurrent breakout sessions further deepened Hong Kong-Thailand cooperation in sustainable technology and future city development. The “Driving a Sustainable Tomorrow through Green Technology and Integrated Design” session focused on how green technologies, sustainable architecture, landscape solutions, energy-saving systems, renewable energy and smart city applications enhance urban resilience. Speakers from the Hong Kong Applied Science and Technology Research Institute (ASTRI), Henderson Land, Arup and Otherland Limited discussed integrated design and innovative technologies that support citywide decarbonisation. Dr Krithpaka Boonfueng, Executive Director of Thailand’s National Innovation Agency, shared Thailand’s progress in smart city development and expressed interest in leveraging Hong Kong’s multi-disciplinary strengths to accelerate regional sustainability. The second session, “Building Smarter, Greener and Healthier Cities: A Collaborative Initiative Between Hong Kong and Thailand and Opportunities for the Green Supply Chain in the Region”, supported by BEAM Society Limited and the Hong Kong Green Building Council, examined green building standards, low-carbon construction and developments in the regional green supply chain.
 
- Blue Lagoon Resources Inc. (CSE: BLLG; OTCQB: BLAGF; FSE: 7BL) is a Canadian-based, well-funded, growth-oriented mining company producing from its 100% owned Dome Mountain Gold Mine near Smithers, British Columbia. Led by a team with deep mining and finance experience, the Company operates in one of the world’s most attractive mining jurisdictions.
+ Business matching accelerates Hong Kong-Thailand collaboration
 
- In February 2025, Blue Lagoon achieved a major milestone with the granting of a full mining permit - one of only nine issued in British Columbia since 2015 - and has since commenced underground mining operations. Mineralized material from Dome Mountain is processed under a long-term milling agreement with Nicola Mining. In H2 2026, the Company plans to reinvest internally generated cash flow into near-mine and regional exploration to further expand its resource base on its extensive property.
+ Through targeted project matching, technical sharing and discussions, participants were able to translate the forum’s dialogue into concrete partnership opportunities, supporting practical progress in green technology, urban innovation and energy transition. The sessions strengthened business ties between Hong Kong and Thailand, accelerating cross-border collaboration and enabling enterprises to jointly capture emerging opportunities in the green economy.
 
- With a strong commitment to sustainability, community, and First Nation engagement, Blue Lagoon’s objective is to be a profitable, cash-flowing gold producer while creating lasting value for shareholders and stakeholders alike.
+ GreenBiz HK campaign in Bangkok is one of the key events under the Economic and Trade Express (ETE), a functional platform designed to help Hong Kong SMEs and start-ups explore business opportunities in overseas markets, while bringing in more enterprises to invest in and establish businesses in Hong Kong. The campaign’s networking luncheon was supported by Hong Kong Economic and Trade Office (HKETO) Bangkok, facilitating meaningful engagement between Hong Kong and the local business community.
 
- The Company is not basing its production decision at Dome Mountain on a feasibility study of mineral reserves demonstrating economic and technical viability. The production decision is based on having existing mining infrastructure, past bulk sampling and processing activity, and the established mineral resource. The Company understands that there is increased uncertainty, and consequently a higher risk of failure, when production is undertaken in advance of a feasibility study.
+ Hong Kong Green Team delegation promotes Hong Kong as Asia’s premier hub for integrated green services
 
- The CSE has not reviewed and does not accept responsibility for the adequacy or accuracy of this release.
+ The HKTDC also organised a Hong Kong Green Team delegation from 17 to 20 March to explore the burgeoning green market opportunities in Thailand. The delegation, co-led by Ms Anna Cheung and Ir Dr Lo Wai Kwok, GBS, MH, JP, Chairman of the HKTDC Infrastructure Development Advisory Committee, comprised 18 delegates from Hong Kong, representing a diverse spectrum of integrated green services, including architecture, engineering, smart city development, ESG advisory, green technology and more. Meetings with industry associations and major developers, such as the Thai Green Building Institute (TGBI), The Eastern Economic Corridor Office of Thailand (EECO), WHA Industrial Development and TPI Polene Public Company Limited, provided opportunities for Hong Kong delegates to explore partnerships with local Thai firms.
 
- Forward-Looking Statement
+ GreenBiz HK brings together Hong Kong’s green service providers across green finance, ESG advisory, green building, property technology and smart city solutions, fostering cross-sector collaboration and industry advancement. The initiative encourages businesses to leverage Hong Kong’s mature capital market, financial expertise and professional services to support green and sustainable investment, certification and development and capture growth opportunities driven by the global green economy. The HKTDC will continue to use this platform to organise business missions, thematic conferences and networking activities, supporting enterprises in Southeast Asia and the Chinese Mainland in leveraging Hong Kong’s strengths in finance and innovation to expand internationally and advance sustainable development across the region.
 
- This news release contains forward-looking information within the meaning of applicable Canadian securities laws. Forward-looking information includes, but is not limited to, statements regarding ongoing and future milling operations, concentrate production and shipments expected operational performance and recoveries, anticipated reconciliation of advance payments following processing and settlement, the expectation of consistent operational cash flow, continued growth of the Company, and the advancement of underground development and production activities at the Dome Mountain Gold and Silver Project. Forward-looking information is based on management’s current expectations, estimates, assumptions and beliefs, including, without limitation, assumptions regarding continued processing at the mill facility, anticipated grades and recoveries, the ability to continue mining and delivering mineralized material, commodity price assumptions, and general economic and market conditions. While the Company believes that these assumptions are reasonable, forward-looking information is inherently subject to known and unknown risks, uncertainties and other factors that may cause actual results, performance or achievements to differ materially from those expressed or implied by such forward-looking information. Such risks and uncertainties include, without limitation, delays in milling or processing, variations in grade and recovery rates, operational risks associated with underground mining, risks related to third-party milling arrangements, fluctuations in gold and silver prices, regulatory and permitting risks, financing risks, and general economic, market and business conditions. There can be no assurance that forward-looking information will prove to be accurate, as actual results and future events could differ materially from those anticipated. Readers are cautioned not to place undue reliance on forward-looking information. The Company undertakes no obligation to update or revise any forward-looking information, except as required by applicable securities laws.
+ Photo download: https://bit.ly/4uQjIB4
 
-View the original release on www.newmediawire.com 
+ HKTDC Media Room: https://mediaroom.hktdc.com/en
+
+ Media enquiries
+
+ Please contact HKTDC’s Communication & Public Affairs Department:
+
+ Navin Law
+
+Tel: (852) 2584 4525
+
+Email: navin.cm.law@hktdc.org
+
+ About HKTDC
+
+ The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/blue-lagoon-s-milling-partner-has-processed-3-000-tonnes-of-dome-mountain-material-producing-over-210-tonnes-of-gold-silver-concentrate-7085900)
+[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-launches-greenbiz-hk-campaign-in-bangkok-7085901)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-lagoon-s-milling-partner-processes-3000-tonnes-yields-210-tonnes-of-gold-silver-concentrate/b80259d55ac2b6c00f6f00346f8de89e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-thailand-forge-green-economy-alliance-in-bangkok/ce929f093aaa80974c1b19a51bd2876e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/blue-lagoon-resources-reports-strong-gold-recovery-and-concentra/202629791)
+Pickup - [https://advos.io/en](https://advos.io/en/hong-kong-expands-green-economy-collaboration-with-thailand-thro/202629810)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/412697-blue-lagoon-resources-reports-significant-production-milestone-at-dome-mountain-mine)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/412909-hktdc-greenbiz-hk-campaign-strengthens-hong-kong-thailand-green-economy-collaboration)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339218-blue-lagoon-resources-meldet-bedeutenden-produktionsmeilenstein-in-der-dome-mountain-mine)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339237-hktdc-kampagne-greenbiz-hk-starkt-zusammenarbeit-zwischen-hongkong-und-thailand-in-der-grunen-wirtschaft)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339719-blue-lagoon-resources-informa-un-hito-significativo-de-produccion-en-la-mina-dome-mountain)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339739-la-campana-greenbiz-hk-del-hktdc-fortalece-la-colaboracion-en-economia-verde-entre-hong-kong-y-tailandia)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340460-blue-lagoon-resources-annonce-une-etape-de-production-significative-a-la-mine-dome-mountain)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340490-la-campagne-greenbiz-hk-du-hktdc-renforce-la-collaboration-economique-verte-entre-hong-kong-et-la-thailande)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339170-blue-lagoon-resources-reporta-marco-significativo-de-producao-na-mina-dome-mountain)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339189-campanha-greenbiz-hk-do-hktdc-fortalece-colaboracao-na-economia-verde-entre-hong-kong-e-tailandia)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/blue-lagoon-resources-reports-significant-gold-concentrate-produ/202629791)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hktdc-greenbiz-hk-campaign-strengthens-hong-kong-thailand-green/202629810)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/blue-lagoon-resources-reports-strong-gold-recovery-and-concentra/202629791)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hktdc-greenbiz-hk-campaign-in-bangkok-strengthens-hong-kong-thai/202629810)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412707-blue-lagoon-resources-reports-strong-production-results-from-dome-mountain-processing)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412919-hong-kong-strengthens-green-economy-ties-with-thailand-through-greenbiz-hk-campaign)
 
-Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/202603/412733-blue-lagoon-resources-achieves-processing-milestone-with-high-recovery-rates-at-dome-mountain-mine)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/412938-hong-kong-strengthens-green-economy-ties-with-thailand-through-greenbiz-hk-campaign)
 
-Pickup - [https://news.calgaryobserver.com/les-informations](https://news.calgaryobserver.com/les-informations/202603/340469-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-avec-des-taux-de-recuperation-eleves-a-la-mine-dome-mountain)
-
-Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/202603/412734-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/412735-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/340471-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
-
-Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/202603/412737-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
-
-Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/202603/412738-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
-
-Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/202603/340473-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/412739-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
-
-Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/202603/412740-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
-
-Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/202603/340470-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
-
-Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/202603/412742-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
-
-Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/202603/340467-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
-
-Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/202603/412743-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-through-milling-partnership)
-
-Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/202603/340468-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-grace-a-un-partenariat-de-broyage)
-
-Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/202603/412745-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
-
-Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/202603/340472-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
-
-Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/202603/412746-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-gold-mine)
-
-Pickup - [https://news.edmontonobserver.com/les-informations](https://news.edmontonobserver.com/les-informations/202603/340474-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
-
-Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/202603/340475-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
-
-Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/202603/340476-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dor-dome-mountain)
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/412940-hong-kongs-greenbiz-hk-campaign-strengthens-sustainability-partnerships-with-thailand)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/envyb07Y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/herbPu8G.webp)
