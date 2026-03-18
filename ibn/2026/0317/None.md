@@ -1,53 +1,58 @@
-# LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) Prepares for Gold Pour and Anticipates Straightforward Path to Profitability with Positive PEA
+# Dollar Surge Weighs on Gold’s Rally
 
-Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and may include paid advertising.
+Towards the end of last week, spot gold has moved lower and is on track to record a second straight weekly decline. The downturn is largely linked to a sharp rise in the U.S. Dollar Index, which climbed to its strongest level since May 2025. A stronger dollar typically weighs on gold prices because the metal becomes more expensive for buyers using foreign currencies.
 
- * Recent analysis by Zacks Small Cap Research underscores the positive strategic position of Canadian gold developer LaFleur Minerals as it prepares to restart gold production at its Beacon Gold Mill this year
-* LaFleur’s assets include its wholly owned Beacon Gold Mill, nearby district-scale Swanson Gold Deposit within the renowned Abitibi belt, and a strategic proximity to skilled labor and equipment suppliers in the already established Val d’Or, Quebec mining camp
-* LaFleur recently completed a Preliminary Economic Assessment (“PEA”) that outlining the potential for profitability thanks to its scalable mining project and established processing infrastructure, highlighted by a rapid payback period and capital efficiency with expected 65% IRR after taxes
-* LaFleur updated its 2024 mineral resource estimate (“MRE”) with a 30% increase in the indicated MRE category to over 160,000 ounces of contained gold, and to over 66,000 ounces of contained gold in the inferred category
-
- A recently completed Preliminary Economic Assessment (“PEA”) is substantiating near-term gold producer LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF)‘s profile as a junior gold developer positioned to capitalize on the pairing of its scalable Swanson Gold Deposit and its fully permitted Beacon Gold Mill in Eastern Canada’s Tier‑1 Abitibi gold belt, as it prepares to restart gold production during Q2-2026.
-
- The PEA highlights the project’s capital efficiency and economic returns that are anticipated to be significant, particularly at market prices recorded throughout 2025 and into 2026. The PEA establishes a Net Present Value (“NPV”) of C$101 million (5% value creation) and places Internal Rate of Return (“IRR”) expectations at 65% after taxes — highlighting a potential investment profitability that features…
+ These dynamics in the market will be analyzed closely by firms like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) that engage in…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
+ About MiningNewsWire
 
- Qualified Person Statement:
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
 
- All scientific and technical information contained in this article has been reviewed and approved by Louis Martin, P.Geo. (OGQ), Exploration Manager and Technical Advisor of the company and considered a Qualified Person for the purposes of NI 43-101.
+ MNW is where breaking news, insightful content and actionable information converge.
 
- About Rocks & Stocks
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
+ For more information, please visit https://www.MiningNewsWire.com
 
- R&S is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
 
- To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
+ MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
 
- For more information, please visit https://RocksAndStocks.news
-
- Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
-
- Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
-
- Rocks & Stocks is powered by IBN 
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/lafleur-minerals-inc-cse-lflr-otcqb-lflrf-prepares-for-gold-pour-and-anticipates-straightforward-path-to-profitability-with-positive-pea/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/dollar-surge-weighs-on-golds-rally/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-poised-for-gold-production-restart-with-strong-economic-projections/3552b15630ca8bb6f0c0e93ad0f8ed8c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dollar-surge-pressures-gold-toward-50-day-moving-average/b8adef5503350a705af8d86607e77984) 
 
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412408-lafleur-minerals-prepares-for-gold-production-with-positive-economic-assessment)
+Pickup - [https://advos.io/en](https://advos.io/en/us-dollar-strength-pressures-gold-prices-signaling-market-shift/202629781)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/412548-us-dollar-strength-pressures-gold-prices-creating-market-uncertainty)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339707-la-fortaleza-del-dolar-estadounidense-presiona-los-precios-del-oro-generando-incertidumbre-en-el-mercado)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340448-la-vigueur-du-dollar-americain-pese-sur-les-cours-de-lor-creant-une-incertitude-sur-les-marches)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339155-forca-do-dolar-americano-pressiona-precos-do-ouro-criando-incerteza-no-mercado)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gold-prices-decline-as-us-dollar-strengthens-to-highest-level-si/202629781)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/us-dollar-strength-pressures-gold-prices-ending-rally/202629781)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412577-us-dollar-strength-pressures-gold-prices-signaling-market-shifts)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339208-starke-des-us-dollars-belastet-goldpreise-und-schafft-marktunsicherheit)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/412604-gold-prices-decline-amid-strengthening-us-dollar-highlighting-currency-commodity-dynamics)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/17/miel2PNK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/17/diveVsUt.webp)
