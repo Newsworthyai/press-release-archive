@@ -1,102 +1,92 @@
-# Wintermar Reports Results for the Year Ended 31 December 2025
+# Ideal Group of Companies Inc. Acquires Hospitality Development Group in a Multi-Asset Transaction
 
-SINGAPORE - March 17, 2026 (NEWMEDIAWIRE) - Wintermar’s Operating Profit for FY2025 jumped by 31% YOY to US$23.3 million, reflecting margin expansion through a better fleet mix. Core Profit increased by 19.2% YOY to US$18 million.
+ANDERSON, SC and FT. LAUDERDALE, FL - March 18, 2026 (NEWMEDIAWIRE) - Ideal Group of Companies, Inc. (OTC: IDGR) (“IDGR”) has acquired Hospitality Development Group (HDG) in an all-stock transaction. This transformative acquisition positions IDGR for significant growth and enhanced shareholder value in a multi-asset transaction that encompasses a diversified portfolio of assets designed to provide financial leverage to support IDGR's expanding operations, including its Oxygen Mortgage subsidiary.
 
- Owned Vessel Division
+ The acquisitions represent a landmark opportunity for IDGR to accelerate its growth trajectory through the strategic integration and development of premium real estate developments, precious metals mining rights, and innovative technology platforms that align perfectly with IDGR’s vision for diversified value creation.
 
- Owned vessel revenue rose by 13.8% YOY to US$70.7 million as gross margins for Owned Vessels widened to 41.7% for FY2025 compared to 36.1% in FY2024 despite softer charter rates and lower offshore activity in 2025. Utillization in 2025 was lower than 2024 arising from geopolitical concerns and the early stage of most drilling projects which are shorter term in nature. However, this was compensated by higher revenue from having more Dynamic Positioning (DP) equipped vessels. The Company operated a larger number of units of higher value vessels in FY2025.
+ Hospitality Development Group, Inc.
 
- Chartering Division and Other Services
+ Hospitality Development Group (HDG) is a real estate development company based in Ft. Lauderdale, Florida (hdgusa.com). HDG is experienced and dedicated to the development of hotels, resorts and residential developments which successfully meet the financial, aesthetic, and operational objectives.
 
- Gross Profit from the Chartering Division continued to decline with a drop in contribution to US$0.5 million in FY2025 compared to US$1.4 million in FY2024. Some of the declines resulted from a strategic decision to move the Company towards a management fee based ship management business model for better scalability, where the Company now receives fees for various services which are recorded in the Other Services Division. Contribution from Other Services Division has increased by 9.3% YOY by US$0.2 million to US$2.8 million in FY2025.
+ Hospitality Development Group, Inc.’s winning formula for a quality product begins with quality management, creativity and entrepreneurial effort. The principals of HDG were founding members and owners of various high profile development projects including the oceanfront W Fort Lauderdale Resort and Residences (517 hotel & condominium hotel units), The Infinity at Brickell in Miami, FL, a 56-story, 470-unit hi-rise condominium tower in downtown Miami, FL and The Europa by the Sea, a 50-unit luxury oceanfront condominium tower in Lauderdale-by-the-Sea, FL. HDG principals are also the founders of the Palazzo del Lago Resort project to be developed in Orlando, Florida.
 
- Direct Expenses and Gross Profit
+ HDG also provides advisory and consulting services for all types of real estate development projects and assists in the procurement of commercial debt and equity financing.
 
- With a larger number of DP vessels in operation and more overseas contracts, total crewing costs rose by 10.5%YOY to US$11.4 million for FY2025. Depreciation rose accordingly by 10.4% YOY to US$14.8 million for FY2025 from the full year impact of the additions to the fleet in 2024. One PSV completed reactivation and became operational in 4Q2025. Operation expenses were slightly higher (+2.2% YOY) at US$5.2 million while maintenance costs fell by 2.9% YOY to US$7.3 million. Fuel bunker was significantly lower (-26%YOY) as idle vessels were berthed in Batam on shore power.
+ Premier Real Estate Development Opportunities
 
- By December 2025, there were 7 units of PSVs in operation, as compared to 5 units of operational PSVs at end 2024. The Company purchased an additional PSV in late 2025 and she is being delivered to Indonesia and expected to be operational by 2H2026.
+ The transaction includes two strategically positioned real estate projects that represent exceptional value and growth potential for which IDGR is seeking financing.
 
- Total Gross Profit rose by 24.1% YOY to US$32.7 million.
+ Palazzo del Lago Resort (Florida) – This world class mixed-use resort project known as Palazzo del Lago Resort in Orlando (“The Resort”) to be developed in Orlando, Florida upon project funding and site acquisition. This will be one of the country’s most prestigious world class hotel and resort-residential destinations. The project shall include 1,552 luxury rooms and suites in the main Resort Building and Tower 1 (Phase I). It will also include 800 resort villas in four 18-story Villa towers (Phases II and III). The Resort is designed in the classic Italian Renaissance style of architecture and interiors. This will be one of Orlando’s few lakefront resorts featuring water sports, world class health spa, multiple signature restaurants and beverage outlets and state of the art conference and banquet facilities. The project has an agreement in place with Orange County to be designated as an Orange County Convention Center Hotel. The Resort will be a world class facility which shall be branded and managed by a world-renowned hotel chain. Visit the website at: www.palazzodellago.com
 
- Indirect Expenses and Operating Profit
+ Arden Mills Development (Massachusetts) - This project is located on the same site as The Falls at Arden Mills condominium project previously developed by Global PDC. It is located in Fitchburg, MA. The new parcel to be developed is 7 acres and runs along a beautiful backdrop of the Nashua River. The Arden Mills project will consist of 156 rental units which will capitalize on the multi-family demand that is happening in the Fitchburg area. The site was previously granted the required permits at all levels for the 156 apartment units. Additionally, engineers and city personnel have expressed full cooperation for a fast re-permitting process for the 156 units.
 
- Total Indirect Expenses rose by 10%YOY to US$9.4 million for FY2025. The largest increase in indirect expenses came from salary cost, in line with a building out of key technical and operations positions to prepare for scaling up the fleet. Salary expenses rose by 11.9% YOY to US$6.5 million for FY2025, as employee strength increased to 252 from 244. Marketing expenses rose by 17.2% YOY due to fees and commissions as well as bid bond expenses to participate in tenders. Investments in new subsidiaries added 12.6%YOY to office utility costs which amounted to US$0.6 million.
+ Natural Resources Division: Bolivian Gold Mine
 
- As a result, Operating Profit for FY2025 jumped by 31% to US$23.3 million compared to US$17.8 million in FY2024.
+ Expanding IDGR's portfolio into precious metals, the acquisition, after appropriate due diligence, shall include gold mining and other mineral rights concessions in Bolivia.
 
- Other Income, Expenses and Core Net Profit
+ This strategic asset provides direct exposure to one of the world's most valuable commodities and diversifies IDGR's revenue streams into the natural resources sector. With gold prices skyrocketing over the past few years and global demand continuing to rise, this mining operation represents both immediate value and long-term growth potential.
 
- Cash flow from operations have increased due to better revenues and receivables collections, and the Company has also taken on more debt to refinance vessels. As a result, interest expenses rose by 83.5% YOY to US$2.1 million, while interest income doubled to US$1.0 million. The Company is still in a strong financial position with net cash. Associated companies contributed US$4.1 million (+71.5% YOY) from better business conditions.
+ Technology and Innovation Assets
 
- The sale of 2 older mid-tier vessels recorded a gain of US$3.5 million in total. This is much lower than the gain on sale of vessels in the previous year of US$16.1 million as there was a windfall profit in FY2024 from the sale of an older PSV. Total other income was US$7.4 million for FY2025 compared to US$19 million in FY2024.
+ The transaction further strengthens IDGR's technology capabilities through three dynamic platforms:
 
- EBITDA for FY2025 increased by 21.8% YOY to US$38.4 milllion, reflecting a significant improvement in operations and cash generation ability of the Company.
+ Virtual HealthMD - An innovative telehealth platform that capitalizes on the explosive growth in healthcare delivery providing physician access 24 / 7 to its subscribers via telehealth. This asset provides IDGR with exposure to one of the fastest-growing sectors in the American healthcare economy.Virtual PetMD - An innovative telehealth platform that capitalizes on the explosive growth in pet care delivery providing veterinarian access 24 / 7 to its subscribers via telehealth. The pet care industry provides IDGR with exposure to one of the fastest-growing sectors today.
 
- Stripping out gains on vessel sale, the underlying Core Net Profit attributable to shareholders was US$18.0 million, a jump of 19.2% as compared to US$15.1 million in FY2024.
+ Virtual365.app is a next-generation, decentralized platform that empowers creators and fans to host, participate in, and monetize immersive virtual events. From live concerts and fan meet-and-greets to workshops and exclusive experiences, Virtual365.app puts control, ownership, and revenue back into the hands of creators, powered by Web3 technology.
 
- The performance of the Company has contributed to EPS of Rp75.80 for FY2025 against Rp78.35 in FY2024.
+ Strategic Value and Growth Catalyst
 
- Industry Outlook
+ These transformative acquisitions deliver multiple strategic advantages to IDGR and its shareholders. IDGR intends to facilitate the funding required to commence development of the real estate projects and commence operations of the technology opportunities.
 
- The heightened geopolitical risks in 2025 saw governments around the world prioritizing energy security over long term climate goals. The speed of adoption of Aritficial Inteligence (AI) in every field also accelerated the expansion of data centers, contributing significantly to the increasing demand for power. By late 2025, the International Energy Agency (IEA) revised up electricity demand growth to 3.7% in 2026, well in excess of average growth of 2.6% p.a. between 2015 to 2023.
+ Charles Cardona, Chief Executive Officer of Ideal Group of Companies, Inc., stated: "This is truly a watershed moment for IDGR and our shareholders. The acquisition of this exceptional portfolio of assets represents a quantum leap forward in our strategic evolution. We are not simply acquiring properties and businesses – we are acquiring financial leverage, market positioning, and growth engines across multiple high-value sectors. The Palazzo del Lago project alone represents the kind of premium, visionary real estate opportunity that can define a company's trajectory. Combined with our gold mining operations, affordable housing portfolio, and cutting-edge technology platforms, we are creating a diversified powerhouse built for sustainable growth and exceptional shareholder returns. This transaction validates our strategy and positions us to execute on opportunities that were previously beyond our reach."
 
- As a result of these changes, there has been an upward revision in total investment into oil and gas exploration in 2025 compared to 2024, in particular in deepwater drilling. This confirms our positive outlook for strong demand in OSV for the coming few years, particularly in DP equipped OSVs.
+ Jerrold R. Krystoff, Chairman and Chief Executive Officer of Hospitality Development Group commented: "We are thrilled to complete this transaction with IDGR. We believe IDGR's vision for leveraging these assets to drive growth and create value represents a win-win opportunity for both organizations”.
 
- In early 2026, the attacks on Iran and ensuing retaliation has disrupted oil and gas supplies coming from the Middle East, causing oil prices to spike. Should the Iran war escalate for a longer period, it is likely to trigger even more investment into exploration of new oil and gas reserves as energy nationalism becomes the new normal.
+ About Ideal Group of Companies, Inc.
 
- Business Prospects
+ Ideal Group of Companies Inc. (idealgroupcorp.com) is a dynamic and growing enterprise focused on strategic acquisitions and operational excellence across multiple sectors. Through its Oxygen Mortgage division and expanding portfolio of holdings, IDGR is committed to creating sustainable value for shareholders through disciplined capital deployment and operational execution. Headquartered inAnderson, South Carolina, IDGR pursues opportunities that deliver immediate financial leverage and long-term growth potential. For more information, visit idealgroupcorp.com.
 
- The Company’s investment in additional fleet has improved the fleet composition and raised revenues and margins in the past year. Indonesia alone has 4 deepwater drilling projects which have been identified as strategic projects by the government and slated to start production between 2027 to 2030. There will be longer term contracts awarded for these projects in the coming year as projects start to ramp up towards the second half of 2026.
+ Contacts:
 
- With stronger cash flow expected in 2026, management is looking to expand the dynamic positioning fleet, and cash will be deployed to fleet expansion, whether through direct purchases of vessels or corporate acquisitions. In 2025, total capex was US$41.7 million, while in FY2026, the Company is budgeting more than double that amount in anticipation of increased OSV demand. This will be funded by internal cash flow and bank loans.
+ Ideal Group of Companies Inc. Charles Cardona, CEO ccardona@idealgroupcorp.com Tel. +1-864-345-8698
 
- Total contracts on hand at the end December 2025 amount to US$59.1 million.About Wintermar Offshore Marine Group
+ Hospitality Development Group Jerrold R. KrystoffPhone: +1-954-764-3979jerry@hdgusa.com
 
- Wintermar Offshore Marine Group (WINS.JK), developed over nearly 50 years with a track record of quality that is both a source of pride and responsibility that we are dedicated to upholding, and sails a fleet of more than 48 Offshore Support Vessels ready for long term as well as spot charters. All vessels are operated by experienced Indonesian crew, tracked by satellite systems and monitored in real-time by shore-based Vessel Teams.
+ DISCLAIMER and FORWARD-LOOKING STATEMENTS
 
- Wintermar is the first shipping company in Indonesia to be certified with an Integrated Management System by Lloyd's Register Quality Assurance, and is currently certified with ISO 9001:2015 (Quality), ISO14001:2015 (Environment) and OHSAS 18001:2007 (Occupational Health and Safety). For more information, please visit www.wintermar.com.
-
- For further information, please contact:Ms. Pek Swan Layanto, CFAInvestor RelationsPT Wintermar Offshore Marine TbkTel (62-21) 530 5201 Ext 401Email: investor_relations@wintermar.com
-
- DISCLAIMERCertain statements made in this publication involve a number of risks and uncertainties that could cause actual results to differ materially from those projected. Certain statements relating to business and operations of PT Wintermar Offshore Marine Tbk and Subsidiaries (the Company) are based on management’s expectations, estimates and projections. These statements are not guarantees of future performance and involve risks, uncertainties and assumptions that are difficult to predict. Certain statements are based upon assumptions as to future events that may not prove to be accurate. Therefore, actual outcomes and results may differ materially from what is expressed or forecasted in such statements. The Company makes no commitment, and disclaims any duty, to update or revise any of these statements. This publication is for informational purposes only and is not intended as a solicitation or offering of securities in any jurisdiction. The information contained in this publication is not intended to qualify, supplement or amend information disclosed under corporate and securities legislation of any jurisdiction applicable to the Company and should not be relied upon for the purpose of making investment decisions concerning any securities of the Company.
+ Certain statements contained herein are “forward-looking” statements (as such term is defined in the Private Securities Litigation Reform Act of 1995). Because such statements include risks and uncertainties, actual results may differ materially from those expressed or implied by such forward-looking statements. This press release may contain certain forward-looking statements within the meaning of Section 27A of the Securities and Exchange Act of 1933, as amended, and Section 21E of the Securities and Exchange Act of 1934, as amended, and such Forward-Looking Statements are intended to be covered by the safe harbors created thereby. Investors are cautioned that all forward-looking statements involve risks and uncertainties. All statements other than statements of historical fact in this announcement are forward-looking statements, including but not limited to the viability of the companies business plans, the effect of acquisitions on profitability, the effectiveness, profitability, and the marketability of the company’s products; the companies’ ability to protect its proprietary information; general economic and business conditions; and the volatility of the companies’ operating results and financial condition. These forward-looking statements involve known and unknown risks and uncertainties and are based on current expectations, assumptions, estimates, and projections about the companies and their respective industry. The companies undertake no obligation to update forward-looking statements to reflect subsequent occurring events or circumstances or to changes in their expectations, except as may be required by law. Although the companies believe that the expectations expressed in these forward-looking statements are reasonable, management cannot assure the public that their expectations will turn out to be correct. Investors are cautioned that actual results may differ materially from the anticipated results.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/wintermar-reports-results-for-the-year-ended-31-december-2025-7085898)
+[Original/Source Press Release](https://www.newmediawire.com/news/ideal-group-of-companies-inc-acquires-hospitality-development-group-in-a-multi-asset-transaction-7085899)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wintermar-s-fy2025-profits-soar-31-on-fleet-optimization-and-strategic-growth/d3e2bdda0cead5101bbe3ee447c254e7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/idgr-s-transformative-acquisition-creates-diversified-powerhouse-across-real-estate-mining-tech/f600f1351128fec5592ac7a7018ca4fd) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/wintermar-offshore-marine-reports-31-operating-profit-growth-ami/202629786)
+Pickup - [https://advos.io/en](https://advos.io/en/ideal-group-of-companies-expands-portfolio-with-hospitality-deve/202629788)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/412643-wintermar-offshore-marine-reports-strong-2025-results-with-31-operating-profit-growth)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/412655-ideal-group-of-companies-expands-portfolio-through-acquisition-of-hospitality-development-group)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339213-wintermar-offshore-marine-verzeichnet-starke-ergebnisse-fur-2025-mit-31-wachstum-des-betriebsgewinns)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339215-ideal-group-of-companies-erweitert-portfolio-durch-ubernahme-der-hospitality-development-group)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339713-wintermar-offshore-marine-reporta-solidos-resultados-en-2025-con-un-crecimiento-del-31-en-el-beneficio-operativo)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339714-ideal-group-of-companies-amplia-su-cartera-mediante-la-adquisicion-de-hospitality-development-group)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340455-wintermar-offshore-marine-annonce-des-resultats-solides-pour-2025-avec-une-croissance-de-31-du-benefice-dexploitation)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340457-ideal-group-of-companies-elargit-son-portefeuille-grace-a-lacquisition-de-hospitality-development-group)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339165-wintermar-offshore-marine-reporta-fortes-resultados-em-2025-com-crescimento-de-31-no-lucro-operacional)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339167-ideal-group-of-companies-amplia-portfolio-com-aquisicao-da-hospitality-development-group)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/wintermar-offshore-marine-reports-strong-2025-results-amid-indus/202629786)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ideal-group-of-companies-expands-portfolio-with-hospitality-deve/202629788)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/wintermar-offshore-marine-reports-strong-2025-results-with-31-op/202629786)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ideal-group-of-companies-expands-portfolio-through-acquisition-o/202629788)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412648-wintermar-offshore-marine-reports-strong-2025-results-with-31-operating-profit-growth-plans-major-fleet-expansion)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/412652-wintermar-offshore-marine-reports-31-operating-profit-growth-in-2025-plans-fleet-expansion-amid-favorable-industry-trends)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/d3e2bdda0cead5101bbe3ee447c254e7)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/d3e2bdda0cead5101bbe3ee447c254e7)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412665-ideal-group-of-companies-expands-portfolio-with-hospitality-development-group-acquisition)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/jinx1Wxx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/lendJI5J.webp)
