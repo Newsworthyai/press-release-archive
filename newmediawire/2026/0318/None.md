@@ -1,92 +1,110 @@
-# Ideal Group of Companies Inc. Acquires Hospitality Development Group in a Multi-Asset Transaction
+# Blue Lagoon's Milling Partner Has Processed 3,000 Tonnes of Dome Mountain Material Producing Over 210 Tonnes of Gold &amp; Silver Concentrate
 
-ANDERSON, SC and FT. LAUDERDALE, FL - March 18, 2026 (NEWMEDIAWIRE) - Ideal Group of Companies, Inc. (OTC: IDGR) (“IDGR”) has acquired Hospitality Development Group (HDG) in an all-stock transaction. This transformative acquisition positions IDGR for significant growth and enhanced shareholder value in a multi-asset transaction that encompasses a diversified portfolio of assets designed to provide financial leverage to support IDGR's expanding operations, including its Oxygen Mortgage subsidiary.
+VANCOUVER, BC - March 18, 2026 (NEWMEDIAWIRE) - Blue Lagoon Resources Inc. (CSE: BLLG; OTCQB: BLAGF; FSE: 7BL) is pleased to provide an operational update from its milling partner, Nicola Mining Inc. (“Nicola”), regarding the ongoing processing of mineralized material from our Dome Mountain underground mine.
 
- The acquisitions represent a landmark opportunity for IDGR to accelerate its growth trajectory through the strategic integration and development of premium real estate developments, precious metals mining rights, and innovative technology platforms that align perfectly with IDGR’s vision for diversified value creation.
+ To date, Nicola has processed approximately 2,954 dry tonnes of Dome Mountain high-grade mineralized material at its milling facility in Merritt, B.C., at a weighted average feed grade of 9.7 g/t gold (Au) and approximately 35.6 g/t silver (Ag). This material has yielded over 210 dry tonnes of gold and silver flotation concentrate which is then bagged and readied for sale and shipment to Ocean Partners. Excellent gold recovery of 93.4% has been achieved in Nicola’s flotation mill.
 
- Hospitality Development Group, Inc.
+ The 210 dry tonnes of concentrate produced to date is comprised of 188 physically bagged tonnes, with a further approximately 22 tonnes of concentrate currently held in the circuit stock tanks and representing an average in-process inventory.
 
- Hospitality Development Group (HDG) is a real estate development company based in Ft. Lauderdale, Florida (hdgusa.com). HDG is experienced and dedicated to the development of hotels, resorts and residential developments which successfully meet the financial, aesthetic, and operational objectives.
+ As of March 17, 2026, an estimated 1,828 tonnes of unprocessed mineralized material remains on stockpiles at the Nicola facility. This material will yield additional gold and silver concentrate as milling operations continue. The mill’s second concentrate filter has recently been commissioned, and a second concentrate thickener is expected to be operational shortly, further improving concentrate handling capacity and plant operating time.
 
- Hospitality Development Group, Inc.’s winning formula for a quality product begins with quality management, creativity and entrepreneurial effort. The principals of HDG were founding members and owners of various high profile development projects including the oceanfront W Fort Lauderdale Resort and Residences (517 hotel & condominium hotel units), The Infinity at Brickell in Miami, FL, a 56-story, 470-unit hi-rise condominium tower in downtown Miami, FL and The Europa by the Sea, a 50-unit luxury oceanfront condominium tower in Lauderdale-by-the-Sea, FL. HDG principals are also the founders of the Palazzo del Lago Resort project to be developed in Orlando, Florida.
+ “We are very encouraged by the consistent production results from Nicola’s mill and the excellent gold recovery from our Dome Mountain material. With nearly 3,000 tonnes now processed, we continue to build cash flow. The remaining stockpile at the mill, along with continuing trucking from Dome Mountain, ensures production will continue over the weeks ahead, and we look forward to providing further updates as shipments are completed,” said Rana Vig, President and CEO of Blue Lagoon Resources.
 
- HDG also provides advisory and consulting services for all types of real estate development projects and assists in the procurement of commercial debt and equity financing.
+ The scientific and technical data contained in this news release was approved by Ted VanderWart, P.Geo., a qualified person as defined in NI 43-101 and a consultant to the Company. All tonnage and grade figures were provided to Blue Lagoon by Nicola Mining Inc. The concentrate assays were completed at Base Met Labs, an accredited metallurgical testing facility located in Kamloops, BC.
 
- Premier Real Estate Development Opportunities
+ For further information, please contact:
 
- The transaction includes two strategically positioned real estate projects that represent exceptional value and growth potential for which IDGR is seeking financing.
+ Rana VigPresident and Chief Executive OfficerTelephone: 604-218-4766Email: rana@bllg.ca
 
- Palazzo del Lago Resort (Florida) – This world class mixed-use resort project known as Palazzo del Lago Resort in Orlando (“The Resort”) to be developed in Orlando, Florida upon project funding and site acquisition. This will be one of the country’s most prestigious world class hotel and resort-residential destinations. The project shall include 1,552 luxury rooms and suites in the main Resort Building and Tower 1 (Phase I). It will also include 800 resort villas in four 18-story Villa towers (Phases II and III). The Resort is designed in the classic Italian Renaissance style of architecture and interiors. This will be one of Orlando’s few lakefront resorts featuring water sports, world class health spa, multiple signature restaurants and beverage outlets and state of the art conference and banquet facilities. The project has an agreement in place with Orange County to be designated as an Orange County Convention Center Hotel. The Resort will be a world class facility which shall be branded and managed by a world-renowned hotel chain. Visit the website at: www.palazzodellago.com
+ About Blue Lagoon Resources Inc.
 
- Arden Mills Development (Massachusetts) - This project is located on the same site as The Falls at Arden Mills condominium project previously developed by Global PDC. It is located in Fitchburg, MA. The new parcel to be developed is 7 acres and runs along a beautiful backdrop of the Nashua River. The Arden Mills project will consist of 156 rental units which will capitalize on the multi-family demand that is happening in the Fitchburg area. The site was previously granted the required permits at all levels for the 156 apartment units. Additionally, engineers and city personnel have expressed full cooperation for a fast re-permitting process for the 156 units.
+ Blue Lagoon Resources Inc. (CSE: BLLG; OTCQB: BLAGF; FSE: 7BL) is a Canadian-based, well-funded, growth-oriented mining company producing from its 100% owned Dome Mountain Gold Mine near Smithers, British Columbia. Led by a team with deep mining and finance experience, the Company operates in one of the world’s most attractive mining jurisdictions.
 
- Natural Resources Division: Bolivian Gold Mine
+ In February 2025, Blue Lagoon achieved a major milestone with the granting of a full mining permit - one of only nine issued in British Columbia since 2015 - and has since commenced underground mining operations. Mineralized material from Dome Mountain is processed under a long-term milling agreement with Nicola Mining. In H2 2026, the Company plans to reinvest internally generated cash flow into near-mine and regional exploration to further expand its resource base on its extensive property.
 
- Expanding IDGR's portfolio into precious metals, the acquisition, after appropriate due diligence, shall include gold mining and other mineral rights concessions in Bolivia.
+ With a strong commitment to sustainability, community, and First Nation engagement, Blue Lagoon’s objective is to be a profitable, cash-flowing gold producer while creating lasting value for shareholders and stakeholders alike.
 
- This strategic asset provides direct exposure to one of the world's most valuable commodities and diversifies IDGR's revenue streams into the natural resources sector. With gold prices skyrocketing over the past few years and global demand continuing to rise, this mining operation represents both immediate value and long-term growth potential.
+ The Company is not basing its production decision at Dome Mountain on a feasibility study of mineral reserves demonstrating economic and technical viability. The production decision is based on having existing mining infrastructure, past bulk sampling and processing activity, and the established mineral resource. The Company understands that there is increased uncertainty, and consequently a higher risk of failure, when production is undertaken in advance of a feasibility study.
 
- Technology and Innovation Assets
+ The CSE has not reviewed and does not accept responsibility for the adequacy or accuracy of this release.
 
- The transaction further strengthens IDGR's technology capabilities through three dynamic platforms:
+ Forward-Looking Statement
 
- Virtual HealthMD - An innovative telehealth platform that capitalizes on the explosive growth in healthcare delivery providing physician access 24 / 7 to its subscribers via telehealth. This asset provides IDGR with exposure to one of the fastest-growing sectors in the American healthcare economy.Virtual PetMD - An innovative telehealth platform that capitalizes on the explosive growth in pet care delivery providing veterinarian access 24 / 7 to its subscribers via telehealth. The pet care industry provides IDGR with exposure to one of the fastest-growing sectors today.
-
- Virtual365.app is a next-generation, decentralized platform that empowers creators and fans to host, participate in, and monetize immersive virtual events. From live concerts and fan meet-and-greets to workshops and exclusive experiences, Virtual365.app puts control, ownership, and revenue back into the hands of creators, powered by Web3 technology.
-
- Strategic Value and Growth Catalyst
-
- These transformative acquisitions deliver multiple strategic advantages to IDGR and its shareholders. IDGR intends to facilitate the funding required to commence development of the real estate projects and commence operations of the technology opportunities.
-
- Charles Cardona, Chief Executive Officer of Ideal Group of Companies, Inc., stated: "This is truly a watershed moment for IDGR and our shareholders. The acquisition of this exceptional portfolio of assets represents a quantum leap forward in our strategic evolution. We are not simply acquiring properties and businesses – we are acquiring financial leverage, market positioning, and growth engines across multiple high-value sectors. The Palazzo del Lago project alone represents the kind of premium, visionary real estate opportunity that can define a company's trajectory. Combined with our gold mining operations, affordable housing portfolio, and cutting-edge technology platforms, we are creating a diversified powerhouse built for sustainable growth and exceptional shareholder returns. This transaction validates our strategy and positions us to execute on opportunities that were previously beyond our reach."
-
- Jerrold R. Krystoff, Chairman and Chief Executive Officer of Hospitality Development Group commented: "We are thrilled to complete this transaction with IDGR. We believe IDGR's vision for leveraging these assets to drive growth and create value represents a win-win opportunity for both organizations”.
-
- About Ideal Group of Companies, Inc.
-
- Ideal Group of Companies Inc. (idealgroupcorp.com) is a dynamic and growing enterprise focused on strategic acquisitions and operational excellence across multiple sectors. Through its Oxygen Mortgage division and expanding portfolio of holdings, IDGR is committed to creating sustainable value for shareholders through disciplined capital deployment and operational execution. Headquartered inAnderson, South Carolina, IDGR pursues opportunities that deliver immediate financial leverage and long-term growth potential. For more information, visit idealgroupcorp.com.
-
- Contacts:
-
- Ideal Group of Companies Inc. Charles Cardona, CEO ccardona@idealgroupcorp.com Tel. +1-864-345-8698
-
- Hospitality Development Group Jerrold R. KrystoffPhone: +1-954-764-3979jerry@hdgusa.com
-
- DISCLAIMER and FORWARD-LOOKING STATEMENTS
-
- Certain statements contained herein are “forward-looking” statements (as such term is defined in the Private Securities Litigation Reform Act of 1995). Because such statements include risks and uncertainties, actual results may differ materially from those expressed or implied by such forward-looking statements. This press release may contain certain forward-looking statements within the meaning of Section 27A of the Securities and Exchange Act of 1933, as amended, and Section 21E of the Securities and Exchange Act of 1934, as amended, and such Forward-Looking Statements are intended to be covered by the safe harbors created thereby. Investors are cautioned that all forward-looking statements involve risks and uncertainties. All statements other than statements of historical fact in this announcement are forward-looking statements, including but not limited to the viability of the companies business plans, the effect of acquisitions on profitability, the effectiveness, profitability, and the marketability of the company’s products; the companies’ ability to protect its proprietary information; general economic and business conditions; and the volatility of the companies’ operating results and financial condition. These forward-looking statements involve known and unknown risks and uncertainties and are based on current expectations, assumptions, estimates, and projections about the companies and their respective industry. The companies undertake no obligation to update forward-looking statements to reflect subsequent occurring events or circumstances or to changes in their expectations, except as may be required by law. Although the companies believe that the expectations expressed in these forward-looking statements are reasonable, management cannot assure the public that their expectations will turn out to be correct. Investors are cautioned that actual results may differ materially from the anticipated results.
+ This news release contains forward-looking information within the meaning of applicable Canadian securities laws. Forward-looking information includes, but is not limited to, statements regarding ongoing and future milling operations, concentrate production and shipments expected operational performance and recoveries, anticipated reconciliation of advance payments following processing and settlement, the expectation of consistent operational cash flow, continued growth of the Company, and the advancement of underground development and production activities at the Dome Mountain Gold and Silver Project. Forward-looking information is based on management’s current expectations, estimates, assumptions and beliefs, including, without limitation, assumptions regarding continued processing at the mill facility, anticipated grades and recoveries, the ability to continue mining and delivering mineralized material, commodity price assumptions, and general economic and market conditions. While the Company believes that these assumptions are reasonable, forward-looking information is inherently subject to known and unknown risks, uncertainties and other factors that may cause actual results, performance or achievements to differ materially from those expressed or implied by such forward-looking information. Such risks and uncertainties include, without limitation, delays in milling or processing, variations in grade and recovery rates, operational risks associated with underground mining, risks related to third-party milling arrangements, fluctuations in gold and silver prices, regulatory and permitting risks, financing risks, and general economic, market and business conditions. There can be no assurance that forward-looking information will prove to be accurate, as actual results and future events could differ materially from those anticipated. Readers are cautioned not to place undue reliance on forward-looking information. The Company undertakes no obligation to update or revise any forward-looking information, except as required by applicable securities laws.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ideal-group-of-companies-inc-acquires-hospitality-development-group-in-a-multi-asset-transaction-7085899)
+[Original/Source Press Release](https://www.newmediawire.com/news/blue-lagoon-s-milling-partner-has-processed-3-000-tonnes-of-dome-mountain-material-producing-over-210-tonnes-of-gold-silver-concentrate-7085900)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/idgr-s-transformative-acquisition-creates-diversified-powerhouse-across-real-estate-mining-tech/f600f1351128fec5592ac7a7018ca4fd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-lagoon-s-milling-partner-processes-3000-tonnes-yields-210-tonnes-of-gold-silver-concentrate/b80259d55ac2b6c00f6f00346f8de89e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ideal-group-of-companies-expands-portfolio-with-hospitality-deve/202629788)
+Pickup - [https://advos.io/en](https://advos.io/en/blue-lagoon-resources-reports-strong-gold-recovery-and-concentra/202629791)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/412655-ideal-group-of-companies-expands-portfolio-through-acquisition-of-hospitality-development-group)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/412697-blue-lagoon-resources-reports-significant-production-milestone-at-dome-mountain-mine)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339215-ideal-group-of-companies-erweitert-portfolio-durch-ubernahme-der-hospitality-development-group)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339218-blue-lagoon-resources-meldet-bedeutenden-produktionsmeilenstein-in-der-dome-mountain-mine)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339714-ideal-group-of-companies-amplia-su-cartera-mediante-la-adquisicion-de-hospitality-development-group)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339719-blue-lagoon-resources-informa-un-hito-significativo-de-produccion-en-la-mina-dome-mountain)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340457-ideal-group-of-companies-elargit-son-portefeuille-grace-a-lacquisition-de-hospitality-development-group)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340460-blue-lagoon-resources-annonce-une-etape-de-production-significative-a-la-mine-dome-mountain)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339167-ideal-group-of-companies-amplia-portfolio-com-aquisicao-da-hospitality-development-group)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339170-blue-lagoon-resources-reporta-marco-significativo-de-producao-na-mina-dome-mountain)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/ideal-group-of-companies-expands-portfolio-with-hospitality-deve/202629788)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/blue-lagoon-resources-reports-significant-gold-concentrate-produ/202629791)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ideal-group-of-companies-expands-portfolio-through-acquisition-o/202629788)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/blue-lagoon-resources-reports-strong-gold-recovery-and-concentra/202629791)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412665-ideal-group-of-companies-expands-portfolio-with-hospitality-development-group-acquisition)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/412707-blue-lagoon-resources-reports-strong-production-results-from-dome-mountain-processing)
+
+Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/202603/412733-blue-lagoon-resources-achieves-processing-milestone-with-high-recovery-rates-at-dome-mountain-mine)
+
+Pickup - [https://news.calgaryobserver.com/les-informations](https://news.calgaryobserver.com/les-informations/202603/340469-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-avec-des-taux-de-recuperation-eleves-a-la-mine-dome-mountain)
+
+Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/202603/412734-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
+
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/412735-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
+
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/340471-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
+
+Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/202603/412737-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
+
+Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/202603/412738-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
+
+Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/202603/340473-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/412739-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
+
+Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/202603/412740-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
+
+Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/202603/340470-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
+
+Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/202603/412742-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-mine)
+
+Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/202603/340467-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
+
+Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/202603/412743-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-through-milling-partnership)
+
+Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/202603/340468-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-grace-a-un-partenariat-de-broyage)
+
+Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/202603/412745-blue-lagoon-resources-achieves-processing-milestone-at-dome-mountain-mine-with-high-recovery-rates)
+
+Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/202603/340472-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
+
+Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/202603/412746-blue-lagoon-resources-reports-strong-processing-results-from-dome-mountain-gold-mine)
+
+Pickup - [https://news.edmontonobserver.com/les-informations](https://news.edmontonobserver.com/les-informations/202603/340474-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dome-mountain)
+
+Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/202603/340475-blue-lagoon-resources-atteint-une-etape-cle-de-traitement-a-la-mine-dome-mountain-avec-des-taux-de-recuperation-eleves)
+
+Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/202603/340476-blue-lagoon-resources-annonce-dexcellents-resultats-de-traitement-de-la-mine-dor-dome-mountain)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/lendJI5J.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/18/envyb07Y.webp)
