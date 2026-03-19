@@ -1,60 +1,54 @@
-# DETEC Wins SXSW Trilateral Innovation Award for Cross-Border Tech Leadership
+# Myq Kaplan Headlines DC Comedy Loft April 3–4, Then Brings His Stand-Up to Charlotte April 5
 
-Austin, TX (Newsworthy.ai) Thursday Mar 19, 2026 @ 6:30 AM Eastern — DETEC, a renowned engineering and technology firm based in Monterrey, Mexico, was honored with the prestigious Trilateral Innovation Excellence Award at the Born Global Summit & Awards, which took place in Austin, Texas, in conjunction with SXSW. The award acknowledges DETEC as a Born Global innovator that facilitates cross-border collaboration between Mexico, the United States, and Canada.
+Washington, DC (Newsworthy.ai) Thursday Mar 19, 2026 @ 10:00 AM Eastern — Catch Myq Kaplan live at the DC Comedy Loft on April 3 and 4, then in Charlotte on April 5.
 
- This award is a testament to DETEC’s increasing influence as a tri-national organization, with operations in Monterrey, Austin, and Toronto. DETEC is proving itself to be a shining example of international cooperation in telecommunications, engineering, and technology development.
+ Kaplan is known for tight writing, fast pacing, and sets that feel built with intent. He moves from joke to joke quickly, then pivots into a bigger point without losing the room. You get smart wordplay, clear storytelling, and strong crowd connection. If you like comedy that stays thoughtful and still hits hard, this is your weekend.
 
- According to Pedro Noriega, CEO of DETEC, “This award is a validation that we are on the right track. What we have been building for the last decade or so, taking a step further beyond borders and promoting international collaboration, is starting to become a reality, and we believe we have tremendous potential on a global scale.”
+ Kaplan has appeared on The Tonight Show, Conan, The Late Show with David Letterman, The Late Late Show with James Corden, Late Night with Seth Meyers, Comedy Central, Last Comic Standing, and America’s Got Talent. Those credits match what longtime fans already know, he is consistent, prolific, and always working.
 
- During the awards ceremony, Humberto Hernández Haddad, Consul General of Mexico in Austin, acknowledged DETEC as a quintessential example of successful trilateral cooperation. DETEC has played a vital role in strengthening economic relations between nations.
+ If you want a quick way to get familiar before the shows, you can watch Kaplan’s special Rini free on YouTube. It is a clean sample of how he builds a set and how often he lands punchlines without padding. Kaplan also recently released an audio-only project, Live in Between Albums 2: Rocky Mountain Hi, available on all the audio streaming platforms. It is a strong listen when you want something you can put on during a drive or a walk. The audio set highlights his joke density and timing, and it gives new listeners an easy entry point before catching him live.
 
- “Companies like DETEC are opening new ground for collaboration,” Hernández Haddad said. “They are facilitating the exchange of knowledge, capital, and talent on a global scale to help shape the future of innovation in various sectors, including telecommunications, biomedical services, and many other fields.”
+ The DC dates give you four chances across two nights in a classic club setting, close, focused, and perfect for Kaplan’s pace. Then he heads to Charlotte for a Sunday show at The Comedy Club at Duckworth’s, a clean finish to the run for anyone who wants to catch him on the road.
 
- The tri-national structure of DETEC also represents partnerships with US-based Tech Ranch, a technology business incubator based in Austin, Texas, and Canadian collaborators based in Toronto. This represents a shared focus on the future of innovation and the development of cutting-edge technology. DETEC's work on the development of telecommunications solutions utilizing Qualcomm technology is one of its major initiatives. The company is on the verge of a major milestone: the planned manufacture of a 5G cellular phone module within the United States.
+ DC Event Details Venue: DC Comedy LoftShowtimes:Friday, April 3, 2026: 7:30 PM and 9:45 PMSaturday, April 4, 2026: 7:30 PM and 9:45 PMTickets: Available via DC Comedy Loft
 
- As a Mexican-founded company entering the global marketplace, DETEC is also positioning itself as a representative of Latin American innovation on the global stage. Noriega encouraged other emerging founders to think globally.
-
- “Think global. Be borderless,” he said. “Mexico has a clear path forward as a leader in innovation and economic development, and we want to inspire others to take that step.”
-
- The Born Global Summit & Awards at SXSW brings together the most influential and forward-thinking entrepreneurs, investors, and policymakers to discuss the future of international business and innovation. DETEC's achievement represents a technological milestone as well as its contributions to the development of cross-border collaboration in a highly interconnected world.
-
- For more information on DETEC, visit detec-digital.com. 
+ Charlotte Event Details Venue: The Comedy Club at Duckworth’sAddress: 330 N Tryon St, Charlotte, NC 28203Doors: 5:00 PMShow: 6:00 PMDate: Sunday, April 5, 2026Tickets: Available via The Comedy Club at Duckworths 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603192260/detec-wins-sxsw-trilateral-innovation-award-for-cross-border-tech-leadership)
+[Original/Source Press Release](https://newsworthy.ai/news/202603192254/myq-kaplan-headlines-dc-comedy-loft-april-3-4-then-brings-his-stand-up-to-charlotte-april-5)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/detec-wins-trilateral-innovation-award-at-sxsw-pioneering-cross-border-tech-collaboration/e092c1d51e847dde117f9b6ff4e66c2b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/myq-kaplan-brings-smart-stand-up-to-dc-and-charlotte-this-april/7226700bcff48ce7606c6d9dc5934bb5) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/detec-wins-trilateral-innovation-award-at-sxsw-highlighting-cros/202629827)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedian-myq-kaplan-announces-stand-up-performances-in-washingto/202629847)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202603/413132-detec-wins-trilateral-innovation-excellence-award-at-sxsw-highlighting-cross-border-business-impact)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/myq-kaplan-announces-stand-up-comedy-dates-in-washington-dc-and/202629847)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202603/339760-detec-gana-el-premio-a-la-excelencia-en-innovacion-trilateral-en-sxsw-destacando-el-impacto-empresarial-transfronterizo)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413322-myq-kaplan-announces-april-comedy-tour-dates-in-washington-dc-and-charlotte)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/413123-detec-receives-sxsw-trilateral-innovation-award-for-cross-border-technology-leadership)
+Pickup - [https://advos.io/en](https://advos.io/en/comedian-myq-kaplan-announces-multi-city-stand-up-tour-with-dc-a/202629847)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339253-detec-erhalt-sxsw-trilateraler-innovationspreis-fur-grenzuberschreitende-technologiefuhrerschaft)
+Pickup - [https://news.arlingtoncountystar.com/northern-va-news](https://news.arlingtoncountystar.com/northern-va-news/202603/413421-comedian-myq-kaplan-brings-intellectual-stand-up-to-northern-virginia-venues)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339758-detec-recibe-el-premio-trilateral-de-innovacion-de-sxsw-por-su-liderazgo-tecnologico-transfronterizo)
+Pickup - [https://news.baltimorenewsdaily.com/curated](https://news.baltimorenewsdaily.com/curated/202603/413423-comedian-myq-kaplan-announces-2026-tour-dates-in-washington-dc-and-charlotte)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340516-detec-recoit-le-prix-trilateral-innovation-de-sxsw-pour-son-leadership-technologique-transfrontalier)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/413383-comedian-myq-kaplan-announces-april-stand-up-dates-in-washington-dc-and-charlotte)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339207-detec-recebe-premio-de-inovacao-trilateral-do-sxsw-por-lideranca-tecnologica-transfronteirica)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339272-comedian-myq-kaplan-kundigt-stand-up-termine-im-april-in-washington-dc-und-charlotte-an)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/413134-detec-receives-trilateral-innovation-excellence-award-at-sxsw-for-cross-border-collaboration)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339777-el-comediante-myq-kaplan-anuncia-fechas-de-stand-up-en-abril-para-washington-dc-y-charlotte)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/detec-wins-sxsw-trilateral-innovation-award-for-cross-border-tec/202629827)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340545-le-comedien-myq-kaplan-annonce-des-dates-de-spectacle-en-avril-a-washington-dc-et-charlotte)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/detec-recognized-at-sxsw-for-cross-border-technology-leadership/202629827)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339226-comediante-myq-kaplan-anuncia-datas-de-stand-up-em-washington-dc-e-charlotte-em-abril)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413128-detec-wins-sxsw-trilateral-innovation-award-for-cross-border-tech-leadership)
+Pickup - [https://news.districtofcolumbia.com/curated](https://news.districtofcolumbia.com/curated/202603/413431-comedian-myq-kaplan-announces-2026-tour-dates-in-washington-dc-and-charlotte)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/19/harp6ebq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/19/glue_5RZ.webp)
