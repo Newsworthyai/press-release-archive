@@ -1,10 +1,18 @@
-# Precious Metal Prices Under Pressure as Risk Appetite Increases
+# Navigating a Rapidly Evolving Technology Landscape: Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) and the Trump Administration’s Push to Secure Domestic Supplies of Critical Minerals
 
-Weaker prices were recorded for gold and silver at the start of this week, though both metals had recovered somewhat from their session lows. The decline was driven in part by a drop in crude oil prices and a strong rebound in U.S. equity markets.
+Disseminated on behalf of Trilogy Metals Inc. (NYSE American: TMQ) (TSX: TMQ) and may include paid advertising.
 
- Enterprises like Numa Numa Resources Inc. will be closely monitoring movements in…
+ * Trilogy Metals holds a 50% interest in the Upper Kobuk Mineral Projects land package in Alaska, hosting two high-grade undeveloped copper deposits, placing the company within the American push to secure critical mineral independence.
+* The Trump Administration is speeding up policies targeted at reducing dependence on foreign-controlled supply chains.
+* Trilogy Metals is poised to benefit from long-term structural demand for copper and other critical minerals essential to electrification, energy infrastructure, and advanced technologies.
+
+ As geopolitical tensions reshape global supply chains, critical minerals have become integral to economic and national security. Trilogy Metals (NYSE American: TMQ) (TSX: TMQ) is becoming increasingly aligned with this shift, as the U.S. Administration ramps up efforts to counter foreign dominance, especially China’s, across key mineral markets (ibn.fm/4iKSR).
+
+ China’s long-standing control over critical mineral processing and export capacity has highlighted vulnerabilities in American supply chains, especially following recent export restrictions aimed at rare earths and battery-related materials. In response, the Trump Administration has launched…
 
  Read More>>
+
+ NOTE TO INVESTORS: The latest news and updates relating to Trilogy Metals are available in the company’s newsroom at ibn.fm/TMQ
 
  About MiningNewsWire
 
@@ -24,31 +32,15 @@ Weaker prices were recorded for gold and silver at the start of this week, thoug
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/precious-metal-prices-under-pressure-as-risk-appetite-increases/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/navigating-a-rapidly-evolving-technology-landscape-trilogy-metals-inc-nyse-american-tmq-tsx-tmq-and-the-trump-administrations-push-to-secure-domestic-supplies-of-critical-minerals/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-silver-dip-as-risk-appetite-rises-mining-firms-watch-closely/a8317bccdd9b60841b7e7404570768bd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trilogy-metals-aligns-with-us-push-for-critical-mineral-independence/70a2b9d21233be4891ee4fb3daa3eb1d) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/gold-and-silver-prices-decline-as-market-risk-appetite-strengthe/202629855)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/413377-precious-metal-prices-experience-pressure-amid-shifting-market-dynamics)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339278-edelmetallpreise-geraten-unter-druck-durch-sich-verandernde-marktdynamiken)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339787-los-precios-de-los-metales-preciosos-enfrentan-presion-ante-dinamicas-cambiantes-del-mercado)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340551-les-prix-des-metaux-precieux-sous-pression-face-a-levolution-des-dynamiques-de-marche)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/precious-metal-prices-decline-amid-shifting-market-sentiment/202629855)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/precious-metal-prices-decline-amid-market-shifts-companies-monit/202629855)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413443-precious-metal-prices-decline-amid-shifting-market-sentiment)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/19/lean0Ls7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/19/pitapico7ZLF.webp)

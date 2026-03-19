@@ -1,54 +1,54 @@
-# Myq Kaplan Headlines DC Comedy Loft April 3–4, Then Brings His Stand-Up to Charlotte April 5
+# Texas Takes the Lead: Austin's $8B VC Funding Boosts Innovation
 
-Washington, DC (Newsworthy.ai) Thursday Mar 19, 2026 @ 10:00 AM Eastern — Catch Myq Kaplan live at the DC Comedy Loft on April 3 and 4, then in Charlotte on April 5.
+Austin, Texas (Newsworthy.ai) Thursday Mar 19, 2026 @ 2:15 PM Central — Luis Martinez, a key leader at Capital Factory, recently joined The Building Texas Show to paint a vibrant picture of Texas’s booming startup ecosystem, citing record-breaking venture capital funding and a strategic advantage that is attracting talent and investment worldwide.
 
- Kaplan is known for tight writing, fast pacing, and sets that feel built with intent. He moves from joke to joke quickly, then pivots into a bigger point without losing the room. You get smart wordplay, clear storytelling, and strong crowd connection. If you like comedy that stays thoughtful and still hits hard, this is your weekend.
+ Martinez revealed that Austin alone secured nearly $8 billion in VC fundraising in 2025, propelling it into the top five cities for venture capital nationally. Statewide, Texas attracted nearly $20 billion, with Houston and Dallas-Fort Worth also showing significant growth. Martinez confidently predicts 2026 will be "a banger year" for Texas VC.
 
- Kaplan has appeared on The Tonight Show, Conan, The Late Show with David Letterman, The Late Late Show with James Corden, Late Night with Seth Meyers, Comedy Central, Last Comic Standing, and America’s Got Talent. Those credits match what longtime fans already know, he is consistent, prolific, and always working.
+ “Texas has always been number one in energy… We are very bullish on space… This excitement around space is red hot,” said Martinez, highlighting the state’s dominance.
 
- If you want a quick way to get familiar before the shows, you can watch Kaplan’s special Rini free on YouTube. It is a clean sample of how he builds a set and how often he lands punchlines without padding. Kaplan also recently released an audio-only project, Live in Between Albums 2: Rocky Mountain Hi, available on all the audio streaming platforms. It is a strong listen when you want something you can put on during a drive or a walk. The audio set highlights his joke density and timing, and it gives new listeners an easy entry point before catching him live.
+ Key Sectors Driving Texas’s Momentum * Texas is becoming a hub for automation and robotics, featuring innovations like Waymo’s self-driving cars and humanoid robots.
 
- The DC dates give you four chances across two nights in a classic club setting, close, focused, and perfect for Kaplan’s pace. Then he heads to Charlotte for a Sunday show at The Comedy Club at Duckworth’s, a clean finish to the run for anyone who wants to catch him on the road.
+ Space Industry: Texas hosts leaders like Blue Origin, Intuitive Machines, and Firefly. The inaugural Space Summit in San Antonio in September will further galvanize this "red hot" sector.Energy Innovation: Beyond traditional oil and gas, Texas is investing heavily in solar, and is "very bullish" on nuclear energy (SMR, fusion) to meet the demands of AI data centers and new industries.Healthcare & Life Sciences: Growing activity across the state includes collaborations with institutions like MD Anderson, Baylor College of Medicine, and UT Southwestern, supported by public initiatives like CIPRI (cancer research) and DeepRIT (neurodegenerative diseases).Hard Tech & Industrials: A Texas is seeing significant hardware innovation across sectors like chemicals, automotive—highlighted by Toyota's presence—aerospace, and advanced materials.
 
- DC Event Details Venue: DC Comedy LoftShowtimes:Friday, April 3, 2026: 7:30 PM and 9:45 PMSaturday, April 4, 2026: 7:30 PM and 9:45 PMTickets: Available via DC Comedy Loft
+ The Texas Advantage: Beyond Zero Tax Benefits Martinez explained that while Texas’s favorable tax structure and efficient regulatory frameworks are major attractants, the true "special sauce" lies in:Critical Mass: A high concentration of established founders, companies, and talent who are on their second, third, or even fourth successful ventures.Collaborative Ecosystem: Unlike other major tech hubs, Texas benefits from "natural flows of talent, people, and relationships" across its major cities, fostering genuine regional cooperation among angel networks (like CTAN, Houston Angel Network, North Texas Angel Network, and Alamo Angels), EDCs, and universities.Strategic Public Investment: Initiatives like CIPRI, DeepRIT, and the Texas Space Commission de-risk and catalyze private investment in key sectors.
 
- Charlotte Event Details Venue: The Comedy Club at Duckworth’sAddress: 330 N Tryon St, Charlotte, NC 28203Doors: 5:00 PMShow: 6:00 PMDate: Sunday, April 5, 2026Tickets: Available via The Comedy Club at Duckworths 
+ Join the Conversation The full interview offers deeper insights into Texas’s innovation strategy and future. Subscribe to The Building Texas Show on YouTube, like the episode, and turn on notifications for more Texas-focused leadership conversations. Watch the Full Interview:
+
+ Why Texas Is Beating Silicon Valley for Startups | The $20B Innovation Boom
+
+ About [Capital Factory](https://capitalfactory.com/visit/): Capital Factory is the center of gravity for entrepreneurs in Texas. As the most active early-stage investor in Texas, Capital Factory helps startups get their first customers, find their first investors, and grow their teams. Through its extensive network of mentors, investors, and corporate partners, Capital Factory serves as a connective tissue across the state’s innovation ecosystem, facilitating collaboration and driving economic growth by supporting the next generation of Texas-based entrepreneurs.About The Building Texas Show:
+
+ Hosted by Justin McKenzie, The Building Texas Show delivers in-depth conversations with leaders, builders, and innovators driving growth across Texas. From economic development to community storytelling, the show highlights the people and projects shaping the state’s future, providing valuable insights into the dynamic Texas landscape.
+
+ Media Contact Justin McKenzieHost, The Building Texas Show210-748-2312 | Email Contacthttps://buildingtexasshow.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603192254/myq-kaplan-headlines-dc-comedy-loft-april-3-4-then-brings-his-stand-up-to-charlotte-april-5)
+[Original/Source Press Release](https://newsworthy.ai/news/202603192258/capital-factory-bullish-on-texas-as-vc-funding-soars-ecosystem-thrives)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/myq-kaplan-brings-smart-stand-up-to-dc-and-charlotte-this-april/7226700bcff48ce7606c6d9dc5934bb5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-vc-hits-20b-boom-space-energy-startups-fuel-innovation-surge/d52ac110d22d36ca8f08a1a1c19321ed) 
 
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedian-myq-kaplan-announces-stand-up-performances-in-washingto/202629847)
+Pickup - [https://advos.io/en](https://advos.io/en/texas-venture-capital-reaches-20-billion-as-austin-leads-with-8/202629870)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/myq-kaplan-announces-stand-up-comedy-dates-in-washington-dc-and/202629847)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/413599-texas-venture-capital-reaches-20-billion-in-2025-as-austin-leads-with-8-billion-funding)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413322-myq-kaplan-announces-april-comedy-tour-dates-in-washington-dc-and-charlotte)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339293-texas-erreicht-20-milliarden-dollar-venture-capital-im-jahr-2025-austin-fuhrt-mit-8-milliarden-dollar-finanzierung)
 
-Pickup - [https://advos.io/en](https://advos.io/en/comedian-myq-kaplan-announces-multi-city-stand-up-tour-with-dc-a/202629847)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339803-el-capital-de-riesgo-de-texas-alcanza-los-20000-millones-de-dolares-en-2025-con-austin-a-la-cabeza-con-8000-millones-en-financiacion)
 
-Pickup - [https://news.arlingtoncountystar.com/northern-va-news](https://news.arlingtoncountystar.com/northern-va-news/202603/413421-comedian-myq-kaplan-brings-intellectual-stand-up-to-northern-virginia-venues)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340577-le-capital-risque-au-texas-atteint-20-milliards-de-dollars-en-2025-austin-menant-avec-8-milliards-de-financement)
 
-Pickup - [https://news.baltimorenewsdaily.com/curated](https://news.baltimorenewsdaily.com/curated/202603/413423-comedian-myq-kaplan-announces-2026-tour-dates-in-washington-dc-and-charlotte)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339249-capital-de-risco-do-texas-atinge-us-20-bilhoes-em-2025-com-austin-liderando-com-us-8-bilhoes-em-financiamento)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/413383-comedian-myq-kaplan-announces-april-stand-up-dates-in-washington-dc-and-charlotte)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/texas-venture-capital-reaches-record-20-billion-in-2025-fueling/202629870)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339272-comedian-myq-kaplan-kundigt-stand-up-termine-im-april-in-washington-dc-und-charlotte-an)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339777-el-comediante-myq-kaplan-anuncia-fechas-de-stand-up-en-abril-para-washington-dc-y-charlotte)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340545-le-comedien-myq-kaplan-annonce-des-dates-de-spectacle-en-avril-a-washington-dc-et-charlotte)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339226-comediante-myq-kaplan-anuncia-datas-de-stand-up-em-washington-dc-e-charlotte-em-abril)
-
-Pickup - [https://news.districtofcolumbia.com/curated](https://news.districtofcolumbia.com/curated/202603/413431-comedian-myq-kaplan-announces-2026-tour-dates-in-washington-dc-and-charlotte)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/texas-venture-capital-reaches-record-20-billion-as-austin-leads/202629870)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/19/glue_5RZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/19/clubtC40.webp)

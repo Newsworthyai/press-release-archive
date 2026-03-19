@@ -1,54 +1,131 @@
-# Aclarion, Inc. Adopts Limited Duration Stockholder Rights Plan
+# VGTel, Inc. Releases Follow-Up EEG Study Results, Establishing Baseline for Consciousness Research Integrated with UAP and Astronomy Initiatives
 
-BROOMFIELD, Colo., March 19, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Aclarion, Inc. (Nasdaq: ACON, ACONW) (“Aclarion” or the “Company”) today announced that its Board of Directors (the “Board”) has unanimously adopted a limited duration stockholder rights plan (the “Rights Plan”). The Rights Plan is effective immediately and expires in one year.
+Baseline EEG data powers VGTel’s AI-driven model linking consciousness, astronomy, and UAP analysis into a unified research framework
 
- The Rights Plan is intended to enable all stockholders to realize the long-term value of their investment in Aclarion. The Rights Plan is also intended to reduce the likelihood that any person or group gains control of the Company without paying all stockholders an appropriate control premium. The Rights Plan will help to ensure the Board has sufficient time to make informed decisions that are in the best interest of Aclarion and its stockholders.
+ 
 
- The Rights Plan applies equally to all current and future stockholders. The Rights Plan was not adopted in response to any specific proposal to acquire control of the Company and is not intended to deter offers or preclude the Board from considering offers that are fair and otherwise in the best interests of all the Company’s stockholders.
+ Lander, WY., March 19, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – VGTel, Inc. (OTCID: VGTL) today announced the release of initial findings from its previously disclosed electroencephalogram (EEG) study, marking a key follow-up milestone in the company’s ongoing research into consciousness, astronomy, and unidentified aerial phenomena (UAP).
 
- About the Rights Plan
+ This announcement builds directly upon VGTel’s earlier disclosure, reinforcing that the company’s work in consciousness research is part of a deliberate, multi-phase strategy not a new direction, but the continued execution of a defined roadmap.
 
- The terms of the Rights Plan are similar to those of plans adopted by other publicly traded companies. Pursuant to the Rights Plan, Aclarion declared a dividend distribution of one preferred stock purchase right for (i) each share of the Company’s common stock, par value $0.00001 per share (the “Common Stock”), and (ii) each Rights-Eligible Warrant (as defined in the Rights Plan) (without regard to any limitations on exercise thereof), in each case outstanding as of the close of business on March 30, 2026 (the “Record Date”), and further authorized the issuance of one Right for each share of Common Stock and each Rights-Eligible Warrant, in each case, that shall become issued and outstanding between the Record Date and the earlier of the Distribution Time and the Expiration Time (each as defined in the Rights Plan).
+ From Ancient Foundations to Measurable Science
 
- One right will automatically attach to each share of Common Stock and each Rights-Eligible Warrant, including shares of Common Stock and additional Rights-Eligible Warrants, if any, that become issued and outstanding after the Record Date and before the rights become exercisable. Initially, these rights will not be exercisable and will trade with, and be represented by, the Common Stock and the Rights-Eligible Warrants, as applicable.Each right entitles the registered holder thereof to purchase from the Company one one-thousandth (1/1,000th) of a share of Series D Junior Participating Preferred Stock, par value $0.00001 per share, of the Company (the “Preferred Stock”) at a cash exercise price of $14.00 per right, subject to adjustment, under certain conditions specified in the Rights Plan.
+ While VGTel’s EEG study represents a modern scientific step forward, the exploration of consciousness spans thousands of years.
 
- Under the Rights Plan, the rights will become exercisable if an entity, person or group (the “acquiring person”) acquires beneficial ownership of 10% or more of the shares of Common Stock in a transaction not approved by the Board. If a person or group beneficially owns 10% or more of the outstanding shares of Common Stock prior to the Company’s announcement of the adoption of the Rights Plan, then that person’s or group’s existing ownership will be grandfathered and the rights will become exercisable if at any time after the announcement of the adoption of the Rights Plan such person or group increases its ownership of Common Stock. For purposes of the Rights Plan, a person or group beneficially owns, among other things, all shares of Common Stock that such person or group has the right or obligation to acquire, including all shares underlying warrants without regard to any limitations on exercise thereof, including any beneficial ownership limitation contained therein.
+ Ancient traditions, including Eastern monastic systems, Indigenous cultures of the Americas, and early civilizations such as the Egyptians and Mayans, developed structured methods to explore awareness beyond the physical body. These practices often incorporated meditation, sound frequencies, breathwork, and alignment with celestial cycles.
 
- In the event that the rights become exercisable due to the triggering ownership threshold being crossed, each right will entitle its holder (other than the person, entity or group triggering the Rights Plan, whose rights will become void and will not be exercisable) to receive shares of Common Stock having a market value equal to two times the exercise price of the right. In addition, in the event of a merger or similar change of control of the Company, each right will entitle its holder (other than the person, entity or group triggering the Rights Plan, whose rights will become void and will not be exercisable) to receive shares of common stock of the acquiring company having a market value equal to two times the exercise price of the right. The Board, at its option, may exchange each right (other than rights owned by the acquiring person that have become void) in whole or in part, at an exchange ratio of one share of Common Stock per outstanding right, subject to adjustment. Except as provided in the Rights Plan, the Board is entitled to redeem the rights, at $0.001 per right.
+ Across civilizations, a consistent idea emerged:consciousness is deeply connected to the universe itself.
 
- Under the Rights Plan, any person, entity or group that currently owns more than the triggering percentage prior to the Company’s announcement of its adoption of the Rights Plan may continue to own its shares of Common Stock without being deemed an acquiring person but may not acquire any additional shares of Common Stock, or form a group with another owner of Common Stock, without triggering the Rights Plan. The Rights Plan does not contain any dead-hand, slow-hand, no-hand or similar feature that would limit the ability of a future Board to redeem the rights.
+ Today, that concept is being revisited through measurable frameworks.
 
- The Rights Plan will expire on March 18, 2027, unless earlier redeemed or exchanged by the Board or terminated upon the closing of any merger or other acquisition transaction involving the Company pursuant to an agreement approved by the Board prior to any person becoming an acquiring person.
+ Organizations such as the Monroe Institute have helped bridge subjective experience with neurological data, advancing techniques that attempt to quantify altered states of awareness.
 
- Additional information regarding the Rights Plan and a copy of the plan will be contained in a current report on Form 8-K to be filed by the Company with the U.S. Securities and Exchange Commission.
+ Follow-Up Results: Establishing the Baseline
 
- Goodwin Procter LLP is serving as legal counsel for Aclarion.
+ As a direct continuation of its previously announced research, VGTel’s EEG study successfully established a baseline dataset of brainwave activity under controlled conditions.
 
- About Aclarion, Inc.
+ This baseline provides the foundation for:
 
- Aclarion is a healthcare technology company that leverages Magnetic Resonance Spectroscopy (“MRS”), proprietary signal processing techniques, biomarkers, and augmented intelligence algorithms to optimize clinical treatments. The Company is first addressing the chronic low back pain market with Nociscan, the first, evidence-supported, SaaS platform to noninvasively help physicians distinguish between painful and nonpainful discs in the lumbar spine. For more information, please visit www.aclarion.com.
+ * Comparative consciousness studies
+* Integration with environmental and electromagnetic data
+* Expansion into AI-driven analysis through VegaCore
 
- Forward-Looking Statements
+ While foundational, this dataset represents a critical first step toward scalable and repeatable research systems.
 
- This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995, as amended. These statements include, without limitation, implied and express statements relating to the anticipated benefits and expected consequences of the rights plan that Aclarion has adopted. Words such as “anticipate,” “believe,” “continue,” “could,” “designed,” “endeavor,” “estimate,” “expect,” “intend,” “may,” “might,” “plan,” “potential,” “predict,” “project,” “seek,” “should,” “target,” “preliminary,” “will,” “would” and similar expressions are intended to identify forward-looking statements. Any express or implied forward-looking statements included in this press release are based on current expectations, are only predictions and are subject to a number of risks, uncertainties and assumptions that could cause actual results to differ materially from those indicated, including, without limitation, the effectiveness of the rights plan in providing the Board of Directors with time to make informed decisions that are in the best long-term interests of Aclarion and its stockholders. These and other factors that could affect actual results are discussed more fully in our SEC filings, including our Annual Report on Form 10-K for the year ended December 31, 2025 and other filings made with the U.S. Securities and Exchange Commission from time to time. Any forward-looking statements contained in this press release represent Aclarion’s views only as of today and should not be relied upon as representing its views as of any subsequent date. Aclarion explicitly disclaims any obligation to update any forward-looking statements, except to the extent required by law.
+ Modern Scientific, Government, and Institutional Context
 
- Investor Contacts:
+ Interest in consciousness has expanded into formal research environments.
 
- Kirin M. Smith
+ Programs such as Project Stargate explored human perception beyond traditional sensory limits, highlighting early institutional interest in non-local awareness.
 
- PCG Advisory, Inc.
+ In addition, there is growing government focus on UAP research and data analysis through organizations such as the All-domain Anomaly Resolution Office (AARO), which continues to evaluate and assess unidentified aerial phenomena.
 
- ksmith@pcgadvisory.com
+ VGTel previously announced its involvement in this emerging ecosystem and is actively pursuing collaboration opportunities to support data collection, analysis, and advanced observational capabilities aligned with government-led UAP initiatives.
 
- Media Contact:
+ Today, this domain continues to evolve through:
 
- Jessica Starman
+ * Neuroscience and EEG-based measurement
+* Artificial intelligence and pattern recognition
+* Advanced astronomy and space observation
+* UAP-related research and analysis
 
- media@aclarion.com
+ Astronomy, UAP, and Consciousness: A Unified Model
 
- Source: Aclarion, Inc.
+ VGTel’s strategy is grounded in astronomy, the most established framework for understanding the universe.
 
- The latest news and updates relating to $ACON are available in the company’s newsroom at: https://tinyurl.com/aconnewsroom
+ Through its Beyond Earth initiative, the company integrates:
+
+ * Telescope-based observation systems
+* Atmospheric and near-space monitoring
+* AI-powered analytics via VegaCore
+* Real-time sensing through MiraLink
+
+ At the same time, VGTel is advancing its UAP research initiatives, focused on detection, tracking, and data correlation.
+
+ By combining these systems with EEG baseline data, VGTel is developing a new research framework:
+
+ Consciousness-Integrated Astronomy and UAP Analysis
+
+ This model explores relationships between:
+
+ * Human awareness and brainwave activity
+* Environmental and electromagnetic conditions
+* Astronomical events and unidentified aerial phenomena
+
+ Rather than treating UAPs solely as objects, VGTel approaches them as part of a broader system that includes the observer.
+
+ Cultural Momentum and Global Awareness
+
+ This follow-up release comes at a time of increasing global attention on disclosure and the nature of intelligence in the universe.
+
+ The upcoming disclosure-themed project from Steven Spielberg is expected to bring renewed focus to themes closely aligned with VGTel’s research, including:
+
+ * Non-human intelligence
+* Human perception and awareness
+* The relationship between consciousness and reality
+
+ Historically, films such as Close Encounters of the Third Kind have influenced public discourse and inspired scientific curiosity.
+
+ VGTel believes this moment represents a broader cultural shift, one that aligns with the company’s timing and long-term vision.
+
+ Leadership Perspective
+
+ “We’re not experimenting, we’re executing on a vision we’ve already laid out. This baseline is step one, and it positions VGTel ahead of where most people are even looking. UAP research has historically focused on the objects. We’re focused on the full system, the object, the environment, and the observer. That’s where the real breakthroughs are going to happen. By combining EEG data, AI, and our astronomy and UAP observation platforms, we’re building something entirely new, a framework to understand not just what’s in the sky, but how consciousness may be part of the interaction. This is a massive opportunity, and we’re moving early, moving fast, and building a category-defining platform.”
+
+ Ken Williams, CEO of VGTel, Inc.
+
+ Strategic Position and Investor Outlook
+
+ VGTel is positioned at the convergence of:
+
+ * Consciousness research
+* Astronomy and space-based observation
+* Artificial intelligence
+* UAP detection and analysis
+
+ This integrated approach creates the potential for:
+
+ * Proprietary datasets and intellectual property
+* Advanced sensing and analytics platforms
+* Strategic partnerships across scientific, defense, and technology sectors
+
+ As global awareness accelerates, VGTel believes early positioning in this category may provide a significant competitive advantage.
+
+ Closing Statement
+
+ With its EEG baseline established and its astronomy and UAP infrastructure expanding, VGTel continues to advance its mission:
+
+ To explore and define the relationship between consciousness, intelligence, and the universe through science, data, and innovation.
+
+ About VGTel, Inc.
+
+ VGTel, Inc. (OTC: VGTL) is an emerging technology and research company focused on astronomy, artificial intelligence, and advanced observational systems. Through its Beyond Earth initiative, the company is developing innovative approaches to understanding the universe, including consciousness research, UAP analysis, and real-time data integration platforms.
+
+ Investor & Media RelationsVGTel, Inc.info@vgtelinc.com561-318-1903
+
+ Legal Notice Regarding Forward-Looking Statements:This press release contains forward-looking information within the meaning of section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934 and is subject to the safe harbor created by those sections. This material contains statements about expected future events and/or financial results that are forward-looking in nature and subject to risks and uncertainties. That includes the possibility that the business outlined in this press release cannot be concluded for some reason. That could be as a result of technical, installation, permitting or other problems that were not anticipated. Such forward-looking statements by definition involve risks, uncertainties and other factors, which may cause the actual results, performance or achievements of VGTel, Inc to be materially different from the statements made herein. Except for any obligation under the U.S. federal securities laws, VGTel, Inc undertakes no obligation to publicly update any forward-looking statement as a result of new information, future events or otherwise.
+
+ Source: VGTel, Inc.
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
@@ -56,39 +133,41 @@ BROOMFIELD, Colo., March 19, 2026 – PRISM MediaWire (Press Release Service –
 
  
 
- The post Aclarion, Inc. Adopts Limited Duration Stockholder Rights Plan first appeared on Prism Media Wire. 
+ The post VGTel, Inc. Releases Follow-Up EEG Study Results, Establishing Baseline for Consciousness Research Integrated with UAP and Astronomy Initiatives first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/aclarion-inc-adopts-limited-duration-stockholder-rights-plan/)
+[Original/Source Press Release](https://prismmediawire.com/vgtel-inc-releases-follow-up-eeg-study-results-establishing-baseline-for-consciousness-research-integrated-with-uap-and-astronomy-initiatives/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-adopts-poison-pill-to-shield-shareholders-and-tech-innovation/8f7d7ece4922fdb392539ac208aedc0f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vgtel-s-eeg-breakthrough-links-consciousness-to-uap-research-through-ai-framework/c5fbb52a6f28f8f32b4cb06fb73089b4) 
 
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413245-aclarion-adopts-limited-duration-stockholder-rights-plan-to-protect-long-term-value)
+Pickup - [https://advos.io/en](https://advos.io/en/vgtel-establishes-eeg-baseline-for-consciousness-research-integr/202629867)
 
-Pickup - [https://advos.io/en](https://advos.io/en/aclarion-adopts-one-year-stockholder-rights-plan-to-protect-agai/202629841)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/413583-vgtel-establishes-eeg-baseline-for-integrated-consciousness-astronomy-and-uap-research-framework)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/413263-aclarion-inc-adopts-one-year-stockholder-rights-plan-to-protect-long-term-value)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339291-vgtel-etabliert-eeg-baseline-fur-integriertes-bewusstseins-astronomie-und-uap-forschungsrahmenwerk)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339266-aclarion-inc-beschliesst-einjahrigen-aktionarsrechteplan-zum-schutz-des-langfristigen-werts)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339801-vgtel-establece-una-linea-base-de-eeg-para-un-marco-de-investigacion-integrado-de-conciencia-astronomia-y-fenomenos-aereos-no-identificados)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339774-aclarion-inc-adopta-un-plan-de-derechos-de-accionistas-de-un-ano-para-proteger-el-valor-a-largo-plazo)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340575-vgtel-etablit-une-base-de-reference-eeg-pour-un-cadre-de-recherche-integre-sur-la-conscience-lastronomie-et-les-pan)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340539-aclarion-inc-adopte-un-plan-de-droits-dactionnaires-dun-an-pour-proteger-la-valeur-a-long-terme)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339247-vgtel-estabelece-linha-de-base-de-eeg-para-estrutura-integrada-de-pesquisa-em-consciencia-astronomia-e-fenomenos-aereos-nao-identificados)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339220-aclarion-inc-adota-plano-de-direitos-dos-acionistas-de-um-ano-para-proteger-o-valor-de-longo-prazo)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/vgtel-establishes-eeg-baseline-for-consciousness-research-integr/202629867)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/aclarion-adopts-one-year-stockholder-rights-plan-to-protect-agai/202629841)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/413597-vgtel-releases-initial-eeg-findings-advancing-integrated-consciousness-and-uap-research-framework)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/aclarion-adopts-one-year-stockholder-rights-plan-to-protect-long/202629841)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/vgtel-establishes-eeg-baseline-for-consciousness-research-integr/202629867)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/413439-aclarion-adopts-stockholder-rights-plan-to-protect-long-term-value)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413594-vgtel-establishes-eeg-baseline-for-integrated-consciousness-uap-and-astronomy-research-framework)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/413589-vgtel-establishes-eeg-baseline-for-integrated-consciousness-astronomy-and-uap-research-framework)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/19/swimWOZM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/19/eachDH7e.webp)
