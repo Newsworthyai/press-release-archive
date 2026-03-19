@@ -1,36 +1,56 @@
-# HCSB Honors San Bernardino Valley College with 2026 Spheres of Sustainability Visionary Award
+# Lions Clubs International Foundation Awards $228,641 Vision Grant to Expand and Equip the Beauty of Sight Eye Bank
 
-![](https://www.noticiasnewswire.com/wp-content/uploads/2026/03/logo.jpg)
+MIAMI, FL — March 18, 2026 — (NOTICIAS NEWSWIRE) — Patients across Florida will soon have greater access to sight-restoring care thanks to a $228,641 Vision Grant awarded by Lions Clubs International Foundation (LCIF) to Lions District 35-N. The grant will support the upgrade and equipping of Beauty of Sight’s eye bank, expanding the organization’s laboratory capabilities and increasing its ability to serve more patients throughout the state.
 
- RIVERSIDE, CA — March 18, 2026 — (NOTICIAS NEWSWIRE) — The Hispanic Coalition of Small Businesses (HCSB) has named San Bernardino Valley College (SBVC) the recipient of the 2026 HCSB Spheres of Sustainability Visionary Award, recognizing the college’s leadership in preparing people and communities for a more sustainable future. SBVC will be honored at the 2026 HCSB Spheres of Sustainability Summit on April 22, 2026, from 8 a.m. to noon at the DoubleTree by Hilton Pomona.
+ The LCIF Vision Grant is a matching grant made possible through the generous support of Lions clubs across District 35-N and throughout the Multiple District 35 region, which includes Florida, the Bahamas, Aruba, Bonaire, and Curaçao. The expansion will strengthen the organization’s capacity to provide sight-restoring corneal tissue, produce specialized ocular biologic therapies, and support ophthalmic research, education, and surgical training. The upgraded facility will also position the eye bank to adopt emerging technologies and therapies that are advancing the field of vision care.
 
- “HCSB’s mission is about people,” said Frank Montes, founding chair of HCSB. “We focus on helping students, small business owners and entrepreneurs prepare for the sustainable jobs and businesses that strengthen our economy and our communities. Our partnership with San Bernardino Valley College brings that mission to life.”
+ “Lions have been leaders in the fight against blindness for more than a century, and we are deeply grateful to Lions Clubs International Foundation for helping make this Vision Grant possible,” said Elizabeth Fisher, District Governor for Lions District 35-N. “This grant reflects the dedication of Lions throughout District 35-N and across our region to improving lives through sight. By supporting the expansion of Beauty of Sight, we are helping ensure that more patients across Florida have access to the vision-restoring care they need.”
 
- A longtime HCSB partner, San Bernardino Valley College plays a key role in developing a workforce that keeps the Inland Empire moving forward. The college prepares students for careers in clean energy, water and environmental systems, transportation and transit, aviation, logistics, skilled trades, technology and the businesses that support these industries.
+ Beauty of Sight, formerly known as the Florida Lions Eye Bank, has served patients and physicians for more than six decades and is currently located within Bascom Palmer Eye Institute, the #1 ranked eye hospital in the nation according to U.S. News & World Report. The organization’s new laboratory, located just blocks away on the medical campus, will allow Beauty of Sight to expand its capabilities while maintaining its close collaboration with Bascom Palmer.
 
- For students, this translates into clear, affordable pathways from the classroom to meaningful careers — earning industry-recognized credentials, gaining hands-on experience and entering jobs that support their families while strengthening their communities.
+ “This grant represents a powerful investment in the future of vision care,” said Elizabeth Fout, Executive Director of Beauty of Sight. “With LCIF’s support and the dedication of Lions throughout our district, we will be able to enhance our laboratory capabilities, expand our services throughout Florida, and ultimately serve more patients who rely on sight-restoring treatments.”
 
- From maintaining transit and transportation systems to building sustainable infrastructure, managing water resources, powering clean energy and supporting these fields through technology and entrepreneurship, SBVC connects education directly to opportunity. Students learn in modern facilities and gain real-world experience through internships, apprenticeships and workforce partnerships that prepare them for jobs that matter.
+ The laboratory expansion is part of Beauty of Sight’s broader strategic initiative to prepare for emerging technologies, therapies, and innovations that are transforming the role that eye banks play in supporting ophthalmic care.
 
- “San Bernardino Valley College is honored to receive this recognition,” said Dr. Gilbert Contreras, president of San Bernardino Valley College. “Together with HCSB, we are creating real opportunities for students — preparing them for careers in transportation, infrastructure, energy, water and technology while building a stronger, more sustainable region.”  As a Hispanic-Serving Institution, San Bernardino Valley College mirrors the community around it. More than 72% of SBVC students identify as Hispanic or Latino, reflecting the vibrant and diverse population of San Bernardino and the Inland Empire.
+ “Beauty of Sight has a long and proud history of advancing vision care through innovation, research, and collaboration,” said Joel Levenston, PVDG, President of the Board of Beauty of Sight. “This investment in our new laboratory ensures that the organization remains positioned to support emerging technologies and therapies that are shaping the future of eye banking and ophthalmic care.”
 
- That connection to place matters. SBVC exists to serve this region, preparing local residents for the industries that power the Inland Empire’s economy and creating pathways for families to build stronger futures right here in their own communities.
+ Through the continued partnership among Lions Clubs International Foundation, Lions District 35-N, and Beauty of Sight, this project will strengthen the region’s ability to provide sight-saving care and expand access to advanced treatments for patients across Florida. Together, these efforts will help ensure that more individuals facing vision loss have access to treatments and technologies that can restore sight and improve quality of life.
 
- About San Bernardino Valley College San Bernardino Valley College demonstrates its commitment to sustainability through both its academic programs and the way its campus is built and operated. As part of the San Bernardino Community College District’s goal to achieve carbon neutrality for Scope 1 and 2 emissions by 2035, SBVC has invested in forward-looking, sustainable infrastructure, including the Applied Technology Building, a 114,000-square-foot, all-electric, net-zero-ready facility completed in 2025 and tracking LEED Platinum certification. The building features passive cooling through solar thermal chimneys and extensive photovoltaic canopy and rooftop systems that provide nearly 70% of its energy. Looking ahead, the Career Pathways 2 Building, targeted for completion in 2027, is pursuing LEED Gold and Envision Sustainable certifications with a focus on water stewardship and resource conservation. Across the campus, SBVC has prioritized drought-tolerant landscaping and modular wetlands that capture and treat stormwater, reinforcing a comprehensive approach to environmental responsibility.
+ About Beauty of Sight Founded in 1962, Beauty of Sight is a nonprofit eye bank dedicated to restoring sight and advancing vision care for patients across Florida and beyond. Each year, Beauty of Sight provides more than 1,000 corneas for sight-restoring transplant surgeries, prepares over 1,600 batches of Serum Tears, and supplies nearly 800 ocular tissues for research and medical education. Beauty of Sight also funds ophthalmic research and supports a dedicated ocular pathology laboratory that provides critical diagnostic services to physicians. For more information, visit www.beautyofsight.org.
 
- About HCSB The Hispanic Coalition of Small Businesses (HCSB) is a nonprofit organization dedicated to advancing small business communities by fostering collaboration among educators, students, entrepreneurs, government and industry partners. HCSB expands access to training, resources and opportunities that support sustainable economic growth and stronger communities across California. 
+ About Lions District 35-N Lions District 35-N is part of Lions Clubs International and represents Lions clubs across South Florida. District 35-N Lions are dedicated volunteers who serve their communities through humanitarian initiatives focused on vision care, hunger relief, youth programs, disaster assistance, and community service. Through fundraising, volunteerism, and partnerships with organizations like Beauty of Sight, Lions in District 35-N work to improve lives and strengthen communities while advancing the global mission of Lions to serve. For more information, visit www.lionsdistrict35n.com.
+
+ About Lions Clubs International Foundation (LCIF) Lions Clubs International Foundation is the global charitable foundation of Lions Clubs International. Through the generosity of Lions and partners around the world, LCIF provides grant funding to support humanitarian initiatives focused on vision, youth, disaster relief, humanitarian needs, and diabetes. For more information, visit www.lcif.org. 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/hcsb-honors-san-bernardino-valley-college/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/lions-clubs-international-foundation-awards-228641-vision-grant/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sbvc-wins-2026-sustainability-award-for-workforce-development-leadership/84416643080b87d234053709ea28f5af) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-eye-bank-receives-228k-grant-to-expand-sight-restoring-care/be68638419b8dd534982a17aa9405743) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/lions-clubs-international-foundation-awards-228641-grant-to-expa/202629820)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/413039-lions-clubs-international-foundation-awards-228641-vision-grant-to-expand-florida-eye-bank-capabilities)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339246-lions-clubs-international-foundation-vergibt-vision-grant-in-hohe-von-228641-us-dollar-zur-erweiterung-der-kapazitaten-der-florida-eye-bank)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339751-la-fundacion-internacional-de-clubes-de-leones-otorga-una-subvencion-de-vision-de-228641-para-ampliar-las-capacidades-del-banco-de-ojos-de-florida)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340509-la-fondation-des-lions-clubs-international-accorde-une-subvision-de-228-641-dollars-pour-developper-les-capacites-de-la-banque-des-yeux-de-floride)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339198-fundacao-lions-clubs-international-concede-subsidio-de-visao-de-us-228641-para-expandir-capacidades-do-banco-de-olhos-da-florida)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/lions-clubs-international-foundation-awards-228641-grant-to-expa/202629820)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lions-clubs-international-foundation-awards-228641-grant-to-expa/202629820)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413059-lions-clubs-international-foundation-awards-228641-grant-to-expand-florida-eye-bank-capabilities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/263/18/kissYspA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/263/18/bendIcCI.webp)
