@@ -1,89 +1,100 @@
-# Higher Blood Pressure During Young Adulthood Linked to Heart &amp; Kidney Disease After age 40
+# FILMART and EntertainmentPulse Draw About 8,000 Industry Participants
 
-Research Highlights:
+- The Growth in Global Exhibitors and Buyers Demonstrates Hong Kong's Strength as an International Film and Television Hub
 
- * A study of nearly 300 thousand adults in South Korea found that individuals with higher blood pressure (≥120 mm Hg/80 mm Hg) for up to 10 years during young adulthood (ages 30 and 40 were more likely to develop heart disease and kidney disease after age 40.
-* Having a systolic (top number) blood pressure that remained about 10 mm Hg higher than peers for about 10 years was linked to a 27% higher risk of heart disease and a 22% higher risk of kidney disease.
-* Maintaining optimal blood pressure (<120 mm Hg/80 mm Hg) is important at every age and life stage, and it is most beneficial to protect future heart and kidney health.
-* Note: The study featured in this news release is a research abstract. Abstracts presented at the American Heart Association’s scientific meetings are not peer-reviewed, and the findings are considered preliminary until published as a full manuscript in a peer-reviewed scientific journal.
+ HONG KONG - March 20, 2026 (NEWMEDIAWIRE) - The 30th Hong Kong International Film & TV Market (FILMART) and EntertainmentPulse, organised by the Hong Kong Trade Development Council (HKTDC), concluded successfully today. The two events attracted about 8,000 industry professionals from 53 countries and regions, highlighting the development momentum and collaborative potential of the global film and television industry. The events, held over four days, featured over 790 exhibitors across a record high participation of 38 countries and regions, bringing together enterprises from emerging markets like ASEAN members such as Cambodia, Malaysia, Thailand, and Vietnam, and mature film markets such as Canada, France, Italy, Korea, the United Kingdom, and the United States, further exemplifying Hong Kong’s position as a centre for cultural and artistic exchange.
 
- BOSTON - March 20, 2026 (NEWMEDIAWIRE) - Higher blood pressure during young adulthood is likely linked to a higher risk of heart disease and kidney disease later in life, reinforcing the importance of maintaining healthy blood pressure at younger ages, according to preliminary research presented at the American Heart Association’s EPI|Lifestyle Scientific Sessions 2026. The meeting is in Boston, March 17-20, and offers the latest epidemiological science on prevention, lifestyle and cardiometabolic health.
+ FILMART advances international collaboration in the film and television industry
 
- “Young adults often have a very low predicted 10-year risk of heart disease, even when they have elevated or high blood pressure (a systolic blood pressure measure of 120 mm Hg or higher, or a diastolic blood pressure measure of 80 mm Hg or higher),” said Hokyou Lee, M.D., Ph.D., FAHA, an associate professor of preventive medicine at Yonsei University College of Medicine in Seoul, South Korea. “Our study’s findings show that blood pressure levels in early adulthood are important even if short-term risk appears low. Long-term exposure to higher blood pressure from early life may accumulate damage over time, increasing the risk of heart and kidney disease in midlife.”
+ This year’s FILMART continued to demonstrate its role as one of the region’s most influential film and television trading platforms, bringing together exhibitors, buyers and producers from both emerging and mature markets to facilitate cross-regional collaboration and business cooperations. Participating in FILMART for the first time, the General Manager of COL International Group, Timothy Oh from Singapore, noted that FILMART plays a key role in helping companies expand their international networks, he said: "I am meeting friends and new business partners from Turkey, the UK, the US, and even Brazil. Hong Kong’s role as an international hub helps create a bustling market with many business opportunities for those looking at innovation and what’s next.” Sachitha Kalingamudali, General Manager of another first-time exhibitor Mogo Studios from Sri Lanka, said FILMART exceeded his expectations. "We've met distributors from many countries, and everyone has shown genuine interest. This is a great kickstart for future partnerships." Myanmar film production company aTwentyThree even chose FILMART as its first move to explore the international market, founder Arker Soe Oo connected with distributors from the US and Europe, and expressed plans to bring more productions to the event next year.
 
- According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, nearly half of U.S. adults are living with high blood pressure. It is the leading cause of cardiovascular disease and premature death in the U.S. and worldwide, and it’s the most common and most modifiable risk factor for heart disease and stroke. Maintaining healthy blood pressure is critical to preventing or reducing the risk of heart disease, a major cardiac event or a stroke.
+ Overseas buyers also expressed strong recognition of the exhibition’s business matching effectiveness and the diversity of its content, further affirming that FILMART serves as an efficient platform for advancing collaboration across the global film and television value chain and strengthening market connectivity. Bizhan Tong, a buyer from the UK, commented: “FILMART continues to be one of the most effective platforms globally for driving cross-border collaboration. This year we formed a new strategic partnership with MOFAC, advanced multiple projects across both our and other companies' slates, and saw a highly concentrated run of meetings with partners across Asia translating into tangible co-investment and co-production opportunities.”
 
- In this study, the researchers reviewed medical records from the Korean National Health Insurance Service database. Their analysis found:
+ AI Hub supports Mainland tech companies in going global
 
- * Adults who had elevated or high blood pressure that stayed higher from age 30 to 40 had a higher risk of heart disease, stroke or kidney disease in midlife, after age 40.
-* Having a systolic (top number) blood pressure reading of about 10 mm Hg higher than peers for about 10 years was linked to a 27% higher risk of heart disease and a 22% higher risk of kidney disease.
-* Participants with a diastolic blood pressure (bottom number) about 5 mm Hg higher than their peers for about 10 years were linked to a 20% higher risk of heart disease and a 16% higher risk of kidney disease.
-* Compared with people in the group with the lowest 20% of cumulative blood pressure levels during young adulthood, those in the highest 20% of cumulative blood pressure levels were more likely to develop heart or kidney disease in midlife:  People in the highest cumulative systolic blood pressure group were about 3.5 times more likely to develop heart conditions than those in the lowest cumulative systolic blood pressure group. The risk of kidney disease was about 3 times higher among people with the highest cumulative systolic blood pressure.
-* Results in this analysis were similar for men and women.
+ A highlight of this year’s FILMART was AI Hub which had multiple leading AI and technology companies showcasing their latest AI technologies and solutions, attracting buyers and potential partners from around the world for business discussions and exchanges. Through this platform, many Mainland start-ups and established enterprises have accelerated their expansion into overseas markets and built international networks, further enhancing brand visibility and converting opportunities into concrete business outcomes. Zhihan Zhang, Founder and CEO of Daogu Culture Limited, remarked, “Whether it is AI animation, short dramas, or digital humans, the key to the future lies in global strategy. FILMART gathers global industry professionals, facilities connections and exchanges, and enables us to understand the various client needs of different overseas markets.” In addition, the newly established "AI Academy", supported by the Cultural and Creative Industries Development Agency and the Film Development Fund, was well-received. 19 thematic workshops equipped industry professionals with hands-on AI skills and insights into emerging trends.
 
- “Maintaining optimal blood pressure is a concern for every individual, at every age,” Lee said. “Early prevention, diagnosis, monitoring and treatment, if needed, are investments in future heart and kidney health. Timely treatment of elevated blood pressure is essential to reduce the effects of years of exposure, which underscores the importance of monitoring and managing blood pressure as soon as a patient has elevated blood pressure levels.”
+ Producers Connect fosters collaboration between local and global producers
 
- The American Heart Association's 2025 High Blood Pressure Guideline recommends treatment of stage 1 hypertension (after 3-6 months of lifestyle modification) in adults with low predicted 10-year risk of cardiovascular disease.
+ Producers Connect, jointly organised by the HKSAR’s Culture, Sports and Tourism Bureau, the Cultural and Creative Industries Development Agency, the Hong Kong Film Development Council and the HKTDC, united more than 100 producers from Hong Kong and around the world this year. Through a series of networking sessions, panel discussions and workshops, Producers Connect provided a cross-regional platform for creative collaboration, enabling industry professionals to share production trends, explore co-production models and discuss potential projects. The initiative strengthens connections between Hong Kong and the international film and television community, creating more possibilities for jointly expanding into the global market. Speaking at the panel discussion titled “International Coproductions in an Evolving Film Industry Landscape,” Janet Yang, Golden Globe-winning producer, observed: “The world is getting flatter, language is mattering less and less to audiences everywhere.” Producer and director Peter Chan also mentioned: “It’s always difficult to convince the studio, the investor, or now the platform, of a vision you want to make. What you try to do is diversify your investors and partners into different regions.”
 
- “This study from Korea emphasizes the risk from high blood pressure begins at an early age and early in the course,” said Daniel W. Jones, M.D., M.A.C.P., FAHA, an American Heart Association volunteer expert and chair of the writing committee for the Association’s Guideline for the Prevention, Detection, Evaluation and Management of High Blood Pressure in Adults. “The opportunity in this study to evaluate cumulative blood pressure over several years was important in understanding that risk. The study should encourage the design of randomized clinical trials to document that early treatment of high blood pressure in young adults is effective at reducing risk for cardiovascular and kidney disease.” Jones, who was not involved in this study, is a past volunteer president of the Association and dean and professor emeritus of the University of Mississippi School of Medicine in Jackson, Mississippi.
+ 48 featured forums and events examine emerging industry trends
 
- Study details, background and design:
+ Two major forums held alongside FILMART - EntertainmentPulse and the Digital Entertainment Summit - focused on the latest developments in the global film, television and entertainment technology sectors, attracting strong participation from industry professionals. EntertainmentPulse addressed popular topics including artificial intelligence, streaming platform strategies, the rising popularity of short dramas, co-production and financing trends. Industry leaders shared insights on global market strategies and future directions, helping the sector capture emerging opportunities. The Financing & Investment panel, themed “Capital in Motion: Private Financing Promotes Development of Asia’s Film & TV Industry,” explored Asian private investment trends, project financing strategies and planning. Justin Deimen, Managing Partner of Goldfinch International, shared: “We need to allocate more resources and capability towards creative IP valuation. If you cannot value something, you cannot invest in it.”
 
- * The analysis included health information for 291,887 adults from the Korean National Health Insurance Service database, who were 30 years old in 2002-2004 and received routine health screenings between age 30 (2002-2004) and 40 (2012-2014).
-* Participants included in the analysis had no prior history of heart or kidney disease before age 40; 76.3% were men.
-* The analysis included those who had three or more health examination records with blood pressure measurements taken by health care professionals at the following time periods: at age 30 (2002-2004); at age 40 (2012-2014); and one or more blood pressure measurements taken in between those periods. The median number of blood pressure measurements for each participant was eight.
-* Each participant’s cumulative blood pressure levels from age 30 to 40 were calculated to account for both how high it was and how long it stayed elevated.
-* Participants were followed for about 10 years after age 40, during which development of heart or kidney disease was identified through national health service records. In addition, diagnosis of chronic kidney disease was confirmed by laboratory tests conducted during the follow-up period.
-* Deaths from heart or kidney disease after age 40 were identified in the national death records.
-* Major health and lifestyle factors, such as sex, income, smoking, alcohol use, physical activity and key health measures, including blood sugar and cholesterol levels, were factored into the analysis.
+ Meanwhile, FILMART Online IP Catalogue featured more than 2,200 creative IP projects, extending the four-day physical fair into a two-month networking platform helping industry stakeholders continue exploring business opportunities. This initiative further consolidated Hong Kong’s position as Asia’s film and entertainment trading hub. The catalogue will remain open until 27 April, enabling industry participants to transcend geographical boundaries and continue expanding global business opportunities.
 
- An important note about the study is that participants received care through the National Health Insurance System in South Korea, a universal health care system for all of its citizens with government-set, standardized pricing for all health care, screening, treatments and medications.
+ Website:
 
- Co-authors, disclosures and funding sources are listed in the abstract.
+FILMART - http://www.hktdc.com/hkfilmartEntertainmentPulse - https://hkfilmart.hktdc.com/conference/hkfilmart/en/programme'category=EntertainmentPulse
 
- Statements and conclusions of studies that are presented at the American Heart Association/American Stroke Association’s scientific meetings are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. Abstracts presented at the Association’s scientific meetings are not peer-reviewed, rather, they are curated by independent review panels and are considered based on the potential to add to the diversity of scientific issues and views discussed at the meeting. The findings are considered preliminary until published as a full manuscript in a peer-reviewed scientific journal.
+ Photo Download:  https://bit.ly/4sxPP6I
 
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ Media enquiries:
 
- Additional Resources:
+ For enquiries, please contact:
 
- * A video interview with Daniel W. Jones, M.D., M.A.C.P., FAHA and other multimedia are available on the right column of the release link.
-* After March 20, view abstract 61 in the EPI|Lifestyle Scientific Sessions 2026 Online Program Planner
-* American Heart Association news release: Millions are unaware of heart risks that don’t start in the heart (Feb. 2026)
-* American Heart Association Guideline news release: New high blood pressure guideline emphasizes prevention, early treatment to reduce CVD risk (Aug. 2025)
-* American Heart Association health information: What is high blood pressure?
-* American Heart Association health information: Find high blood pressure tools and resources
-* For more news from EPI|LIFESTYLE 2026 Scientific Sessions, follow us on X @HeartNews, #EPILifestyle26.
+ Raconteur PR:
 
- The American Heart Association’s EPI|LIFESTYLE Scientific Sessions is the world’s premier meeting dedicated to the latest advances in population-based science. The meeting is Tuesday-Friday, March 17-20, 2026, in Boston. The primary goal of the meeting is to promote the development and application of translational and population science to prevent heart disease and stroke and foster cardiovascular health. The sessions focus on risk factors, obesity, nutrition, physical activity, genetics, metabolism, biomarkers, subclinical disease, clinical disease, healthy populations, global health and prevention-oriented clinical trials. The Councils on Epidemiology and Prevention and Lifestyle and Cardiometabolic Health (Lifestyle) jointly planned the EPI|Lifestyle 2026 Scientific Sessions. Follow the conference on X at #EPILifestyle26.
+ Betsy Tse
 
- About the American Heart Association
+Tel: (852) 9742 7338
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+Email: betsytse@raconteur.hk
 
- For Media Inquiries and American Heart Association Expert Perspective:
+ Molisa Lau
 
- AHA Communications & Media Relations in Dallas: 214-706-1173; ahacommunications@heart.org
+Tel: (852) 6187 7786
 
- Michelle Kirkwood: Michelle.Kirkwood@heart.org
+Email: molisalau@raconteur.hk
 
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+ HKTDC Communication and Public Affairs Department:
 
- heart.org and stroke.org
+ Serena Cheung
 
- View the original release on www.newmediawire.com 
+Tel: (852) 2584 4272
+
+Email: serena.hm.cheung@hktdc.org
+
+ HKTDC Mediaroom: http://mediaroom.hktdc.com/en
+
+ About HKTDC
+
+ The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/higher-blood-pressure-during-young-adulthood-linked-to-heart-kidney-disease-after-age-40-7085939)
+[Original/Source Press Release](https://www.newmediawire.com/news/filmart-and-entertainmentpulse-draw-about-8-000-industry-participants-7085942)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/young-adult-blood-pressure-linked-to-heart-kidney-disease-risk-after-40/90fcdd27cf840176e34ab433f97938bd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-s-filmart-2026-sets-records-as-global-film-ai-hub/ddda1d298b351301537c259b053c526a) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/hong-kongs-filmart-and-entertainmentpulse-attract-8000-global-pa/202629902)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/413945-filmart-and-entertainmentpulse-attract-8000-global-participants-reinforcing-hong-kongs-role-as-film-industry-hub)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339324-filmart-und-entertainmentpulse-ziehen-8000-internationale-teilnehmer-an-und-starken-hongkongs-rolle-als-filmindustrie-zentrum)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339835-filmart-y-entertainmentpulse-atraen-a-8000-participantes-globales-reforzando-el-papel-de-hong-kong-como-centro-de-la-industria-cinematografica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340608-filmart-et-entertainmentpulse-attirent-8-000-participants-mondiaux-renforcant-le-role-de-hong-kong-en-tant-que-plaque-tournante-de-lindustrie-cinematographique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339284-filmart-e-entertainmentpulse-atraem-8000-participantes-globais-reforcando-o-papel-de-hong-kong-como-centro-da-industria-cinematografica)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/filmart-and-entertainmentpulse-attract-8000-global-participants/202629902)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/filmart-and-entertainmentpulse-attract-8000-global-participants/202629902)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413955-filmart-and-entertainmentpulse-attract-8000-global-participants-highlighting-hong-kongs-role-as-film-and-ai-hub)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/413957-hong-kongs-filmart-2026-attracts-global-industry-strengthening-position-as-international-entertainment-hub)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/413988-hong-kongs-filmart-2024-concludes-with-record-global-participation-highlighting-ai-integration-and-cross-border-collaboration)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/20/cake7rRO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/20/dual0amD.webp)
