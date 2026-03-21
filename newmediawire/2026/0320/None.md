@@ -1,100 +1,96 @@
-# FILMART and EntertainmentPulse Draw About 8,000 Industry Participants
+# B2i Digital Features Banking Virtual Investor Conference, March 26, 2026
 
-- The Growth in Global Exhibitors and Buyers Demonstrates Hong Kong's Strength as an International Film and Television Hub
+10 Community Banks and Financial Companies Present Live, Co-Hosted by Alliance Advisors
 
- HONG KONG - March 20, 2026 (NEWMEDIAWIRE) - The 30th Hong Kong International Film & TV Market (FILMART) and EntertainmentPulse, organised by the Hong Kong Trade Development Council (HKTDC), concluded successfully today. The two events attracted about 8,000 industry professionals from 53 countries and regions, highlighting the development momentum and collaborative potential of the global film and television industry. The events, held over four days, featured over 790 exhibitors across a record high participation of 38 countries and regions, bringing together enterprises from emerging markets like ASEAN members such as Cambodia, Malaysia, Thailand, and Vietnam, and mature film markets such as Canada, France, Italy, Korea, the United Kingdom, and the United States, further exemplifying Hong Kong’s position as a centre for cultural and artistic exchange.
+ Direct Access to Management Teams Through Live Presentations, Real-Time Q&A and 1x1 Meetings
 
- FILMART advances international collaboration in the film and television industry
+ NEW YORK, NY - March 20, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. is highlighting the Banking Virtual Investor Conference taking place Thursday, March 26, 2026, co-hosted by Alliance Advisors. The Banking Virtual Investor Conference is a B2i Digital Featured Conference. The March 26th conference will feature executive presentations from 10 community banks, financial holding companies and related banking service providers. Investors can book one-on-one meetings directly with presenting company management teams through the VIC platform.
 
- This year’s FILMART continued to demonstrate its role as one of the region’s most influential film and television trading platforms, bringing together exhibitors, buyers and producers from both emerging and mature markets to facilitate cross-regional collaboration and business cooperations. Participating in FILMART for the first time, the General Manager of COL International Group, Timothy Oh from Singapore, noted that FILMART plays a key role in helping companies expand their international networks, he said: "I am meeting friends and new business partners from Turkey, the UK, the US, and even Brazil. Hong Kong’s role as an international hub helps create a bustling market with many business opportunities for those looking at innovation and what’s next.” Sachitha Kalingamudali, General Manager of another first-time exhibitor Mogo Studios from Sri Lanka, said FILMART exceeded his expectations. "We've met distributors from many countries, and everyone has shown genuine interest. This is a great kickstart for future partnerships." Myanmar film production company aTwentyThree even chose FILMART as its first move to explore the international market, founder Arker Soe Oo connected with distributors from the US and Europe, and expressed plans to bring more productions to the event next year.
+ The conference is co-hosted by Alliance Advisors, an independent advisory firm serving over 800 active public company clients across a range of industries and market capitalizations. Alliance Advisors works with more than 200 bank clients on shareholder engagement, investor ownership intelligence, proxy solicitation, governance advisory, and retail outreach strategies. For more information, please visit allianceadvisors.com.
 
- Overseas buyers also expressed strong recognition of the exhibition’s business matching effectiveness and the diversity of its content, further affirming that FILMART serves as an efficient platform for advancing collaboration across the global film and television value chain and strengthening market connectivity. Bizhan Tong, a buyer from the UK, commented: “FILMART continues to be one of the most effective platforms globally for driving cross-border collaboration. This year we formed a new strategic partnership with MOFAC, advanced multiple projects across both our and other companies' slates, and saw a highly concentrated run of meetings with partners across Asia translating into tangible co-investment and co-production opportunities.”
+ The conference opens with a keynote presentation from Kara Kennedy, President of ClearTrust LLC, a full-service stock transfer agent serving public and private companies and community banks.
 
- AI Hub supports Mainland tech companies in going global
+ Investors can watch live presentations, ask questions in real time, and request one-on-one meetings with management teams through the VIC platform. Replays are available on demand after the event.
 
- A highlight of this year’s FILMART was AI Hub which had multiple leading AI and technology companies showcasing their latest AI technologies and solutions, attracting buyers and potential partners from around the world for business discussions and exchanges. Through this platform, many Mainland start-ups and established enterprises have accelerated their expansion into overseas markets and built international networks, further enhancing brand visibility and converting opportunities into concrete business outcomes. Zhihan Zhang, Founder and CEO of Daogu Culture Limited, remarked, “Whether it is AI animation, short dramas, or digital humans, the key to the future lies in global strategy. FILMART gathers global industry professionals, facilities connections and exchanges, and enables us to understand the various client needs of different overseas markets.” In addition, the newly established "AI Academy", supported by the Cultural and Creative Industries Development Agency and the Film Development Fund, was well-received. 19 thematic workshops equipped industry professionals with hands-on AI skills and insights into emerging trends.
+ B2i Digital partners with Virtual Investor Conferences (VIC) as the Official Marketing Partner, supporting each event through digital marketing, social media, digital profiles of presenting companies, and direct investor outreach.
 
- Producers Connect fosters collaboration between local and global producers
+ "These 10 management teams aren't just showing up to present a slide deck. They're here to take questions live and sit down with investors one-on-one. They chose this format because they want to connect with investors of all types, from institutional funds to individual investors and advisors. VIC conferences draw that full range, and that level of direct engagement with the people actually running these banks is hard to find anywhere else," said David Shapiro, Chief Executive Officer of B2i Digital.
 
- Producers Connect, jointly organised by the HKSAR’s Culture, Sports and Tourism Bureau, the Cultural and Creative Industries Development Agency, the Hong Kong Film Development Council and the HKTDC, united more than 100 producers from Hong Kong and around the world this year. Through a series of networking sessions, panel discussions and workshops, Producers Connect provided a cross-regional platform for creative collaboration, enabling industry professionals to share production trends, explore co-production models and discuss potential projects. The initiative strengthens connections between Hong Kong and the international film and television community, creating more possibilities for jointly expanding into the global market. Speaking at the panel discussion titled “International Coproductions in an Evolving Film Industry Landscape,” Janet Yang, Golden Globe-winning producer, observed: “The world is getting flatter, language is mattering less and less to audiences everywhere.” Producer and director Peter Chan also mentioned: “It’s always difficult to convince the studio, the investor, or now the platform, of a vision you want to make. What you try to do is diversify your investors and partners into different regions.”
+ Investors can request one-on-one meetings with presenting company executives here:
 
- 48 featured forums and events examine emerging industry trends
+ Request Meetings
 
- Two major forums held alongside FILMART - EntertainmentPulse and the Digital Entertainment Summit - focused on the latest developments in the global film, television and entertainment technology sectors, attracting strong participation from industry professionals. EntertainmentPulse addressed popular topics including artificial intelligence, streaming platform strategies, the rising popularity of short dramas, co-production and financing trends. Industry leaders shared insights on global market strategies and future directions, helping the sector capture emerging opportunities. The Financing & Investment panel, themed “Capital in Motion: Private Financing Promotes Development of Asia’s Film & TV Industry,” explored Asian private investment trends, project financing strategies and planning. Justin Deimen, Managing Partner of Goldfinch International, shared: “We need to allocate more resources and capability towards creative IP valuation. If you cannot value something, you cannot invest in it.”
+ More companies are opening their meeting calendars daily. Check back if your top pick isn't available yet.
 
- Meanwhile, FILMART Online IP Catalogue featured more than 2,200 creative IP projects, extending the four-day physical fair into a two-month networking platform helping industry stakeholders continue exploring business opportunities. This initiative further consolidated Hong Kong’s position as Asia’s film and entertainment trading hub. The catalogue will remain open until 27 April, enabling industry participants to transcend geographical boundaries and continue expanding global business opportunities.
+ For more details, please visit:https://b2idigital.com/otc-market-banking-virtual-investor-conference
 
- Website:
+ Presenting companies include:
 
-FILMART - http://www.hktdc.com/hkfilmartEntertainmentPulse - https://hkfilmart.hktdc.com/conference/hkfilmart/en/programme'category=EntertainmentPulse
+ 9:30 AM EDT: Keynote - ClearTrust LLC10:00 AM EDT: MVB Financial Corp.10:30 AM EDT: Alpine Banks of Colorado11:00 AM EDT: United Bancorporation of Alabama Inc.11:30 AM EDT: Ledyard Financial Group Inc.12:30 PM EDT: Endeavor Bancorp1:00 PM EDT: First Resource Bancorp Inc.1:30 PM EDT: White River Bancshares Company2:00 PM EDT: QNB Corp.2:30 PM EDT: Potomac Bancshares, Inc.
 
- Photo Download:  https://bit.ly/4sxPP6I
+ For registration and company profiles, please visit:
 
- Media enquiries:
+ https://www.virtualinvestorconferences.com/wcc/eh/4814904/category/147951/march-26th-banking-virtual-investor-conference?utm_source=b2i&utm_medium=marketing&utm_campaign=0326BankingVirtualVIC
 
- For enquiries, please contact:
+ Throughout the year, Virtual Investor Conferences feature public companies from exchanges worldwide, including NYSE, Nasdaq, TSX, TSXV, CSE, ASX, LSE, and the OTC Markets. All public companies are welcome to participate. Virtual Investor Conferences is an OTC Markets Group Inc. property.
 
- Raconteur PR:
+ About B2i Digital, Inc.
 
- Betsy Tse
+ B2i Digital, Inc. partners with investor conferences, public companies, and capital-markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Acting as The Capital Markets Matchmaker℠, B2i Digital connects investors and companies through digital marketing, investor conferences, and direct meetings, supported by a proprietary network of more than 1.5 million market participants. Its mantra, From Marketing to Meetings℠, reflects this integrated approach. Founded in 2021 by former Maxim Group investment banker and Chief Marketing Officer, David Shapiro, B2i Digital is headquartered in New York City.
 
-Tel: (852) 9742 7338
+ B2i Digital Contact Information
 
-Email: betsytse@raconteur.hk
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.comhttps://www.linkedin.com/in/davidshapironyc
 
- Molisa Lau
+ B2i Digital Social Media
 
-Tel: (852) 6187 7786
+ https://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://www.threads.net/@davidshapironychttps://bsky.app/profile/b2idigital.bsky.social
 
-Email: molisalau@raconteur.hk
+ About Virtual Investor Conferences
 
- HKTDC Communication and Public Affairs Department:
+ Virtual Investor Conferences is the leading proprietary investor conference series that provides an interactive forum for publicly traded companies to meet directly with investors online. VIC offers companies efficient access to a broad investor audience through live presentations, Q&A sessions, and one-on-one meetings. Investors benefit from direct access to executive management teams and the ability to view presentations live or on demand.
 
- Serena Cheung
+ Virtual Investor Conferences Contact Information
 
-Tel: (852) 2584 4272
+ OTC Markets Group Inc.Virtual Investor Conferenceshttps://www.virtualinvestorconferences.cominfo@virtualinvestorconferences.com
 
-Email: serena.hm.cheung@hktdc.org
+ Disclosure & Disclaimer
 
- HKTDC Mediaroom: http://mediaroom.hktdc.com/en
+ B2i Digital, Inc. is the Official Marketing Partner of Virtual Investor Conferences. Content is for informational purposes only and is not investment advice. B2i Digital, Inc. is not a broker-dealer or investment adviser.
 
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/filmart-and-entertainmentpulse-draw-about-8-000-industry-participants-7085942)
+[Original/Source Press Release](https://www.newmediawire.com/news/b2i-digital-features-banking-virtual-investor-conference-march-26-2026-7085945)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-s-filmart-2026-sets-records-as-global-film-ai-hub/ddda1d298b351301537c259b053c526a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/10-banks-go-virtual-direct-investor-access-at-march-2026-conference/6be0283ba3686e636cfb3620688213d8) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/hong-kongs-filmart-and-entertainmentpulse-attract-8000-global-pa/202629902)
+Pickup - [https://advos.io/en](https://advos.io/en/banking-virtual-investor-conference-to-connect-10-community-bank/202629913)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/413945-filmart-and-entertainmentpulse-attract-8000-global-participants-reinforcing-hong-kongs-role-as-film-industry-hub)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/414093-banking-virtual-investor-conference-connects-10-community-banks-with-investors-through-direct-engagement-platform)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339324-filmart-und-entertainmentpulse-ziehen-8000-internationale-teilnehmer-an-und-starken-hongkongs-rolle-als-filmindustrie-zentrum)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339335-virtuelle-banken-investorenkonferenz-verbindet-10-regionalbanken-mit-investoren-uber-direktkontakt-plattform)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339835-filmart-y-entertainmentpulse-atraen-a-8000-participantes-globales-reforzando-el-papel-de-hong-kong-como-centro-de-la-industria-cinematografica)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339846-conferencia-virtual-de-inversores-bancarios-conecta-a-10-bancos-comunitarios-con-inversores-a-traves-de-una-plataforma-de-interaccion-directa)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340608-filmart-et-entertainmentpulse-attirent-8-000-participants-mondiaux-renforcant-le-role-de-hong-kong-en-tant-que-plaque-tournante-de-lindustrie-cinematographique)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340620-conference-virtuelle-bancaire-pour-investisseurs-connecte-10-banques-communautaires-avec-les-investisseurs-via-une-plateforme-dengagement-direct)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339284-filmart-e-entertainmentpulse-atraem-8000-participantes-globais-reforcando-o-papel-de-hong-kong-como-centro-da-industria-cinematografica)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339296-conferencia-virtual-de-investidores-bancarios-conecta-10-bancos-comunitarios-com-investidores-atraves-de-plataforma-de-engajamento-direto)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/filmart-and-entertainmentpulse-attract-8000-global-participants/202629902)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/banking-virtual-investor-conference-connects-10-community-banks/202629913)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/filmart-and-entertainmentpulse-attract-8000-global-participants/202629902)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/banking-virtual-investor-conference-to-feature-10-community-bank/202629913)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/413955-filmart-and-entertainmentpulse-attract-8000-global-participants-highlighting-hong-kongs-role-as-film-and-ai-hub)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/414123-banking-virtual-investor-conference-to-connect-10-community-banks-with-investors-through-direct-engagement-platform)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/413957-hong-kongs-filmart-2026-attracts-global-industry-strengthening-position-as-international-entertainment-hub)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/413988-hong-kongs-filmart-2024-concludes-with-record-global-participation-highlighting-ai-integration-and-cross-border-collaboration)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/414142-virtual-banking-conference-to-connect-investors-with-10-community-bank-executives)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/20/dual0amD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/20/yogaXkRi.webp)
