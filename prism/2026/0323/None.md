@@ -1,84 +1,102 @@
-# BioStem Appoints Jodi Ungrodt to Board of Directors as Audit Committee Chair
+# BLAQclouds, Inc. Announces The Successful Automation of Major Payment Platforms on ApolloCASH and Phase One Rollout of theAlley.io
 
-SEC-Qualified Financial Expert and Life Sciences Veteran Brings 29 Years of Accounting Leadership to the Board
+Robesonia, PA, March 23, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – BLAQclouds, Inc. (OTC: BCDS) (the “Company”), a global financial technology and blockchain infrastructure provider, today announced the successful automation of multiple global payment platforms within its ApolloCASH cross-platform remittance and settlement ecosystem following several months of development, testing, and infrastructure refinement.
 
- 
+ ApolloCASH has reached a significant operational milestone by automating settlement workflows across major global payment networks, including PayPal, Venmo, Cash App, Zelle, Wise, Revolut, Chime, Telegram, and UPI, utilizing the Company’s proprietary Single Use Liquidity Pool (SULP) architecture. Transactions are settled through the Apollo Chain and Binance Smart Chain, leveraging APUSD and USDT stablecoins to enable seamless cross-platform value transfer and programmable settlement execution.
 
- Pompano Beach, Fla, March 23, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – BioStem Technologies (OTC: BSEM), a leading MedTech company focused on the development, manufacturing, and commercialization of placental-derived products for advanced wound care, today announced the appointment of Jodi Ungrodt to its Board of Directors, where she will also serve as Chair of the Audit Committee, effective March 18, 2026.
+ Reflecting growing user adoption and platform awareness, the Company also reported a 480% increase in referral link activity over the previous 30-day period, indicating expanding engagement within the ApolloCASH ecosystem.
 
- Ungrodt brings nearly three decades of financial leadership to the role, having spent her career as a senior partner at Ernst & Young advising life sciences companies on initial and secondary public offerings, business combinations, risk assessment and regulatory compliance. She is qualified to serve as a financial expert under SEC, NYSE, and NASDAQ rules.
+ In parallel with these developments, BLAQclouds is in the final stages of completing Know Your Business (KYB) onboarding with Spritz Finance and is concluding Sandbox testing of Spritz’s digital asset on-ramp, off-ramp, and global bill payment infrastructure. Subject to the successful completion of regulatory, operational, and technical readiness milestones, the Company expects these capabilities to be integrated into the ApolloCASH platform during the first week of April 2026. This planned integration is intended to broaden real-world payment functionality by enabling streamlined conversion between digital assets and fiat obligations such as utility payments, subscriptions, and other recurring financial commitments.
 
- “I am excited to welcome Jodi to our board as we undertake this expansion of our business beyond chronic wound care. Along with the business expansion, we also plan to raise our profile in the public markets in 2026. Jodi’s twenty-nine years of life sciences accounting experience at Ernst & Young, along with her track record advising more than thirty IPOs and deep regulatory and government expertise, will make a terrific addition to our board governance during this pivotal time.”
+ The Company has also introduced a Real-Time Chat feature within the ApolloCASH user address book, designed to enhance transaction transparency and improve coordination between users during payment workflows. Through Real-Time Chat, senders and recipients can communicate directly within the platform when a Send or Redeem transaction is initiated, allowing both parties to confirm payment status, timing expectations, and settlement preferences. The Company believes that embedding communication capabilities into financial transaction flows can meaningfully enhance user experience and increase transaction completion rates.
 
- Jason Matuszewski, Chairman and CEO of BioStem Technologies
+ Industry research supports the impact of integrated communication features within financial and commerce applications. Studies across fintech platforms suggest that real-time messaging and conversational transaction interfaces can improve transaction completion rates by approximately 20% to 40%, while also reducing payment abandonment and strengthening user trust. Additionally, engagement data from digital payment providers indicates that platforms offering embedded communication tools may experience higher repeat transaction frequency and increased average transaction value, as users gain greater confidence in payment coordination and settlement visibility. BLAQclouds views Real-Time Chat as an important step toward delivering a more interactive and user-centric global remittance experience.
 
- BioStem is an emerging leader in placental and umbilical cord–derived tissue products used by clinicians across a variety of medical specialties. Their proprietary allograft portfolio is derived from donated birth tissue and proprietary processes are designed to optimally preserve the tissue’s natural properties. The company continues to conduct leading-edge research to expand the scientific understanding of placental-derived tissue products and to bring new products to market.
+ The Company is also actively testing integrations with additional global payment networks and financial service providers, including X-Money, Touch ’n Go, GrabPay, Remitly, Airwallex, OFX, Sendwave, Paysend, SOKIN, Ria Money Transfer, WorldRemit, OA Pay, Instarem, and Intermex. These integrations are expected to expand the Company’s addressable market and enhance access to key international payment corridors.
 
- As Audit Committee Chair, Ungrodt will oversee the company’s financial reporting, internal controls and risk management practices. Her prior experience includes serving as Chair of the Audit Committee for Feeding San Diego, where she provided accounting, budgeting and risk assessment guidance for over a decade. She is also an Advisory Board Member for Life Science Cares. During her tenure at EY, Ungrodt served more than 70 companies across the Life Sciences sector.
+ As part of its structured rollout strategy, BLAQclouds has successfully onboarded approximately 1.5 million international banking customers onto its BLAQ Private Chain infrastructure. The Company has initiated the migration of test accounts in controlled blocks of approximately 1,000 users per cycle to ensure quality control, system stability, and regulatory compliance throughout the initial deployment phase.
 
- “I am excited to join BioStem’s board at this pivotal time in the company’s growth. BioStem stands out as one of the most innovative companies in the MedTech sector, driven by strong momentum in the chronic wound market and its recent expansion into acute applications of its industry-leading technologies. These technologies have tremendous potential to improve outcomes in patients, and I’m honored to take on this important role as the company continues to scale and innovate in this space.”
+ At the same time, targeted onboarding initiatives are in progress for approximately 1.4 million active PayPal users and 1.1 million Cash App account holders, supporting the Company’s broader expansion across global payment networks.
 
- Jodi Ungrodt
+ BLAQclouds also announced the Phase One launch of theAlley.io, its SocialFi communications and commerce platform designed to integrate social networking, financial services, and digital asset functionality into a unified user experience. Phase One features include:
 
- Ungrodt holds a BS in Accounting from San Diego State University and is a Certified Public Accountant and member of the American Institute of Public Accountants and the California Society of CPAs.
+ * Personalized content Feeds
+* Friends networking functionality with global import capabilities
+* End-to-end and Group encrypted chat
+* End-to-end and Group encrypted Voice and video calling for individuals and groups of up to 2,000 connected users
+* End-to-end and Group encrypted Screen sharing and collaborative whiteboard tools
+* Access to the ApolloNFT marketplace
+* User-created online stores powered by payment connectivity through BLAQpay.io
 
- Ungrodt replaces former board member Brandon Poe, who accepted the role of BioStem’s chief financial officer in August 2025. Poe brings more than 25 years of finance leadership experience across the healthcare and life sciences sectors. He served on BioStem’s Board of Directors for three years before joining the organization.
+ TheAlley.io has been developed as a Progressive Web App (PWA), enabling a seamless user experience across both desktop and mobile environments without the need for traditional app store downloads. The platform features a simplified onboarding process that allows users to link and migrate their existing friends, fans, and followers with a single click, helping creators quickly establish their communities and maintain audience continuity.
 
- About BioStem Technologies, Inc. (OTC: BSEM): BioStem Technologies is a publicly traded, biomedical innovator, focused on developing, manufacturing and commercializing advanced allograft solutions derived from perinatal tissue. The company leverages its industry-leading proprietary BioRetain®, CryoTek® and SteriTek® processing technologies, designed to optimize the preservation of the natural properties of these tissues, supporting their use in clinical settings. Its allografts are used by clinicians across a wide range of specialties. With a growing portfolio of products, expanding clinical research initiatives, and a national commercial footprint, BioStem is committed to advancing innovation in regenerative medicine.
+ As part of its initial rollout, the Company has begun onboarding more than 120,000 independent artists across music, film, and digital media, representing a combined global social media reach of over one billion users. BLAQclouds believes this streamlined onboarding capability will support faster network effects, stronger user engagement, and accelerated platform adoption.
 
- BioStem Technologies’ quality management system and standard operating procedures have been reviewed and accredited by the American Association of Tissue Banks (“AATB”). These systems and procedures are established in compliance with current Good Tissue Practices (“cGTP”) and current Good Manufacturing Processes (“cGMP”). BioStem’s portfolio of quality brands includes its Neox®, Clarix®, VENDAJE® and American Amnion™ product lines.
+ The Company outlined future development phases for the platform. Phase Two (April 5, 2026) is expected to introduce single-click Send and Redeem functionality for peer-to-peer payments using ApolloCASH, deeper integration with ApolloNFT.io for NFT creation and marketplace participation, and additional verticals including play-to-earn gaming tournaments, video publishing, podcast creation and distribution, and digital music events.
 
- Join BioStem’s Distribution List & Social Media:To follow the latest developments at BioStem, sign up for the Company’s email distribution list HERE, and follow us on X and LinkedIn.
+ Phase Three (May 1, 20206) is expected to include implementation of the APO-8004 monetization framework, a proprietary series of smart contracts built on the Apollo blockchain and supported by AI-driven infrastructure. APO-8004 is designed to enable automated monetization protocols for livestreams, podcasts, and digital media ecosystems, including programmable royalty distribution, tokenized engagement incentives, and transparent revenue allocation mechanisms. The Company believes this blockchain-native monetization model could materially enhance creator revenue potential compared to traditional Web2 content platforms such as YouTube, X, Spotify, and TikTok.
 
- Contact BioStem:Website: www.biostemtechnologies.comE-Mail: pr@biostemtech.comX: @BSEM_TechFacebook: BioStemTechnologiesPhone: 954-380-8342
+ “Achieving automation across multiple global payment platforms represents an important infrastructure milestone for ApolloCASH. Our objective is to build a globally connected ecosystem where users can communicate, transact, and monetize digital content through integrated blockchain and AI-supported technologies without having to have even a basic understand of crytpo. We believe this operational progress supports the Company’s long-term strategy within the evolving digital finance and creator economy landscape.”
 
- Investor Relations:Philip Trip Taylor, GilmartinGroup E-Mail: ir@biostemtech.com
+ Shannon Hill, Chief Executive Officer of BLAQclouds, Inc.
 
- Public Relations:Jennifer Horton, Relevancejennifer@relevance.com
+ About BLAQclouds, Inc.
 
- Source: BioStem Technologies, Inc.
+ BLAQclouds bridges traditional finance and decentralized ecosystems, building seamless, real-world blockchain applications that simplify commerce and payments. Its mission is to make spending crypto as easy, trusted, and usable as traditional currency.
 
- The latest news and updates relating to $BMES are available in the company’s newsroom at:https://tinyurl.com/bsemnewsroom
+ Flagship consumer applications include:– ShopWithCrypto.io – Crypto-to-gift card commerce– BLAQpay.io – Web3 payments and merchant plugins– DEX.ZEUSx.io – EVM-compatible decentralized exchange– ApolloWallet.io – Secure, consumer-grade blockchain wallet– ApolloCASH – C2C Blockchain Based Global Remittance– ApolloID – TLD name service for .ZEUS and .APOLLO
+
+ For a full list of BLAQclouds platforms and solutions, visit www.BLAQclouds.io.
+
+ BLAQclouds, Inc. is registered with FINCEN as an MSB (Money Service Business). The BSA ID registration number awarded by FINCEN is 31000313564202 and is used for ShopwithCrypto.io, DinewithCrypto.io, ZEUSEnergy.io, BitNotify.io, Ampleswap.com, ZEUSChainScan.io, ApolloScan.io, BLAQpay.io, ApolloID.io, ApolloWallet.io, ApolloCASH.io and ZXUSD.io.
+
+ Forward-Looking Statements
+
+ This press release contains certain forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended and Section 21E of the Securities Exchange Act of 1934, which are intended to be covered by the safe harbors created thereby. Investors are cautioned that, all forward-looking statements involve risks and uncertainties, including without limitation, the ability of BLAQclouds, Inc. to accomplish its stated plan of business. BLAQclouds, Inc. believes that the assumptions underlying the forward-looking statements contained herein are reasonable, any of the assumptions could be inaccurate, and therefore, there can be no assurance that the forward-looking statements included in this press release will prove to be accurate. In light of the significant uncertainties inherent in the forward- looking statements included herein, the inclusion of such information should not be regarded as a representation by BLAQclouds Inc. or any other person.
+
+ This press release also contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. These statements involve certain risks and uncertainties that may cause actual results to differ materially. BLAQclouds, Inc. assumes no obligation to update or revise any forward-looking statements.
+
+ Source: BLAQclouds, Inc.
+
+ The latest news and updates relating to $BCDS are available in the company’s newsroom at: https://tinyurl.com/bcdsnewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
- Add us on Google as a Preferred Source to see more News in your Search Results
+ Add PRISM MediaWire as your preferred news source on Google
 
  
 
-The post BioStem Appoints Jodi Ungrodt to Board of Directors as Audit Committee Chair first appeared on Prism Media Wire. 
+ The post BLAQclouds, Inc. Announces The Successful Automation of Major Payment Platforms on ApolloCASH and Phase One Rollout of theAlley.io first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/biostem-appoints-jodi-ungrodt-to-board-of-directors-as-audit-committee-chair/)
+[Original/Source Press Release](https://prismmediawire.com/blaqclouds-inc-announces-the-successful-automation-of-major-payment-platforms-on-apollocash-and-phase-one-rollout-of-thealley-io/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/biostem-appoints-financial-expert-jodi-ungrodt-to-board-amid-growth-push/4f575de816544d27a07958130ce2e02b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blaqclouds-automates-global-payments-on-apollocash-launches-socialfi-platform/70f0d99ce0f343f1a38b1d32c3c7f361) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/biostem-technologies-appoints-sec-qualified-financial-expert-jod/202629936)
+Pickup - [https://advos.io/en](https://advos.io/en/blaqclouds-achieves-payment-automation-milestone-and-launches-so/202629941)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/414342-biostem-technologies-appoints-sec-qualified-financial-expert-jodi-ungrodt-to-board-as-audit-committee-chair)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/414375-blaqclouds-achieves-payment-automation-milestone-and-launches-socialfi-platform)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339357-biostem-technologies-ernennt-sec-qualifizierte-finanzexpertin-jodi-ungrodt-in-den-aufsichtsrat-als-vorsitzende-des-prufungsausschusses)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339362-blaqclouds-erreicht-meilenstein-bei-zahlungsautomatisierung-und-startet-socialfi-plattform)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339867-biostem-technologies-designa-a-la-experta-financiera-calificada-por-la-sec-jodi-ungrodt-a-su-junta-directiva-como-presidenta-del-comite-de-auditoria)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339872-blaqclouds-alcanza-un-hito-en-la-automatizacion-de-pagos-y-lanza-plataforma-socialfi)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340654-biostem-technologies-nomme-lexperte-financiere-qualifiee-sec-jodi-ungrodt-au-conseil-dadministration-en-tant-que-presidente-du-comite-daudit)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340659-blaqclouds-atteint-un-jalon-dautomatisation-des-paiements-et-lance-une-plateforme-socialfi)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339319-biostem-technologies-nomeia-especialista-financeira-qualificada-pela-sec-jodi-ungrodt-para-o-conselho-como-presidente-do-comite-de-auditoria)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339324-blaqclouds-atinge-marco-de-automacao-de-pagamentos-e-lanca-plataforma-socialfi)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/biostem-technologies-appoints-sec-qualified-financial-expert-jod/202629936)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/blaqclouds-achieves-payment-automation-milestone-and-launches-so/202629941)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/biostem-technologies-appoints-sec-qualified-financial-expert-jod/202629936)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/blaqclouds-achieves-payment-automation-milestone-and-launches-so/202629941)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/414353-biostem-technologies-appoints-sec-qualified-financial-expert-jodi-ungrodt-to-board-as-audit-committee-chair)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202603/414351-biostem-technologies-appoints-sec-qualified-financial-expert-jodi-ungrodt-to-board-as-audit-committee-chair)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/414390-blaqclouds-achieves-payment-automation-milestone-and-launches-socialfi-platform)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/23/jazz5AsF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/23/iconS0cK.webp)

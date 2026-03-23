@@ -1,68 +1,72 @@
-# Noble Announces a Downhole Electromagnetic Survey is Planned for 2 Drill Holes in the Recent Timmins Area Diamond Drill Program
+# Nationwide Effort Targets Diagnosis Delays, Care Gaps for a Life Threatening Heart Disease
 
-TORONTO, ON - March 23, 2026 (NEWMEDIAWIRE) - Noble Mineral Exploration Inc. (“Noble” or the “Company”) (TSX-V:NOB, FRANKFURT: NB7, OTCQB:NLPXF) has contracted Abitibi Geophysics to conduct a downhole Electromagnetics (BHEM) survey on 2 holes in the Carnegie Township area near Timmins Ontario. The BHEM program is part of a 50/50 partnership with Canada 11530313 Canada Inc. and will include surveying 2 holes that were recently drilled in follow up of a drill program done in 2019.
+DALLAS - March 23, 2026 (NEWMEDIAWIRE) - Transthyretin amyloid cardiomyopathy, or ATTR‑CM, is a serious and often underdiagnosed condition caused by abnormal protein buildup that prevents the left ventricle from relaxing and filling properly, impairing the heart’s ability to pump blood. When left untreated, the disease can lead to heart failure and significantly shorten life expectancy.
 
- The BHEM survey utilizes a single-loop configuration, where a large square transmitter loop measuring approximately 500 metres by 500 metres is laid out on surface. This loop generates a controlled electromagnetic field that penetrates the subsurface.
+ To overcome gaps in how this condition is identified and treated, the American Heart Association, a relentless force changing the future of health for everyone everywhere, has launched a nationwide effort to strengthen the system of care for people living with ATTR-CM. The quality improvement initiative, financially supported by Alnylam, is designed to improve early diagnosis and coordination of care, ultimately enhancing the patient experience.
 
- A total of two drill holes (CG-25-01 and 02), are being surveyed. Sensitive probes will be lowered down each borehole to measure the response of the surrounding rocks to the electromagnetic field.
+ Early recognition and diagnosis of ATTR-CM is critical, as timely care gives patients access to treatments that can extend survival, preserve physical function and maintain quality of life. As awareness of ATTR-CM grows and treatment options continue to advance, patients increasingly need coordinated, specialist-led care. However, building and sustaining these multidisciplinary systems remains challenging for many health care centers.
 
- This method is particularly effective at identifying off-hole conductive zones - potential mineralized bodies that may not have been intersected directly by drilling - thereby helping to refine future drill targets and improve exploration efficiency.
+ “ATTR-CM is a life-threatening condition that is too often recognized late, when current disease modifying therapy is less effective,” said Mat Maurer, M.D., volunteer member of the American Heart Association’s ATTR Amyloidosis Strategic Advisory Group and professor of medicine at Columbia University Irving Medical Center, New York City. “By bringing multidisciplinary teams together to examine the full patient journey - from diagnosis through long-term management - this new initiative is helping identify practical, scalable approaches that can support earlier recognition, more coordinated care and better outcomes for people living with this disease.”
 
- In drill hole CG-25-01, a 6.5m section analyzed 0.64% zinc with associated, anomalous values in copper, silver, and lead from 141.0 to 147.5 meters down hole (true width not known at this time). A 1-meter section within the wider section was found to run 1.90% zinc. The anomalous mineralization was found to occur in a weakly laminated sulphide rich graphitic sediment. Conductive mineralization consisted of about 5% pyrrhotite, with local concentrations of up to 10-15%.
+ The three-year effort brings together a cohort of 10 multidisciplinary health care teams from across the country in a learning collaborative designed to better understand and improve ATTR-CM care pathways. The initiative focuses on the full patient journey - from diagnosis and referral through treatment and follow-up - with the goal of identifying successful, replicable models of care that can drive change nationwide.
 
- Analyses on Drill hole CG-25-02 have confirmed the presence of a polymetallic mineralized system similar to and assumed to be the same mineralized section as the one described above. The results define a polymetallic mineralized system, highlighted by:
+ Through shared learning and collaboration, participating sites will work to gain insights into current ATTR-CM practice pathways and amplify approaches that improve coordination of care, support earlier identification and strengthen long-term management for people living with ATTR-CM. By uncovering gaps in care and uniting experts across medical specialties, the initiative aims to help build a more integrated system that improves outcomes for patients nationwide.
 
- - Up to 37 ppb gold and 4.6 g/t silver over 0.9m
+ “As awareness of ATTR-CM grows and treatment options continue to advance, it is essential that patients have access to well-coordinated, specialist-led care,” said Sameer Bansilal, M.D., M.S., cardiologist and vice president, Global TTR Medical lead, Alnylam Pharmaceuticals. “We are proud to support the American Heart Association’s new ATTR-CM initiative and its focus on understanding gaps in care, sharing successful models and strengthening systems that can improve the experience and outcomes for people affected by this devastating disease.”
 
- - >0.65% zinc over 2.7m (with a high of >1.0%) and 0.13% copper over 1.9m
+ For more information about the ATTR-CM initiative and to see a list of participating health care centers, visit heart.org/ATTRCMDiscovery.
 
- - Elevated nickel (up to 212 ppm) and cobalt (up to 189 ppm)
+ Additional Resources:
 
- - (true width not known at this time)
+ * Multimedia is available on the right column of the release link.
+* American Heart Association Support Network | Cardiomyopathy
+* Transthyretin Amyloidosis (ATTR) for Professionals - Professional Heart Daily
+* Extra-Cardiac Clues to Amyloidosis | Professional Education Hub
+* Follow AHA/ASA news on X @HeartNews
 
- The program is being carried out on lands recently transferred to Canada Nickel but on which Noble retains a 5-year Exploration Right for volcanogenic massive sulphide mineralization and precious metals.
+ About the American Heart Association
 
- Vance White, President and CEO of Noble, said, “We are very pleased to get this program started with the support of our partners at 11530313 Canada Inc. The search for mineralization similar to the Kidd Creek Mine continues.”
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- The technical content of this release has been reviewed and approved by Wayne Holmstead, P.Geo., an independent Qualified Person as defined by National Instrument 43-101 – Standards of Disclosure for Mineral Projects.
+ For Media Inquiries: 214-706-1173
 
- About Noble Mineral Exploration Inc.
+ Michelle Rosenfeld: michelle.rosenfeld@heart.org
 
- Noble Mineral Exploration Inc. is a Canadian-based junior exploration company, which has holdings of securities in Canada Nickel Company Inc., Homeland Nickel Inc., East Timmins Nickel Inc. (20%), and its interest in the Holdsworth gold exploration property in the area of Wawa, Ontario.
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
- Noble holds mineral and/or exploration rights in approximately 70,000ha in Northern Ontario and approximately 24,000ha elsewhere in Quebec upon which it plans to generate option/joint venture exploration programs.
-
- Noble holds mineral rights and/or exploration rights in approximately 18,000 hectares in the Timmins-Cochrane areas of Northern Ontario known as Project 81, approximately 2,215 hectares in Thomas Twp/Timmins, as well as an additional 20% interest in approximately 38,700 hectares in the Timmins area held by East Timmins Nickel. Project 81 hosts diversified drill-ready gold, nickel-cobalt and base metal exploration targets at various stages of exploration. Noble also holds approximately 4,600 hectares in the Nagagami Carbonatite Complex and its approximately 3,200 hectares in the Boulder Project both near Hearst, Ontario. approximately 3,700 hectares in the Buckingham Graphite Property, approximately 10,152 hectares in the Havre St Pierre Nickel, Copper, PGM property, and approximately 1,573 hectares in the Cere-Villebon Nickel, Copper, PGM property, approximately 569 hectare Uranium/Rare Earth property (Chateau), approximately 461 hectare Uranium/Molybdenum property (Taser North), approximately 4,465 hectares REE Mehmet Property, and the approximately 3300 hectare Gull Lake REE Property, The approximately 1,232 hectare Opawica Scandium and REE Property all of which are in the Province of Quebec and the approximately 647 hectare Chapiteau REE property in Labrador.
-
- https://www.noblemineralexploration.com
-
- Noble’s common shares trade on the TSX Venture Exchange under the symbol “NOB.”
-
- Cautionary Statement
-
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release. No stock exchange, securities commission or other regulatory authority has approved or disapproved the information contained herein.
-
- The foregoing information may contain forward-looking statements relating to the future performance of Noble Mineral Exploration Inc. Forward-looking statements, specifically those concerning future performance, are subject to certain risks and uncertainties, and actual results may differ materially from the Company’s plans and expectations. These plans, expectations, risks, and uncertainties are detailed herein and from time to time in the filings made by the Company with the TSX Venture Exchange and securities regulators. Noble Mineral Exploration Inc. does not assume any obligation to update or revise its forward-looking statements, whether as a result of new information, future events or otherwise.
-
- Contacts: H. Vance White, PresidentPhone: 416-214-2250Fax: 416-367-1954Email: info@noblemineralexploration.comInvestor Relations: ir@noblemineralexploration.com
-
- 
-
- 
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/noble-announces-a-downhole-electromagnetic-survey-is-planned-for-2-drill-holes-in-the-recent-timmins-area-diamond-drill-program-7085958)
+[Original/Source Press Release](https://www.newmediawire.com/news/nationwide-effort-targets-diagnosis-delays-care-gaps-for-a-life-threatening-heart-disease-7085963)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/noble-launches-high-tech-hunt-for-kidd-creek-style-minerals-in-ontario/747423b9fc3e8a7a5806a5beea022f9f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-launches-nationwide-attr-cm-care-initiative/e49b5a11301a064874f960b0f9121877) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-launches-national-initiative-to-impro/202629964)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/414566-american-heart-association-launches-national-initiative-to-improve-diagnosis-and-care-for-underrecognized-heart-condition)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339385-american-heart-association-startet-nationale-initiative-zur-verbesserung-der-diagnose-und-versorgung-bei-einer-haufig-ubersehenen-herzerkrankung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339896-la-asociacion-americana-del-corazon-lanza-una-iniciativa-nacional-para-mejorar-el-diagnostico-y-la-atencion-de-una-enfermedad-cardiaca-poco-reconocida)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340683-lamerican-heart-association-lance-une-initiative-nationale-pour-ameliorer-le-diagnostic-et-la-prise-en-charge-dune-maladie-cardiaque-sous-diagnostiquee)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339347-associacao-americana-do-coracao-lanca-iniciativa-nacional-para-melhorar-diagnostico-e-cuidados-de-condicao-cardiaca-subdiagnosticada)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/national-initiative-aims-to-improve-diagnosis-and-care-for-under/202629964)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-heart-association-launches-national-initiative-to-impro/202629964)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/414635-american-heart-association-launches-national-initiative-to-improve-attr-cm-diagnosis-and-care-coordination)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/yogaYvbi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/lossSobK.webp)
