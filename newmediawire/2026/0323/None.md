@@ -1,78 +1,68 @@
-# AEM and ASE Enter Strategic Partnership to Accelerate AI and HPC Test Innovation
+# Noble Announces a Downhole Electromagnetic Survey is Planned for 2 Drill Holes in the Recent Timmins Area Diamond Drill Program
 
-ASE Subsidiary to Subscribe for S$12 Million of New AEM Shares
+TORONTO, ON - March 23, 2026 (NEWMEDIAWIRE) - Noble Mineral Exploration Inc. (“Noble” or the “Company”) (TSX-V:NOB, FRANKFURT: NB7, OTCQB:NLPXF) has contracted Abitibi Geophysics to conduct a downhole Electromagnetics (BHEM) survey on 2 holes in the Carnegie Township area near Timmins Ontario. The BHEM program is part of a 50/50 partnership with Canada 11530313 Canada Inc. and will include surveying 2 holes that were recently drilled in follow up of a drill program done in 2019.
 
- SINGAPORE and TAIPEI - March 23, 2026 (NEWMEDIAWIRE) - AEM Holdings Ltd. (“AEM” or “the Group”), a global leader in test innovation, announced a strategic partnership with ASE Technology Holding Co., Ltd. (“ASE”), the leading provider of semiconductor assembly, testing and materials (“ATM”) services and the provider of electronic manufacturing (“EMS”) services. The collaboration brings together AEM’s proprietary test technologies with ASE’s world-class manufacturing scale to deliver disruptive test solutions tailored for the rapidly expanding Artificial Intelligence (“AI”) and High-Performance Computing (“HPC”) markets.
+ The BHEM survey utilizes a single-loop configuration, where a large square transmitter loop measuring approximately 500 metres by 500 metres is laid out on surface. This loop generates a controlled electromagnetic field that penetrates the subsurface.
 
- Aligned with the strategic partnership, AEM will raise approximately S$12 million in gross proceeds through a private placement of 3,350,000 million ordinary shares to a wholly owned subsidiary of ASE, representing 1.06% of AEM’s issued share capital as at 21 March 2026, at an issue price of S$3.591 per share. ASE, through said subsidiary, will also receive a total of 28,111,856 million free detachable warrants, divided equally into two exercisable tranches, with each tranche subject to certain ASE-attributable revenue-related conditions. Each warrant is exercisable into one ordinary share, with the Tranche 1 exercise price set at 103% of the volume weighted average price (“VWAP”) of AEM’s shares for the full market day on which the subscription agreement is signed, and the Tranche 2 exercise price set at 105% ofsuch VWAP. If fully exercised, the warrants would result in an additional 8.935% of the current issued share capital. The transaction remains subject to certain conditions, including the approval of the Singapore Exchange for the listing and quotation of the new shares.
+ A total of two drill holes (CG-25-01 and 02), are being surveyed. Sensitive probes will be lowered down each borehole to measure the response of the surrounding rocks to the electromagnetic field.
 
- Proceeds from the private placement will support AEM’s continued expansion in Taiwan and the joint integration of AEM’s test technologies, including highly parallel test architectures and advanced thermal management capabilities, into ASE’s manufacturing and test environments. The funds will also be used to advance AEM’s product roadmap, enhance its system offerings, and accelerate joint go to market initiatives aimed at supporting next generation AI and HPC applications.
+ This method is particularly effective at identifying off-hole conductive zones - potential mineralized bodies that may not have been intersected directly by drilling - thereby helping to refine future drill targets and improve exploration efficiency.
 
- The strategic partnership also supports ISE Labs, a wholly owned subsidiary of ASE, as it expands AI and HPC processor development capabilities to address early-stage testing, validation, and characterization requirements. These efforts focus on heterogeneous integration architectures, including multi-chiplet and advanced system-in-package designs as well as optical interconnect technologies critical to next-generation compute platforms. ASE’s ATM portfolio further strengthens these initiatives with high-volume advanced packaging and test capabilities, enabling production-scale deployment as global demand continues to accelerate.
+ In drill hole CG-25-01, a 6.5m section analyzed 0.64% zinc with associated, anomalous values in copper, silver, and lead from 141.0 to 147.5 meters down hole (true width not known at this time). A 1-meter section within the wider section was found to run 1.90% zinc. The anomalous mineralization was found to occur in a weakly laminated sulphide rich graphitic sediment. Conductive mineralization consisted of about 5% pyrrhotite, with local concentrations of up to 10-15%.
 
- Ken Hsiang, Chief Executive Officer of ISE Labs, stated: “As compute architectures grow more complex and time-to-production continues to compress, test has become a critical enabler of performance, reliability, and manufacturability for next-generation AI and HPC systems. By combining ISE’s advanced characterization and production-readiness capabilities with AEM’s scalable, high-parallel test technologies and system-level engineering strengths, this strategic partnership enables rapid transition from validation to ASE’s high-volume deployment while addressing the increasing complexity of advanced compute testing.”
+ Analyses on Drill hole CG-25-02 have confirmed the presence of a polymetallic mineralized system similar to and assumed to be the same mineralized section as the one described above. The results define a polymetallic mineralized system, highlighted by:
 
- Samer Kabbani, Chief Executive Officer of AEM, commented, “This partnership represents an important step in AEM’s strategy to work closely with industry leaders to advance the state of AI and HPC testing. ASE’s forward-looking approach and global scale make them an ideal partner as test requirements continue to intensify across advanced compute platforms. By combining our respective strengths, we aim to develop and deploy next-generation test solutions that help customers improve performance, scalability, and time-to-market.”
+ - Up to 37 ppb gold and 4.6 g/t silver over 0.9m
 
- About ASE Technology Holding Co., Ltd.
+ - >0.65% zinc over 2.7m (with a high of >1.0%) and 0.13% copper over 1.9m
 
- ASEH is the leading provider of semiconductor manufacturing services in assembly and test. The Company develops and offers complete turnkey solutions covering front-end engineering test, wafer probing and final test, as well as packaging, materials and electronic manufacturing services through USI with superior technologies, breakthrough innovations, and advanced development programs. With advanced technological capabilities and a global presence spanning Taiwan, China, South Korea, Japan, Singapore, Malaysia, Philippines, Vietnam, Mexico, and Tunisia as well as the United States and Europe, ASEH has established a reputation for reliable, high quality products and services. For more information, please visit our website at https://www.aseglobal.com.
+ - Elevated nickel (up to 212 ppm) and cobalt (up to 189 ppm)
 
- About AEM
+ - (true width not known at this time)
 
- AEM is a global leader in test innovation. We provide the most comprehensive semiconductor and electronics test solutions based on the best-in-class technologies, processes, and customer support. AEM has a global presence across Asia, Europe, and the United States. AEM's R&D centres are situated in Singapore, Malaysia, Finland, France, and the US. With manufacturing plants located in Singapore, Malaysia (Penang), Indonesia (Batam), Vietnam, Finland (Lieto), South Korea, and the United States and a global network of engineering support, sales offices, associates, and distributors, we offer our customers a robust and resilient ecosystem of test innovation and support.
+ The program is being carried out on lands recently transferred to Canada Nickel but on which Noble retains a 5-year Exploration Right for volcanogenic massive sulphide mineralization and precious metals.
 
- AEM Holdings Ltd. is listed on the main board of the Singapore Exchange (Reuters: AEM. SI; Bloomberg: AEM SP). AEM’s head office is in Singapore.
+ Vance White, President and CEO of Noble, said, “We are very pleased to get this program started with the support of our partners at 11530313 Canada Inc. The search for mineralization similar to the Kidd Creek Mine continues.”
 
- For more information please contact:
+ The technical content of this release has been reviewed and approved by Wayne Holmstead, P.Geo., an independent Qualified Person as defined by National Instrument 43-101 – Standards of Disclosure for Mineral Projects.
 
- Kamal SAMUEL / Rishika TIWARI / LIM En TongFinancial PR Pte LtdTel: 6438 2990 / Fax: 6438 0064E-mail: kamal@financialpr.com.sg / rishika@financialpr.com.sg / entong@financialpr.com.sg
+ About Noble Mineral Exploration Inc.
 
- Patricia MacLeodASE, Inc.Tel: +1 408 314 9740E-mail: patricia.macleod@aseus.com
+ Noble Mineral Exploration Inc. is a Canadian-based junior exploration company, which has holdings of securities in Canada Nickel Company Inc., Homeland Nickel Inc., East Timmins Nickel Inc. (20%), and its interest in the Holdsworth gold exploration property in the area of Wawa, Ontario.
 
- Safe Harbor Notice (ASE)
+ Noble holds mineral and/or exploration rights in approximately 70,000ha in Northern Ontario and approximately 24,000ha elsewhere in Quebec upon which it plans to generate option/joint venture exploration programs.
 
- This press release contains "forward-looking statements" within the meaning of Section 27A of the United States Securities Act of 1933, as amended, and Section 21E of the United States Securities Exchange Act of 1934, as amended. These statements are made under the “safe harbor” provisions of the U.S. Private Securities Litigation Reform Act of 1995. Although these forward-looking statements, which may include statements regarding our future results of operations, financial condition or business prospects, are based on our own information and information from other sources we believe to be reliable, you should not place undue reliance on these forward-looking statements, which apply only as of the date of this press release. The words “anticipate,” “believe,” “estimate,” “expect,” “intend,” “plan” and similar expressions, as they relate to us, are intended to identify these forward-looking statements in this press release. These forward-looking statements are necessarily estimates reflecting the best judgment of our senior management and our actual results of operations, financial condition or business prospects may differ materially from those expressed or implied by the forward-looking statements for reasons including, among others, risks associated with cyclicality and market conditions in the semiconductor or electronic industry; changes in our regulatory environment, including our ability to comply with new or stricter environmental regulations and to resolve environmental liabilities; demand for the outsourced semiconductor packaging, testing and electronic manufacturing services we offer and for such outsourced services generally; the highly competitive semiconductor or manufacturing industry we are involved in; our ability to introduce new technologies in order to remain competitive; international business activities; our business strategy; our future expansion plans and capital expenditures; the strained relationship between the Republic of China and the People’s Republic of China; general economic and political conditions; the recent shift in United States trade policies; possible disruptions in commercial activities caused by natural or human-induced disasters; fluctuations in foreign currency exchange rates; and other factors. The announced results of the full year of 2025 are preliminary and subject to audit adjustments. For a discussion of these risks and other factors, please see the documents we file from time to time with the Securities and Exchange Commission, including the 2024 Annual Report on Form 20-F filed on March 27, 2025.
+ Noble holds mineral rights and/or exploration rights in approximately 18,000 hectares in the Timmins-Cochrane areas of Northern Ontario known as Project 81, approximately 2,215 hectares in Thomas Twp/Timmins, as well as an additional 20% interest in approximately 38,700 hectares in the Timmins area held by East Timmins Nickel. Project 81 hosts diversified drill-ready gold, nickel-cobalt and base metal exploration targets at various stages of exploration. Noble also holds approximately 4,600 hectares in the Nagagami Carbonatite Complex and its approximately 3,200 hectares in the Boulder Project both near Hearst, Ontario. approximately 3,700 hectares in the Buckingham Graphite Property, approximately 10,152 hectares in the Havre St Pierre Nickel, Copper, PGM property, and approximately 1,573 hectares in the Cere-Villebon Nickel, Copper, PGM property, approximately 569 hectare Uranium/Rare Earth property (Chateau), approximately 461 hectare Uranium/Molybdenum property (Taser North), approximately 4,465 hectares REE Mehmet Property, and the approximately 3300 hectare Gull Lake REE Property, The approximately 1,232 hectare Opawica Scandium and REE Property all of which are in the Province of Quebec and the approximately 647 hectare Chapiteau REE property in Labrador.
 
- Disclaimer (AEM)
+ https://www.noblemineralexploration.com
 
- This is a press release of general information relating to the current activities of AEM Holdings Ltd. (“AEM”). It is given in summary form and does not purport to be complete. This press release may contain forward-looking statements which are subject to risks and uncertainties. Actual future performance, outcomes and results may differ materially from those expressed in these forward-looking statements as a result of a number of risks, uncertainties and assumptions. Representative examples of these factors include (without limitation) general industry and economic conditions, interest rate trends, cost of capital and capital availability, competition from other companies, shifts in customer demands, customers and partners, changes in operating expenses, governmental and public policy changes, and the continued availability of financing. Accordingly, such statements are not and should not be construed as a representation as to the future of AEM, and are not intended to be profit forecasts, estimations or projections of future performance and should not be regarded as such. No reliance should therefore be placed on these forward-looking statements, which are based on the current views of the management of AEM. The press release is also not to be relied upon as advice to investors or potential investors and does not take into account the investment objectives, financial situation or needs of any particular investor. AEM accepts no responsibility whatsoever with respect to the use of this document or any part thereof.
+ Noble’s common shares trade on the TSX Venture Exchange under the symbol “NOB.”
+
+ Cautionary Statement
+
+ Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release. No stock exchange, securities commission or other regulatory authority has approved or disapproved the information contained herein.
+
+ The foregoing information may contain forward-looking statements relating to the future performance of Noble Mineral Exploration Inc. Forward-looking statements, specifically those concerning future performance, are subject to certain risks and uncertainties, and actual results may differ materially from the Company’s plans and expectations. These plans, expectations, risks, and uncertainties are detailed herein and from time to time in the filings made by the Company with the TSX Venture Exchange and securities regulators. Noble Mineral Exploration Inc. does not assume any obligation to update or revise its forward-looking statements, whether as a result of new information, future events or otherwise.
+
+ Contacts: H. Vance White, PresidentPhone: 416-214-2250Fax: 416-367-1954Email: info@noblemineralexploration.comInvestor Relations: ir@noblemineralexploration.com
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aem-and-ase-enter-strategic-partnership-to-accelerate-ai-and-hpc-test-innovation-7085956)
+[Original/Source Press Release](https://www.newmediawire.com/news/noble-announces-a-downhole-electromagnetic-survey-is-planned-for-2-drill-holes-in-the-recent-timmins-area-diamond-drill-program-7085958)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ase-invests-s-12m-in-aem-to-forge-ai-hpc-test-powerhouse/89556c3183339733a71dc7a33db4b910) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/noble-launches-high-tech-hunt-for-kidd-creek-style-minerals-in-ontario/747423b9fc3e8a7a5806a5beea022f9f) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/aem-and-ase-form-strategic-partnership-to-advance-ai-and-hpc-tes/202629932)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/414293-aem-and-ase-form-strategic-partnership-to-advance-ai-and-hpc-test-solutions)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339353-aem-und-ase-schliessen-strategische-partnerschaft-zur-weiterentwicklung-von-ki-und-hpc-testlosungen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339863-aem-y-ase-forman-una-alianza-estrategica-para-impulsar-soluciones-de-prueba-de-ia-y-hpc)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340650-aem-et-ase-forment-un-partenariat-strategique-pour-faire-progresser-les-solutions-de-test-ia-et-hpc)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339314-aem-e-ase-formam-parceria-estrategica-para-avancar-solucoes-de-teste-em-ia-e-computacao-de-alto-desempenho)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/aem-and-ase-form-strategic-partnership-to-drive-ai-and-hpc-test/202629932)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/aem-and-ase-form-strategic-partnership-to-advance-ai-and-hpc-tes/202629932)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/414298-aem-and-ase-forge-strategic-partnership-to-accelerate-ai-and-hpc-test-innovation)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/414288-ase-subsidiary-to-invest-s12-million-in-aem-holdings-to-advance-ai-and-hpc-test-solutions)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/414299-aem-and-ase-form-strategic-partnership-to-advance-ai-and-hpc-testing-solutions)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/seek4zLP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/yogaYvbi.webp)
