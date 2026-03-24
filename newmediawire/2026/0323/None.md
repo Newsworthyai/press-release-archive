@@ -1,34 +1,58 @@
-# Soligenix (SNGX) Strengthens Rare Disease Pipeline Program Through UK Regulatory Innovation Designation
+# Viromed Medical AG Receives Funding Approval From the Federal Ministry of Research, Technology and Space for the Development of Cold Plasma Technology
 
-LOS ANGELES, CA - March 23, 2026 (NEWMEDIAWIRE) - Regulatory recognition from international health authorities can significantly shape the trajectory of emerging therapies worldwide, particularly in rare disease development where clinical pathways are often complex and resource intensive. Soligenix (NASDAQ: SNGX), a late-stage biopharmaceutical company focused on developing and commercializing treatments for rare diseases and unmet medical needs, recently received such recognition as its investigational therapy SGX945 was granted Promising Innovative Medicine (“PIM”) designation by the United Kingdom’s (“UK’s”) Medicines and Healthcare products Regulatory Agency (“MHRA”).
+RELLINGEN, GERMANY - March 23, 2026 (NEWMEDIAWIRE) - Viromed Medical AG (“Viromed“; ISIN: DE000A40ZVN7), a medical technology company and pioneer in cold plasma technology, has received funding approval from the Federal Ministry of Research, Technology and Space for research and development projects in the field of cold plasma technology. The certification was granted under the Research Allowance Act (FZulG) and comprises funding in the high six-figure euro range.
 
- * Designations granted by leading global regulatory agencies play a critical role in advancing drug-development programs.
-* The UK Medicines and Healthcare Products Regulatory Agency granted Promising Innovative Medicine designation to Soligenix’s SGX945 (dusquetide) for the treatment of Behçet’s disease.
-* The recent designation in the United Kingdom builds on other regulatory recognitions previously granted to dusquetide.
+ The funding focuses, among other things, on the further development of innovative medical systems for the application of cold atmospheric plasma, including a stationary system for integration into ventilation processes (PulmoPlas®). The aim is to selectively inactivate pathogenic germs in the lower respiratory tract and thereby enable new therapeutic approaches, particularly in intensive care medicine. In addition, the development of a mobile device for contact-free plasma application to support wound healing (ViroCap®) is being funded. Both projects address key medical challenges and expand the current state of the art.
 
- Designations granted by leading regulatory agencies play a critical role in advancing drug-development programs. These recognitions often signal that a therapy shows potential to address serious conditions where few treatment options exist. According to the UK MHRA, the PIM designation is awarded to…
+ The funding underscores Viromed’s strong innovative capabilities and confirms the scientific and technological relevance of its solutions. In particular, the application of cold plasma in the lungs represents a novel approach for which no comparable systems currently exist. With this funding, Viromed is consistently advancing the development of PulmoPlas® and ViroCap® and strengthening its position in the field of non-pharmacological treatment of infectious diseases.
 
- Read More
+ About Viromed Medical AG
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Viromed Medical AG specializes in the development, manufacture and distribution of medical products. The operating business of the company, which has been listed on the stock exchange since October 2022, focuses on the distribution of innovative cold plasma technology for medical applications via its wholly owned subsidiary Viromed Medical GmbH. Viromed can draw on a broad customer base in the DACH region and beyond. Viromed is pursuing the goal of further advancing the use of cold plasma technology in medicine in the coming years and realizing the corresponding growth potential.
 
- The latest news and updates relating to SNGX are available in the company’s newsroom at https://ibn.fm/SNGX
+ www.viromed-medical-ag.de
 
- Forward Looking Statements
+ Contact ViromedE-Mail: kontakt@viromed-medical.de
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Press contactE-Mail: viromed@kirchhoff.de
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/soligenix-sngx-strengthens-rare-disease-pipeline-program-through-uk-regulatory-innovation-designation-7085969)
+[Original/Source Press Release](https://www.newmediawire.com/news/viromed-medical-ag-receives-funding-approval-from-the-federal-ministry-of-research-technology-and-space-for-the-development-of-cold-plasma-technology-7085972)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-s-behcet-s-disease-therapy-wins-uk-regulatory-innovation-designation/05d8ba2cc713e98d7050d36fa9ecc6b1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/viromed-secures-major-funding-for-revolutionary-cold-plasma-medical-tech/ab10343d2ac2fdcd1d0ba7085fc65e68) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/viromed-medical-ag-secures-federal-funding-for-cold-plasma-medic/202630000)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/415048-viromed-medical-ag-secures-federal-funding-for-cold-plasma-medical-technology-development)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339420-viromed-medical-ag-erhalt-bundesforderung-fur-entwicklung-von-kaltplasma-medizintechnik)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339935-viromed-medical-ag-obtiene-financiacion-federal-para-el-desarrollo-de-tecnologia-medica-de-plasma-frio)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340721-viromed-medical-ag-obtient-un-financement-federal-pour-le-developpement-de-sa-technologie-medicale-a-plasma-froid)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339384-viromed-medical-ag-garante-financiamento-federal-para-desenvolvimento-de-tecnologia-medica-de-plasma-frio)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/viromed-medical-ag-secures-federal-funding-for-cold-plasma-medic/202630000)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/viromed-medical-ag-secures-federal-funding-for-cold-plasma-techn/202630000)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415063-viromed-medical-ag-secures-federal-funding-for-cold-plasma-medical-technology-development)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/415070-viromed-medical-ag-secures-german-federal-funding-for-cold-plasma-medical-technology-development)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/bestvvMR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/23/cakeWxoX.webp)
