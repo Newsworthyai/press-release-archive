@@ -1,90 +1,112 @@
-# Catalyst Crew Technologies Establishes Operating Presence in Venezuela to Support Digital Health and AI Initiatives
+# Andina Copper Extension Drilling Intersects Wide Interval of Mineralization
 
-CARACAS, VENEZUELA - March 23, 2026 (NEWMEDIAWIRE) - Catalyst Crew Technologies Corp. (OTC: CCTC) (the “Company”), a digital health and artificial intelligence technology company developing telehealth infrastructure and healthcare analytics platforms for emerging markets, today announced that it has established an operating presence in Venezuela as part of its broader strategy to expand its healthcare technology initiatives in Latin America.
+VANCOUVER, BC - March 24, 2026 (NEWMEDIAWIRE) - Andina Copper Corporation (TSX-V: ANDC | FSE: FIR | OTCQB: PMMCF) is pleased to report an outstanding drill intercept from hole CDH005, the third hole completed by the Company at its Cobrasco Project in Choco, Colombia.
 
- The Company has formed a wholly owned operating subsidiary in Venezuela to support local operations, infrastructure development, and the planned deployment of its digital health and artificial intelligence platforms.
+ Following the high-grade Cu-Mo intersections reported in recent drillholes (CDH003 and CDH004 – refer 16 February 2026 News Release), CDH005 was designed to test the southern extensions of the Cobrasco system to a depth of 700m, in a large step-out over an area of limited geological data and no prior drilling.
 
- The establishment of a local operating entity is intended to facilitate the Company’s ability to evaluate market opportunities, develop strategic partnerships, and support the implementation of its healthcare technology solutions, including telehealth services, remote patient monitoring, and artificial intelligence-enabled healthcare analytics platforms.
+ HIGHLIGHTS:
 
- Management believes that establishing an operating presence in Venezuela represents an important step in the Company’s regional strategy, providing a foundation for potential pilot programs, service deployment, and collaboration with healthcare providers and organizations within the country.
+ * CDH005 confirms large-scale southerly extension of Cu-Mo-Ag mineralization: Click here for details
+* Large multi-phase porphyry Cu-Mo system demonstrated, with newly observed intermediate intrusive phases consistently mineralized over broad intervals.
+* Step-out drillholes CDH006 and CDH007 completed (assays pending).
+* New drillhole CDH008 underway and targeting northern extension of mineralization.
+* Systematic drilling of emerging large-scale porphyry system at Cobrasco ongoing, with Cu-Mo mineralization defined over a mostly near-surface (upper 650m) zone within a 2500m x 1000m target area. Drilling thus far has tested an area of approximately 1000m x 750m, less than half the potential footprint.
 
- The Company’s artificial intelligence healthcare platform, including modular systems such as CardioAI, PulmoAI, and NeuroAI, is intended to be integrated into its broader healthcare services infrastructure as development progresses.
+ Andina Copper’s President and CEO Joseph van den Elsen commented:
 
- Catalyst Crew Technologies intends to prioritize market development in Latin America, where the Company believes technology-enabled healthcare solutions may help expand access to medical services, improve diagnostic capabilities, and support more efficient healthcare delivery.
+ “Ongoing drilling at Cobrasco continues to demonstrate the large-scale and relatively shallow nature of Cobrasco Central, with results from hole CDH005 significantly extending the mineralized envelope to the south. With broad spaced holes having tested less than half the target area to-date, we see the potential for a globally significant copper deposit(s) at Cobrasco. To accelerate exploration and evaluation, a second drill will be mobilized to systematically explore and define the lateral extents of the Cu-Mo system and to add volume to the higher-grade copper shells intersected in drilling to date”.
 
- Dr. Kevin Rodan Levy, Chief Executive Officer of Catalyst Crew Technologies Corp., stated: “Establishing a local operating presence is an important step in executing our regional strategy. We believe that combining artificial intelligence-driven healthcare technologies with localized healthcare infrastructure can support more accessible and efficient delivery of medical services.”
+ Figure 1: Cobrasco Project Collar Plan and Prospect Location
 
- The Company intends to continue evaluating opportunities to expand its presence in Latin America while advancing its digital health and artificial intelligence platform initiatives.
+ Geology and Mineralization - Drillhole CDH005
 
- For more information, please visit https://catalystcrewai.com or review the Company’s filings with the U.S. Securities and Exchange Commission at www.sec.gov.
+ Following on from drillhole CDH004, which returned long intercepts of high-grade copper-molybdenum mineralization (refer Table 1: Cobrasco Project - Significant Drill Intercepts), hole CDH005 was collared from the same platform as holes CDH002, CDH003 and CDH004 and oriented due south (Az: 180°, Dip: -50°) to test for the southern extensions of the Cobrasco mineralization. The hole tested approximately 600 m of lateral extent and 700m of vertical extent and was terminated at a downhole depth of 934 m.
 
- About Catalyst Crew Technologies Corp.
+ Unlike earlier holes which intersected a multi-phase quartz-rich rhyolitic to dacitic subvolcanic dome complex (felsic lithologies), hole CDH005 is characterized by mineralized diorite to dacite-andesite porphyries (intermediate lithologies), generally manifesting as magnetic intrusive sequences at surface transitioning to a magnetic low “embayment” at depth. The intermediate dacite-andesite units are intruded by several narrow quartz-rich felsic rhyolite subvolcanic intrusions which are interpreted to intrude (or inter-finger) the earlier intermediate porphyry phase.
 
- Catalyst Crew Technologies Corp. is an artificial intelligence-driven healthcare technology company focused on developing scalable digital health solutions for emerging markets, with an initial emphasis on Latin America. The Company is actively executing its strategic transition into AI-enabled healthcare and pursuing opportunities across telehealth infrastructure, remote patient monitoring, healthcare data analytics, and integrated digital care platforms designed to improve access, efficiency, and care coordination.
+ Figure 2: Oblique 3D view of drillholes at the Cobrasco Project
 
- Through technology development initiatives, strategic partnerships, and targeted acquisitions, CCTC is building an integrated healthcare technology platform positioned to address the growing demand for modernized healthcare delivery systems across emerging markets.
+ Hole CDH005 was collared within dark-colored diorite porphyry units (as previously described for CDH004) and remained within this phase to approximately 170 m downhole before intersecting fine-grained dacite–andesite units. These subvolcanic porphyries exhibit visually significant chalcopyrite-dominant sulphide mineralization, accompanied by weak to moderate sericite alteration overprinting earlier potassic assemblages.
 
- Forward-Looking Statements
+ The dacite–andesite units are intruded by thin apophyses of intermineral rhyolite porphyry and extend to approximately 630 m downhole, where the hole intersected a younger and lower-grade intermineral rhyolite porphyry that continues to end of hole at 934 m. The lower sections of CDH005 display epidote–chlorite alteration consistent with a propylitic assemblage, interpreted to represent the outer or lower zones of the Cobrasco hydrothermal system. The mineralization remains open to the south.
 
- This press release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934. Forward-looking statements include, but are not limited to, statements regarding the Company’s business strategy, leadership initiatives, strategic transactions, operational execution, regulatory matters, and future operations.
+ Drillhole CDH005 also differs from previous south-west trending drillholes (CDH001 and CDH004) with no phreatomagmatic breccias observed at depth. These breccias, characterized by poorly sorted polymictic clast assemblages and a tuffaceous matrix with juvenile crystal fragments have thus far exhibited very low-grade assays, and have defined the SW limits to the Cobrasco Central mineralization system.
 
- Forward-looking statements are based on current expectations and assumptions that involve risks and uncertainties. Actual results may differ materially from those expressed or implied due to various factors, including but not limited to the Company’s ability to successfully implement its business plan, secure financing, complete acquisitions, comply with regulatory requirements, and general market and economic conditions.
+ The continuity of intrusive phases, alteration styles and sulphide mineralization throughout the drillhole is supported by wide intercepts of moderate to high grade copper mineralization interpreted to be predominantly associated with the waning stages of potassic alteration transitioning into early sericitic alteration. Assay results support the interpretation of a large and long-lived mineralizing system extending south of the currently defined Cobrasco footprint.
 
- The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
+ Figure 3: Hole CDH005 Selection of Downhole Mineralization & Alteration Examples
 
- Disclaimer
+ The large, strongly coincident copper-molybdenum surface geochemical anomaly currently being tested by drilling extends approximately 2.5 km north–south and 900 m east–west. This soil anomaly is supported by limited rock chip geochemistry, geological mapping, and geophysical data collected to date. A systematic environmental baseline program has commenced across the project area and will be followed by detailed geological mapping and further surface sampling to support ongoing drill targeting.
 
- This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company.
+ The Company’s Corporate Presentation is available at: Andina Copper Corporate Presentation
 
- The Company is a development-stage enterprise and has not generated revenues from its newly announced business direction. There can be no assurance that the Company will successfully implement its business plan, complete acquisitions, secure financing, obtain regulatory approvals, or generate revenues.
+ Interested parties can subscribe to our mailing list and follow our social media channels in the links below:
 
- Any investment decision should be made solely on the basis of information contained in the Company’s filings with the U.S. Securities and Exchange Commission and other publicly available documents. The Company’s securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company’s SEC filings before making any investment decision.
+ Mailing List | Andina Copper LinkedIn | Andina Copper X | Andina Copper Instagram
 
- No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
+ ON BEHALF OF THE BOARD
 
- Investor Relations Contact+1 (787) 476-2350ir@catalystcrew.ai
+ Joseph van den ElsenPresident & Chief Executive Officerjoseph@andinacopper.com
 
- 
+ Jordan WebsterVP – Technical Communicationsjordan@andinacopper.com
 
- 
+ QUALIFIED PERSON
 
- 
+ Francisco Montes, a consultant of Andina Copper Corp and a “qualified person” (“QP”) within the definition of that term in National Instrument 43-101, Standards of Disclosure for Mineral Projects, has verified the scientific and technical information that forms the basis for this news release. Francisco Montes is a member of Australian Institute of Geoscientists (MAIG #4160).
 
-View the original release on www.newmediawire.com 
+ QAQC
+
+ CDH005 was collared with a HQ size drill string on surface and completed with NQ over the interval 697.15 to 934 m. In all cases the drill core was extracted from the core barrel by the drill contractor under the supervision of Andina Copper personnel and placed in core boxes with appropriate depth markers and padding added for extra protection during transport. Full core boxes were then sealed before being transported by helicopter and pickup truck to the Cobrasco core cutting facility in Quibdo. Core was cleaned where required, marked-up and photographed, prior to undergoing geotechnical and geological logging. All core was cut by diamond saw by Andina Copper technicians, other than the top saprolite intervals that could be cut and sampled by hand tools. All sampling was conducted in nominal 2 m intervals with cut-lines marked by the supervising geologists to ensure representative sampling. Samples were placed in plastic bags with non-repeatable sample tags and bagged in polyweave sacks ready for transport.
+
+ The core trays with the remaining half-core are stored at the Andina Copper facility in Quibdo for ongoing geotechnical (Terraspec spectral analysis, magnetic susceptibility readings, rock density measurements) and follow-up detailed geological logging. From Quibdo core samples were sent to the ALS preparation facility in Medellin, an accredited laboratory which is independent of the Company. Prepared sample pulps were then sent to the ALS laboratory in Lima, Peru for gold (Au-AA23), multi-elements (ME-MS61), and “overlimits” analysis (ME-OG62 including copper Cu-OG62). Coarse and fine rejects are returned by ALS Medellin for storage at the Andina Copper storage facility.
+
+ Note: Mineralized intercepts reported for CDH005 have applied a 0.2% Cu cut-off and maximum dilution of 10m.
+
+ Table 1: Cobrasco Project – Significant Drill Intercepts
+
+ Table 2: Cobrasco Project – Drill Collar Parameters (WGS84, UTM Zone 18N)
+
+ ABOUT ANDINA COPPER
+
+ Andina Copper Corporation is a unique South America- focused copper explorer listed on the TSX Venture Exchange (TSXV:ANDC), Frankfurt (FSE: FIR), and OTC (OTCQB: PMMCF) exchanges. The Company holds two significant discoveries along the world’s premier copper producing Andean porphyry belt in Argentina and Colombia, and a compelling undrilled copper-gold target in the prolific copper production district of the Coastal Cordillera of Chile.
+
+ FORWARD-LOOKING STATEMENT
+
+ This news release contains certain statements that may be deemed "forward-looking statements". All statements in this release, other than statements of historical fact, that address events or developments that Andina Copper expects to occur, are forward-looking statements. Forward-looking statements are statements that are not historical facts and are generally, but not always, identified by the words "expects" and similar expressions, or that events or conditions "will" or "may" occur. These statements are subject to various risks. Although Andina Copper believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are not guaranteeing of future performance, and actual results may differ materially from those in forward-looking statements.
+
+ Neither the TSXV nor the Canadian Investment Regulatory Organization accepts responsibility for the adequacy or accuracy of this release. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/catalyst-crew-technologies-establishes-operating-presence-in-venezuela-to-support-digital-health-and-ai-initiatives-7085977)
+[Original/Source Press Release](https://www.newmediawire.com/news/andina-copper-extension-drilling-intersects-wide-interval-of-mineralization-7085978)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-crew-expands-ai-healthcare-into-venezuela/a6fe32df7f6ff0728dafc3078e4daa1c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/andina-copper-s-cobrasco-drill-reveals-major-copper-molybdenum-extension/f2ea07a54b4adf05a93b9caf09f8e54a) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/catalyst-crew-technologies-expands-to-venezuela-with-digital-hea/202630003)
+Pickup - [https://advos.io/en](https://advos.io/en/andina-coppers-cobrasco-drilling-extends-mineralization-southwar/202630007)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/415084-catalyst-crew-technologies-establishes-operating-presence-in-venezuela-to-support-digital-health-and-ai-initiatives)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/415112-andina-copper-discovers-southern-extension-of-mineralization-at-cobrasco-project)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339423-catalyst-crew-technologies-eroffnet-betriebsstandort-in-venezuela-zur-unterstutzung-von-digital-health-und-ki-initiativen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339427-andina-copper-entdeckt-sudliche-ausdehnung-der-mineralisierung-im-cobrasco-projekt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339941-catalyst-crew-technologies-establece-presencia-operativa-en-venezuela-para-apoyar-iniciativas-de-salud-digital-e-inteligencia-artificial)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339945-andina-copper-descubre-extension-sur-de-mineralizacion-en-proyecto-cobrasco)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340724-catalyst-crew-technologies-etablit-une-presence-operationnelle-au-venezuela-pour-soutenir-les-initiatives-de-sante-numerique-et-dia)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340728-andina-copper-decouvre-une-extension-meridionale-de-la-mineralisation-sur-le-projet-cobrasco)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339388-catalyst-crew-technologies-estabelece-presenca-operacional-na-venezuela-para-apoiar-iniciativas-de-saude-digital-e-ia)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/andina-coppers-extension-drilling-confirms-large-scale-mineraliz/202630007)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/catalyst-crew-technologies-expands-to-venezuela-with-digital-hea/202630003)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/andina-coppers-extension-drilling-reveals-significant-southern-m/202630007)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/catalyst-crew-technologies-expands-into-venezuela-to-advance-dig/202630003)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415133-andina-coppers-cobrasco-project-drilling-reveals-significant-southern-extension-of-mineralization)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415089-catalyst-crew-technologies-expands-latin-american-presence-with-venezuela-operations-for-ai-healthcare-initiatives)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339392-andina-copper-descobre-extensao-sul-da-mineralizacao-no-projeto-cobrasco)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/415090-catalyst-crew-technologies-establishes-operating-presence-in-venezuela-to-expand-digital-health-initiatives)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/415094-catalyst-crew-technologies-expands-into-venezuela-to-deploy-ai-healthcare-platforms)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/415138-andina-copper-confirms-large-scale-southern-extension-at-cobrasco-project)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/leangUXx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/leanKXtV.webp)
