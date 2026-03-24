@@ -1,58 +1,38 @@
-# Pride Holdings Group Management Acquires Over 1.3 Million Shares, Reinforcing Confidence in Company's Valuation and Future Growth
+# Kairos Gold Announces Public Listing On The TSXV
 
-ORLANDO, FL - March 24, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE) today announced that its management team, led by the Chief Executive Officer, has collectively acquired over 1.3 million shares of the Company’s common stock through open market purchases.
+CALGARY, ALBERTA - March 24, 2026 (NEWMEDIAWIRE) - Kairos Gold Inc. (“Kairos” or the “Company”) is thrilled to announce that it has been approved for listing on the TSX Venture Exchange (the “TSXV”) and will commence trading under the ticker symbol “KIRO” at the opening of the market on March 26, 2026.
 
- This significant insider buying activity reflects strong internal conviction that the Company’s current stock price does not accurately represent its underlying value, growth trajectory, or strategic positioning.
+ The public listing of Kairos Gold Inc. on TSXV follows the completion of a previously announced private placement financing (see February 9, 2026, Press Release) and reflects the Company’s transition to a public issuer.
 
- “Our continued investment in Pride Holdings Group underscores a clear belief: the market is materially undervaluing the business we are building,” said Mike Barrett, CEO of Pride Holdings Group. “We see substantial upside based on our current initiatives, asset base, and acquisition pipeline. As a result, I intend to continue acquiring shares as we execute on our long-term vision.”
+ Michelle DeCecco, Chief Executive Officer of Kairos Gold, commented: “The completion of our TSXV listing positions Kairos to enter the public markets supported by compelling gold fundamentals and strong investor demand for high-quality, well-positioned exploration companies. Our Chilean portfolio is located within established metallogenic belts and underpinned by a robust geological framework, providing a solid foundation for systematic exploration. As a public company, we are focused on delivering consistent technical progress and executing on a clear path to fully realize the potential of our assets to generate long-term shareholder value. We would like to sincerely thank our shareholders and the TSX Venture Exchange for their continued support and patience throughout this process.”
 
- The recent purchases align management’s interests even more closely with shareholders and signal confidence in the Company’s ongoing restructuring efforts, capital strategy, and expansion plans. Leadership remains focused on enhancing shareholder value through disciplined growth, strategic acquisitions, and operational execution.
+ Upon listing, the Company will have 39,212,767 common shares (CUSIP 48301P1099 / ISIN CA48301P1099) issued and outstanding, with an additional 12,912,350 common shares reserved for issuance pursuant to outstanding stock options and warrants. Further details regarding Kairos are available in the Company’s Listing Application dated March 23, 2026, which is accessible under the Company’s profile on www.sedarplus.ca.
 
- Management emphasized that this level of insider participation is not a one-time event but part of a broader commitment to long-term value creation. Additional acquisitions of stock by leadership are expected as the Company advances key milestones and unlocks new opportunities.
+ ABOUT KAIROS GOLD
 
- About Pride Holdings Group
+ Kairos Gold is focused on advancing a portfolio of mineral exploration properties, spanning 22,433 hectares across five projects in Chile, positioned within the prolific Chilean mega porphyry belt that is known for its rich deposits of gold, silver, and copper. Kairos Gold is advancing its exploration strategy with a focus on near-term drill targets and long-term resource growth.
 
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
+ FURTHER INFORMATION
 
- Forward-Looking Statements
+ To find out more about Kairos Gold, please contact Michelle DeCecco, CEO via email: michelle@kairosgold.ca, by phone: +1 403-393-1990 or Jana Lillies, CFO via email: jana@kairosgold.ca. Additional information about Kairos Gold may be found under the Company’s profile on SEDAR+ at www.sedarplus.ca
 
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- Media Relationspress@prideholdingsgroup.com 
+ Forward Looking Statements: This press release contains certain statements that may be considered “forward-looking statements” or “forward-looking information” within the meaning of applicable Canadian securities laws. Forward-looking statements are frequently, but not always, identified by words such as “anticipate”, “believe”, “expect”, “plan”, “intend”, “may”, “will”, “could”, “should” and similar expressions. These statements are based on management’s current expectations and assumptions, and are subject to known and unknown risks, uncertainties and other factors that may cause actual results, performance or achievements to differ materially from those expressed or implied by such forward-looking statements. Forward-looking statements in this press release include, but are not limited to, statements regarding: the anticipated commencement of trading of the Company’s common shares on the TSXV under the symbol “KIRO” on the anticipated date; the Company’s exploration strategy and plans in Chile, including the advancement of exploration projects and identification and testing of drill targets; and the Company’s ability and intention to allocate capital toward exploration activities, including follow-up drilling at the Company’s Las Garillas and/or Carmona gold projects. Forward-looking statements are not guarantees of future performance and involve risks and uncertainties. Factors that could cause actual results to differ materially include, among others, the risk that the TSXV listing or commencement of trading is delayed or does not occur as anticipated, and risks inherent in mineral exploration and development, commodity price fluctuations, regulatory and permitting matters, financing and capital market conditions, operational and technical risks, and general economic conditions. Readers are cautioned not to place undue reliance on forward-looking statements. Forward-looking information is provided as of the date of this press release and, except as required by applicable securities laws, Kairos Gold undertakes no obligation to update or revise such information to reflect new information, future events or otherwise.
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-management-acquires-over-1-3-million-shares-reinforcing-confidence-in-company-s-valuation-and-future-growth-7085980)
+[Original/Source Press Release](https://www.newmediawire.com/news/kairos-gold-announces-public-listing-on-the-tsxv-7085988)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-execs-buy-1-3m-shares-signal-undervalued-stock/f2430afd8e369b95a25015db5d9f1e74) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-gold-secures-tsxv-listing-set-to-trade-as-kiro/deb2dca6b1f5cc7095f2c46aa90f6f3f) 
 
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pride-holdings-group-management-acquires-over-13-million-shares/202630011)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pride-holdings-group-management-acquires-over-13-million-shares/202630011)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415183-pride-holdings-group-management-acquires-over-13-million-shares-signaling-confidence-in-undervalued-business)
-
-Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-management-acquires-over-13-million-shares/202630011)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/415195-pride-holdings-group-management-acquires-over-13-million-shares-signaling-strong-internal-confidence)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339431-fuhrungskrafte-der-pride-holdings-group-erwerben-uber-13-millionen-aktien-und-signalisieren-starkes-internes-vertrauen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339950-la-direccion-de-pride-holdings-group-adquiere-mas-de-13-millones-de-acciones-senalando-una-fuerte-confianza-interna)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340732-la-direction-de-pride-holdings-group-acquiert-plus-de-13-million-dactions-temoignant-dune-forte-confiance-interne)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339396-gestao-do-pride-holdings-group-adquire-mais-de-13-milhao-de-acoes-sinalizando-forte-confianca-interna)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/415214-pride-holdings-group-management-acquires-over-13-million-shares-signaling-strong-internal-confidence)
-
-Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202603/415219-pride-holdings-group-management-acquires-over-13-million-shares-signaling-strong-internal-confidence)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/joltirJi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/urgezOEG.webp)
