@@ -1,38 +1,76 @@
-# Kairos Gold Announces Public Listing On The TSXV
+# 45Drives Announces Strategic Partnership With Lime Technology to Integrate Unraid OS Into Its 45HomeLab Division Platform
 
-CALGARY, ALBERTA - March 24, 2026 (NEWMEDIAWIRE) - Kairos Gold Inc. (“Kairos” or the “Company”) is thrilled to announce that it has been approved for listing on the TSX Venture Exchange (the “TSXV”) and will commence trading under the ticker symbol “KIRO” at the opening of the market on March 26, 2026.
+The Integration Expands Operating System Support While Reinforcing Long-term Ownership, Flexibility, and Builder-driven Infrastructure
 
- The public listing of Kairos Gold Inc. on TSXV follows the completion of a previously announced private placement financing (see February 9, 2026, Press Release) and reflects the Company’s transition to a public issuer.
+ SYDNEY, NOVA SCOTIA and SAN DIEGO, CA - March 24, 2026 (NEWMEDIAWIRE) - 45Drives, leaders in big, strong, fast open source storage solutions from homelab to enterprise, today announced a strategic partnership with Lime Technology, Inc., the makers of Unraid OS. Through this partnership, 45Drives and Lime Technology will soon introduce the 45HomeLab >< Unraid Signature Series, a new line of servers purpose-built for self-hosters and homelab enthusiasts, launching in Spring 2026. These systems are jointly engineered by the 45HomeLab and Lime Technology teams, with hardware components carefully selected, built, validated, and tested to ensure tight integration with Unraid OS. An Unraid Lifetime license will come pre-installed on all systems, directly from 45HomeLab manufacturing facilities located in the United States and Canada.
 
- Michelle DeCecco, Chief Executive Officer of Kairos Gold, commented: “The completion of our TSXV listing positions Kairos to enter the public markets supported by compelling gold fundamentals and strong investor demand for high-quality, well-positioned exploration companies. Our Chilean portfolio is located within established metallogenic belts and underpinned by a robust geological framework, providing a solid foundation for systematic exploration. As a public company, we are focused on delivering consistent technical progress and executing on a clear path to fully realize the potential of our assets to generate long-term shareholder value. We would like to sincerely thank our shareholders and the TSX Venture Exchange for their continued support and patience throughout this process.”
+ The partnership brings together two visionary companies with more than two decades of experience designing infrastructure that prioritizes durability, flexibility, and user control. Both organizations share a belief that storage and compute platforms should remain open and adaptable over time, supporting growth and change without vendor lock-in.
 
- Upon listing, the Company will have 39,212,767 common shares (CUSIP 48301P1099 / ISIN CA48301P1099) issued and outstanding, with an additional 12,912,350 common shares reserved for issuance pursuant to outstanding stock options and warrants. Further details regarding Kairos are available in the Company’s Listing Application dated March 23, 2026, which is accessible under the Company’s profile on www.sedarplus.ca.
+ “This strategic partnership reflects how we think about infrastructure across all 45Drives divisions,” said Dr. Doug Milburn, President of 45Drives. “We design systems to be owned, expanded, and adapted over many years. The open-source Linux based foundation of Unraid OS aligns closely with that philosophy. We have followed and respected the work of Lime Technology, Inc. for many years, and our teams share a deep appreciation for the community they have built. Tightly integrating it into 45Drives platforms gives customers a trusted, validated path to build and grow their systems without sacrificing control or long-term flexibility.”
 
- ABOUT KAIROS GOLD
+ “Unraid was created to give people long-term freedom over their hardware and their data,” said Tiffany Jones, CEO of Lime Technology. “That philosophy aligns closely with how 45Drives approaches infrastructure. Together, we’re giving builders and professionals a validated platform that can evolve with their needs instead of being replaced as requirements change.”
 
- Kairos Gold is focused on advancing a portfolio of mineral exploration properties, spanning 22,433 hectares across five projects in Chile, positioned within the prolific Chilean mega porphyry belt that is known for its rich deposits of gold, silver, and copper. Kairos Gold is advancing its exploration strategy with a focus on near-term drill targets and long-term resource growth.
+ Phase One: Launching the Partnership Through 45HomeLab
 
- FURTHER INFORMATION
+ The 45HomeLab >< Unraid Signature Series of server platforms marks the first stage of the strategic partnership between 45Drives and Lime Technology, Inc., establishing a validated and fully supported hardware foundation for Unraid users.
 
- To find out more about Kairos Gold, please contact Michelle DeCecco, CEO via email: michelle@kairosgold.ca, by phone: +1 403-393-1990 or Jana Lillies, CFO via email: jana@kairosgold.ca. Additional information about Kairos Gold may be found under the Company’s profile on SEDAR+ at www.sedarplus.ca
+ 45HomeLab delivers premium, North American–manufactured homelab systems built on the enterprise heritage of 45Drives’ Enterprise division. These systems carry forward the same architectural philosophy, direct-wired design, and long-term serviceability standards used in enterprise deployments, tailored for advanced home users and technical enthusiasts.
 
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ Both 45HomeLab and Unraid have built a strong and highly engaged community within the homelab space and have established themselves as respected brands among technical users.
 
- Forward Looking Statements: This press release contains certain statements that may be considered “forward-looking statements” or “forward-looking information” within the meaning of applicable Canadian securities laws. Forward-looking statements are frequently, but not always, identified by words such as “anticipate”, “believe”, “expect”, “plan”, “intend”, “may”, “will”, “could”, “should” and similar expressions. These statements are based on management’s current expectations and assumptions, and are subject to known and unknown risks, uncertainties and other factors that may cause actual results, performance or achievements to differ materially from those expressed or implied by such forward-looking statements. Forward-looking statements in this press release include, but are not limited to, statements regarding: the anticipated commencement of trading of the Company’s common shares on the TSXV under the symbol “KIRO” on the anticipated date; the Company’s exploration strategy and plans in Chile, including the advancement of exploration projects and identification and testing of drill targets; and the Company’s ability and intention to allocate capital toward exploration activities, including follow-up drilling at the Company’s Las Garillas and/or Carmona gold projects. Forward-looking statements are not guarantees of future performance and involve risks and uncertainties. Factors that could cause actual results to differ materially include, among others, the risk that the TSXV listing or commencement of trading is delayed or does not occur as anticipated, and risks inherent in mineral exploration and development, commodity price fluctuations, regulatory and permitting matters, financing and capital market conditions, operational and technical risks, and general economic conditions. Readers are cautioned not to place undue reliance on forward-looking statements. Forward-looking information is provided as of the date of this press release and, except as required by applicable securities laws, Kairos Gold undertakes no obligation to update or revise such information to reflect new information, future events or otherwise.
+ By starting with 45HomeLab, both organizations are aligning with a highly engaged technical community that values performance, flexibility, and ownership. This initial phase allows the companies to deliver tightly integrated, validated systems while gathering real-world feedback that will inform future expansion into professional and creative markets.
+
+ Shared Values and Builder Culture
+
+ Both 45Drives and Lime Technology are rooted in builder culture, serving hands-on users who value performance, transparency, and control. Drive expansion, new workloads, and changing use cases are expected - not treated as edge cases. Hardware designed to last pairs naturally with software built to evolve on the same system for years.
+
+ Unraid OS was created in 2005 to solve real-world storage challenges and has grown into one of the most flexible and approachable NAS operating systems available. Developed by Lime Technology, Inc., a family-owned and operated company headquartered in San Diego, Unraid enables users to combine storage devices of varying sizes and types while maintaining full control over data, applications, and virtualized workloads.
+
+ Discover more about the partnership and be the first to know when pre-orders go live by signing up here: https://unraid.net/blog/45homelabxunraid
+
+ About 45Drives45Drives designs and manufactures open, high-performance storage and server solutions for builders, businesses, and institutions worldwide. With a focus on transparency, open-source principles, and long-term ownership, 45Drives delivers infrastructure that scales, adapts, and endures.
+
+ About Lime Technology, Inc.Founded in 2005, Lime Technology, Inc. is the creator of Unraid OS, the most flexible and easy-to-use NAS operating system on the market. Family-owned and operated, Lime Technology is dedicated to empowering users to build the servers they want using the hardware they have. Unraid OS is developed in San Diego, California and supported by a global community of users and contributors.
+
+ Contact:Jonathan Phillips45Drives@PhillComm.global
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/kairos-gold-announces-public-listing-on-the-tsxv-7085988)
+[Original/Source Press Release](https://www.newmediawire.com/news/45drives-announces-strategic-partnership-with-lime-technology-to-integrate-unraid-os-into-its-45homelab-division-platform-7085990)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-gold-secures-tsxv-listing-set-to-trade-as-kiro/deb2dca6b1f5cc7095f2c46aa90f6f3f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/45drives-partners-with-lime-technology-to-launch-unraid-powered-homelab-servers/b463943ae3e0e14cbdd6989768c1e6c2) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/45drives-and-lime-technology-partner-to-create-unraid-integrated/202630048)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/415599-45drives-and-lime-technology-partner-to-launch-unraid-integrated-server-systems-for-homelab-enthusiasts)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339466-45drives-und-lime-technology-gehen-partnerschaft-ein-um-unraid-integrierte-serversysteme-fur-homelab-enthusiasten-zu-lancieren)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339988-45drives-y-lime-technology-se-asocian-para-lanzar-sistemas-de-servidores-integrados-con-unraid-para-entusiastas-de-homelab)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340776-45drives-et-lime-technology-sassocient-pour-lancer-des-systemes-serveur-integres-unraid-destines-aux-passionnes-de-homelab)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339431-45drives-e-lime-technology-firmam-parceria-para-lancar-sistemas-de-servidores-integrados-com-unraid-para-entusiastas-de-homelab)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/45drives-and-lime-technology-partner-to-launch-unraid-integrated/202630048)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/45drives-partners-with-lime-technology-to-integrate-unraid-os-in/202630048)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415604-45drives-and-lime-technology-partner-to-launch-unraid-integrated-homelab-servers)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/415659-45drives-and-lime-technology-partner-to-launch-45homelab-unraid-signature-series-servers-in-2026)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202603/415661-45drives-and-lime-technology-partner-to-launch-45homelab-unraid-signature-series-servers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/urgezOEG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/24/boldjLet.webp)

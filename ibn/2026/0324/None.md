@@ -1,56 +1,38 @@
-# Uncertainty Surrounds How the US Plans to Use $15B in Seized Crypto
+# 420 with CNW — Ohio Law Banning CBD, THC Beverages Takes Effect
 
-The U.S. Justice Department unveiled the largest asset confiscation in the nation’s history last October, seizing $15 billion worth of Bitcoin. Authorities linked the funds to Cambodia’s Prince Group, which prosecutors claim ran a far-reaching network involving large-scale online fraud and human trafficking.
+New restrictions approved by GOP legislators in Ohio have officially taken effect, altering the state’s voter-backed cannabis framework and introducing fresh criminal penalties. The measure, Senate Bill 56, also bans intoxicating hemp products, including drinks containing THC or CBD.
 
- How the authorities eventually choose to use these seized funds will be analyzed by entities like Canaan Inc. (NASDAQ: CAN) as a test of how willing the authorities are to address consumer needs with…
+ Federal lawmakers recently approved limits on THC content in hemp products, though enforcement is delayed for a year. States, however, retain the authority to impose stricter rules sooner. Firms like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) will be studying how the…
 
  Read More>>
 
- About CryptoCurrencyWire
+ About CNW420
 
- CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.CryptoCurrencyWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- CryptoCurrencyWireNew York, NYwww.CryptoCurrencyWire.com212.994.9818 OfficeEditor@CryptoCurrencyWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- CryptoCurrencyWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/uncertainty-surrounds-how-the-us-plans-to-use-15b-in-seized-crypto/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-ohio-law-banning-cbd-thc-beverages-takes-effect/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-seizes-record-15b-bitcoin-from-cambodia-s-prince-group/a65a295ee0c30225072d47ffbae9427f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ohio-bans-thc-cbd-beverages-imposes-new-cannabis-restrictions/f47525b2dfd1cdd84f1cdb477e2a2f83) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/us-justice-departments-15-billion-crypto-seizure-raises-question/202630036)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/415465-us-justice-department-faces-scrutiny-over-15-billion-seized-bitcoin-allocation)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339455-us-justizministerium-steht-wegen-verteilung-von-15-milliarden-dollar-beschlagnahmten-bitcoins-in-der-kritik)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339975-el-departamento-de-justicia-de-eeuu-enfrenta-escrutinio-por-la-asignacion-de-15000-millones-de-dolares-en-bitcoin-incautados)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340765-le-ministere-americain-de-la-justice-sous-pression-concernant-lallocation-de-15-milliards-de-dollars-de-bitcoin-saisis)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339420-departamento-de-justica-dos-eua-sob-escrutinio-sobre-alocacao-de-us-15-bilhoes-em-bitcoin-apreendido)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/uncertainty-persists-over-us-governments-plans-for-15-billion-in/202630036)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/us-justice-departments-15-billion-bitcoin-seizure-raises-questio/202630036)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415480-us-seizure-of-15-billion-in-bitcoin-raises-questions-about-future-use-of-confiscated-crypto-assets)
-
-Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/202603/415497-us-justice-departments-15-billion-bitcoin-seizure-sets-precedent-for-cryptocurrency-enforcement)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202603/415582-ohios-new-cannabis-restrictions-take-effect-altering-voter-approved-framework)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/24/pale2tSN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/24/chipd2Tv.webp)

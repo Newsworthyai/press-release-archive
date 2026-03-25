@@ -1,64 +1,76 @@
-# Celebrando Latinas 2026 Names María Marín as Headlining Speaker, Expanding Its National Impact
+# Northgate González Market Kicks Off 2026 World Cup Season with “Familia Fútbol” Launch Event at Historic Yost Theater
 
-SAN DIEGO, CA — March 24, 2026 — (NOTICIAS NEWSWIRE) — Celebrando Latinas 2026, one of the nation’s fastest-growing platforms for Latina leadership, entrepreneurship, and empowerment, has announced powerhouse motivational speaker, businesswoman, and bestselling author of five books, María Marín, as its headlining speaker. With a global following of over 14 million, Marín is set to bring a dynamic, high-impact message that will elevate the event’s reach and solidify its growing national influence.
+ANAHEIM, CA — March 24, 2026 — (NOTICIAS NEWSWIRE) — Northgate González Market, Southern California’s premier Mexican-themed Hispanic supermarket, today officially launched Familia Fútbol, a sweeping World Cup 2026 campaign celebrating the culture, food, and passion for fútbol that unite Latino families across generations. The campaign launch last Wednesday, March 18, at the landmark Yost Theater in Santa Ana, CA., marked the ceremonial kickoff of a community-wide celebration that will carry through the 2026 FIFA World Cup Final.
 
- With a rapidly expanding audience and digital reach, Celebrando Latinas continues to solidify its position as a must-attend event for Latinas across industries.
+ The Northgate Gonzalez Familia Fútbol campaign honors both the families we are born into and the families we choose, the people we gather with to cheer, celebrate, and share a meal. With Mexico opening the 2026 World Cup tournament at Estadio Azteca in a historic, culturally significant moment for the Latino community, Northgate González Market positions itself as the cultural headquarters for World Cup celebrations in Southern California.
 
- Known globally as La Latina Motivadora, María Marín has spent decades empowering millions through her bestselling books, syndicated media appearances, and keynote stages around the world. At Celebrando Latinas 2026, she will deliver a powerful, high-energy keynote focused on confidence, leadership, and breaking through personal and professional barriers.
+ “Soccer is not just a sport for our families, it is memories, identity, and pride,” said Oscar González, Co-President, Northgate González Market. “Familia Fútbol is our way of celebrating this historic World Cup moment through the food, culture, and values that define who we are and who we serve. Once you step into a Latino home, you’re forever familia.”
 
- “When Latinas believe in their power, there is nothing we can’t achieve,” said María Marín. “I’m honored to join Celebrando Latinas and be part of a movement that is uplifting and transforming our community.”
+ At the heart of the Familia Fútbol campaign is an extraordinary roster of Mexican cultural legends and sports icons, each representing a pillar of community identity. Boxing champion Julio César Chávez brings unwavering loyalty and pride; legendary goalkeeper Jorge Campos embodies joy, creativity, and love for the game; luchador El
 
- In addition to Marín’s keynote, the event will feature a dynamic lineup of Latina entrepreneurs, executives, and changemakers, offering impactful panel discussions, curated networking, and immersive experiences designed to accelerate growth and visibility.
+ Hijo del Santo represents generational inheritance and honor, and beloved actress and entertainer Angélica María serves as the campaign’s matriarch, anchoring family tradition and love. Representing the next generation is Scarlett Camberos, Mexican women’s national team star and digital powerhouse. This star roster is complete with the inclusion of the iconic Pedro Infante, whose legacy provides emotional warmth and nostalgia at the campaign’s core.
 
- “Celebrando Latinas is not just an event—it’s a national platform for Latina excellence,” said Fanny Miller/CEO. “Bringing María Marín as our headlining speaker reflects both our growth and our commitment to delivering world-class voices to our community.”
+ Additional soccer legends participating in the campaign include Paco Palencia, Claudio Suárez, Ramón Morales, Braulio Luna, Francisco “Maza” Rodríguez, and Carlos Hermosillo; World Cup veterans whose connection to the community runs deep.
 
- As Latina-owned businesses continue to be one of the fastest-growing segments in the U.S. economy, Celebrando Latinas 2026 aims to meet the moment—creating space for connection, elevation, and opportunity at scale.
+ The official launch event at the prestigious Yost Theater was hosted by former Mexican soccer player Mariano Trujillo and prominent Mexican sports journalist and digital content creator Livette Ruvalcaba, bringing together members of the press, content creators, Northgate Market leadership, vendors, and community members for an immersive cultural evening. Guests experienced curated memorabilia from the Familia Fútbol campaign alongside iconic pieces celebrating Mexican legends, live entertainment featuring soccer freestylers and mariachi, and interactive moments with the campaign’s celebrated talent lineup.
 
- 2026 Program Highlights
+ Northgate González Market will also bring the flavors of game day to life, offering families everything they need to celebrate the World Cup at home, from freshly marinated carne asada and handmade guacamole to aguas frescas, botanas, and ready-to-serve party trays. Northgate makes it easy for fans to prepare the foods that bring everyone around the TV. Throughout the tournament, stores will highlight game-day favorites that turn every match into a moment to share with family and friends.
 
- • Inspiring keynote speakers and transformational conversations • Entrepreneur and leadership workshops • Community impact recognitions and awards • Elevated networking experiences • Business and career development opportunities • Three-course lunch. • Exclusive closing fiesta celebration
+ The March 18 launch is only the beginning. Familia Fútbol will unfold across Southern California through a series of activations through the World Cup Final in June 2026, including:
 
- Event Details
+ – Meet & Greet events featuring Julio César Chávez, El Hijo del Santo, and Angélica María
 
- Date: Saturday, September 19, 2026 Location: Gaylord Pacific Resort & Convention Center, San Diego
+ – Eight Familia Fútbol Fan Fests transforming Northgate Market parking lots into community stadiums (April – June)
 
- Tables & Sponsorships: Available now
+ – Youth Soccer Clinics in partnership with Pixixi, led by Mexican soccer legends (April – June)
 
- About Celebrando Latinas Celebrando Latinas is a community initiative committed to empowering Latina women through leadership, entrepreneurship, and cultural celebration. The organization brings together professionals, entrepreneurs, and community leaders to build connections, elevate voices, and create opportunities for the next generation.
+ – Mother’s Day World Cup Makeover Sweepstakes honoring the MVPs of game day (April 15 – May 10)
 
- About the Founder Fanny Miller- Founder and CEO of Latina & Associates, Inc. is a recognized leader in Hispanic media and community advocacy. She is the publisher of El Latino San Diego, the region’s leading Spanish-language newspaper, and founder of the Celebrando Latinas Conference, one of the largest gatherings dedicated to Latina empowerment in the United States. Through her work in media, events, and community initiatives, she continues to amplify Latino voices and create opportunities for growth, leadership, and connection.
+ – Father’s Day Carne Asada Event and World Cup Final Viewing Parties (June)
 
- Because a Latina woman is never defined by limits—only by possibilities. 
+ For more information about Northgate González Market and the Familia Fútbol campaign, please visit www.northgatemarket.com and follow @northgatemarket on Instagram, TikTok, and Facebook.
+
+ About Northgate González Market
+
+ Founded in 1980, Northgate González Market is an authentic, family-owned and operated Hispanic supermarket chain with more than 8,300 associates and 46 stores in Orange, Los Angeles, Riverside, San Bernardino, and San Diego counties. Headquartered in Anaheim, Calif., it maintains its cultural heritage by offering its customers the best quality and freshest foods and personalized service. Northgate Market’s commitment to its communities is furthered by the González Reynoso Family Foundation, which provides scholarships and assists needy families. Visit www.northgatemarket.com for more information.
+
+ For photos, click here.
+
+ CONTACT:  Stephen Chavez (310) 486-4104 stephen@chavezpr.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/celebrando-latinas-2026-names-maria-marin/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/northgate-gonzalez-market-kicks-off-2026-world-cup-season/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/maria-marin-headlines-celebrando-latinas-2026-empowerment-conference/459c4cfcbc74e787b6f712279a054af6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/northgate-market-launches-familia-futbol-campaign-for-2026-world-cup-celebration/09638f451884a63e46e93d13001cd84d) 
 
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/maria-marin-to-headline-celebrando-latinas-2026-as-event-expands/202630038)
+Pickup - [https://advos.io/en](https://advos.io/en/northgate-gonzalez-market-launches-familia-futbol-campaign-ahead/202630049)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/maria-marin-named-headlining-speaker-for-celebrando-latinas-2026/202630038)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/415636-northgate-gonzalez-market-launches-familia-futbol-campaign-for-2026-world-cup)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415492-maria-marin-to-headline-celebrando-latinas-2026-as-event-expands-national-influence)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339467-northgate-gonzalez-market-startet-familia-futbol-kampagne-fur-die-wm-2026)
 
-Pickup - [https://advos.io/en](https://advos.io/en/maria-marin-to-headline-celebrando-latinas-2026-as-event-expands/202630038)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339989-northgate-gonzalez-market-lanza-la-campana-familia-futbol-para-la-copa-mundial-2026)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/415503-maria-marin-named-headlining-speaker-for-celebrando-latinas-2026-conference)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340777-northgate-gonzalez-market-lance-la-campagne-familia-futbol-pour-la-coupe-du-monde-2026)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339457-maria-marin-als-hauptrednerin-fur-die-celebrando-latinas-2026-konferenz-benannt)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339432-northgate-gonzalez-market-lanca-campanha-familia-futbol-para-a-copa-do-mundo-de-2026)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/339978-maria-marin-sera-la-oradora-principal-de-la-conferencia-celebrando-latinas-2026)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/northgate-gonzalez-market-launches-familia-futbol-campaign-for-2/202630049)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340767-maria-marin-nommee-conferenciere-principale-de-la-conference-celebrando-latinas-2026)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/northgate-gonzalez-market-launches-familia-futbol-campaign-for-2/202630049)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339422-maria-marin-e-a-palestrante-principal-da-conferencia-celebrando-latinas-2026)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415668-northgate-gonzalez-market-launches-familia-futbol-campaign-for-2026-world-cup)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/202603/415673-northgate-gonzalez-market-launches-familia-futbol-campaign-for-2026-world-cup)
+
+Pickup - [https://news.riversideherald.com/curated](https://news.riversideherald.com/curated/202603/415681-northgate-gonzalez-market-launches-familia-futbol-campaign-for-2026-world-cup)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/263/24/lean1aA2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/263/24/pitapicoA8Td.webp)
