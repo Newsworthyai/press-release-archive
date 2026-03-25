@@ -1,80 +1,102 @@
-# Golden Cariboo Completes 754 m Drill Hole Ending in Mineralization and Applies to Register Additional Mineral Claims
+# Premature Placental Separation may Increase the Child s Risk of Heart Disease by age 28
 
-VANCOUVER, BC - March 25, 2026 (NEWMEDIAWIRE) - Golden Cariboo Resources Ltd. (the “Company”) (CSE:GCC) (OTC:GCCFF) (WKN:A402CQ) (FSE:3TZ) announces that drill hole QGQ25-28 was completed on March 19, 2026 to a total length of 754.69 m (2,476 ft), ending in mineralization approximately 12 m (39.37 ft) from Osisko Development Corp.’s claim boundary. The work was carried out at the Company’s Quesnelle Gold Quartz Mine Property (the “Property”), located approximately 4 kilometers northeast of Hixon and 50 kilometers southeast of Prince George, British Columbia.
+Research Highlights:
 
- The end of drill hole QGQ25-28 is located approximately 283 m (928.48 ft) beyond the end of drill hole QGQ25-25, which ended in mineralization. Attached is a photo showing the final four core boxes from drill hole QGQ25-28, which display veining, silicification and disseminated pyrite mineralization. Assays are pending. Maps and pictures are available at https://goldencariboo.com/news/
+ * People born to mothers where the birth included a placental abruption (placenta separates from the uterus before delivery) may have a higher risk of developing or dying from cardiovascular disease than those whose birth did not have this complication.
+* People born to mothers who had a placental abruption are about three times more likely to be hospitalized for cardiovascular disease by the age of 28, and about 4.6 times as likely to die from a cardiovascular event in that timeframe, compared to people born to mothers with pregnancies that were not complicated by placental abruption.
+* Researchers say that placental abruption is a serious and underappreciated pregnancy complication, and children born to mothers who had this issue should be monitored for heart and stroke-related conditions as they grow up.
 
- In addition, the Company has applied to register an additional 1,283.59 ha (3,171.82 acres) within and adjacent to its existing 94,899 ha (233,500.54 acres).
+ DALLAS - March 25, 2026 (NEWMEDIAWIRE) - The risk of developing early cardiovascular disease or dying from cardiovascular disease by the age of 28 was about 4.6 times higher among people born to mothers who had a placental abruption during their pregnancy. This finding was compared to people whose birth did not have this complication, according to new research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
 
- Frank Callaghan, President and CEO of Golden Cariboo Resources, stated:
+ Placental abruption occurs when the placenta separates from the uterus before birth rather than after delivery, and this can lead to severe hemorrhaging or other serious complications for the mother and baby. According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, most studies have reported an incidence of 0.5% to 1% for placental abruption in the general population.
 
- “QGQ25-28 appears to be a strong step-out hole, drilled to 754 m, that continued to encounter the same alteration and mineralization we’ve been seeing and ultimately ended in mineralization just 12 m from the Osisko Development claim boundary. The extension beyond QGQ25-25 and still finishing in mineralization supports the potential for a robust system. We are now looking forward to the assays as we continue to test the extent and continuity of the system. Additionally, we are looking to bolster our land package in preparation for future work on our regional targets and test the northern portions of the Spanish and Eureka thrust faults.
+ “Our study suggests that placental abruption needs to be taken as a very serious complication for the mother and also potentially affecting the baby’s cardiovascular health later in life,” said study lead author Cande Ananth, Ph.D., M.P.H., chief of the division of epidemiology and biostatistics in the department of obstetrics, gynecology and reproductive sciences at Rutgers Robert Wood Johnson Medical School in New Brunswick, New Jersey. “Most treatments after a placental abruption focus on following the mother after a pregnancy complication. Our study shows it is important that their children are also monitored to identify potential complications due to their increased risk of cardiovascular disease. Having cardio-obstetrics working together with pediatric programs in medical schools and hospitals will be important to provide support and monitor the health of these mothers after delivery and their babies as they grow up.”
 
- Halo and North Hixon zones, plan view
+ This study examined whether a mother’s placental abruption may be linked to the child’s risk of heart and stroke conditions and death from heart disease and stroke over about three decades.
 
- The technical information in this news release has been reviewed and approved by Jean Pautler, an independent consultant commissioned by the Company. Jean Pautler is a Professional Geoscientist (P.Geo.) registered with the Association of Professional Engineers and Geoscientists of the Province of BC (“APEGBC”) and licensed by Engineers and Geoscientists BC, and is a “Qualified Person” with respect to NI 43-101.
+ The study reported that:
 
- About Golden Cariboo Resources Ltd
+ * Out of nearly 3 million pregnancies, approximately 1% (n = 28,641) were affected by placental abruption.
+* During a 28-year follow-up period, children born to mothers who had a placental abruption during the pregnancy were 4.6 times more likely to die from cardiovascular disease than children born to mothers who experienced a normal placental separation from the uterus after delivery.
+* Children born to mothers who had a placental abruption faced nearly three times higher risk of being hospitalized for heart-related complications during the next 28 years. These conditions included heart failure, ischemic heart disease, heart attack, blocked arteries and general cardiovascular disease.
+* The children’s risk of stroke hospitalization was 2.4 times higher than for children whose mothers did not have a placental abruption.
+* These heart disease and stroke risks associated with abruption were even higher among children younger than 1 year old.
 
- Golden Cariboo Resources Ltd. is rediscovering the Cariboo Gold Rush by proceeding with highly targeted drilling and trenching programs on its Quesnelle Gold Quartz Mine property which is bordered by Osisko Development, partly intertwined with them at the north end of the Cariboo Gold Project, and located along a favourable corridor adjacent to the Spanish and Eureka thrust faults over a 94,899 hectare (234,501 acre) area. Historically, over 101 placer gold creeks on the 90-kilometer (56 mile) trend, from the Cariboo Hudson mine north to the Quesnelle Gold Quartz Mine property, have recorded production with successful placer mining continuing to this day.
+ The association between placental abruption and increased cardiovascular risk remained similar after conducting an additional analysis contrasting cardiovascular disease risks between biological siblings (each mother served as their own control), suggesting that genetic and environmental factors did not explain this relationship.
 
- Golden Cariboo’s Quesnelle Gold Quartz Mine property is 4 kilometers (2.5 miles) northeast of, and road accessible from, Hixon in central British Columbia. The Property includes the Quesnelle Quartz gold-silver deposit, which was discovered in 1865 and developed over a footprint of about 150m x 150m (< 6 acres) at the Main zone straddling Hixon Creek. Overall, the geological setting of the gold mineralization at the Company’s Quesnelle Gold Quartz Mine property shows strong similarities with the Spanish Mountain gold deposit, situated 120 km (75 miles) towards the southeast along the same geological trend. As a sediment-hosted vein (SHV) deposit, the Spanish Mountain deposit is considered to belong to the epizonal orogenic subclass of gold deposits which include some of the world’s largest deposits such as Muruntau, Uzbekistan and Bendigo, Australia.
+ “Placental abruption is a sudden and often catastrophic event that cannot be prevented and comes with no warning. Older women or those expecting more than one baby, such as twins or triplets, have an increased risk of developing this condition. Health care professionals should support patients in maintaining a healthy lifestyle to protect their own health and their baby’s. Avoiding smoking, drinking alcohol and using illegal drugs (particularly, cocaine) and maintaining good blood pressure control are also important, as they are linked to placental abruption,” Ananth said.
 
- For further information please contact:
+ “We know that women who have complications during pregnancy are often at higher risk for heart disease and stroke, and that’s why the American Heart Association recommends closely monitoring these women, especially in the first three months to a year after birth,” said Stacey E. Rosen, M.D., FAHA, volunteer president of the American Heart Association. “The findings of this study reinforce that it is also important to monitor their babies for risks and identify opportunities to reduce the potential impact these complications may have on them not only right after birth, but throughout their lifetime.” Rosen, who was not involved in this study, is also executive director of the Katz Institute for Women’s Health and senior vice president of women’s health at Northwell Health in New York City.
 
- GOLDEN CARIBOO RESOURCES LTD “J. Frank Callaghan”
+ More research is needed to understand how placental abruption affects heart health in the children born from those pregnancies, according to the study authors. This study is among the first to find a link between cardiovascular risk in kids born to mothers with placental abruption. However, the findings are limited because the study is an analysis of hospital and death records; therefore, researchers cannot prove a cause-and-effect relationship.
 
- J. Frank Callaghan, President & CEOTel: 604-669-6463
+ Study details, background and design:
 
- VISIT OUR WEBSITE FOR MORE DETAILSwww.goldencariboo.com
+ * This analysis is a study that looks back at past data. Researchers reviewed data from the Placental Abruption and Cardiovascular Event Risk (PACER) project, along with hospitalization and mortality records, to analyze roughly 3 million births in New Jersey from 1993 to 2020, focusing on mothers who had a placental abruption during pregnancy and the babies born to those pregnancies. This study focuses solely on single-baby births.
+* Out of 2,949,992 pregnancies in the analysis, 1% (28,641 pregnancies) experienced placental abruption.
+* The researchers followed the offspring for up to 28 years after their birth, reviewing hospital records and mortality records from the birth of the offspring to nonfatal cardiovascular-related hospitalization; birth to death from any cause; and nonfatal cardiovascular hospitalization to death from any cause.
 
- LIKE AND FOLLOWInstagram, Facebook, X (Twitter), LinkedIn
+ Co-authors, disclosures and funding sources are listed in the manuscript.
 
- Neither the “CSE” Canadian Securities Exchange nor its Regulation Service Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
 
- Cautionary Statements:
+ Additional Resources:
 
- This news release contains statements which constitute “forward-looking information” within the meaning of applicable securities laws, including statements regarding the plans, intentions, beliefs and current expectations of the Company with respect to future business activities and plans of the Company. Forward-looking information is often identified by the words “may”, “would”, “could”, “should”, “will”, “intend”, “plan”, “anticipate”, “believe”, “estimate”, “expect” or similar expressions and includes information regarding; the expectation that the Company will receive all necessary exemptions and approvals to complete the Offering; the expectation that the Company will complete the Offering on the terms disclosed, or at all; the expectation that the proceeds will be used for property exploration and for general working capital; the Company’s exploration plans with respect to its Quesnelle Gold Quartz Mine property; and the anticipated participation of the insider in the Offering.
+ * Multimedia is available on the right column of release link.
+* After March 25, view the manuscript online.
+* American Heart Association Scientific Statement: Prevention and Treatment of Maternal Stroke in Pregnancy and Postpartum (Jan. 2026)
+* American Heart Association Scientific Statement: Heart disease risk factors in women highlight need for increased awareness, prevention (Feb. 2024)
+* American Heart Association news release: Improving & maintaining heart health after pregnancy may reduce the risk of future CVD (March 2024)
+* American Heart Association Scientific Statement: Six pregnancy complications are among red flags for heart disease later in life (March 2021)
+* Pregnancy and Maternal Health Resources and Tools | Go Red for Women
+* Follow American Heart Association/American Stroke Association news on X @HeartNews
+* Follow news from the Journal of the American Heart Association @JAHA_AHA
 
- Such forward-looking statements are based on a number of assumptions of management, including, without limitation, that the Company will receive all necessary exemptions and approvals to complete the Offering; that the Company will complete the Offering on the terms disclosed, or at all; that the proceeds will be used for property exploration and for general working capital; that the Company will have the resources required to proceed with its exploration plans; that the Company will not run into regulatory or other barriers in carrying out its business plans; that the insider will participate in the Offering, on the terms and conditions and in the amount currently expected by management; and that the Company will be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis anticipated.
+ About the American Heart Association
 
- Additionally, forward-looking information involve a variety of known and unknown risks, uncertainties and other factors which may cause the actual plans, intentions, activities, results, performance or achievements of the Company to be materially different from any future plans, intentions, activities, results, performance or achievements expressed or implied by such forward-looking statements. Such risks include, without limitation: that the Company will not receive the necessary exemptions and approvals to complete the Offering; that the Company will not complete the Offering on the terms disclosed, or at all; that the Company will be unable to use the proceeds for property exploration and for general working capital; that the Company may incur unanticipated costs; that the Company may not have the resources required to pursue its exploration plans; that the Company’s operations could be adversely affected by possible future government legislation policies and controls or by changes in applicable laws and regulations; that the insider may not participate in the Offering on the terms and conditions and in the amount currently expected by management, or at all; and that the Company may not be able to rely on the exemption from the formal valuation and minority shareholder approval requirements on the basis currently expected. Such forward-looking information represents management’s best judgment based on information currently available. No forward-looking statement can be guaranteed and actual future results may vary materially. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. Neither the Company nor any of its representatives make any representation or warranty, express or implied, as to the accuracy, sufficiency or completeness of the information in this news release. Neither the Company nor any of its representatives shall have any liability whatsoever, under contract, tort, trust or otherwise, to you or any person resulting from the use of the information in this news release by you or any of your representatives or for omissions from the information in this news release.
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- The forward-looking statements herein speak only as of the date they were originally made. The Company has no intention and undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
+ For Media Inquiries and AHA/ASA Expert Perspective: 214-706-1173
 
- 
+ Karen Astle: Karen.Astle@heart.org
+
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-cariboo-completes-754-m-drill-hole-ending-in-mineralization-and-applies-to-register-additional-mineral-claims-7086001)
+[Original/Source Press Release](https://www.newmediawire.com/news/premature-placental-separation-may-increase-the-child-s-risk-of-heart-disease-by-age-28-7086002)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-cariboo-drills-754m-hole-ending-in-mineralization-near-osisko-boundary/4c76bd084b06e19891765b5f5d793d5c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/placental-abruption-triples-child-s-heart-disease-risk-by-age-28/8fab847cbb8176b4f748eb5880d79b6d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/golden-cariboo-extends-mineralization-with-754-meter-drill-hole/202630067)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/415934-placental-abruption-during-pregnancy-linked-to-increased-cardiovascular-risk-in-offspring-by-age-28)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/415785-golden-cariboo-resources-reports-significant-drill-results-and-expands-land-position-in-british-columbia)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339495-plazentaablosung-wahrend-der-schwangerschaft-mit-erhohtem-kardiovaskularem-risiko-bei-nachkommen-bis-zum-alter-von-28-jahren-in-verbindung-gebracht)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339484-golden-cariboo-resources-meldet-bedeutende-bohrresultate-und-erweitert-landposition-in-british-columbia)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340027-el-desprendimiento-de-placenta-durante-el-embarazo-se-asocia-con-mayor-riesgo-cardiovascular-en-la-descendencia-a-los-28-anos)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340011-golden-cariboo-resources-reporta-resultados-significativos-de-perforacion-y-amplia-su-posicion-de-tierras-en-columbia-britanica)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340807-le-decollement-placentaire-pendant-la-grossesse-lie-a-un-risque-cardiovasculaire-accru-chez-la-descendance-avant-28-ans)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340794-golden-cariboo-resources-annonce-des-resultats-de-forage-significatifs-et-etend-ses-concessions-en-colombie-britannique)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339460-descolamento-prematuro-da-placenta-durante-a-gravidez-associado-a-maior-risco-cardiovascular-na-prole-aos-28-anos)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339449-golden-cariboo-resources-reporta-resultados-significativos-de-perfuracao-e-amplia-posicao-territorial-na-columbia-britanica)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/placental-abruption-during-pregnancy-linked-to-increased-cardiov/202630078)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/golden-cariboo-resources-extends-mineralization-with-754-meter-d/202630067)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/placental-abruption-during-pregnancy-linked-to-increased-cardiov/202630078)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/golden-cariboo-extends-mineralization-with-754-meter-drill-hole/202630067)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415949-placental-abruption-linked-to-significantly-higher-cardiovascular-risk-in-offspring-by-age-28)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/415805-golden-cariboo-extends-mineralization-with-754-meter-drill-hole-expands-land-claims)
+Pickup - [https://advos.io/en](https://advos.io/en/placental-abruption-during-pregnancy-linked-to-increased-cardiov/202630078)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202603/415976-placental-abruption-linked-to-dramatic-increase-in-offspring-cardiovascular-disease-risk)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/neond5VK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/lilyrKmb.webp)
