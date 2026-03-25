@@ -1,36 +1,52 @@
-# Meridianbet (MRDN) Launches Redesigned Platform in Malta, Adding More AI Tools and Betting Features
+# SERI’s Champions Program Recognizes Voluntary Leadership in Electronics Sustainability
 
-Valletta, Las vegas, 25 March 2026
+Washington DC, USA – March 25, 2026
 
-Meridianbet, a sports betting and gaming operator and subsidiary of Meridian Holdings Inc. (NASDAQ: MRDN), has launched a fully redesigned digital platform in Malta, its longest-standing regulated market. The release marks the most significant product upgrade to the platform since its initial launch, introducing an AI-powered assistant, early payout mechanics, enhanced odds promotions and a redesigned casino interface across mobile and desktop.
+SERI’s Champions Program recognizes organizations that voluntarily go above and beyond to advance electronics sustainability.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Meridianbet has launched a fully redesigned digital platform in Malta featuring an AI-powered assistant, Early Payout, Bet Boost and a redesigned casino interface
-* In January, Meridianbet completed the acquisition of Fairbet Ltd., bringing its retail network across Malta to 20 storefronts
-* 
+Key Takeaways:* Across the electronics industry, organizations are increasingly taking the lead on sustainability initiatives, not because regulations require it, but because they see the value in acting. The Champions Program recognizes that shift, providing a way to formally acknowledge those who drive progress through their own business practices, partnerships, and investments.
+* Champions are celebrated in three categories: Promoters who lead through voluntary sustainable practices (such as including R2 in RFPs), Collaborators who partner with SERI on programs and initiatives, and Supporters who provide significant financial resources to advance the mission.
+* Organizations interested in becoming SERI Champions or learning more about the program can visit sustainableelectronics.org/champions.
 
-[Click image above to view full announcement.](https://meridianbet.reportablenews.com/pr/meridianbet-mrdn-launches-redesigned-platform-in-malta-adding-more-ai-tools-and-betting-features)About Meridian Holdings Inc.Meridian Holdings Inc. (NASDAQ: MRDN), based in Las Vegas, Nevada, is an established B2B and B2C gaming technology company operating across multiple international markets. The Company's B2C division is represented by Meridianbet Group, a leading online sports betting and gaming operator founded in 2001, licensed in multiple jurisdictions across Europe, Africa, and South America. MRDN's B2B division, comprised of game developer Expanse Studios and iGaming platform GMAG, develops, licenses and distributes proprietary gaming platforms to an extensive list of global clients. Meridian Holdings' other subsidiaries include RKings Competitions, a high-volume UK-based raffle ticker business, Mexplay, a regulated online casino in Mexico, and Classics for a Cause, Australia's leading subscription-based digital memberships and trade promotion lotteries. The Company's sophisticated software automatically declines any gaming or redemption requests from within the United States, in strict compliance with current U.S. law. For more information, visit www.meridian-holdings.com
+[Click image above to view full announcement.](https://sustainableelectronics.reportablenews.com/pr/seri-s-champions-program-recognizes-voluntary-leadership-in-electronics-sustainability)ABOUT SERISERI is a global non-profit 501(c)(3) organization based in the United States with a mission to champion and drive the sustainable use, reuse, and recycling of electronics globally. SERI's numerous programs work to drive its 10/35 vision: that by 2035, 10-year lifespans will be common among electronics, and all materials will be reused at end-of-life. SERI programs include the R2 Standard for responsible electronics reuse and recycling, the eSummit, ei (electronics impact) Reporting Program, SERI's Champions Program, ReThink Awards, and IEMN (International E-Waste Management Network), among others. Learn more at sustainableelectronics.org
 
-Contacts:Milan Koricanac milan.koricanac@meridianbet.com
+Contacts:Katey Marquettekatey@sustainableelectronics.org
 
-Source: Meridianbet Group
+Source: SERI
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://meridianbet.reportablenews.com/pr/meridianbet-mrdn-launches-redesigned-platform-in-malta-adding-more-ai-tools-and-betting-features)
+[Original/Source Press Release](https://sustainableelectronics.reportablenews.com/pr/seri-s-champions-program-recognizes-voluntary-leadership-in-electronics-sustainability)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/meridianbet-launches-ai-powered-platform-in-malta-with-major-upgrades/3a2ee1496acdeeece4124055b3799c33) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seri-champions-program-honors-electronics-sustainability-leaders/6a13382a520e0420014027350a0b3eb4) 
 
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/416005-meridianbet-launches-redesigned-digital-platform-in-malta-with-ai-assistant-and-enhanced-features)
+Pickup - [https://advos.io/en](https://advos.io/en/seris-champions-program-recognizes-voluntary-leadership-in-elect/202630120)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/416407-seri-champions-program-recognizes-voluntary-leadership-in-electronics-sustainability)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339538-seri-champions-programm-wurdigt-freiwilliges-engagement-fur-nachhaltigkeit-in-der-elektronikbranche)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340078-el-programa-de-campeones-seri-reconoce-el-liderazgo-voluntario-en-la-sostenibilidad-de-la-electronica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340852-le-programme-champions-seri-reconnait-le-leadership-volontaire-en-matiere-de-durabilite-electronique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339503-programa-seri-champions-reconhece-lideranca-voluntaria-na-sustentabilidade-eletronica)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/seris-champions-program-recognizes-voluntary-leadership-in-elect/202630120)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/seris-champions-program-recognizes-voluntary-leadership-in-elect/202630120)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416442-seri-champions-program-recognizes-voluntary-leadership-in-electronics-sustainability)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/25/noonWfta.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/25/cakeerTx.webp)

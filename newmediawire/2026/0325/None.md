@@ -1,66 +1,54 @@
-# Trailbreaker Closes $3.5m Flow-Through Financing
+# HeartBeam (BEAT) Partners With Mount Sinai to Accelerate AI-ECG Development and Validation
 
-VANCOUVER, BC - March 25, 2026 (NEWMEDIAWIRE) - Trailbreaker Resources Ltd. (TBK.V) (“Trailbreaker” or “the Company”), further to its news releases dated February 26, 2026, March 3, 2026, and March 11, 2026, is pleased to announce that it has closed its non-brokered charity flow-through private placement (the “Offering”) for gross proceeds of $3.5 million. The Company has issued:
+LOS ANGELES, CA - March 25, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT) recently announced a collaboration with Mount Sinai aimed at advancing artificial intelligence-driven electrocardiogram technology, marking another step in the company’s push to expand its role in next-generation cardiac monitoring. The announcement highlights HeartBeam’s growing focus on artificial intelligence (“AI”)-enabled analysis and reinforces the relevance of its technology as healthcare increasingly shifts toward data-driven, remote monitoring solutions.
 
- a) 2,500,000 CMETC flow-through units (“CMETC FT Units”) at a price of $0.56 per CMETC FT Unit, for aggregate gross proceeds of $1.4 million, to fund critical mineral exploration expenses, each CMETC FT Unit consisting of 1 CMETC FT common share and 1/2 of a common share purchase warrant, each of which will qualify as a "flow-through share" within the meaning of subsection 66(15) of the Income Tax Act (Canada) (the "Tax Act"). Each full warrant is exercisable at $0.50 for 24 months from the date of issue for one non-flow-through common share; and
+ * The announcement outlines a strategic collaboration between HeartBeam and Mount Sinai to develop and validate AI-based ECG Algorithms
+* The collaboration is focused on building next-generation, personalized AI-ECG algorithms for wellness and clinical applications, including assessing heart attack risk
+* HeartBeam’s role in this evolving landscape is anchored by its HeartBeam System
 
- b) 4,200,000 flow-through units (“FT Units”) at a price of $0.50 per FT Unit for aggregate gross proceeds of $2.1 million, each FT Unit consisting of 1 FT common share and 1/2 of a common share purchase warrant, each of which will qualify as a "flow-through share" within the meaning of subsection 66(15) of the Tax Act. Each full warrant is exercisable at $0.50 for 24 months from the date of issue for one non-flow-through common share.
+ The announcement outlines a strategic collaboration between HeartBeam and Mount Sinai to develop and validate high value, AI-based ECG algorithms that can be deployed broadly across HeartBeam’s platform. These AI models may include patient-relevant wellness insights, condition-focused…
 
- All of the FT Units and CMETC FT Units issued pursuant to the Offering are subject to a hold period in Canada of four months plus one day from closing.
+ Read More
 
- The Company has paid cash finders’ fees totaling $108,150 and issued 324,000 non-transferable broker warrants exercisable at $0.50 for 2 years, in accordance with Exchange policies.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- The Company will use an amount equal to the gross proceeds received by the Company from the sale of the FT Units and the CMETC FT Units, pursuant to the provisions in the Tax Act, to incur eligible “Canadian exploration expenses” that qualify, in the case of the FT Units, as “flow-through mining expenditures” within the meaning of the Tax Act, and, in the case of the CMETC FT Units, as “flow-through critical mineral mining expenditures” within the meaning of the Tax Act, and, in each case, for FT Units and CMETC FT Units purchased by eligible British Columbia purchasers, as "BC flow-through mining expenditures" that meet the criteria set forth in subsection 4.721(1) of the Income Tax Act (British Columbia), in respect of the exploration activities on the Company's properties in British Columbia (the “Qualifying Expenditures”). The Qualifying Expenditures will be incurred on or before December 31, 2027, and renounced by the Company to the initial purchasers of the FT Units and CMETC FT Units effective December 31, 2026.
+ The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
- The proceeds of the Private Placement will be used to advance the Company’s various exploration projects.
+ Forward Looking Statements
 
- The Offering is subject to final Exchange approval.
-
- ON BEHALF OF THE BOARDDaithi Mac GearailtPresident and Chief Executive Officer
-
- For new information about the Company’s projects, please visit Trailbreaker’s website at TrailbreakerResources.com and sign up to receive news. For further information, follow Trailbreaker’s tweets at Twitter.com/TrailbreakerLtd, use the ‘Contact’ section of our website, or contact us at (604) 681-1820 or at info@trailbreakerresources.com.
-
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/trailbreaker-closes-3-5m-flow-through-financing-7086004)
+[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-partners-with-mount-sinai-to-accelerate-ai-ecg-development-and-validation-7086016)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trailbreaker-resources-secures-3-5m-for-critical-mineral-exploration-in-bc/ed0e3f8fb69244c66b4ef6a9ec1dbc53) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-partners-with-mount-sinai-to-revolutionize-ai-ecg-technology/79c6849eb87b57bc4ac192908a2f8f7d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/trailbreaker-resources-secures-35-million-in-flow-through-financ/202630086)
+Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/416030-trailbreaker-resources-secures-35-million-in-flow-through-financing-for-critical-mineral-exploration)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/416406-heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology-for-cardiac-monitoring)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339503-trailbreaker-resources-sichert-sich-35-millionen-us-dollar-durch-flow-through-finanzierung-fur-die-erschliessung-kritischer-mineralien)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339539-heartbeam-geht-partnerschaft-mit-mount-sinai-ein-um-ki-ecg-technologie-fur-die-herzuberwachung-voranzutreiben)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340041-trailbreaker-resources-obtiene-35-millones-de-dolares-en-financiamiento-flow-through-para-exploracion-de-minerales-criticos)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340079-heartbeam-se-asocia-con-mount-sinai-para-avanzar-en-la-tecnologia-de-ia-ecg-para-monitoreo-cardiaco)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340814-trailbreaker-resources-obtient-35-millions-de-dollars-en-financement-par-actions-accreditives-pour-lexploration-de-mineraux-critiques)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340853-heartbeam-sassocie-au-mount-sinai-pour-faire-progresser-la-technologie-ia-ecg-pour-la-surveillance-cardiaque)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339469-trailbreaker-resources-garante-us-35-milhoes-em-financiamento-flow-through-para-exploracao-de-minerais-criticos)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339504-heartbeam-estabelece-parceria-com-mount-sinai-para-avancar-tecnologia-de-ecg-com-ia-para-monitoramento-cardiaco)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/trailbreaker-resources-secures-35-million-for-critical-mineral-e/202630086)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/trailbreaker-resources-secures-35-million-in-flow-through-financ/202630086)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416051-trailbreaker-resources-secures-35-million-for-critical-mineral-exploration-in-british-columbia)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416440-heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology-for-cardiac-monitoring)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/416108-trailbreaker-resources-secures-35-million-in-flow-through-financing-for-exploration)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202603/416113-trailbreaker-resources-secures-35-million-in-flow-through-financing-for-british-columbia-exploration)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202603/340822-trailbreaker-resources-obtient-un-financement-de-35-millions-de-dollars-en-actions-accreditives-pour-lexploration-en-colombie-britannique)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/416115-trailbreaker-resources-secures-35-million-in-flow-through-financing-for-exploration)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/416412-heartbeam-partners-with-mount-sinai-to-advance-ai-driven-ecg-technology-for-cardiac-monitoring)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/pend1QID.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/mielk2l0.webp)
