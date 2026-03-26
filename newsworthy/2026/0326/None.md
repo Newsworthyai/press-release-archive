@@ -1,58 +1,54 @@
-# Waikay Sets New Standard in AI Brand Analytics with Topical Presence
+# Why This SEO Veteran Is Saying No to Resumes and Yes to Funnels
 
-New York, NY (Newsworthy.ai) Thursday Mar 26, 2026 @ 6:00 AM Eastern — Waikay, an innovation leader in AI brand visibility solutions, has announced the launch of their latest metric, Topical Presence, aimed at revolutionizing how brands measure their influence in AI-generated recommendations. Available immediately on Waikay.io, this new tool empowers brands to understand and optimize their presence across key topics within AI responses.
+Seattle (Newsworthy.ai) Thursday Mar 26, 2026 @ 12:00 PM Pacific — While most professionals apply for jobs, David Brown built a marketing funnel.
 
- Unlike traditional search engines like Google that rank web pages, AI models such as ChatGPT and Gemini build associations with brands based on their presence in training data, which includes billions of web pages and community discussions. The AI Topical Presence metric measures how strongly and broadly these models associate a brand with relevant commercial topics, offering a new layer of insight into brand visibility.
+ With more than 25 years of experience in SEO, digital marketing, and online visibility, Brown has taken a different approach to finding his next opportunity. Rather than sending out resumes, he launched a live, conversion-focused page designed to attract the right company.
 
- Dixon Jones, CEO of Waikay explains, "Share of voice tells you how often your brand appears in AI responses. Topical Presence tells you what for. Waikay's Topical Presence maps which subjects AI associates with your brand, which it associates with your competitors, and where the gaps are. Traditional search analytics never gave you this. AI visibility measurement needs to."
+ Visit https://neo1seo.com/resume to see a page that serves both as a resume and a testament to Brown's capabilities.It combines search visibility strategy, authority positioning, and conversion-focused design into a single experience.
 
- The introduction of Topical Presence addresses a growing challenge for brands as they seek reliable and repeatable ways to measure their influence in AI tools like Claude and Gemini. By identifying both missing and displaced associations, Waikay's tool provides actionable insights for brands to enhance their AI visibility.
+ Brown has helped businesses enhance their Google visibility, strengthen authority with press and backlinks, and integrate multiple channels to drive leads and revenue. He has worked alongside PRWeb founder David McInnis and has helped companies achieve significant growth, including contributing to Inc. 500 companies earning repeat placement on the list in consecutive years.
 
- Waikay's Topical Presence uses a comprehensive scoring system based on depth, breadth, and concentration of topic associations. This allows brands to see not only where they are visible but also where they might be missing opportunities in the competitive landscape.
+ Instead of relying on traditional job search methods, Brown is applying the same principles he uses for clients. The page is structured to attract attention, build trust, and create direct opportunities.
 
- With Waikay's new offering, brands can now strategically enhance their AI visibility and ensure they are consistently part of the AI-generated conversations that matter most to their market. For detailed information, visit https://waikay.io/ai-topical-presence/.
+ “I wanted to show how I think before I ever got on a call,” said Brown. “If a company is serious about growth, they should be able to see how visibility, authority, and conversion work together. That’s what this page is designed to do.”
 
- About Waikay Waikay is a brand of Inlinks Optimization LTD in the UK, a pioneering company in SEO tools and AI-driven brand visibility analytics, dedicated to helping brands navigate and succeed in the evolving digital landscape. They can be contacted via Inlinks.com. 
+ The approach reflects a broader shift in how experienced operators position themselves. Rather than competing through volume, Brown is focusing on fit.
+
+ “I’m not applying everywhere,” Brown added. “I’m opening a window to the right company. One that understands that visibility is just the starting point, and what matters is what happens next.”
+
+ Brown is actively seeking full-time leadership roles and select fractional growth opportunities. Conversations are limited to companies that are actively looking to scale and are ready to execute. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603262274/waikay-sets-new-standard-in-ai-brand-analytics-with-topical-presence)
+[Original/Source Press Release](https://newsworthy.ai/news/202603262284/25-year-seo-veteran-markets-himself-instead-of-applying-opens-limited-window-for-the-right-role)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/waikay-launches-topical-presence-to-revolutionize-ai-brand-visibility-measurement/5ae1660fb2fde2d9105de4ce7ac10499) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seo-veteran-launches-conversion-focused-resume-page-to-land-dream-job/744c097f964fbff289317c86ba18261c) 
 
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/416572-waikay-launches-topical-presence-metric-to-measure-brand-influence-in-ai-recommendations)
+Pickup - [https://advos.io/en](https://advos.io/en/seo-veteran-david-brown-rejects-traditional-resumes-uses-marketi/202630191)
 
-Pickup - [https://advos.io/en](https://advos.io/en/waikay-launches-topical-presence-metric-to-measure-brand-influen/202630136)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/417246-seo-veteran-david-brown-replaces-traditional-resumes-with-marketing-funnel-approach-to-job-search)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/416579-waikay-launches-topical-presence-metric-to-transform-ai-brand-analytics)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339613-seo-veteran-david-brown-ersetzt-traditionelle-lebenslaufe-durch-marketing-funnel-ansatz-bei-der-jobsuche)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339552-waikay-fuhrt-topical-presence-metrik-ein-um-ki-brand-analytics-zu-revolutionieren)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340176-el-veterano-de-seo-david-brown-sustituye-los-curriculums-tradicionales-por-un-enfoque-de-embudo-de-marketing-en-la-busqueda-de-empleo)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340095-waikay-lanza-la-metrica-de-presencia-tematica-para-transformar-el-analisis-de-marcas-en-ia)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340927-le-veteran-du-seo-david-brown-remplace-les-cv-traditionnels-par-une-approche-dentonnoir-marketing-pour-sa-recherche-demploi)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340868-waikay-lance-la-metrique-de-presence-thematique-pour-revolutionner-lanalyse-de-marque-par-ia)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339578-veterano-de-seo-david-brown-substitui-curriculos-tradicionais-por-abordagem-de-funil-de-marketing-na-busca-por-emprego)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339520-waikay-lanca-metrica-de-presenca-tematica-para-transformar-a-analise-de-marcas-em-ia)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/seo-veteran-rejects-traditional-resumes-uses-marketing-funnel-to/202630191)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/waikay-launches-topical-presence-metric-to-measure-brand-influen/202630136)
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/202603/417290-digital-marketing-veteran-creates-conversion-focused-resume-page-to-target-growth-oriented-employers)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/waikay-launches-topical-presence-metric-to-transform-ai-brand-an/202630136)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/seo-veteran-replaces-traditional-resumes-with-marketing-funnel-a/202630191)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416601-waikay-launches-topical-presence-metric-to-measure-brand-influence-in-ai-recommendations)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/5ae1660fb2fde2d9105de4ce7ac10499)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/416619-waikay-launches-topical-presence-metric-to-measure-brand-influence-in-ai-recommendations)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/5ae1660fb2fde2d9105de4ce7ac10499)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/5ae1660fb2fde2d9105de4ce7ac10499)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417287-seo-veteran-david-brown-replaces-traditional-resumes-with-marketing-funnel-approach-to-job-search)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/26/beanUTVN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/26/goldynll.webp)
