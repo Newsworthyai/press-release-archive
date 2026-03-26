@@ -1,64 +1,66 @@
-# The Crypto Company Acquires FRAME Blockchain's Technology, An "Interstate Highway" Liquidity Layer for Crypto Commerce
+# Peapack-Gladstone Financial Corporation Announces $50 Million Preferred Stock Commitment
 
-Purpose-built Layer 1 Blockchain Technology Connects Fragmented Crypto Ecosystems as Crypto Commerce and AI-native Commerce Converge
+BEDMINSTER, NJ - March 26, 2026 (NEWMEDIAWIRE) - Peapack-Gladstone Financial Corporation (NASDAQ: PGC) (the “Company”), the holding company for Peapack Private Bank & Trust, has announced a $50 million preferred stock commitment from affiliates of Strategic Value Bank Partners, a long-term investor focused on the banking sector. The commitment includes an initial $30 million private placement of non-cumulative perpetual convertible preferred stock, with the ability to issue up to an additional $20 million of preferred stock through the end of 2027.
 
- MALIBU CA - March 26, 2026 (NEWMEDIAWIRE) - The Crypto Company (“TCC”) (OTCID: CRCW) today announced the acquisition of Frame Holdings Ltd’s (“Frame”) intellectual property, a tested and purpose-built Layer 1 blockchain designed to connect fragmented crypto ecosystems into a single interoperable settlement network (the “Frame Blockchain”). TCC intends to launch the Frame Blockchain this year as crypto commerce enters a period of rapid global expansion.
+ The preferred stock carries a dividend rate of 6.00% per annum, is non-callable for the first five years, and thereafter may be redeemed, subject to applicable terms. The preferred stock is convertible to common stock at the option of the holder after five years, subject to applicable terms. The issuance is not listed on any securities exchange and is expected to qualify as Tier 1 capital, subject to applicable regulatory requirements.
 
- Today’s crypto landscape is completely fragmented. Bitcoin, Ethereum, Solana, Avalanche, Polygon, and dozens of other networks each operate as isolated economies. Frame Blockchain is designed to unify them.
+ Proceeds will be used for general corporate purposes, which may include supporting organic growth, investments at the holding-company or bank level, acquisitions or other business combinations, and the reduction or refinancing of existing debt.
 
- “We believe an economic expansion of historic magnitude is taking shape in real time,” said Ron Levy, Chief Executive Officer of TCC. “Innovative technology and new financial systems are enabling millions of people to build businesses around the work that matters to them. That economy needs a settlement layer that matches its speed and ambition, and we believe digital assets are required to enable that growth. We envision Frame Blockchain serving an important part of that infrastructure.”
+ Douglas L. Kennedy, President and CEO, noted, “We are pleased to partner with Strategic Value Bank Partners, whose long-term orientation aligns well with our strategy. Over the past two years, we have made significant investments in our expansion across the New York metropolitan market and are seeing strong results reflected in positive operating leverage and improving earnings momentum. This capital raise provides flexibility to continue executing on that growth while maintaining capital levels consistent with our long-standing targets. Importantly, it reflects our disciplined approach to capital management, including actions we have taken to improve the efficiency and quality of our capital structure.”
 
- Rather than competing with existing protocols, Frame Blockchain connects them, enabling applications, assets, and value to move across ecosystems as if they were one. The network features post-quantum security, architectural protections against front-running, and enterprise-grade throughput. Among those protections: a private mempool architecture that eliminates MEV bot extraction, a practice that is commonplace with existing protocols but problematic for creating a vibrant crypto economy.
+ Marty Adams, Co-Founder and Principal of Strategic Value Bank Partners, added, “We have been a long-time investor in PGC common stock and are excited to support the Company’s continued growth. We have strong conviction in the management team and the progress made in building a premier private banking and wealth management franchise serving clients across the New York metropolitan market. This investment reflects our confidence in the Company’s trajectory and our interest in deepening our long-term partnership.”
 
- “Every architectural decision in Frame Blockchain was made with the goal of solving blockchain’s most fundamental limitation: networks that can’t work together,” said Sean Docherty, Frame Blockchain’s creator and chief architect. “Think of it as the interstate highway system for crypto. Commerce within each city might thrive, but without a highway connecting them, trade between them grinds to a halt. That’s crypto today. Frame Blockchain was built to connect them.”
-
- “Our core belief has always been that the path to crypto’s mainstream adoption runs through connection: bringing people on-chain and then connecting the chains themselves, said Jared Strasser, Chief Operating Officer of TCC. Frame Blockchain is built to do exactly that. And as AI-driven commerce grows and autonomous agents begin transacting with digital assets, an interoperable settlement layer becomes even more critical. We believe Frame Blockchain positions us at the center of both of those opportunities.”
-
- “Combining a public company with a new Layer 1 blockchain unlocks something the crypto world has struggled to provide: aligned exposure to the economics of crypto commerce,” said Rafe Furst, Chief Strategy Officer of The Crypto Company.
-
- TCC completed the acquisition of Frame Blockchain’s core technology and intellectual property through a simultaneous sign-and-close transaction with no TCC equity issued at closing and no upfront cash. All TCC equity consideration is milestone-based, earned only upon achievement of predefined performance and adoption targets over time. TCC has committed $2 million in capital to fund initial development through its newly formed subsidiary, Frame Intelligence, LLC.
-
- About The Crypto Company
-
- The Crypto Company (OTCID: CRCW) is a publicly traded company, with operating history dating back to 2017, focused on developing and operating blockchain infrastructure. TCC is completing the buildout of Frame Blockchain, a Layer 1 blockchain designed to connect fragmented blockchain ecosystems into a single interoperable network. Moreover, through an active Digital Asset Treasury (DAT), TCC holds tokens which it believes represent both financial and strategic value to TCC and its subsidiaries. Learn more at thecryptocompany.com.
+ Additional details regarding the transaction, including the terms of the preferred stock and related agreements, are included in the Company’s Current Report on Form 8-K filed today with the Securities and Exchange Commission.
 
  Forward-Looking Statements
 
- This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. Words such as “believes,” “expects,” “designed to,” “intended,” “may,” and similar expressions identify forward-looking statements. These statements involve known and unknown risks, uncertainties, and other factors that may cause actual results to differ materially from those expressed or implied. Such factors include, but are not limited to: TCC’s ability to successfully integrate the acquired technology; the anticipated benefits of the acquisition; achievement of milestones required for equity consideration; market adoption of blockchain infrastructure and AI-driven commerce; regulatory developments; competition; and TCC’s ability to fund development and operations. Readers are cautioned not to place undue reliance on these forward-looking statements. TCC undertakes no obligation to update or revise any forward-looking statements to reflect subsequent events or circumstances, except as required by law.
+ This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995, including statements regarding the expected timing, structure, and regulatory treatment of the preferred stock issuance, the anticipated use of proceeds, and the Company’s growth strategy and financial performance. These statements are based on current expectations and are subject to risks, uncertainties, and assumptions that could cause actual results to differ materially from those expressed or implied. Factors that may affect future results are discussed in the Company’s filings with the Securities and Exchange Commission, including its most recent Annual Report on Form 10-K and subsequent Quarterly Reports on Form 10-Q. The Company undertakes no obligation to update any forward-looking statements to reflect events or circumstances after the date of this release.
 
- Contact information: The Crypto Company Phone 424-228-9955 Email: info@tcc.cowww.thecryptocompany.com
+ About the Company
+
+ Peapack-Gladstone Financial Corporation is a New Jersey bank holding company with total assets of $7.5 billion and assets under management and/or administration of $13.1 billion as of December 31, 2025. Founded in 1921, Peapack Private Bank & Trust is a commercial bank that offers a client-centric approach to banking, providing high-quality products along with customized and innovative wealth management, investment banking, commercial and personal banking solutions. The Bank's wealth management division offers comprehensive financial, tax, fiduciary and investment advice and solutions to individuals, families, privately held businesses, family offices, and not-for-profit organizations, helping them establish, maintain, and expand their legacy. Peapack Private Bank & Trust offers an unparalleled commitment to client service. Visit www.peapackprivate.com for more information.
+
+ Contact: Frank A. Cavallaro, Peapack Private Bank & Trust, Sr. EVP, Chief Financial Officer, 500 Hills Drive, Suite 300, Bedminster, NJ 07921, fcavallaro@peapackprivate.com, (908) 306-8933
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-crypto-company-acquires-frame-blockchain-s-technology-an-interstate-highway-liquidity-layer-for-crypto-commerce-7086028)
+[Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-financial-corporation-announces-50-million-preferred-stock-commitment-7086031)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-company-acquires-frame-blockchain-to-unify-fragmented-crypto-ecosystems/8168ce249c06ca025f8e3d1da553aaf8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peapack-gladstone-secures-50m-preferred-stock-commitment-for-growth/54e45979c8ba82f22c75aea4f8075287) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/the-crypto-company-acquires-frame-blockchain-technology-to-unify/202630129)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/54e45979c8ba82f22c75aea4f8075287)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/416524-the-crypto-company-acquires-frame-blockchain-technology-to-unify-fragmented-crypto-ecosystems)
+Pickup - [https://advos.io/en](https://advos.io/en/peapack-gladstone-financial-corporation-secures-50-million-capit/202630139)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339546-das-krypto-unternehmen-erwirbt-frame-blockchain-technologie-um-fragmentierte-krypto-okosysteme-zu-vereinen)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/416630-peapack-gladstone-financial-corporation-secures-50-million-capital-commitment-from-strategic-value-bank-partners)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340088-la-empresa-cripto-adquiere-la-tecnologia-frame-blockchain-para-unificar-los-ecosistemas-cripto-fragmentados)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339557-peapack-gladstone-financial-corporation-sichert-sich-kapitalzusagen-in-hohe-von-50-millionen-us-dollar-von-strategic-value-bank-partners)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340861-la-crypto-company-acquiert-la-technologie-blockchain-frame-pour-unifier-les-ecosystemes-cryptographiques-fragmentes)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340099-peapack-gladstone-financial-corporation-obtiene-un-compromiso-de-capital-de-50-millones-de-dolares-de-strategic-value-bank-partners)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339512-a-crypto-company-adquire-tecnologia-blockchain-da-frame-para-unificar-ecossistemas-cripto-fragmentados)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340871-peapack-gladstone-financial-corporation-obtient-un-engagement-de-capital-de-50-millions-de-dollars-de-la-part-de-strategic-value-bank-partners)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-crypto-company-acquires-frame-blockchain-technology-to-unify/202630129)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339525-peapack-gladstone-financial-corporation-garante-compromisso-de-capital-de-us-50-milhoes-da-strategic-value-bank-partners)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-crypto-company-acquires-frame-blockchain-technology-to-unify/202630129)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/peapack-gladstone-financial-corporation-secures-50-million-capit/202630139)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416529-the-crypto-company-acquires-frame-blockchain-technology-to-unify-fragmented-crypto-ecosystems)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/peapack-gladstone-financial-corporation-secures-50-million-prefe/202630139)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416650-peapack-gladstone-financial-corporation-secures-50-million-capital-commitment-from-strategic-value-bank-partners)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/416762-peapack-gladstone-financial-corporation-secures-50-million-capital-commitment-from-strategic-value-bank-partners)
+
+Pickup - [https://news.jerseycitytribune.com/curated](https://news.jerseycitytribune.com/curated/202603/416765-peapack-gladstone-financial-corporation-secures-50-million-preferred-stock-commitment-from-strategic-value-bank-partners)
+
+Pickup - [https://news.newwarkherald.com/curated](https://news.newwarkherald.com/curated/202603/416769-peapack-gladstone-financial-corporation-secures-50-million-preferred-stock-commitment-from-strategic-value-bank-partners)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/26/calm_G_r.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/26/plumbVNh.webp)
