@@ -1,80 +1,31 @@
-# ASMALLWORLD Introduces New Marriott Bonvoy Benefit for Members
+# FRIWO Meets Its targets 2025 and Achieves a Significant Improvement in Earnings as Well as a Strengthened Financial Position
 
-ZURICH, SWITZERLAND - March 25, 2026 (NEWMEDIAWIRE) - ASMALLWORLD expands its offering with a new Marriott Bonvoy reward expanding its curated portfolio of premium travel benefits and loyalty rewards available across the ASMALLWORLD travel ecosystem.
+* Group revenue in 2025 of 77.4 million euros within the target range
+* Adjusted comparable EBIT exceeds the company’s own forecast and achieves a clearly positive figure
+* Financial restructuring following portfolio reorganisation completed; equity ratio jumps to over 30% (previous year: 5.3%)
+* Further development into a sustainably profitable and growing technology group
 
- ASMALLWORLD members can now enjoy access to Marriott Bonvoy points as part of their membership benefits - 35,000 points (Advantage), 250,000 points (Prestige) and 500,000 points (Signature) - bringing added flexibility and value for members who want to elevate their hotel stays worldwide.
+ OSTBEVERN, GERMANY - March 25, 2026 (NEWMEDIAWIRE) - FRIWO, an international product and system provider of power supplies and charging technology, has achieved its annual targets for the 2025 financial year, based on preliminary, as yet unaudited figures. Group turnover for the reporting year stood at 77.4 million euros, within the planned target range of 75 to 85 million euros and, as expected, significantly below the previous year’s figure of 93.0 million euros. It should be noted that in 2025, revenue was reduced by the application of the accounting standards for revenue recognition (IFRS 15) as well as negative currency effects. The Industrial Applications and Medical & Healthcare business segments performed well. Gross profit improved thanks to a significant reduction in manufacturing costs, noticeable efficiency gains across the entire value chain, and a more favorable product mix. EBIT (earnings before interest and taxes) developed as forecast, moving from a loss in previous years to a profit. Thanks to one-off effects from the disposal of the minority interests in the joint venture in India and from the sale of the DIN rail business, a positive figure in the low double-digit million euro range was achieved in the consolidated result.
 
- “This new benefit marks another important step in strengthening our global travel benefits portfolio and giving members more meaningful ways to unlock exceptional experiences,” said Zain Richardson, CEO of ASMALLWORLD. “By integrating Marriott Bonvoy points into our product offering, we are increasing choice and helping our members turn travel inspiration into memorable stays - whether for a long weekend or a once-in-a-lifetime journey.”
+ “2025 was a year of transformation for FRIWO and a successful financial year, both strategically and economically. It was marked by a comprehensive and successfully completed portfolio restructuring, which has significantly streamlined our structures and made us more competitive. This already led to a turnaround into profitability in terms of EBIT in 2025,” comments Dominik Woeffen, CEO of FRIWO AG. His fellow board member Ina Klassen adds: “We are proud that we have financially restructured our company and are once again reporting a rock-solid balance sheet with an equity ratio of over 30%. On this basis, we will develop FRIWO into a sustainably profitable and growing technology group.”
 
- NEW MARRIOTT BONVOY BENEFIT FOR ASMALLWORLD MEMBERS
+ The number of employees continued to decline to just 866 by the end of the year (end of 2024: 1,206); approximately 90% of them continue to work at the Vietnamese locations.
 
- Marriott Bonvoy is Marriott International’s award-winning travel programme, spanning a global collection of hotel brands and destinations.
+ FRIWO will publish its audited annual financial statements, annual report, and forecast for the new financial year 2026 on April 23, 2026. The Management Board will present details on these in a conference call.
 
- Through this partnership, ASMALLWORLD members can include Marriott Bonvoy points as part of their membership benefits, enabling them to use points toward stays that include the largest collection of luxury offerings, distinctive boutique properties, premium home rentals, and more. Members can also unlock once‑in‑a‑lifetime experiences through Marriott Bonvoy Moments™, from exclusive Michelin‑starred culinary journeys to groundbreaking musical world tours. Expanded ways to redeem points range from Shop with Points to curated Tours & Activities, adding another layer of memorable experiences to the ASMALLWORLD membership proposition.
+ Further information about the company can be found on the investor relations pages of FRIWO at: www.friwo.com/en/about/investor-relations
 
- MARRIOTT BONVOY POINTS PACKAGES AVAILABLE TO MEMBERS
+ Contact investor relations and media
 
- ASMALLWORLD members can access the following Marriott Bonvoy points packages as part of their membership selection:
+ FRIWO AGVivian Hage +49 (0) 2532 81 0ir@friwo.com
 
- * Advantage: 35,000 Marriott Bonvoy points
-* Prestige: 250,000 Marriott Bonvoy points
-* Signature: 500,000 Marriott Bonvoy points
+ Peter Dietz+49 (0) 69 97 12 47 33dietz@gfd-finanzkommunikation.de
 
- To celebrate the launch of this new benefit, ASMALLWORLD members purchasing Advantage or Prestige memberships will receive a limited time award of 30% bonus points.
+ About FRIWO:
 
- EXPANDING PREMIUM TRAVEL BENEFITS
+ FRIWO AG, listed in the General Standard of the Frankfurt Stock Exchange and headquartered in Ostbevern/Westphalia, is an international manufacturer of technically leading chargers and power supplies. FRIWO offers a whole range of applications with customized systems from a single source. Founded in 1971, the company has evolved from a supplier of power supply products to a full-range provider of sophisticated and customized solutions in the five business segments E-Mobility, Transportation & Logistics, Medical & Healthcare Solutions, Industrial Applications, Specialized Tools & Equipment and Lifestyle Solutions. Today, the product portfolio includes not only high-quality power supply solutions, but also battery charging solutions for a wide range of applications. With modern development centres, production facilities and sales locations in Europe, Asia and the USA, FRIWO is present in all the world’s major markets. FRIWO’s most important customers are leading brands in their respective markets and rely on FRIWO products to provide their customers with the highest quality. The main shareholder of FRIWO AG is a subsidiary of VTC GmbH & Co. KG, Munich. For more information, please visit our website at https://www.friwo.com.
 
- This new benefit reinforces ASMALLWORLD’s commitment to offering members a curated suite of travel privileges across flights, hotels, experiences and lifestyle.
-
- In addition to loyalty rewards, ASMALLWORLD members enjoy a range of premium benefits across the ASMALLWORLD ecosystem, including VIP hotel benefits, elite statuses, airport lounge access options and invitations to exclusive global events.
-
- THE ASMALLWORLD GROUP
-
- Centred around the ASMALLWORLD social network, the company operates a luxury travel ecosystem that serves discerning travellers and industry partners.
-
- At its core, the ASMALLWORLD social network is the trusted community for modern luxury travellers, offering a platform to connect, share experiences and enjoy a wealth of travel privileges.
-
- ASMALLWORLD members can engage through its app and website, receive travel inspiration, and meet in person at over 950 global ASMALLWORLD events every year, ranging from casual get-togethers, access to exclusive launches, galas, major global sporting events, and larger flagship weekend experiences hosted in iconic destinations such as Saint-Tropez and St. Moritz.
-
- Beyond the social network, the ASMALLWORLD Group extends into bespoke travel planning, luxury hospitality, and strategic B2B collaborations. Through its diverse portfolio, the Group fosters a like-minded global community, curated opportunities, and tailored solutions, shaping the evolution of luxury travel.
-
- Other businesses in the ASMALLWORLD travel ecosystem include:
-
- ASMALLWORLD Collection, a high-end online hotel booking engine focused on the world’s most admired hotels, offering the unique “ASMALLWORLD VIP Rate,” which combines preferred rates with exclusive travel benefits and privileges.
-
- ASMALLWORLD Bespoke Travel, a high-end travel agency offering personalised travel curation services.
-
- ASMALLWORLD DISCOVERY, part of Global Hotel Alliance alongside 50 leading hotel brands, services independent hotels in providing access to the GHA DISCOVERY loyalty network
-
- ASMALLWORLD Hospitality, a hospitality and management consultancy that supports owners and developers of hospitality assets throughout the different lifecycle stages of their assets, including acquisition, development, operations and exit.
-
- First Class & More, a subscription-based smart luxury travel service that allows members to enjoy luxury travel at insider prices.
-
- The World’s Finest Clubs, the world’s leading nightlife concierge offers its members VIP access to the most exclusive nightlife venues around the world.
-
- Jetbeds, a premier booking platform specialising in affordable Business and First-Class flights, offering exclusive deals, expert advice and personalised service.
-
- For more information, please visit:
-
- www.asmallworldag.com
-
- www.asmallworld.com
-
- CONTACTS
-
- ASMALLWORLD AGSeidengasse 208001 ZurichSwitzerlandinfo@asmallworldag.com
-
- Pippa O'KeefeHead of PR+44 7990 824 249pippa@asw.com
-
- DISCLAIMER
-
- The statements contained in this press release may constitute "forward-looking statements". Such can be identified, for example, by the use of the words "may," "will," "should," "plan," "expect," "anticipate," "estimate," "believe," "intend," "project," "target," "seek," or "aim," or the negative of these words or comparable expressions.
-
- Forward-looking statements involve a number of known and unknown risks, uncertainties and other factors that may cause the actual results, level of activity, performance or achievements of the Issuer or its industry to be materially different from any future results, level of activity, performance or achievements expressed or implied by such forward-looking statements.
-
- The issuer undertakes no obligation to publicly update or revise any forward-looking statements contained herein, whether as a result of new information, future events or otherwise.
-
- Additional features:File: [ASMALLWORLD_MARRIOTT BONVOY_PR_EN](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=c155b8e7dc48056dff507b638175985a&application_id=2297590&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
+ 
 
  
 
@@ -82,15 +33,35 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/asmallworld-introduces-new-marriott-bonvoy-benefit-for-members-7086024)
+[Original/Source Press Release](https://www.newmediawire.com/news/friwo-meets-its-targets-2025-and-achieves-a-significant-improvement-in-earnings-as-well-as-a-strengthened-financial-position-7086026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/asmallworld-partners-with-marriott-bonvoy-to-elevate-luxury-travel-benefits/9bf4fb5f3df869f533baea39564b63ad) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/friwo-achieves-profitability-turnaround-and-strengthens-financial-position-in-2025/da28cc2b6922e13d2d954e188f34ab34) 
 
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/416482-friwo-achieves-2025-financial-targets-with-improved-earnings-and-strengthened-balance-sheet)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339545-friwo-erreicht-finanzziele-2025-mit-verbessertem-ergebnis-und-gestarkter-bilanz)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340087-friwo-logra-sus-objetivos-financieros-para-2025-con-mejoras-en-ganancias-y-un-balance-fortalecido)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340859-friwo-atteint-ses-objectifs-financiers-2025-avec-une-amelioration-des-benefices-et-un-bilan-consolide)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339511-friwo-atinge-metas-financeiras-de-2025-com-melhoria-nos-lucros-e-balanco-patrimonial-fortalecido)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/friwo-achieves-financial-turnaround-with-2025-targets-met-and-st/202630128)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/friwo-achieves-2025-targets-with-significant-earnings-improvemen/202630128)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416502-friwo-completes-financial-restructuring-returns-to-profitability-with-strong-2025-results)
+
+Pickup - [https://advos.io/en](https://advos.io/en/friwo-achieves-2025-targets-with-improved-earnings-and-strengthe/202630128)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/416518-friwo-ag-achieves-2025-targets-with-profit-turnaround-following-restructuring)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/mendFDe_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/glue5Pkp.webp)
