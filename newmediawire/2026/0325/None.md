@@ -1,54 +1,96 @@
-# HeartBeam (BEAT) Partners With Mount Sinai to Accelerate AI-ECG Development and Validation
+# ASMALLWORLD Introduces New Marriott Bonvoy Benefit for Members
 
-LOS ANGELES, CA - March 25, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT) recently announced a collaboration with Mount Sinai aimed at advancing artificial intelligence-driven electrocardiogram technology, marking another step in the company’s push to expand its role in next-generation cardiac monitoring. The announcement highlights HeartBeam’s growing focus on artificial intelligence (“AI”)-enabled analysis and reinforces the relevance of its technology as healthcare increasingly shifts toward data-driven, remote monitoring solutions.
+ZURICH, SWITZERLAND - March 25, 2026 (NEWMEDIAWIRE) - ASMALLWORLD expands its offering with a new Marriott Bonvoy reward expanding its curated portfolio of premium travel benefits and loyalty rewards available across the ASMALLWORLD travel ecosystem.
 
- * The announcement outlines a strategic collaboration between HeartBeam and Mount Sinai to develop and validate AI-based ECG Algorithms
-* The collaboration is focused on building next-generation, personalized AI-ECG algorithms for wellness and clinical applications, including assessing heart attack risk
-* HeartBeam’s role in this evolving landscape is anchored by its HeartBeam System
+ ASMALLWORLD members can now enjoy access to Marriott Bonvoy points as part of their membership benefits - 35,000 points (Advantage), 250,000 points (Prestige) and 500,000 points (Signature) - bringing added flexibility and value for members who want to elevate their hotel stays worldwide.
 
- The announcement outlines a strategic collaboration between HeartBeam and Mount Sinai to develop and validate high value, AI-based ECG algorithms that can be deployed broadly across HeartBeam’s platform. These AI models may include patient-relevant wellness insights, condition-focused…
+ “This new benefit marks another important step in strengthening our global travel benefits portfolio and giving members more meaningful ways to unlock exceptional experiences,” said Zain Richardson, CEO of ASMALLWORLD. “By integrating Marriott Bonvoy points into our product offering, we are increasing choice and helping our members turn travel inspiration into memorable stays - whether for a long weekend or a once-in-a-lifetime journey.”
 
- Read More
+ NEW MARRIOTT BONVOY BENEFIT FOR ASMALLWORLD MEMBERS
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Marriott Bonvoy is Marriott International’s award-winning travel programme, spanning a global collection of hotel brands and destinations.
 
- The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
+ Through this partnership, ASMALLWORLD members can include Marriott Bonvoy points as part of their membership benefits, enabling them to use points toward stays that include the largest collection of luxury offerings, distinctive boutique properties, premium home rentals, and more. Members can also unlock once‑in‑a‑lifetime experiences through Marriott Bonvoy Moments™, from exclusive Michelin‑starred culinary journeys to groundbreaking musical world tours. Expanded ways to redeem points range from Shop with Points to curated Tours & Activities, adding another layer of memorable experiences to the ASMALLWORLD membership proposition.
 
- Forward Looking Statements
+ MARRIOTT BONVOY POINTS PACKAGES AVAILABLE TO MEMBERS
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ ASMALLWORLD members can access the following Marriott Bonvoy points packages as part of their membership selection:
+
+ * Advantage: 35,000 Marriott Bonvoy points
+* Prestige: 250,000 Marriott Bonvoy points
+* Signature: 500,000 Marriott Bonvoy points
+
+ To celebrate the launch of this new benefit, ASMALLWORLD members purchasing Advantage or Prestige memberships will receive a limited time award of 30% bonus points.
+
+ EXPANDING PREMIUM TRAVEL BENEFITS
+
+ This new benefit reinforces ASMALLWORLD’s commitment to offering members a curated suite of travel privileges across flights, hotels, experiences and lifestyle.
+
+ In addition to loyalty rewards, ASMALLWORLD members enjoy a range of premium benefits across the ASMALLWORLD ecosystem, including VIP hotel benefits, elite statuses, airport lounge access options and invitations to exclusive global events.
+
+ THE ASMALLWORLD GROUP
+
+ Centred around the ASMALLWORLD social network, the company operates a luxury travel ecosystem that serves discerning travellers and industry partners.
+
+ At its core, the ASMALLWORLD social network is the trusted community for modern luxury travellers, offering a platform to connect, share experiences and enjoy a wealth of travel privileges.
+
+ ASMALLWORLD members can engage through its app and website, receive travel inspiration, and meet in person at over 950 global ASMALLWORLD events every year, ranging from casual get-togethers, access to exclusive launches, galas, major global sporting events, and larger flagship weekend experiences hosted in iconic destinations such as Saint-Tropez and St. Moritz.
+
+ Beyond the social network, the ASMALLWORLD Group extends into bespoke travel planning, luxury hospitality, and strategic B2B collaborations. Through its diverse portfolio, the Group fosters a like-minded global community, curated opportunities, and tailored solutions, shaping the evolution of luxury travel.
+
+ Other businesses in the ASMALLWORLD travel ecosystem include:
+
+ ASMALLWORLD Collection, a high-end online hotel booking engine focused on the world’s most admired hotels, offering the unique “ASMALLWORLD VIP Rate,” which combines preferred rates with exclusive travel benefits and privileges.
+
+ ASMALLWORLD Bespoke Travel, a high-end travel agency offering personalised travel curation services.
+
+ ASMALLWORLD DISCOVERY, part of Global Hotel Alliance alongside 50 leading hotel brands, services independent hotels in providing access to the GHA DISCOVERY loyalty network
+
+ ASMALLWORLD Hospitality, a hospitality and management consultancy that supports owners and developers of hospitality assets throughout the different lifecycle stages of their assets, including acquisition, development, operations and exit.
+
+ First Class & More, a subscription-based smart luxury travel service that allows members to enjoy luxury travel at insider prices.
+
+ The World’s Finest Clubs, the world’s leading nightlife concierge offers its members VIP access to the most exclusive nightlife venues around the world.
+
+ Jetbeds, a premier booking platform specialising in affordable Business and First-Class flights, offering exclusive deals, expert advice and personalised service.
+
+ For more information, please visit:
+
+ www.asmallworldag.com
+
+ www.asmallworld.com
+
+ CONTACTS
+
+ ASMALLWORLD AGSeidengasse 208001 ZurichSwitzerlandinfo@asmallworldag.com
+
+ Pippa O'KeefeHead of PR+44 7990 824 249pippa@asw.com
+
+ DISCLAIMER
+
+ The statements contained in this press release may constitute "forward-looking statements". Such can be identified, for example, by the use of the words "may," "will," "should," "plan," "expect," "anticipate," "estimate," "believe," "intend," "project," "target," "seek," or "aim," or the negative of these words or comparable expressions.
+
+ Forward-looking statements involve a number of known and unknown risks, uncertainties and other factors that may cause the actual results, level of activity, performance or achievements of the Issuer or its industry to be materially different from any future results, level of activity, performance or achievements expressed or implied by such forward-looking statements.
+
+ The issuer undertakes no obligation to publicly update or revise any forward-looking statements contained herein, whether as a result of new information, future events or otherwise.
+
+ Additional features:File: [ASMALLWORLD_MARRIOTT BONVOY_PR_EN](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=c155b8e7dc48056dff507b638175985a&application_id=2297590&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-partners-with-mount-sinai-to-accelerate-ai-ecg-development-and-validation-7086016)
+[Original/Source Press Release](https://www.newmediawire.com/news/asmallworld-introduces-new-marriott-bonvoy-benefit-for-members-7086024)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-partners-with-mount-sinai-to-revolutionize-ai-ecg-technology/79c6849eb87b57bc4ac192908a2f8f7d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asmallworld-partners-with-marriott-bonvoy-to-elevate-luxury-travel-benefits/9bf4fb5f3df869f533baea39564b63ad) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/416406-heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology-for-cardiac-monitoring)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339539-heartbeam-geht-partnerschaft-mit-mount-sinai-ein-um-ki-ecg-technologie-fur-die-herzuberwachung-voranzutreiben)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340079-heartbeam-se-asocia-con-mount-sinai-para-avanzar-en-la-tecnologia-de-ia-ecg-para-monitoreo-cardiaco)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340853-heartbeam-sassocie-au-mount-sinai-pour-faire-progresser-la-technologie-ia-ecg-pour-la-surveillance-cardiaque)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339504-heartbeam-estabelece-parceria-com-mount-sinai-para-avancar-tecnologia-de-ecg-com-ia-para-monitoramento-cardiaco)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology/202630121)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/416440-heartbeam-partners-with-mount-sinai-to-advance-ai-ecg-technology-for-cardiac-monitoring)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202603/416412-heartbeam-partners-with-mount-sinai-to-advance-ai-driven-ecg-technology-for-cardiac-monitoring)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/mielk2l0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/25/mendFDe_.webp)
