@@ -1,64 +1,62 @@
-# GPS Jamming Is the Hidden Aspect of War That Many People Aren’t Aware Of
+# Gold Regains Some Ground as Trump Postpones Strikes on Iran Energy Installations
 
-Disseminated on behalf of SPARC AI Inc. (CSE: SPAI) (OTCQB: SPAIF) and may include paid advertising.
+The start of this week saw the price of gold decline before rebounding sharply as renewed optimism about easing tensions in the Iran conflict supported investor sentiment. Spot gold initially dropped by over 5% to around $4,262 before recovering to trade near $4,431.
 
- * While it might not be getting as much attention as other aspects of the current conflicts in Ukraine and the Middle East, GPS jamming is playing a silent, but important role in modern warfare.
-* GPS jamming is a warfare tactic that involves using radio frequency noise to overwhelm lower-power signals to disrupt communication, drone navigation, and guided munitions.
-* To help combat GPS jamming, SPARC AI has developed next-gen GPS-free target acquisition system and autonomous navigation software for drones and edge devices, to let them fly without relying on GPS.
-
- While issues like drone attacks and heavy artillery strikes steal many of the headlines about the recent conflicts in the Middle East and Ukraine, there’s a hidden battle being fought behind the scenes. This hidden aspect plays a much bigger part of modern conflicts than you might think.
-
- GPS jamming is a tactic where high-powered radio signals are used to block and overwhelm lower-power signals. The purpose of this is to emit enough noise on the same frequency that it disrupts legitimate signals from GPS satellites, often leading to a loss of tracking, navigation failure, and…
+ For now, gold appears to be entering a more uncertain phase, where its traditional role as a store of value is being tested by changing market dynamics and investor priorities. These changing market dynamics will be studied closely by firms like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) that feature in the…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to SPAIF are available in the company’s newsroom at https://ibn.fm/SPAIF
+ About MiningNewsWire
 
- About AINewsWire
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ MNW is where breaking news, insightful content and actionable information converge.
 
- AINW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.MiningNewsWire.com
 
- For more information, please visit www.AINewsWire.com
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or republished: https://www.MiningNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
+ MiningNewsWireLos Angeles, CAwww.MiningNewsWire.com310.299.1717 OfficeEditor@MiningNewsWire.com
 
- AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/gps-jamming-is-the-hidden-aspect-of-war-that-many-people-arent-aware-of/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/gold-regains-some-ground-as-trump-postpones-strikes-on-iran-energy-installations/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-ai-fights-the-silent-war-new-tech-counters-gps-jamming-in-modern-conflict/ccb0c4f3eae98bc409f29f2d7980600f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-s-wild-ride-iran-tensions-spark-5-plunge-and-sharp-rebound/f9ec54ab1c185caab718a2a3564c6319) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/gps-jamming-emerges-as-critical-warfare-tactic-driving-demand-fo/202630192)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/417339-gold-prices-rebound-as-geopolitical-tensions-shift-testing-traditional-safe-haven-role)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/417245-sparc-ai-develops-gps-free-navigation-technology-to-counter-modern-warfare-jamming-tactics)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339623-goldpreise-erholen-sich-bei-sich-verandernden-geopolitischen-spannungen-und-stellen-traditionelle-safe-haven-rolle-auf-die-probe)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339614-sparc-ai-entwickelt-gps-freie-navigationstechnologie-zur-abwehr-moderner-storangriffe-im-krieg)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340187-los-precios-del-oro-se-recuperan-ante-el-cambio-de-las-tensiones-geopoliticas-poniendo-a-prueba-su-papel-tradicional-de-refugio-seguro)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340177-sparc-ai-desarrolla-tecnologia-de-navegacion-sin-gps-para-contrarrestar-tacticas-de-interferencia-en-la-guerra-moderna)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340937-les-prix-de-lor-rebondissent-alors-que-les-tensions-geopolitiques-evoluent-remettant-en-question-son-role-traditionnel-de-valeur-refuge)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340928-sparc-ai-developpe-une-technologie-de-navigation-sans-gps-pour-contrer-les-tactiques-de-brouillage-de-la-guerre-moderne)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gold-prices-rebound-as-geopolitical-tensions-shift-testing-tradi/202630203)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339579-sparc-ai-desenvolve-tecnologia-de-navegacao-independente-de-gps-para-contornar-taticas-de-bloqueio-na-guerra-moderna)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gold-prices-rebound-as-geopolitical-tensions-ease-following-trum/202630203)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/gps-jamming-emerges-as-critical-warfare-tactic-driving-demand-fo/202630192)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417361-gold-market-volatility-reflects-geopolitical-tensions-and-changing-investor-priorities)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gps-jamming-emerges-as-critical-hidden-warfare-tactic-driving-de/202630192)
+Pickup - [https://advos.io/en](https://advos.io/en/gold-prices-rebound-after-trump-delays-iran-strikes-testing-meta/202630203)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417286-sparc-ai-develops-gps-free-navigation-technology-to-counter-modern-warfare-jamming-threats)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339590-precos-do-ouro-recuperam-se-com-mudancas-nas-tensoes-geopoliticas-testando-o-papel-tradicional-de-refugio-seguro)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202603/417374-gold-prices-swing-on-geopolitical-developments-as-traditional-safe-haven-role-faces-new-challenges)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/f9ec54ab1c185caab718a2a3564c6319)
+
+Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/f9ec54ab1c185caab718a2a3564c6319)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/26/mossmzCW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/26/kissZg1s.webp)

@@ -1,36 +1,54 @@
-# Soligenix (SNGX) Receives EU Orphan Drug Designation For Dusquetide In Behcet Disease
+# Stefan Bauerreis Becomes New Chief Financial Officer (CFO) of Medios AG
 
-LOS ANGELES, CA - March 26, 2026 (NEWMEDIAWIRE) - Soligenix (NASDAQ: SNGX) announced the European Commission has granted orphan drug designation to dusquetide (SGX945) for the treatment of Behcet Disease, following a positive recommendation from the European Medicines Agency and supportive Phase 2a data demonstrating biological efficacy and safety. The designation provides up to 10 years of market exclusivity in the European Union and adds to existing FDA orphan and fast track designations, as the company advances its innate defense regulator platform targeting unmet needs in rare autoimmune conditions.
+BERLIN - March 26, 2026 (NEWMEDIAWIRE) - The Supervisory Board of Medios AG has appointed Stefan Bauerreis as a member of the Executive Board and as the Company’s new Chief Financial Officer (CFO), effective April 15, 2026. He succeeds Falk Neukirch, who - as announced on March 6, 2026 – will step down at his own request at the end of his regular term of office on April 30, 2026.
 
- To view the full press release, visit https://ibn.fm/847sO
+ With the appointment of Stefan Bauerreis, Medios gains an experienced finance expert with many years of international leadership experience in industry and at publicly traded companies. Among other roles, he served as Chief Financial Officer of the Stabilus Group and held various senior finance positions within the Schaeffler Group for more than two decades, including as CFO for the Europe region and CFO for Germany. Stefan Bauerreis possesses extensive expertise in Corporate Accounting, Controlling, Financing, and the transformation and management of international companies.
 
- About Soligenix
+ Dr. Yann Samson, Chairman of the Supervisory Board of Medios AG: “With Stefan Bauerreis, we are gaining a proven financial expert with extensive experience in internationally positioned SDAX and MDAX companies. He combines operational excellence with strategic foresight and has repeatedly demonstrated throughout his career that he can successfully lead companies through periods of transformation. We are convinced that he will provide important momentum for the future development of Medios.”
 
- Soligenix is a late-stage biopharmaceutical company focused on developing and commercializing products to treat rare diseases where there is an unmet medical need. Our Specialized BioTherapeutics business segment is developing and moving toward potential commercialization of HyBryte(TM) (SGX301 or synthetic hypericin sodium) as a novel photodynamic therapy utilizing safe visible light for the treatment of cutaneous T-cell lymphoma (CTCL). With successful completion of the second Phase 3 study, regulatory approvals will be sought to support potential commercialization worldwide. Development programs in this business segment also include expansion of synthetic hypericin (SGX302) into psoriasis, our first-in-class innate defense regulator (IDR) technology, dusquetide (SGX942) for the treatment of inflammatory diseases, including oral mucositis in head and neck cancer, and (SGX945) in Behcet’s Disease.
+ Stefan Bauerreis: “I am very much looking forward to this new role and to helping shape the future of Medios AG as part of the Executive Board. As CFO, I will contribute to further expanding the success of the Medios Group and its position as a leading Specialty Pharma company, both nationally and internationally, in the best interest of our shareholders and employees.”Important events for the Medios Group in the 2026 financial year:
 
- Our Public Health Solutions business segment includes development programs for RiVax(R), our ricin toxin vaccine candidate, as well as our vaccine programs targeting filoviruses (such as Marburg and Ebola) and CiVax(TM), our vaccine candidate for the prevention of COVID-19 (caused by SARS-CoV-2). The development of our vaccine programs incorporates the use of our proprietary heat stabilization platform technology, known as ThermoVax(R). To date, this business segment has been supported with government grant and contract funding from the National Institute of Allergy and Infectious Diseases (NIAID), the Defense Threat Reduction Agency (DTRA) and the Biomedical Advanced Research and Development Authority (BARDA).
+April 15 Metzler Small Cap Days 2026 - FrankfurtMay 6 TP ICAP Midcap Conference 2026 - ParisMay 12 Quarterly Statement as of March 31, 2026June 10 Annual General Meeting 2026 (in-person)August 12 Half-Year Financial Report 2026September 28/29 Medios Capital Markets DayNovember 10 Quarterly Statement as of September 30, 2026-
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ About Medios AGMedios is a leading provider of Specialty Pharma in Europe. With locations in Germany, the Netherlands, Belgium and Spain, the Company supports key partners in the supply chain with innovative solutions and intelligent services. Medios has focused on pioneering individualized medicine to make the most innovative therapies available to everyone together with pharmacies, specialist practices and pharmaceutical companies.Medios AG is Germany's first listed specialty pharmaceutical Company. The shares (ISIN: DE000A1MMCC8) are listed on the regulated market of the Frankfurt Stock Exchange (Prime Standard) and are included in the SDAX selection index.www.medios.groupMore information on individualized medicine: https://app.medios.group/en/individualizedmedicine
 
- The latest news and updates relating to SNGX are available in the company’s newsroom at https://ibn.fm/SNGX
+ ContactClaudia NickolausHead of Investor & Public Relations, ESG CommunicationsMedios AGHeidestraBe 9 | 10557 BerlinT +49 30 232 566 800ir@medios.groupwww.medios.agDisclaimerThis communication contains forward-looking statements that are subject to certain risks and uncertainties. Future results could differ materially from those currently anticipated as a result of various risk factors and uncertainties, including, but not limited to, changes in business, economic and competitive conditions, foreign exchange rate fluctuations, uncertainties in litigation or investigative proceedings and the availability of financing. Medios AG assumes no responsibility to update any forward-looking statements contained in this release.
 
- Forward Looking Statements
+ 
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/soligenix-sngx-receives-eu-orphan-drug-designation-for-dusquetide-in-behcet-disease-7086046)
+[Original/Source Press Release](https://www.newmediawire.com/news/stefan-bauerreis-becomes-new-chief-financial-officer-cfo-of-medios-ag-7086053)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-wins-eu-orphan-drug-status-for-behcet-s-disease-therapy/e330da814d2ecfc600e2c7b6c087e010) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medios-ag-appoints-stefan-bauerreis-as-new-cfo-to-drive-specialty-pharma-growth/cbb7fb931b017dfd7424c9e9ecd456c0) 
 
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/417416-medios-ag-appoints-stefan-bauerreis-as-new-chief-financial-officer)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339631-medios-ag-ernennt-stefan-bauerreis-zum-neuen-finanzvorstand)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340193-medios-ag-nombra-a-stefan-bauerreis-como-nuevo-director-financiero)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340945-medios-ag-nomme-stefan-bauerreis-au-poste-de-nouveau-directeur-financier)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339596-medios-ag-nomeia-stefan-bauerreis-como-novo-diretor-financeiro)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/medios-ag-appoints-stefan-bauerreis-as-new-chief-financial-offic/202630209)
+
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/202603/417450-medios-ag-appoints-stefan-bauerreis-as-new-cfo-strengthening-financial-leadership-for-specialty-pharma-growth)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/medios-ag-appoints-stefan-bauerreis-as-new-chief-financial-offic/202630209)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417436-medios-ag-appoints-stefan-bauerreis-as-new-cfo-bringing-decades-of-international-finance-experience)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/26/noonXPmu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/26/cakedX9w.webp)
