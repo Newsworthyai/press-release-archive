@@ -1,43 +1,64 @@
-# Texas Innovation Ecosystems Explored at America House Panel
+# Comedy Village Celebrates Women’s Comedy History Month with All-Star Lineup in Times Square
 
-Austin, Texas (Newsworthy.ai) Friday Mar 27, 2026 @ 6:00 AM Central — An exclusive America House panel discussion, moderated by Justin McKenzie, host of The Building Texas Show, recently convened national and Texas innovation leaders at the Texas Capitol. The event, made possible by CS Freeland and Representative Donna Howard, fostered dialogue on the state’s burgeoning entrepreneurial ecosystems, investment trends, and unique collaborative spirit.
+New York, USA (Newsworthy.ai) Friday Mar 27, 2026 @ 5:20 PM Central — Comedy Village, located in the heart of Times Square, is celebrating Women’s Comedy History Month with a series of live performances highlighting women in stand-up comedy.
 
- The panel, which took place during a week of significant activity in Austin, brought together ecosystem builders, investors, and startup founders from across the country to share insights into the past, present, and future of innovation.
+ Founded by comedian PJ Landers, the club has built a reputation for supporting both established performers and emerging voices. That foundation continues this month with a curated lineup of shows designed to showcase the range and impact of women in comedy.
 
- Spotlighting Texas's Collaborative AdvantageJustin McKenzie opened the discussion by highlighting the growing momentum in Texas entrepreneurship:
+ Throughout the month, Comedy Village will host themed performances including:
 
- “Mayors are investing in these programs. They're really looking at how can we build more founders from our communities,” explained McKenzie.
+ • “Women of a Certain Age,” created and hosted by veteran comedian Carol Montgomery• “Chismosa,” featuring emerging Latina comics, hosted by Paula J. Leon• “Wang’s World,” spotlighting Asian women in comedy, hosted by Taiwanese comedian Vicki Wang
 
- The discussion underscored that Texas, as the 8th largest economy globally, is still in the early stages of realizing its full innovation potential. Panelists emphasized the state's natural collaborative networks, which differentiate it from other major tech hubs.
+ As part of the celebration, Comedy Village is offering VIP admission for women to select shows this weekend, giving audiences an opportunity to experience live stand-up in one of New York City’s most active comedy venues.
 
- Key Insights from the Panel:
+ The lineup also includes nationally recognized talent such as Brittany Brave and Carmen Lynch. Brave, a New York-based comedian originally from Miami, has appeared on NBC, MTV, The Wendy Williams Show, and SiriusXM, and was named a 2024 “Comic to Watch” at the New York Comedy Festival. Lynch, a bilingual comedian, has appeared on The Tonight Show Starring Jimmy Fallon, The Late Show with Stephen Colbert, Conan, and The Late Late Show with Craig Ferguson, along with credits including Inside Amy Schumer and That Damn Michael Che.
 
- * Diverse Founder Support: Preston James, Co-founder and CEO of DivInk, spoke on driving social economic equity through entrepreneurship, supporting diverse founders, and launching over 150 companies.
-* North Texas Innovation: Pamela Cytron, of The Founders Arena a leader in the wealth tech accelerator space, discussed intentional institutional innovation in North Texas and the strategic leverage of corporate headquarters and private capital. She emphasized the importance of connection: “Connecting communities and bringing us all together wherever we’re at is going to be as important as it’s ever been in our, at least in my career.” - Pamela Cytron
-* Houston's Undersung Ecosystem: Jesse Martinez detailed Houston's diverse tech landscape, including Helix Park (medtech/life sciences), TMCI (medical center), Green Town Labs (climate tech), and The ION (AI/sports tech), noting the need to better promote its robust innovation.
-* Statewide Collaboration & Investment: Panelists reinforced that Texas' strength comes from regional collaboration, with angel networks across the state (like CTAN, Houston Angel Network, North Texas Angel Network, and Alamo Angels) co-investing in emerging companies. This critical mass of talent and capital, combined with public investment initiatives (CIPRI, DeepRIT, Texas Space Commission), de-risks and catalyzes private funding.
+ “Comedy Village has always been about giving great comics a stage,” said Landers. “This month, we’re proud to highlight some of the women shaping comedy today and give them a platform in the heart of Times Square.”
 
- The consensus highlighted that Texas’s unique "connective tissue" of relationships across cities and institutions fosters a collaborative environment where a win for one region is a win for the entire state, promoting a shared vision for prosperity.
+ With nightly shows and a rotating lineup of performers, Comedy Village continues to position itself as a destination for both locals and visitors seeking live comedy in New York City.
 
- About The Building Texas Show:Hosted by Justin McKenzie, The Building Texas Show delivers in-depth conversations with leaders, builders, and innovators driving growth across Texas. From economic development to community storytelling, the show highlights the people and projects shaping the state’s future.
+ Comedy Village is a live comedy venue located in Times Square, New York City, featuring stand-up performances from nationally touring comedians, established acts, and emerging talent. Originally founded in 2004 in Greenwich Village, the club expanded to Times Square in 2024 and now hosts nightly shows in one of the world’s busiest entertainment districts.
 
- About America House:America House is a premier, invite-only event series spotlighting the national innovation landscape. Conceived as a non-political platform, it brings together ecosystem leaders from across the United States to deliver state-by-state briefings and foster collaboration among top innovators, investors, and stakeholders.
-
- Media Contact:Justin McKenzieHost, The Building Texas Show210-748-2312 | Email Contacthttps://buildingtexasshow.com 
+ Comedy Village provides a platform for a diverse range of comedians while offering audiences a consistent schedule of live performances in the heart of Manhattan. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603272282/texas-innovation-ecosystems-explored-at-america-house-panel)
+[Original/Source Press Release](https://newsworthy.ai/news/202603272291/comedy-village-celebrates-womens-comedy-history-month-with-all-star-lineup-in-times-square)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-innovation-leaders-unite-spotlight-state-s-collaborative-advantage/d0bd3cb779a2311b2197b8c3ec3ad337) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-celebrates-women-s-comedy-history-month-in-times-square/3579286f5c76d088693afbbc77cbd5c5) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/texas-innovation-ecosystems-gain-momentum-through-collaborative/202630217)
+Pickup - [https://advos.io/en](https://advos.io/en/comedy-village-spotlights-women-in-comedy-with-times-square-fest/202630261)
+
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202603/417984-comedy-village-celebrates-womens-comedy-history-month-with-diverse-times-square-lineup)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/417976-comedy-village-spotlights-women-in-comedy-with-times-square-celebration)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339679-comedy-village-ruckt-frauen-im-comedy-bereich-mit-times-square-feier-in-den-fokus)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340242-comedy-village-destaca-a-las-mujeres-en-la-comedia-con-celebracion-en-times-square)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340995-comedy-village-met-a-lhonneur-les-femmes-de-lhumour-avec-une-celebration-a-times-square)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339644-comedy-village-destaque-mulheres-na-comedia-com-celebracao-na-times-square)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedy-village-spotlights-womens-comedy-history-month-with-times/202630261)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/comedy-village-celebrates-womens-comedy-history-month-with-times/202630261)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417981-comedy-village-showcases-womens-comedy-history-month-with-times-square-performances)
+
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202603/417985-comedy-village-celebrates-womens-comedy-history-month-with-diverse-times-square-performances)
+
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202603/417986-comedy-village-celebrates-womens-comedy-history-month-with-diverse-times-square-performances)
+
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202603/417987-comedy-village-celebrates-womens-comedy-history-month-with-diverse-times-square-lineup)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/3579286f5c76d088693afbbc77cbd5c5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/27/take_XDx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/27/hushTmi7.webp)

@@ -1,24 +1,42 @@
-# Creatd, Inc. (OTCQB: CRTD) Announces Record Date and Annual Shareholder Meeting
+# Auddia Announces Reverse Stock Split
 
-New York, March 27, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Creatd, Inc. (OTCQB: CRTD) (“The Company”) is pleased to announce that the record date for its upcoming annual shareholder meeting is April 17, 2026. The virtual shareholder meeting is scheduled to take place on May 21, 2026. Shareholders of record as of the close of business on the record date will be entitled to notice of, and to vote at, the virtual annual meeting.
+BOULDER, CO, March 27, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Auddia Inc., (“Auddia” or the “Company”) (Nasdaq: AUUD, AUUDW), a proprietary AI platform for audio identification and classification and related technologies, that is reinventing how consumers engage with AM/FM radio, podcasts, and other audio content, today announced that effective before market open on Wednesday April 1, 2026, it will complete a 1-for-7.7 reverse stock split of its common stock.
 
- Jeremy Frommer, CEO of Creatd, Inc., stated, “We are preparing to file our 2025 audited financials and complete the necessary steps to re-register with the SEC in the coming weeks. This marks the next phase of our uplisting process, following our achievement of trading above $4.00 for 30 consecutive days, a requirement for listing on a national exchange. During this period, the Company traded under the temporary symbol CRTDD following our reverse split and has since returned to CRTD.”
+ On May 2, 2025, the Company’s stockholders approved an amendment to the Company’s Certificate of Incorporation to affect a reverse stock split with the exact ratio to be set by its Board of Directors. The Board resolved to set the reverse stock split at the ratio of 1-for-7.7. The Company filed an amendment to its Certificate of Incorporation with the Secretary of State in Delaware effective March 31, 2026, at 5:00 p.m. Eastern Time. As a result, every 7.7 issued shares of common stock will automatically be combined into one share of common stock.
 
- The annual shareholder meeting will address proposals related to the Company’s strategic initiatives, governance matters, and future direction. Shareholders are encouraged to exercise their voting rights. Details on electronic voting will be provided closer to the meeting date.
+ The Company believes that affecting the reverse stock split will assist in its efforts to meet the Nasdaq continued listing standards and to continue to have its common stock remain listed and traded on Nasdaq. In particular, the Company expects the reverse stock split to increase the per share price and bid price of its common stock above the $1.00 required by Nasdaq’s Minimum Bid Price Rule.
 
- Join our community discussion, which brings together shareholders, peers, and employees in our Investor Slack channel.
+ Shares of the Company’s common stock will be assigned a new CUSIP number (05072K 404) and are expected to begin trading on a split-adjusted basis on Wednesday, April 1, 2026.
 
- About Creatd, Inc.
+ The reverse stock split will not change the authorized number of shares of the Company’s common stock. No fractional shares will be issued in connection with the reverse stock split. In lieu thereof, any fractional shares resulting from the reverse stock split will be rounded up to the nearest whole share at the participant level. The Company does not intend to round up fractional shares at the beneficial level and will instead round any such fractional shares up at the participant level with DTC.
 
- Creatd, Inc. (OTCQB: CRTD) acquires, builds, and scales technology-driven businesses within a diversified portfolio, leveraging a shared services platform to accelerate growth and drive monetization. For more information, visit www.creatd.com.
+ The reverse stock split will apply to the Company’s outstanding preferred stock, warrants, stock options and restricted stock units. The number of shares of common stock into which these outstanding securities are convertible or exercisable will be adjusted proportionately as a result of the reverse stock split. The conversion or exercise prices of any outstanding preferred stock, warrants or stock options will also be proportionately adjusted in accordance with the terms of those securities and the Company’s equity incentive plans.
 
- Contact: ir@creatd.com
+ Once the reverse stock split becomes effective, stockholders holding shares through a brokerage account will have their shares automatically adjusted to reflect the 1-for-7.7 reverse stock split. Existing stockholders holding common stock certificates will receive a letter of transmittal from Auddia’s transfer agent, Vstock Transfer, with specific instructions regarding the exchange of shares.
 
- Forward Looking Statements: Any statements that are not historical facts and that express, or involve discussions as to, expectations, beliefs, plans, objectives, assumptions or future events or performance (often, but not always, indicated through the use of words or phrases such as “will likely result,” “are expected to,” “will continue,” “is anticipated,” “estimated,” “intends,” “plans,” “believes” and “projects”) may be forward-looking and may involve estimates and uncertainties which could cause actual results to differ materially from those expressed in the forward-looking statements. We caution that the factors described herein could cause actual results to differ materially from those expressed in any forward-looking statements we make and that investors should not place undue reliance on any such forward-looking statements. Further, any forward-looking statement speaks only as of the date on which such statement is made, and we undertake no obligation to update any forward-looking statement to reflect events or circumstances after the date on which such statement is made or to reflect the occurrence of anticipated or unanticipated events or circumstances. New factors emerge from time to time, and it is not possible for us to predict all of such factors. Further, we cannot assess the impact of each such factor on our results of operations or the extent to which any factor, or combination of factors, may cause actual results to differ materially from those contained in any forward-looking statements. This press release is qualified in its entirety by the cautionary statements and risk factor disclosure contained in our Securities and Exchange Commission filings
+ The Company expects to have its issued and outstanding common shares decrease from approximately 3.9 million pre-split shares to approximately 500,000 post-split shares outstanding as a result of the reverse stock split.
 
- Source: Creatd, Inc.
+ About Auddia Inc.
 
- The latest news and updates relating to $CRDT are available in the company’s newsroom at: https://tinyurl.com/crtdnewsroom
+ Auddia, through its proprietary AI platform for audio identification and classification and related technologies, is reinventing how consumers engage with AM/FM radio, podcasts, and other audio content. Auddia’s flagship audio superapp, called faidr, brings two industry firsts to the audio-streaming landscape: subscription-based, ad-free listening on any AM/FM radio station and podcasts with interactive digital feeds that support deeper stories and open untapped revenue streams to podcasters. faidr also delivers exclusive content and playlists, and showcases exciting new artists, hand-picked by curators and DJs. Both differentiated offerings address large and rapidly growing audiences with strong purchase intent. For more information, visit: www.auddia.com.
+
+ Forward-Looking Statements
+
+ This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995, Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934 about the Company’s current expectations about future results, performance, prospects and opportunities. Statements that are not historical facts, such as “anticipates,” “believes” and “expects” or similar expressions, are forward-looking statements. These forward-looking statements are based on the current plans and expectations of management and are subject to a number of uncertainties and risks that could significantly affect the Company’s current plans and expectations, as well as future results of operations and financial condition. These and other risks and uncertainties are discussed more fully in our filings with the Securities and Exchange Commission. Readers are encouraged to review the section titled “Risk Factors” in the Company’s Annual Report on Form 10-K for the year ended December 31, 2025, as well as other disclosures contained in the Prospectus and subsequent filings made with the Securities and Exchange Commission. Forward-looking statements contained in this announcement are made as of this date and the Company undertakes no obligation to publicly update or revise any forward-looking statements, whether as a result of new information, future events or otherwise.
+
+ Investor Contacts:
+
+ Kirin M. Smith
+
+ PCG Advisory, Inc.
+
+ 646.823.8656
+
+ ksmith@pcgadvisory.com
+
+ Source: Auddia Inc.
+
+ The latest news and updates relating to $AUUD are available in the company’s newsroom at: https://tinyurl.com/auudnewsroom
 
  PMW on Newsramp: https://newsramp.com/newswire/prism
 
@@ -26,49 +44,43 @@ New York, March 27, 2026 – PRISM MediaWire (Press Release Service – Press Re
 
  
 
- The post Creatd, Inc. (OTCQB: CRTD) Announces Record Date and Annual Shareholder Meeting first appeared on Prism Media Wire. 
+ The post Auddia Announces Reverse Stock Split first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/creatd-inc-otcqb-crtd-announces-record-date-and-annual-shareholder-meeting/)
+[Original/Source Press Release](https://prismmediawire.com/auddia-announces-reverse-stock-split-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/creatd-sets-shareholder-meeting-date-advances-uplisting-process/e0fbdec0a69ab792b50c1cc9de260498) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auddia-announces-1-for-7-7-reverse-stock-split-to-maintain-nasdaq-listing/a66aa9e7188a8797f90c992844f68189) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/creatd-inc-sets-record-date-for-annual-shareholder-meeting-amid/202630226)
+Pickup - [https://advos.io/en](https://advos.io/en/auddia-implements-reverse-stock-split-to-maintain-nasdaq-listing/202630257)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/417598-creatd-inc-announces-key-dates-for-annual-shareholder-meeting-and-provides-update-on-uplisting-progress)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/417946-auddia-implements-1-for-77-reverse-stock-split-to-maintain-nasdaq-listing)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339647-creatd-inc-gibt-wichtige-termine-fur-die-hauptversammlung-bekannt-und-informiert-uber-fortschritte-beim-uplisting)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339676-auddia-fuhrt-177-reverse-stock-split-durch-um-nasdaq-notierung-zu-erhalten)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340210-creatd-inc-anuncia-fechas-clave-para-la-reunion-anual-de-accionistas-y-actualiza-el-progreso-del-ascenso-a-bolsa)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340239-auddia-implementa-una-division-inversa-de-acciones-de-1-por-77-para-mantener-su-cotizacion-en-nasdaq)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340961-creatd-inc-annonce-les-dates-cles-de-son-assemblee-generale-annuelle-des-actionnaires-et-fait-le-point-sur-les-progres-de-son-projet-de-cotation-sur-un-marche-national)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/340992-auddia-met-en-oeuvre-un-regroupement-dactions-de-1-pour-77-pour-maintenir-sa-cotation-au-nasdaq)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/creatd-inc-announces-key-dates-for-annual-shareholder-meeting-am/202630226)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339641-auddia-implementa-desdobramento-inverso-de-1-para-77-para-manter-listagem-na-nasdaq)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/creatd-inc-announces-key-dates-for-annual-shareholder-meeting-am/202630226)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/auddia-implements-1-for-77-reverse-stock-split-to-maintain-nasda/202630257)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417616-creatd-sets-record-date-for-annual-meeting-as-uplisting-process-advances)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/auddia-implements-reverse-stock-split-to-maintain-nasdaq-listing/202630257)
 
-Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/202603/417628-creatd-sets-record-date-for-2026-annual-shareholder-meeting-amid-uplisting-progress)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/417956-auddia-implements-1-for-77-reverse-stock-split-to-maintain-nasdaq-listing)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339612-creatd-inc-anuncia-datas-chave-para-a-assembleia-geral-anual-de-acionistas-e-atualiza-sobre-o-progresso-do-uplisting)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/417960-auddia-inc-announces-1-for-77-reverse-stock-split-to-maintain-nasdaq-listing)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/417630-creatd-sets-record-date-for-2026-annual-shareholder-meeting-amid-uplisting-progress)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/a66aa9e7188a8797f90c992844f68189)
 
-Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/202603/417633-creatd-sets-record-date-for-2026-annual-meeting-amid-uplisting-progress)
-
-Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/202603/417635-creatd-sets-record-date-for-2026-annual-meeting-amid-uplisting-progress)
-
-Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/202603/417637-creatd-sets-shareholder-meeting-date-as-part-of-uplisting-process)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e0fbdec0a69ab792b50c1cc9de260498)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/a66aa9e7188a8797f90c992844f68189)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/27/glueu8Z4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/263/27/dual0mA8.webp)

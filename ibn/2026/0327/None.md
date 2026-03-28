@@ -1,44 +1,38 @@
-# MiningNewsBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) Files NI 43-101 Technical Report Supporting Swanson Gold Project PEA
+# 420 with CNW — CMS to Cover Up to $500 in CBD Health Program
 
-This article has been disseminated on behalf of LaFleur Minerals and may include paid advertising.
+A new initiative by the Centers for Medicare & Medicaid Services could soon allow some patients enrolled in government-backed health insurance programs to receive partial coverage for hemp-based products. The proposal would allow eligible participants to access up to $500 annually in qualifying CBD products, with initial phases possibly starting as early as April 1.
 
- LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) announced the filing of an independent NI 43-101 technical report supporting its preliminary economic assessment for the Swanson Gold Deposit and Beacon Gold Mill in Québec’s Abitibi Gold Belt, outlining a vertically integrated mine-to-mill strategy and a potential restart of gold production. The PEA highlights include a 65% after-tax IRR, C$101 million NPV (5%) and US$1,569/oz AISC, leveraging existing infrastructure and targeting staged expansion, while the company advances engineering, drilling and permitting toward a potential production decision.
+ This CMS program is likely to be watched closely by marijuana firms like Aurora Cannabis Inc. (NASDAQ: ACB) (TSX: ACB) as it is rolled out around the…
 
- To view the full press release, visit https://ibn.fm/YmShm
+ Read More>>
 
- About LaFleur Minerals Inc.
+ About CNW420
 
- LaFleur Minerals is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The Company’s mission is to advance mining projects with a laser focus on our resource-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 18,304 hectares (183 km(2)) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has recently consolidated a large land package along a major structural break that hosts the Swanson, Bartec and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. Lafleur Minerals’ fully permitted and refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at http://ibn.fm/LFLRF
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- About MiningNewsWire
+ For more information, please visit https://www.CannabisNewsWire.com
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- MNW is where breaking news, insightful content and actionable information converge.
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
-
- For more information, please visit https://www.MiningNewsWire.com
-
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
-
- MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
-
- MiningNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-fse-3wk0-files-ni-43-101-technical-report-supporting-swanson-gold-project-pea/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-cms-to-cover-up-to-500-in-cbd-health-program/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-unveils-robust-pea-for-quebec-gold-project-restart/898d5df9f100ed2e4508e35653758f35) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medicare-to-cover-up-to-500-in-cbd-products-for-patients-in-new-cms-program/851935af509158573a7253b5d7db449d) 
 
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/851935af509158573a7253b5d7db449d)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/27/pitapico1zfZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/27/pinkBI0j.webp)
