@@ -1,64 +1,32 @@
-# Dr. Patrick Ojo, Author of FREEDOM FOR PHARMACY, Signs With Creative Management Partners (CMP) Agent Alan Morell
+# Datavault AI (DVLT) Issues Corrected Release On Mandela Dollar Stablecoin Initiative
 
-CMP Will Represent Dr. Ojo's Commercial Rights Across All Platforms
+LOS ANGELES, CA - March 30, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) issued a corrected press release providing additional clarity on its Mandela Dollar (MUSD) initiative, a proposed USD-pegged stablecoin being developed with Mandela Dlamini & Manaway L.L.C. and Unity Reserve Holdings L.L.C. to support financial inclusion through low-cost remittances, micro-lending, savings, and digital payments in underserved regions. Datavault AI will serve as the primary technology partner, delivering AI-powered tokenization, blockchain infrastructure, and secure data systems to support issuance, compliance, and transparency, while emphasizing that MUSD is not yet live and warning against unauthorized tokens, with planned features including a 1:1 dollar peg, proof-of-reserves, ultra-low transaction fees, and integration with digital wallets and decentralized finance platforms as part of a phased global rollout.
 
- BEVERLY HILLS, CA - March 30, 2026 (NEWMEDIAWIRE) - Announced today,  Dr. Patrick Ojo, Author of FREEDOM FOR PHARMACY, signs with Creative Management Partners (CMP) Agent Alan Morell. CMP will represent Dr. Ojo's Commercial Rights Across All Platforms.
+ To view the full press release, visit https://ibn.fm/2o7Zi
 
- These include literary works, including a sequel to FREEDOM FOR PHARMACY, broadcast, adaptation of his book to a docuseries, speaking engagements, endorsements, advisory roles with online courses, and licensing.
+ About Datavault AI
 
- ABOUT DR. PATRICK OJO:
+ Datavault AI(TM) leads AI-driven data experiences, valuation, and monetization in the Web 3.0 environment. The Company’s cloud-based platform delivers comprehensive solutions through its collaborative Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division includes WiSA(R), ADIO(R), and Sumerian(R) patented technologies for spatial and multichannel wireless HD sound. The Data Science Division harnesses Web 3.0 and high-performance computing for experiential data perception, valuation, and secure monetization across industries including sports & entertainment, biotech, education, fintech, real estate, healthcare, and energy. The Information Data Exchange(R) (IDE) enables Digital Twins and secure NIL licensing, fostering responsible AI with integrity. Datavault AI’s customizable technology suite offers AI/ML automation, third-party integration, analytics, marketing automation, and advertising monitoring. Headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
 
- Dr. Patrick Ojo was born and brought up in Benin City, Nigeria, Africa. He attended Benin Baptist Model Primary School, Evboneka Grammar School (high school), and Eghosa Grammar School briefly for one year before proceeding to University of Ife, Ile-Ife, for a degree in chemistry. He taught briefly at Government Girl’s College Ngelzarma, Borno State, as Assistant Head of the Science Department, and Oghada Grammar School, Edo State, as Head of the Science Department before migrating to the United States in 1988. While in the U.S., he worked with New York City Department of Homeless Services as a caseworker; at the same time he attended New York City Technical College (to complete pre-pharmacy school requirements) and Long Island University, College of Pharmacy, Brooklyn, New York, for his first degree in pharmacy. He became a U.S. citizen in 1996. In 1997, he moved to Florida State for a professional pharmacy practice. He later enrolled in Nova Southeastern University, Fort Lauderdale, Florida, for a Doctor of Pharmacy degree, and he graduated in 1999. He has practiced professional pharmacy in various settings: community (Winn-Dixie Pharmacy), hospital (North Shore Hospital, Miami, etc.), closed (compounding prescription pharmacy), in a correctional facility (prison pharmacy), and/or institutional pharmacy.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Relevant Links:
+ Forward Looking Statements
 
- www.liberatepharmacy1.com
-
- Said Author Dr. Patrick Ojo: “Signing with Alan Morell of CMP to be my Agent signifies a huge milestone for me personally and professionally. I am very excited to work with CMP on submission of my book, FREEDOM FOR PHARMACY, as they navigate the best Publisher for my Literary works and my career's commercial rights across CMP avenues of monetization."
-
- Said Agent Alan Morell: “I am pleased to announce our signing of Dr. Patrick as one of our 248 Doctors in the Medical Health Wellness Division (A CMP, we represent more Doctors than any Agency in the World), in our 700+ portfolio of clients across Ent. Sports, Arts, Medical, Health and Wellness, Military, Music, Politics and Business under our CMP Management.
-
- “Dr. Patrick, in my view, is truly an American Hero, giving back, having worked with NYC Department of Homeless Services while graduating from Long Island University, College of Pharmacy, Brooklyn, New York, for his pharmacy degree AND also becoming a U.S. citizen in 1996. This year is our Nations 250th USA Anniversary and I felt signing Dr. Patrick was not only patriotic, but significant since his book, FREEDOM FOR PHARMACY is groundbreaking reading and a must read for a large majority of an audience who are confused with today’s U.S. Pharmacy’s; big Pharma control of the industry. Through Dr. Patrick’s book, the reader can navigate the red tape, allowing them FREEDOM in this U.S. Medical Sector.”
-
- About Alan Morell, CEO, Creative Management Partners LLC (CMP)
-
- Mr. Morell has over 40 years of global experience managing more than 3,700 campaigns in the development and management of talent, literary works, television and film packaging, commercial rights, corporate consulting, media positioning, sponsorship of live events, and intellectual property rights. He is among the few industry leaders whose clients have received prestigious awards including Grammy, Tony, Clio, Oscar, Emmy, ESPY, Telly, Victors, and New York Times Bestselling author recognition.
-
- Contact Information
-
- Creative Management Partners LLC (CMP)Beverly Hills Gardens Building9440 Santa Monica Blvd., Suite 301Beverly Hills, CA 90210Direct Dial: 508-292-7900www.creativemanagementpartners.com
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/dr-patrick-ojo-author-of-freedom-for-pharmacy-signs-with-creative-management-partners-cmp-agent-alan-morell-7086105)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-issues-corrected-release-on-mandela-dollar-stablecoin-initiative-7086109)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-patrick-ojo-signs-with-cmp-expands-freedom-for-pharmacy-reach/c0e7c3e4c366ae53e212576e266d623e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-clarifies-mandela-dollar-stablecoin-for-financial-inclusion/5d0ded4861f9a65c4cff5f247f56947c) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/pharmacy-author-dr-patrick-ojo-signs-with-creative-management-pa/202630280)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/418184-author-dr-patrick-ojo-signs-with-creative-management-partners-for-commercial-rights-representation)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339697-autor-dr-patrick-ojo-unterzeichnet-vertrag-mit-creative-management-partners-fur-kommerzielle-rechtevertretung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340261-el-autor-dr-patrick-ojo-firma-con-creative-management-partners-para-la-representacion-de-sus-derechos-comerciales)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341014-lauteur-dr-patrick-ojo-signe-avec-creative-management-partners-pour-la-representation-de-ses-droits-commerciaux)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339662-autor-dr-patrick-ojo-assina-com-creative-management-partners-para-representacao-de-direitos-comerciais)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/author-dr-patrick-ojo-signs-with-creative-management-partners-fo/202630280)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pharmacy-author-dr-patrick-ojo-signs-with-creative-management-pa/202630280)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/418204-pharmacy-author-dr-patrick-ojo-signs-with-creative-management-partners-for-commercial-rights-representation)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/30/cornBzq5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/30/loftnrrb.webp)
