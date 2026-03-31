@@ -1,42 +1,50 @@
-# Toronto CityPASS Expands Its Cultural Lineup With the AGO
+# ACT Releases 2026 Small Business Creatives Outlook Report Highlighting Industry Resilience and Opportunities for Artists and Makers
 
-TORONTO, ONTARIO - March 31, 2026 (NEWMEDIAWIRE) - The Art Gallery of Ontario (AGO) has been added to the Toronto CityPASS® program, expanding visitor access to one of Canada’s preeminent cultural institutions. CityPASS, the first bundled attraction ticketing program in North America, offers significant savings on combined admission to top attractions across 17 major cities in the United States and Canada. The AGO is a standout addition to the already impressive roster of Toronto CityPASS attractions.
+New Report Finds Steady Consumer Demand and Continued Event-Driven Growth for Creative Businesses, Even as Rising Costs and Evolving Risks Shape 2026
 
- Originally founded in 1900, the Art Gallery of Ontario is one of North America’s largest art museums. The AGO's collection of more than 120,000 works of art spans cutting-edge contemporary art, significant works by Indigenous and Canadian artists, and European masterpieces. The AGO presents wide-ranging exhibitions and programs, including solo exhibitions and acquisitions by diverse and underrepresented artists from around the world.
+ SALT LAKE CITY, UTAH - March 31, 2026 (NEWMEDIAWIRE) - ACT Insurance, a leading provider of insurance solutions for artists, crafters, tradesmen and other creative small businesses, today released its 2026 Small Business Creatives Outlook Report, offering a data-driven look at the economic, consumer and risk trends shaping the year ahead.
 
- Home to the world’s largest public collection of Henry Moore sculptures, highlights of the AGO collection include Peter Paul Rubens’ The Massacre of the Innocents (c. 1610), Pablo Picasso’s La misereuse accroupie (The Crouching Woman) (1902) from his Blue Period, and the Thomson Collection of Shipmodels. Landscapes by Canadian painters, including Emily Carr and the Group of Seven, are on view alongside modern and contemporary works, including Yayoi Kusama’s immersive installation INFINITY MIRRORED ROOM - LET'S SURVIVE FOREVER (2017).
+ The report combines survey insights from ACT-insured businesses and U.S. consumers along with proprietary claims data to provide a snapshot of how creative entrepreneurs are performing, where they see growth opportunities, and the challenges influencing their decisions.
 
- The AGO is currently embarking on its seventh expansion since being founded in 1900. When completed in 2027, the new Dani Reiss Modern and Contemporary Gallery will increase exhibition space for the museum’s growing modern and contemporary collection.
+ Findings point to a creative economy that remains steady, with most businesses reporting stable or slightly improved performance in 2025. Consumer demand also remains consistent: nearly two-thirds of shoppers are purchasing handmade goods at the same rate as prior years, and 30% report increased spending with independent creators.
 
- In addition to its permanent collection and special exhibitions, the AGO offers programming for all ages and interests, from live performances to talks, and is open late every Wednesday and Friday until 9 p.m. At the Dr. Mariano Elia Hands-On Centre, families with young visitors can make and do, while mobile Art Carts bring themed art-making activities into the gallery every weekend. Seasonal programs, including Family Day and March Break events, combine storytelling, artmaking, and performances. Dining options range from art-inspired prix-fixe meals at the AGO Bistro to coffee at the Espresso Bar and high tea in the Members Lounge. Shop AGO is a destination for artisan jewelry and art-inspired gifting.
+ In-person events such as markets, fairs, and festivals continue to serve as a primary revenue driver, with 71% of consumers citing the ability to see and feel product quality as a key reason for attending. At the same time, many businesses are expanding into online channels and reflect a more hybrid approach to reaching customers.
 
- “The Art Gallery of Ontario is an essential cultural destination, and we’re pleased to welcome it to the Toronto CityPASS program,” said Megan Allen, president and CEO of City Pass, Inc. “This partnership reinforces our mission to make world-class experiences more affordable, accessible and convenient for travelers.”
+ Operational pressures persist, however. Rising costs remain the top concern for creative entrepreneurs, alongside challenges related to event access, time constraints, and marketing. This has resulted in many becoming more selective about where and how they invest in growth.
 
- Toronto CityPASS tickets save travelers up to 38% on prepaid admission to five of the city’s top attractions in one mobile ticket. The program includes admission to CN Tower and Ripley’s Aquarium of Canada, plus a choice of three of the following attractions: Royal Ontario Museum, City Cruises Toronto, Casa Loma, Toronto Zoo, and the Art Gallery of Ontario.
+ “In many ways, the creative small business community continues to demonstrate remarkable resilience,” said Daryle Stafford, CEO of Veracity Insurance, parent company to ACT. “Artists, makers and vendors are finding ways to adapt, expand their reach and build sustainable businesses. What we’re seeing is a community that continues to grow while becoming more strategic about how it operates.”
 
- Tickets cost $134.96 CAD for adults and $99.96 CAD for children ages 4-12, excluding tax. Tickets are valid for nine consecutive days, including the first day of use. Mobile tickets are available at citypass.com. Ticketholders can use the My CityPASS app to access tickets, view attraction details, special offers, upgrades, and more. City Pass, Inc. offers a 365-day return policy on non-activated tickets.
+ The report also examines evolving risk trends across the creative economy. Using claims data, it highlights the most common incidents affecting creative businesses along with the types of losses that can carry the greatest financial impact. While overall claim frequency declined year over year, total claim costs increased. Weather-related events remained the most common type of claim, accounting for nearly half of all reported incidents, while fire-related losses, though less frequent, carried significantly higher costs.
 
- About CityPASS: For 28 years, CityPASS tickets have provided savings on admission to top attractions in major destinations. Based on more than 88,000 customer reviews, CityPASS products have an average rating of 4.6 out of 5 stars. CityPASS tickets are available in 17 North American destinations: Atlanta, Boston, Chicago, Dallas, Denver, Houston, Los Angeles, New York, Orlando, Philadelphia, San Antonio, San Diego, San Francisco, Seattle, Southern California, Tampa Bay, and Toronto. Since 1997, more than 30 million CityPASS tickets have been sold. For more information, visit CityPASS.com
+ Together, these insights underscore the importance of pairing growth strategies with strong risk management practices.
 
- Prices and programs are subject to change. CityPASS® and City Pass® are registered trademarks of City Pass, Inc.
+ “Independent artists and makers are entrepreneurs in every sense of the word,” Stafford added. “With the right protection and insights, they are well positioned to continue growing their businesses and contributing to a vibrant creative economy.”
 
- 
+ View the full report here: 2026 Small Business Creatives Outlook Report.
 
- View the original release on www.newmediawire.com 
+ About ACT
+
+ Founded in 2012, ACT Insurance (ACT) provides specialized insurance coverage designed for artists, crafters, tradesmen and other creative small businesses across the United States. Built around the unique needs of independent creators and event-based businesses, ACT delivers accessible coverage, practical resources and responsive support that help creative entrepreneurs protect their work and operate with confidence. Learn more at https://www.actinsurance.com/
+
+ About Veracity Insurance (Parent Company of ACT)
+
+ Veracity Insurance is a specialty insurance provider serving small and mid-sized businesses through exclusive, industry-tailored programs. With in-house underwriting expertise and partnerships with A-rated carriers, Veracity delivers efficient, reliable coverage designed to meet the unique risks of niche industries. The company specializes in General Liability, Product Liability, Program Management, and Surplus Lines solutions, helping businesses across the U.S. secure the protection they need to operate and grow with confidence.
+
+ Media ContactKyle PorterVirgo PRveracity@virgo-pr.com
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/toronto-citypass-expands-its-cultural-lineup-with-the-ago-7086123)
+[Original/Source Press Release](https://www.newmediawire.com/news/act-releases-2026-small-business-creatives-outlook-report-highlighting-industry-resilience-and-opportunities-for-artists-and-makers-7086130)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ago-joins-toronto-citypass-offering-major-savings-on-art-and-attractions/e3eecf31940fc9f9771a779440a2c386) 
-
-
-Pickup - [https://advos.io/en](https://advos.io/en/art-gallery-of-ontario-joins-toronto-citypass-program-expanding/202630308)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/act-report-creative-businesses-show-resilience-amid-rising-costs-event-driven-growth/b354232cfe6a57b140ebe30dcfc8326d) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/gulfiXeX.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/bestNx7B.webp)

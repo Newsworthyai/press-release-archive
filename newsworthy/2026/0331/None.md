@@ -1,50 +1,44 @@
-# Mitch Gould’s Memoir The Blonde, the Ferrari and the Kwan Featured in “Everyone Wins” Nominee Gift Bags During Hollywood’s Biggest Week
+# The Midwife in Vienna Launches “Baby’s First Bath” on Amazon.com
 
-Boca Raton, Florida (Newsworthy.ai) Tuesday Mar 31, 2026 @ 7:00 AM Eastern — 
+Boca Raton, Florida (Newsworthy.ai) Tuesday Mar 31, 2026 @ 11:30 AM Eastern — 
 
- As Hollywood’s biggest week concluded, entrepreneur Mitch Gould is reflecting on a milestone moment as his memoir, The Blonde, the Ferrari and the Kwan: The Quintessential American Success Story, was included in this year’s “Everyone Wins” Nominee Gift Bags.
+ The Midwife in Vienna, the Austrian wellness brand founded by practicing midwife Sarah Lares, today announced the availability of Baby’s First Bath - A Gentle Introduction to Newborn Care on Amazon.com, bringing a thoughtfully designed newborn bathing ritual to families across the United States.
 
- The memoir was selected for inclusion in this year’s “Everyone Wins” Nominee Gift Bags, independently produced by Distinctive Assets and presented to select OSCAR® nominees in major acting and directing categories, including Timothée Chalamet, Leonardo DiCaprio, Michael B. Jordan, Jessie Buckley, Kate Hudson, Rose Byrne, Jacob Elordi, Elle Fanning, Teyana Taylor, Delroy Lindo, and Josh Safdie.
+ Rooted in European midwifery tradition, Baby’s First Bath reflects a calm, intentional approach to one of a newborn’s earliest experiences. Designed to support connection and comfort, the product encourages parents to slow down and create a soothing environment during a meaningful milestone moment.
 
- Note: The “Everyone Wins” Nominee Gift Bags are NOT affiliated in any way with the OSCARS® or the Academy of Motion Picture Arts & Sciences. A.M.P.A.S. does not award, sponsor, endorse or provide these Gift Bags. Neither the Academy nor Distinctive Assets wants there to be any association in the media between the “Everyone Wins” Gift Bags and the OSCARS® or the Academy.
+ “As a midwife, I’ve always seen a baby’s first bath as more than a routine - it’s a moment of connection, calm, and care,” said Sarah Lares, founder of The Midwife in Vienna. “This product was created to help parents approach that moment with confidence, simplicity, and intention.”
 
- While the celebration highlights cinematic storytelling, Gould’s memoir offers a real-world perspective on success - built through decades of retail execution, brand partnerships, and relationships across sports and entertainment.
+ A Timeless Approach to Newborn Care Baby’s First Bath showcases a traditional philosophy of gentle newborn care, focusing on warmth, simplicity, and trust. Inspired by time-honored European practices, the product serves as both a functional solution and a thoughtful parenting resource - helping guide new parents through early care routines in a calm and supportive way.
 
- Unlike traditional business books, The Blonde, the Ferrari and the Kwan reads more like a cinematic journey - tracing Gould’s path from his Brooklyn upbringing to navigating high-profile partnerships across sports, entertainment, and consumer brands.
+ The formulation aligns with the brand’s commitment to minimalist, carefully selected ingredients designed for delicate newborn skin.
 
- “I grew up in retail - it’s in my DNA,” said Gould. “My father and grandfather were great mentors and played a major role in my early development. Later in my career, I was fortunate to meet R.D. Wells, who had played golf with Arthur Blank and Bernie Marcus, the founders of Home Depot. That mentorship helped shape my approach to business and long-term success.”
+ A Thoughtful Alternative: Glass Over Plastic In keeping with its European roots, The Midwife in Vienna has chosen glass packaging for Baby’s First Bath, reflecting both health-conscious and environmental considerations.
 
- Gould also played an integral role in the early development of Amazon’s sports nutrition category, helping build it from the ground up into a market exceeding $100 million. Those experiences laid the foundation for his broader approach to brand building and retail strategy - insights that are reflected throughout the memoir.
+ While plastic is commonly used in many baby care products, glass remains a preferred standard across much of Europe due to its purity, durability, and recyclability. By choosing glass, the brand offers parents an option that avoids unnecessary material exposure while also supporting more sustainable packaging practices.
 
- Over the course of his career, Gould has secured national placements with major U.S. retailers such as Walmart, CVS, Walgreens, GNC, and Costco, while building partnerships with athletes and public figures across multiple industries.
+ “Glass is something we trust and use widely in Europe, especially for products designed for the most sensitive stages of life,” Lares said. “It’s a simple choice that aligns with our values of care, safety, and environmental responsibility.”
 
- Throughout his career, Gould has worked with prominent figures including Steven Seagal, Hulk Hogan, Chuck Liddell, 8× Mr. Olympia Ronnie Coleman, and martial arts icon and actor Bob Wall.
+ Expanding Access to European-Inspired Care The launch of Baby’s First Bath on Amazon.com builds on the brand’s growing presence in the U.S. market. The Midwife in Vienna’s Nipple Care Ointment - Trusted Skin Care for Nursing & Sensitive Skin is also now available on Amazon.com, offering families additional access to the brand’s gentle, midwife-inspired care solutions.
 
- By appearing alongside luxury experiences and lifestyle offerings in the celebrity gift experience, the memoir reflects the shared themes of ambition, reinvention, and storytelling - whether on screen or in business.
+ The brand’s products are also available on OneLavi.com, with continued expansion planned as more American families discover its European-crafted approach to maternal and baby wellness.
 
- Order your copy of The Blonde, the Ferrari and the Kwan today.
+ With each new product release, The Midwife in Vienna continues to bring its philosophy of simplicity, trust, and natural care from Vienna to homes around the world.
 
- About Mitch Gould
+ Follow The Midwife in Vienna’s new USA Instagram channel.
 
- Mitch Gould is a third-generation retail distribution and manufacturing expert with more than 25 years of experience launching and scaling consumer products across dietary supplements, sports nutrition, skincare, hardware, and beverages. He has worked with iconic consumer brands such as Igloo, Rubbermaid, Sunbeam, and Miracle-Gro, as well as high-profile celebrity brands including Steven Seagal, Hulk Hogan, Chuck Liddell, 8× Mr. Olympia Ronnie Coleman, and martial arts pioneer Bob Wall.
-
- Over the course of his career, Gould has played a key role in helping shape the growth of the U.S. sports nutrition category-supporting the expansion of performance-focused products across major retail and e-commerce platforms, including Amazon, Walmart, GNC, CVS, and Walgreens. His work has centered on bringing muscle-building, recovery, and performance-oriented products to a broader consumer audience.
-
- Gould is known for his hands-on, execution-driven approach to building consumer brands at scale and for his deep understanding of what drives success in highly competitive categories such as sports nutrition and dietary supplements. He continues to focus on the evolving intersection of performance, wellness, and consumer demand for effective, results-driven products. 
+ About [The Midwife in Vienna](https://www.diehebammeinwien-shop.at/) Founded by Austrian midwife Sarah Lares, The Midwife in Vienna is a wellness brand inspired by nearly 20 years of hands-on birth and postpartum experience. The company crafts organic, minimalist products for mothers and babies, blending time-honored midwifery knowledge with modern sustainability. Every product is made in Austria using certified organic ingredients-many vegan and food-grade-reflecting the brand’s core values of simplicity, trust, and natural care. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603312293/mitch-goulds-memoir-the-blonde-the-ferrari-and-the-kwan-featured-in-everyone-wins-nominee-gift-b)
+[Original/Source Press Release](https://newsworthy.ai/news/202603312300/the-midwife-in-vienna-launches-babys-first-bath-on-amazoncom)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/entrepreneur-s-memoir-lands-in-oscar-nominee-gift-bags/85fd5d2d9ba993a6884c57d09c7fdcb6) 
-
-
-Pickup - [https://advos.io/en](https://advos.io/en/entrepreneur-mitch-goulds-memoir-included-in-hollywoods-prestigi/202630309)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/austrian-midwife-brand-brings-gentle-newborn-bath-ritual-to-u-s-families/bd7abd661a1550bce7f80bc0c5f8babe) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/31/navy2Kbi.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/31/lossHctY.webp)
