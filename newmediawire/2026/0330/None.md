@@ -1,18 +1,16 @@
-# Zalando s Supervisory Board Nominates AI Pioneer Peter Sarlin to Strengthen AI Leadership and Drive Innovation
+# The Platform Group Further Expands in the Optics Sector
 
-BERLIN - March 30, 2026 (NEWMEDIAWIRE) - Zalando SE (“Zalando”) today announced that its supervisory board has proposed the election of Peter Sarlin, a European pioneer in machine learning and artificial intelligence, as supervisory board member at the annual general meeting (AGM) on 12 May 2026.
+DUSSELDORF, GERMANY - March 30, 2026 (NEWMEDIAWIRE) - The Management Board of The Platform Group SE & Co. KGaA (ISIN DE000A40ZW88, WKN A40ZW8, "TPG") announces the further expansion of its "Optics & Hearing" segment. As previously communicated in the announcement dated June 13, 2025, a dedicated Optics & Hearing segment was established in the 2025 financial year, connecting local optical stores with the MyGlasses online platform. In the 2025 financial year, five companies were acquired, collectively comprising over 30 locations nationwide. These included, in particular, the companies Beste Aussichten GmbH, Karrasch & Nolte, and Freudenhaus Optik Handels GmbH, based in Munich.
 
- Sarlin will add strong, dedicated AI expertise to the supervisory board as Zalando, Europe's leading technology platform for fashion and lifestyle, scales a wide range of AI innovations to drive growth and efficiency across its entire business. Sarlin is the founder of Silo AI, Europe's largest private AI lab, which was acquired by AMD in 2024. He is also the chairperson of the board at companies NestAI and Qutwo, and a professor of practice at Aalto University, specialising in machine learning and AI.Sarlin is nominated to succeed Susanne Schroter-Crossan, who has decided to step down from her supervisory board mandate effective at the end of the AGM. The supervisory board thanks Schroter-Crossan sincerely for her outstanding and wide-ranging contributions and her dedicated service to the company’s strategic development during her tenure.
+ Through a purchase agreement, the optical company Blickpunkt GmbH Brillen und Contactlinsen, located in Starnberg, Bavaria, has now been acquired. The acquirer was TPG's subsidiary, Feine Augenoptik Beteiligungs-GmbH. Closing is expected by April 2026.
 
- Data, machine learning, and AI have been at the core of Zalando since its founding in 2008. The company is now supercharging the unique data and infrastructure platform it has built over 17 years - including the richest fashion-specific data set in Europe and the continent’s leading logistics fulfilment network - with AI to make its own operations more efficient and provide customers and partners with experiences and services that seemed impossible just a few years ago.Zalando is embracing agentic commerce as an exciting opportunity to create true lifestyle agents that understand the full context of customers’ lives and proactively serve them across all their fashion and lifestyle needs. As Zalando is building towards new, conversational ways to shop by evolving its Zalando Assistant into a true personal lifestyle companion, the company is already partnering with Sarlin’s Qutwo, one of Europe's most ambitious AI labs.“Peter will play a crucial role in governing and scaling our AI innovations further as we unlock tremendous value for our customers, our partners, and our business. He is an AI pioneer, and we are excited to work with him to embrace the tremendous opportunities ahead of us,” said Kelly Bennett, chairperson of the supervisory board. “On behalf of the board, I also want to express my deepest gratitude to Susanne Schroter-Crossan for her fantastic contribution and dedicated service to the company’s development during her tenure.”
+ Dieter Meis, Managing Director of the Optics & Hearing segment: "We have now acquired an excellent location in Starnberg with strong quality and a very high-value customer base. Together with our approach, we will further expand the foundation and leverage potential. In combination with our premium specialist stores FreudenHaus and Söhnges, we will continue to expand this line."
 
- The full invitation to the annual general meeting 2026 of Zalando SE is available on corporate.zalando.com.
+ The Optics & Hearing segment has been expanded by TPG since the 2025 financial year; the segment's EBITDA margin ranges from 20-25 %. Dr. Dominik Benner, CEO of The Platform Group SE & Co. KGaA: "Our entry into the optical industry is a well-considered long-term strategy. The implementation of expanding nationwide locations and linking them with online activities ensures that we are building a stable and highly profitable segment. The next step will be to integrate local opticians into the platform.
 
- About ZalandoFounded in Berlin in 2008, Zalando is the leading European technology platform for fashion and lifestyle. Connecting 62 million active customers with more than 7,000 brands across 29 markets, our business is built on a unique AI-powered data and infrastructure platform. For our customers, our multi-app approach - comprising Zalando, ABOUT YOU, and Lounge by Zalando - delivers an inspiring, highly personalised shopping experience, serving different customers with different needs. For our partners, we are building the operating system for e-commerce. Through ZEOS, Tradebyte, and SCAYLE, we open our logistics, software, and service capabilities to brands and retailers, enabling them to seamlessly scale their businesses across borders. For further information, please visit: corporate.zalando.com/en
+ The Platform Group SE & Co. KGaA:The Platform Group SE & Co. KGaA is a Europe-wide operating software company active in 26 industries through its proprietary platform solutions. The Group’s partner network comprises more than 16,000 partners who use the platform solutions to address both B2B and B2C customers. Industries served include, among others, the luxury portfolio, optics & hearing, furniture retail, machinery trading, dental technology, and electronics. The Group has 19 locations across Europe and is headquartered in Düsseldorf. According to preliminary figures, the Company achieved revenue of EUR 728 million in 2025, with adjusted EBITDA of EUR 55 million.
 
- Media inquiries Carolyn GroBBusiness and Financial Communications presse@zalando.de
-
- Investor/Analyst inquiries Patrick KoflerInvestor Relationsinvestor.relations@zalando.de
+ Contact:Investor RelationsNathalie Richert, Head of Investor Relations & HRir@the-platform-group.comSchloss Elbroich | Am Falder 4 | 40589 Dusseldorf | Germanycorporate.the-platform-group.com
 
  
 
@@ -24,15 +22,37 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/zalando-s-supervisory-board-nominates-ai-pioneer-peter-sarlin-to-strengthen-ai-leadership-and-drive-innovation-7086117)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-platform-group-further-expands-in-the-optics-sector-7086119)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/zalando-nominates-ai-pioneer-peter-sarlin-to-supervisory-board/2a9815346008fec468ba74f515f0cb41) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/platform-group-expands-optical-empire-with-bavarian-acquisition/4c141729fae6498bb312ce05668ecea6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/the-platform-group-expands-optics-sector-presence-with-bavarian/202630300)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/418390-the-platform-group-expands-optics-segment-with-bavarian-acquisition)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339716-die-platform-group-erweitert-optik-segment-durch-ubernahme-in-bayern)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340282-the-platform-group-amplia-su-segmento-de-optica-con-adquisicion-en-baviera)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341034-the-platform-group-etend-son-segment-optique-avec-une-acquisition-en-baviere)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339681-the-platform-group-expande-segmento-de-otica-com-aquisicao-na-baviera)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202603/418396-the-platform-group-acquires-blickpunkt-gmbh-to-expand-optical-retail-network)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-platform-group-expands-optics-presence-with-bavarian-acquisi/202630300)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-platform-group-expands-optics-segment-with-acquisition-of-bl/202630300)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/418395-the-platform-group-expands-optics-segment-with-strategic-acquisition-in-bavaria)
+
+Pickup - [realestate.in-focus.news](realestate.in-focus.news/news/202603/418401-the-platform-group-expands-optical-retail-network-with-blickpunkt-acquisition)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/30/neonF_qd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/oxenpzQC.webp)
