@@ -1,45 +1,79 @@
-# ACT Releases 2026 Small Business Creatives Outlook Report Highlighting Industry Resilience and Opportunities for Artists and Makers
+# Edgewater Wireless Expands Dual-Use Momentum With AirMetal MOU for High-Reliability Wireless Applications
 
-New Report Finds Steady Consumer Demand and Continued Event-Driven Growth for Creative Businesses, Even as Rising Costs and Evolving Risks Shape 2026
+OTTAWA, CANADA - March 31, 2026 (NEWMEDIAWIRE) - Edgewater Wireless Systems Inc. (TSXV: YFI) (OTC: KPIFF), a leader in interference-resilient wireless silicon and Spectrum Slicing™ technology, today announced that it has entered into a Memorandum of Understanding (“MOU”) with advanced robotics and unmanned systems group AirMetal Robotics (“AirMetal”) to pursue dual-use wireless opportunities requiring high-reliability, interference-tolerant radio performance.
 
- SALT LAKE CITY, UTAH - March 31, 2026 (NEWMEDIAWIRE) - ACT Insurance, a leading provider of insurance solutions for artists, crafters, tradesmen and other creative small businesses, today released its 2026 Small Business Creatives Outlook Report, offering a data-driven look at the economic, consumer and risk trends shaping the year ahead.
+ Spectrum Slicing™ positioned to power interference-tolerant, high-reliability radios for UAV, robotics, defence and mission-critical markets
 
- The report combines survey insights from ACT-insured businesses and U.S. consumers along with proprietary claims data to provide a snapshot of how creative entrepreneurs are performing, where they see growth opportunities, and the challenges influencing their decisions.
+ The MOU establishes a framework for the parties to evaluate collaboration opportunities in unmanned systems, robotics, defence, security, public safety, critical infrastructure and other applications where resilient wireless connectivity is increasingly mission-critical.
 
- Findings point to a creative economy that remains steady, with most businesses reporting stable or slightly improved performance in 2025. Consumer demand also remains consistent: nearly two-thirds of shoppers are purchasing handmade goods at the same rate as prior years, and 30% report increased spending with independent creators.
+ The initiative represents one of several emerging dual-use opportunities now under way as the Company broadens the commercial opportunities and target markets for its PrismIQ™ silicon and Spectrum Slicing™ architecture beyond traditional Wi-Fi markets and into high-value, next-generation communications platforms.“AirMetal brings deep, real-world operational insight into how UAVs are deployed at scale - and where today’s RF links break down,” said Andrew Skafel, President & CEO of Edgewater Wireless. “This MOU creates a structured, commercially grounded path to explore next-generation, multi-channel communications designed for high-reliability performance - starting with disciplined NRE programs and moving toward scalable deployment.”
 
- In-person events such as markets, fairs, and festivals continue to serve as a primary revenue driver, with 71% of consumers citing the ability to see and feel product quality as a key reason for attending. At the same time, many businesses are expanding into online channels and reflect a more hybrid approach to reaching customers.
+ “We believe the combination of AirMetal’s platform and deployment insight with Edgewater’s Spectrum Slicing™ innovation creates a highly differentiated position in the market,” said Kevin Toderel, CEO, AirMetal Robotics. “Together, we have the potential to advance a new class of sovereign dual-use radios designed to perform where conventional wireless links fall short - particularly in targeted UAV, robotics, defence and critical infrastructure applications.”
 
- Operational pressures persist, however. Rising costs remain the top concern for creative entrepreneurs, alongside challenges related to event access, time constraints, and marketing. This has resulted in many becoming more selective about where and how they invest in growth.
+ Under the MOU, Edgewater and AirMetal will explore technical and commercial opportunities to integrate Edgewater’s interference-tolerant wireless technology into advanced dual-use platforms and communications systems.
 
- “In many ways, the creative small business community continues to demonstrate remarkable resilience,” said Daryle Stafford, CEO of Veracity Insurance, parent company to ACT. “Artists, makers and vendors are finding ways to adapt, expand their reach and build sustainable businesses. What we’re seeing is a community that continues to grow while becoming more strategic about how it operates.”
+ The timing aligns with a significant expansion in Canadian federal support for domestic semiconductor, aerospace, autonomous systems and defence-related innovation. Recent federal initiatives, including new defence industrial programs, drone innovation initiatives and support for Canadian advanced technology development, are helping accelerate the market opportunity for sovereign, high-performance communications technologies. Edgewater believes these developments strengthen the long-term commercial backdrop for Canadian companies developing enabling technologies for dual-use and mission-critical applications.
 
- The report also examines evolving risk trends across the creative economy. Using claims data, it highlights the most common incidents affecting creative businesses along with the types of losses that can carry the greatest financial impact. While overall claim frequency declined year over year, total claim costs increased. Weather-related events remained the most common type of claim, accounting for nearly half of all reported incidents, while fire-related losses, though less frequent, carried significantly higher costs.
+ Industry analysts continue to forecast strong growth for drones and the enabling communications stack. One estimate places the global drone market at approximately US$73.06B in 2024, projected to reach approximately US$163.60B by 2030 [1]. A separate market view values the drone communications segment at approximately US$3.6B in 2024, projected to reach approximately US$11.6B by 2030 [2], underscoring the scale of opportunity in the connectivity layer.
 
- Together, these insights underscore the importance of pairing growth strategies with strong risk management practices.
+ The Company views the AirMetal MOU as strategically important for three reasons:
 
- “Independent artists and makers are entrepreneurs in every sense of the word,” Stafford added. “With the right protection and insights, they are well positioned to continue growing their businesses and contributing to a vibrant creative economy.”
+ 1. Expands Edgewater’s addressable market into a rapidly growing, strategically relevant segment
+2. Reinforces the applicability of Spectrum Slicing™ in high-reliability environments, beyond conventional broadband deployments
+3. Supports Edgewater’s broader strategy to position its silicon and IP platform at the centre of next-generation wireless architectures for commercial, industrial and dual-use use cases
 
- View the full report here: 2026 Small Business Creatives Outlook Report.
+ “This is about broadening Edgewater’s core silicon advantage into a new, emerging strategic market and is accretive to broader opportunity,” added Eric Smith, VP Product for Edgewater Wireless. “We are seeing growing interest in wireless systems that can maintain performance where conventional architectures begin to break down. That creates a compelling opportunity to extend our platform into dual-use programs and partnerships with meaningful long-term value.”
 
- About ACT
+ The MOU is non-binding and is intended to support evaluation of potential collaboration opportunities, including technical integration, product planning, commercial structures and customer engagement strategies. There can be no assurance that the MOU will lead to a definitive agreement, commercial deployment or revenue-generating relationship. However, management believes the MOU reflects accelerating interest in the Company’s technology in dual-use and other high-value wireless markets.
 
- Founded in 2012, ACT Insurance (ACT) provides specialized insurance coverage designed for artists, crafters, tradesmen and other creative small businesses across the United States. Built around the unique needs of independent creators and event-based businesses, ACT delivers accessible coverage, practical resources and responsive support that help creative entrepreneurs protect their work and operate with confidence. Learn more at https://www.actinsurance.com/
+ This announcement follows Edgewater’s broader efforts to expand its strategic reach into dual-use applications, reflecting increasing industry and customer recognition that interference resilience, deterministic performance and wireless reliability are becoming critical design requirements across a widening range of connected systems.
 
- About Veracity Insurance (Parent Company of ACT)
+ About AirMetal Robotics
 
- Veracity Insurance is a specialty insurance provider serving small and mid-sized businesses through exclusive, industry-tailored programs. With in-house underwriting expertise and partnerships with A-rated carriers, Veracity delivers efficient, reliable coverage designed to meet the unique risks of niche industries. The company specializes in General Liability, Product Liability, Program Management, and Surplus Lines solutions, helping businesses across the U.S. secure the protection they need to operate and grow with confidence.
+ AirMetal Robotics is a Canadian advanced robotics and unmanned systems company focused on high-performance platforms and domestic innovation for emerging government, industrial and dual-use applications.
 
- Media ContactKyle PorterVirgo PRveracity@virgo-pr.com
+ https://remoterobotic.com/
 
-View the original release on www.newmediawire.com 
+ About Edgewater Wireless
+
+ We make Wi-Fi. Better.
+
+ Edgewater Wireless delivers unmatched Wi-Fi QoS - bar none - by intelligently mitigating congestion, allocating spectrum in real time, and autonomously optimizing channel and link density to keep networks fast, fair, and reliable when it matters most. The result is tangible economics for service providers and their customers: reduced churn, improved efficiency, and consistently high-performance connectivity in the most demanding, high-density environments.
+
+ Redefining Wi-Fi from the silicon up, Edgewater’s patented, AI-powered Wi-Fi Spectrum Slicing™ platformde - livered through the PrismIQ™ product family - breaks the limits of legacy Wi-Fi by enabling multiple concurrent channels within a single band, so more users get more usable capacity without the typical trade-offs. PrismIQ powers Edgewater’s Wi-Fi 8-ready solution set, designed for Ultra High Reliability and predictable performance at scale across residential, enterprise, and Industrial IoT deployments - while delivering 10× performance and up to 50% lower latency, even for legacy devices.
+
+ With 26 granted patents, three AI-related patents pending, and a capital-efficient fabless model, Edgewater is transforming the economics of Wi-Fi for service providers, OEMs, and enterprises - powering scalable, standards-leading connectivity for the next era of global networks. A Silicon Catalyst portfolio company, Edgewater is building the intelligent wireless foundation for the future of connectivity.
+
+ Visit https://edgewaterwireless.com
+
+ Airmetal Robotics Corporation
+
+ Kevin Toderel, PresidentE kevin@airmetal.com
+
+ David Cunningham, CSROE David.Cunningham@airmetal.com
+
+ Edgewater Wireless Contacts:
+
+ Andrew Skafel, President and CEOE: andrews@edgewaterwireless.com
+
+ Bill Mitoulas, Investor RelationsE: ir@edgewaterwireless.comT: +1.416.479.9547
+
+ Forward-Looking Statements
+
+ This news release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws. The use of any of the words "expect", "anticipate", "continue", "estimate", "objective", "ongoing", "may", "will", "project", "should", "believe", "plans", "intends" and similar expressions are intended to identify forward-looking information or statements. Although Edgewater Wireless believes that the expectations and assumptions on which such forward-looking statements and information are based are reasonable, undue reliance should not be placed on the forward-looking statements and information because Edgewater Wireless can give no assurance that they will prove to be correct. By its nature, such forward-looking information is subject to various risks and uncertainties, which could cause Edgewater Wireless’ actual results and experience to differ materially from the anticipated results or expectations expressed. These risks and uncertainties, include, but are not limited to access to capital markets, market forces, competition from new and existing companies and regulatory conditions. Readers are cautioned not to place undue reliance on this forward-looking information, which is given as of the date it is expressed in this news release or otherwise, and to not use future-oriented information or financial outlooks for anything other than their intended purpose. Edgewater Wireless undertakes no obligation to update publicly or revise any forward-looking information, whether as a result of new information, future events or otherwise, except as required by law.
+
+ NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICES PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS RELEASE.
+
+ 1 Source: Grand View Research, Drone Market Size, Share & Growth | Industry Report, 2030 (market summary, accessed February 20, 2026).
+
+2 Source: Research and Markets, Drone Communications Market – Global Strategic Business Report (market summary, accessed February 20, 2026). 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/act-releases-2026-small-business-creatives-outlook-report-highlighting-industry-resilience-and-opportunities-for-artists-and-makers-7086130)
+[Original/Source Press Release](https://www.newmediawire.com/news/edgewater-wireless-expands-dual-use-momentum-with-airmetal-mou-for-high-reliability-wireless-applications-7086135)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/act-report-creative-businesses-show-resilience-amid-rising-costs-event-driven-growth/b354232cfe6a57b140ebe30dcfc8326d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edgewater-wireless-airmetal-robotics-partner-for-next-gen-dual-use-wireless-tech/dd06ceac0c91395486add6ec1dbb5982) 
 
  
 
@@ -47,4 +81,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/bestNx7B.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/warpa_2u.webp)

@@ -1,44 +1,56 @@
-# The Midwife in Vienna Launches “Baby’s First Bath” on Amazon.com
+# Nathan Macintosh Makes Cobbs Comedy Club Debut in San Francisco April 10–11
 
-Boca Raton, Florida (Newsworthy.ai) Tuesday Mar 31, 2026 @ 11:30 AM Eastern — 
+San Francisdo (Newsworthy.ai) Tuesday Mar 31, 2026 @ 11:59 AM Pacific — Nathan Macintosh will make his first appearance at Cobbs Comedy Club with a three-show run on April 10 and 11. Coming off recent sold-out performances in Chicago and San Diego, demand is expected to be strong for this limited engagement.
 
- The Midwife in Vienna, the Austrian wellness brand founded by practicing midwife Sarah Lares, today announced the availability of Baby’s First Bath - A Gentle Introduction to Newborn Care on Amazon.com, bringing a thoughtfully designed newborn bathing ritual to families across the United States.
+ Macintosh is a Juno Award-nominated comedian known for sharp, clean stand-up built on real-life observations and fast pacing. His comedy has reached more than 40 million viewers online, and his latest hour, Down With Tech, connects strongly with audiences navigating modern life.
 
- Rooted in European midwifery tradition, Baby’s First Bath reflects a calm, intentional approach to one of a newborn’s earliest experiences. Designed to support connection and comfort, the product encourages parents to slow down and create a soothing environment during a meaningful milestone moment.
+ San Francisco audiences, especially those frustrated with the constant presence of technology in daily life, will find familiar ground in Macintosh’s material. His ability to turn everyday frustrations into tightly written comedy has made him a standout on stages across North America.
 
- “As a midwife, I’ve always seen a baby’s first bath as more than a routine - it’s a moment of connection, calm, and care,” said Sarah Lares, founder of The Midwife in Vienna. “This product was created to help parents approach that moment with confidence, simplicity, and intention.”
+ This appearance marks a milestone for Macintosh, performing for the first time at Cobbs Comedy Club, one of San Francisco’s most recognized comedy venues.
 
- A Timeless Approach to Newborn Care Baby’s First Bath showcases a traditional philosophy of gentle newborn care, focusing on warmth, simplicity, and trust. Inspired by time-honored European practices, the product serves as both a functional solution and a thoughtful parenting resource - helping guide new parents through early care routines in a calm and supportive way.
+ Show Details and Tickets Nathan Macintosh performs three shows at Cobbs Comedy Club.
 
- The formulation aligns with the brand’s commitment to minimalist, carefully selected ingredients designed for delicate newborn skin.
+ Tickets are available forFriday, April 10 at 7:30 PMSaturday, April 11 at 7:00 PM Saturday, April 11 at 9:15 PM
 
- A Thoughtful Alternative: Glass Over Plastic In keeping with its European roots, The Midwife in Vienna has chosen glass packaging for Baby’s First Bath, reflecting both health-conscious and environmental considerations.
+ Limited seating available—secure your tickets early!
 
- While plastic is commonly used in many baby care products, glass remains a preferred standard across much of Europe due to its purity, durability, and recyclability. By choosing glass, the brand offers parents an option that avoids unnecessary material exposure while also supporting more sustainable packaging practices.
+ Macintosh’s recent run includes multiple sold-out shows, including Zanies Chicago and performances in San Diego. His growing audience continues to drive strong turnout in major comedy markets.
 
- “Glass is something we trust and use widely in Europe, especially for products designed for the most sensitive stages of life,” Lares said. “It’s a simple choice that aligns with our values of care, safety, and environmental responsibility.”
+ “I’ve been wanting to perform at Cobbs for a long time,” said Macintosh. “San Francisco feels like the perfect place for this material, especially with everything going on around tech right now.”
 
- Expanding Access to European-Inspired Care The launch of Baby’s First Bath on Amazon.com builds on the brand’s growing presence in the U.S. market. The Midwife in Vienna’s Nipple Care Ointment - Trusted Skin Care for Nursing & Sensitive Skin is also now available on Amazon.com, offering families additional access to the brand’s gentle, midwife-inspired care solutions.
+ Fans can preview his stand-up here:https://youtu.be/NRFQ3IQM9is?si=lg5ZDWL6wS77NVv9
 
- The brand’s products are also available on OneLavi.com, with continued expansion planned as more American families discover its European-crafted approach to maternal and baby wellness.
-
- With each new product release, The Midwife in Vienna continues to bring its philosophy of simplicity, trust, and natural care from Vienna to homes around the world.
-
- Follow The Midwife in Vienna’s new USA Instagram channel.
-
- About [The Midwife in Vienna](https://www.diehebammeinwien-shop.at/) Founded by Austrian midwife Sarah Lares, The Midwife in Vienna is a wellness brand inspired by nearly 20 years of hands-on birth and postpartum experience. The company crafts organic, minimalist products for mothers and babies, blending time-honored midwifery knowledge with modern sustainability. Every product is made in Austria using certified organic ingredients-many vegan and food-grade-reflecting the brand’s core values of simplicity, trust, and natural care. 
+ For additional tour dates and information, visit https://nathanmacintosh.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202603312300/the-midwife-in-vienna-launches-babys-first-bath-on-amazoncom)
+[Original/Source Press Release](https://newsworthy.ai/news/202603312297/nathan-macintosh-makes-cobbs-comedy-club-debut-in-san-francisco-april-10-11)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/austrian-midwife-brand-brings-gentle-newborn-bath-ritual-to-u-s-families/bd7abd661a1550bce7f80bc0c5f8babe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-macintosh-brings-tech-savvy-comedy-to-cobbs-comedy-club/512a186b0e8bc08282e6adcf99e9ed0c) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/comedian-nathan-macintosh-brings-tech-focused-comedy-to-san-fran/202630372)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/419126-comedian-nathan-macintosh-brings-critically-acclaimed-down-with-tech-show-to-san-franciscos-cobbs-comedy-club)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339787-comedian-nathan-macintosh-bringt-seine-gefeierte-show-down-with-tech-in-san-franciscos-cobbs-comedy-club)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340353-el-comediante-nathan-macintosh-lleva-su-aclamado-espectaculo-down-with-tech-al-cobbs-comedy-club-de-san-francisco)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341107-le-comedien-nathan-macintosh-presente-son-spectacle-acclame-down-with-tech-au-cobbs-comedy-club-de-san-francisco)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339755-comediante-nathan-macintosh-traz-o-aclamado-show-down-with-tech-para-o-cobbs-comedy-club-em-sao-francisco)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/nathan-macintosh-brings-tech-critical-comedy-to-cobbs-comedy-clu/202630372)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nathan-macintosh-brings-technology-focused-comedy-to-cobbs-comed/202630372)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/419158-comedian-nathan-macintosh-brings-tech-critical-comedy-to-san-franciscos-cobbs-comedy-club)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/31/lossHctY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/263/31/gleeNwKB.webp)

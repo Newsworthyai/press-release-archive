@@ -1,56 +1,48 @@
-# Ketryx Launches Model Context Protocol (MCP) Beta to Bring Compliance Intelligence into AI-Powered Product Development
+# UGI System Upgrades Set to Begin This Week in East Hempfield Township and Manor Township
 
-Cambridge, MA — March 31, 2026 —
+for immediate release - march 31, 2026
 
-Ketryx, the AI-native compliance platform for safety-critical product development, today announced the beta launch of its Model Context Protocol (MCP) server. This enables AI tools such as ChatGPT, Claude, and Copilot to securely access live compliance data from Ketryx, allowing both people and AI agents to build regulated products with full compliance awareness.
+UGI Utilities is scheduled to begin system upgrades in two Lancaster County communities on April 1. The work in East Hempfield Township and Manor Township is part of UGI’s commitment to provide safe and reliable service and provides opportunities for some homes and businesses along the project route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Ketryx launches the beta of its Model Context Protocol (MCP) server, enabling AI tools like ChatGPT, Claude, and Copilot to securely access live compliance data and help people and AI agents build regulated products with full compliance awareness.
-* MCP integrates fragmented PLM, ALM, and development tools into a unified knowledge graph so teams can use natural-language queries to check compliance status, identify traceability gaps, and verify release readiness without switching systems.
-* 
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-system-upgrades-set-to-begin-this-week-in-east-hempfield-township-and-manor-township)UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-[Click image above to view full announcement.](https://ketryx.reportablenews.com/pr/ketryx-launches-model-context-protocol-mcp-beta-to-bring-compliance-intelligence-into-ai-powered-product-development)About KetryxKetryx transforms the product lifecycle of life science teams to deliver safer products, faster. Trusted by four of the world’s top five medical device manufacturers, its AI-native compliance platform overlays existing tools to automate documentation, create traceability, and accelerate release cycles—without disrupting existing workflows. Ketryx AI Agents cut manual work by 90 percent and close compliance gaps, elevating speed and quality across the entire product lifecycle. For more information, visit www.ketryx.com.
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Contacts:press@ketryx.com
-
-Source: Ketryx
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://ketryx.reportablenews.com/pr/ketryx-launches-model-context-protocol-mcp-beta-to-bring-compliance-intelligence-into-ai-powered-product-development)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-system-upgrades-set-to-begin-this-week-in-east-hempfield-township-and-manor-township)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ketryx-launches-mcp-beta-bringing-compliance-intelligence-to-ai-development-tools/c03afab54002887e7e1d27a1069e206c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-utilities-launches-major-gas-system-upgrades-in-lancaster-county/4c7958ae576e324677837d348a133102) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ketryx-launches-model-context-protocol-beta-to-integrate-complia/202630321)
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-utilities-announces-natural-gas-system-upgrades-in-lancaster/202630366)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202603/418586-ketryx-launches-model-context-protocol-beta-to-integrate-compliance-intelligence-with-ai-development-tools)
+Pickup - [https://burstable.news](https://burstable.news/news/202603/419063-ugi-utilities-announces-natural-gas-system-upgrades-in-lancaster-county-communities)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339736-ketryx-startet-beta-version-des-model-context-protocol-zur-integration-von-compliance-intelligenz-in-ki-entwicklungstools)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339781-ugi-utilities-kundigt-erdgasnetzmodernisierungen-in-gemeinden-des-lancaster-county-an)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340302-ketryx-lanza-la-version-beta-del-protocolo-de-contexto-de-modelo-para-integrar-inteligencia-de-cumplimiento-con-herramientas-de-desarrollo-de-ia)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340347-ugi-utilities-anuncia-mejoras-en-el-sistema-de-gas-natural-en-comunidades-del-condado-de-lancaster)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341055-ketryx-lance-la-version-beta-du-protocole-de-contexte-de-modele-pour-integrer-lintelligence-de-conformite-aux-outils-de-developpement-dia)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341101-ugi-utilities-annonce-des-ameliorations-du-systeme-de-gaz-naturel-dans-les-communautes-du-comte-de-lancaster)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/ketryx-launches-model-context-protocol-beta-to-integrate-complia/202630321)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339749-ugi-utilities-anuncia-atualizacoes-do-sistema-de-gas-natural-em-comunidades-do-condado-de-lancaster)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ketryx-launches-model-context-protocol-beta-to-integrate-complia/202630321)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ugi-utilities-announces-natural-gas-system-upgrades-in-lancaster/202630366)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/418630-ketryx-launches-model-context-protocol-beta-to-integrate-compliance-intelligence-into-ai-development-tools)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ugi-utilities-announces-natural-gas-system-upgrades-in-lancaster/202630366)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/c03afab54002887e7e1d27a1069e206c)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/c03afab54002887e7e1d27a1069e206c)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339701-ketryx-lanca-beta-do-protocolo-de-contexto-de-modelo-para-integrar-inteligencia-de-conformidade-com-ferramentas-de-desenvolvimento-de-ia)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/419080-ugi-utilities-announces-natural-gas-system-upgrades-in-lancaster-county-communities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/31/faceApAV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/263/31/nukeizOO.webp)
