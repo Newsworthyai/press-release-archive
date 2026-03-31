@@ -1,56 +1,42 @@
-# BioXgen Opens Community Investment Round to Address the $9 Billion Open Heart Surgery Crisis With No Approved Solution
+# Toronto CityPASS Expands Its Cultural Lineup With the AGO
 
-TUCSON, AZ - March 30, 2026 (NEWMEDIAWIRE) - BioXgen, the medical device company developing the first cardiac patch specifically designed to prevent post-operative atrial fibrillation (POAF), has opened a Community Investment Round under Regulation Crowdfunding (Reg CF).
+TORONTO, ONTARIO - March 31, 2026 (NEWMEDIAWIRE) - The Art Gallery of Ontario (AGO) has been added to the Toronto CityPASS® program, expanding visitor access to one of Canada’s preeminent cultural institutions. CityPASS, the first bundled attraction ticketing program in North America, offers significant savings on combined admission to top attractions across 17 major cities in the United States and Canada. The AGO is a standout addition to the already impressive roster of Toronto CityPASS attractions.
 
- POAF is the number-one complication following open-heart surgery. Roughly 50 percent of the 500,000 Americans who undergo open-heart surgery each year develop the arrhythmia within four days of leaving the operating room. It raises the risk of stroke, recurrent atrial fibrillation, kidney failure, and death. No FDA-cleared device exists to prevent it. Surgeons have managed this problem with off-label pharmaceuticals for decades. Nothing has moved the needle.
+ Originally founded in 1900, the Art Gallery of Ontario is one of North America’s largest art museums. The AGO's collection of more than 120,000 works of art spans cutting-edge contemporary art, significant works by Indigenous and Canadian artists, and European masterpieces. The AGO presents wide-ranging exhibitions and programs, including solo exhibitions and acquisitions by diverse and underrepresented artists from around the world.
 
- The cost to the U.S. healthcare system runs approximately $9 billion annually.
+ Home to the world’s largest public collection of Henry Moore sculptures, highlights of the AGO collection include Peter Paul Rubens’ The Massacre of the Innocents (c. 1610), Pablo Picasso’s La misereuse accroupie (The Crouching Woman) (1902) from his Blue Period, and the Thomson Collection of Shipmodels. Landscapes by Canadian painters, including Emily Carr and the Group of Seven, are on view alongside modern and contemporary works, including Yayoi Kusama’s immersive installation INFINITY MIRRORED ROOM - LET'S SURVIVE FOREVER (2017).
 
- BioXgen's cardiac patch is placed directly on the surface of the heart during surgery. Pre-clinical data shows that POAF rates dropped from about 50% to under 5 percent - a 10-fold reduction. The data are published in Circulation (Rao et al. / Konhilas, v.136, 2017). In unpublished data, over 200 additional patients have been treated with similar results. The Q-submission to the FDA is complete, solidifying the 510(k) pathway.
+ The AGO is currently embarking on its seventh expansion since being founded in 1900. When completed in 2027, the new Dani Reiss Modern and Contemporary Gallery will increase exhibition space for the museum’s growing modern and contemporary collection.
 
- A Clear Regulatory Path
+ In addition to its permanent collection and special exhibitions, the AGO offers programming for all ages and interests, from live performances to talks, and is open late every Wednesday and Friday until 9 p.m. At the Dr. Mariano Elia Hands-On Centre, families with young visitors can make and do, while mobile Art Carts bring themed art-making activities into the gallery every weekend. Seasonal programs, including Family Day and March Break events, combine storytelling, artmaking, and performances. Dining options range from art-inspired prix-fixe meals at the AGO Bistro to coffee at the Espresso Bar and high tea in the Members Lounge. Shop AGO is a destination for artisan jewelry and art-inspired gifting.
 
- BioXgen is pursuing FDA clearance through the 510(k) pathway, which establishes substantial equivalency to materials already cleared by the agency. Total development time to clearance is targeted at under 18 months if we meet critical funding needs.
+ “The Art Gallery of Ontario is an essential cultural destination, and we’re pleased to welcome it to the Toronto CityPASS program,” said Megan Allen, president and CEO of City Pass, Inc. “This partnership reinforces our mission to make world-class experiences more affordable, accessible and convenient for travelers.”
 
- The device will be ready for use in patients as soon as the 510(k) approval is secured.
+ Toronto CityPASS tickets save travelers up to 38% on prepaid admission to five of the city’s top attractions in one mobile ticket. The program includes admission to CN Tower and Ripley’s Aquarium of Canada, plus a choice of three of the following attractions: Royal Ontario Museum, City Cruises Toronto, Casa Loma, Toronto Zoo, and the Art Gallery of Ontario.
 
- Target: standard of care within 36 to 48 months.
+ Tickets cost $134.96 CAD for adults and $99.96 CAD for children ages 4-12, excluding tax. Tickets are valid for nine consecutive days, including the first day of use. Mobile tickets are available at citypass.com. Ticketholders can use the My CityPASS app to access tickets, view attraction details, special offers, upgrades, and more. City Pass, Inc. offers a 365-day return policy on non-activated tickets.
 
- The Investment Structure
+ About CityPASS: For 28 years, CityPASS tickets have provided savings on admission to top attractions in major destinations. Based on more than 88,000 customer reviews, CityPASS products have an average rating of 4.6 out of 5 stars. CityPASS tickets are available in 17 North American destinations: Atlanta, Boston, Chicago, Dallas, Denver, Houston, Los Angeles, New York, Orlando, Philadelphia, San Antonio, San Diego, San Francisco, Seattle, Southern California, Tampa Bay, and Toronto. Since 1997, more than 30 million CityPASS tickets have been sold. For more information, visit CityPASS.com
 
- The offering is structured as a Regulation Crowdfunding (RegCF) and hosted by DealMaker Securities. Investments start at $500, allowing retail investors to participate in a category that has historically been reserved for institutional capital. BioXgen is built lean - contracted manufacturing, a growing IP portfolio, and a cap table specifically designed to accommodate community investors alongside institutional partners.
+ Prices and programs are subject to change. CityPASS® and City Pass® are registered trademarks of City Pass, Inc.
 
- The Founders
+ 
 
- Dr. David Skinner (MD, PhD, MBA) serves as President and CEO. He built a medical company from five hand-picked employees to 156 across nine locations in three years, then exited at 10x. His MD/PhD from the University of Arizona was completed in five years with the Outstanding Achievement Award. He holds an MBA from the W.P. Carey School of Business with a focus in finance.
-
- Dr. John P. Konhilas (PhD) serves as Chief Science Officer. He spent more than 30 years as a professor of physiology at the University of Arizona, where he studied cardiac disease and therapeutic development. Fifteen of those years focused on how biological scaffolds affect clinical outcomes after open-heart surgery. He holds 11 patents with multiple provisionals pending, has direct experience with 510(k), IND, BLA, and NDA pathways, and co-founded Menolabs, which was acquired in 2022.
-
- Live Investor Presentation - April 7
-
- Dr. Skinner and Dr. Konhilas will present the full 2026 Community Investment Round pitch deck live and take direct questions from prospective investors.
-
- Monday, April 7, 2025 | 1:30 PM PT Zoom Webinar | Free | Registration RequiredRegister: https://dnagency.lpages.co/bioxgen-investor-presentation/
-
- "We have the data, the regulatory path, the clinical partner, and the team that has done this before," said Dr. Skinner. "This round lets people outside the institutional world participate in a device that solves a real problem."
-
- To view the offering and invest: https://invest.bioxgen.life/
-
- Disclaimer: In making an investment decision, investors must rely on their own examination of the issuer and the terms of the offering, including the merits and risks involved. BioXgen has filed a Form C with the Securities and Exchange Commission in connection with its offering, a copy of which may be obtained here: https://invest.bioxgen.life/
-
-View the original release on www.newmediawire.com 
+ View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bioxgen-opens-community-investment-round-to-address-the-9-billion-open-heart-surgery-crisis-with-no-approved-solution-7086121)
+[Original/Source Press Release](https://www.newmediawire.com/news/toronto-citypass-expands-its-cultural-lineup-with-the-ago-7086123)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bioxgen-s-cardiac-patch-could-revolutionize-heart-surgery-recovery/844b6e996f8ab1ec05bcbe035c593ba7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ago-joins-toronto-citypass-offering-major-savings-on-art-and-attractions/e3eecf31940fc9f9771a779440a2c386) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/art-gallery-of-ontario-joins-toronto-citypass-program-expanding/202630308)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/joinj33s.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/gulfiXeX.webp)
