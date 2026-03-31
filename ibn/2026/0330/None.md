@@ -1,54 +1,38 @@
-# OpenAI Pulls the Plug on Sora, its AI Video Creation Tool
+# 420 with CNW — Feds Arrest Four During Operations Targeting Illicit Marijuana in Las Vegas
 
-OpenAI has announced that it is shutting down Sora, its artificial intelligence video creation tool, in a move that has surprised many users and industry watchers. The decision comes just months after the tool gained wide attention for its ability to create highly realistic and imaginative videos using simple prompts.
+Federal prosecutors have charged four individuals accused of operating multiple illegal cannabis cultivation sites across the Las Vegas Valley, according to information obtained by the 8 News Now Investigators.
 
- For companies like AI Maverick Intel Inc. (OTC: AIMV) that are increasingly relying on…
+ These arrests highlight the lengths to which black market marijuana operators will go to sustain their operations and make it harder for licensed companies like Curaleaf Holdings Inc. (CSE: CURA) (OTCQX: CURLF) to entrench themselves in the…
 
  Read More>>
 
- About TechMediaWire
+ About CNW420
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/openai-pulls-the-plug-on-sora-its-ai-video-creation-tool/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-feds-arrest-four-during-operations-targeting-illicit-marijuana-in-las-vegas/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/openai-shuts-down-sora-ai-video-tool-surprising-industry/9537b871fcc493d19e71dced3cf48b96) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feds-bust-las-vegas-illegal-cannabis-grows-four-charged/1b2a432a07858a817a6096cd1b2b1bee) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/openai-discontinues-sora-ai-video-tool-raising-questions-about-a/202630286)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/418259-openai-discontinues-sora-ai-video-tool-impacting-users-and-industry)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339703-openai-stellt-sora-ki-videotool-ein-auswirkungen-auf-nutzer-und-branche)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340267-openai-descontinua-la-herramienta-de-video-sora-ia-afectando-a-usuarios-y-la-industria)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341020-openai-met-fin-a-son-outil-video-ia-sora-impactant-utilisateurs-et-industrie)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339668-openai-descontinua-ferramenta-de-video-sora-ia-impactando-usuarios-e-industria)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/openai-discontinues-sora-ai-video-tool-impacting-users-and-indus/202630286)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/openai-discontinues-sora-ai-video-creation-tool-impacting-indust/202630286)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/418269-openai-discontinues-sora-ai-video-tool-impacting-business-and-creative-sectors)
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/1b2a432a07858a817a6096cd1b2b1bee)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/30/dunepnrf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/30/camcfTlE.webp)
