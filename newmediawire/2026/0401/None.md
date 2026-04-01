@@ -1,48 +1,38 @@
-# Fortran Corporation Appoints Aaron Berry as President
+# Cardio Diagnostics Holdings (CDIO) Is 'One to Watch'
 
-HICKORY, NC - April 1, 2026 (NEWMEDIAWIRE) - Fortran Corporation (OTC: FRTN) (the "Corporation") is pleased to announce Mr. Aaron Berry will assume the role of President.
+LOS ANGELES, CA - April 1, 2026 (NEWMEDIAWIRE) - Cardio Diagnostics Holdings (NASDAQ: CDIO) is an artificial intelligence-powered precision cardiovascular medicine company focused on making cardiovascular disease prevention, detection, and management more accessible, personalized, and precise. The company’s approach is centered on advancing how cardiovascular disease is addressed by moving beyond traditional methods that rely on indirect or generalized indicators.
 
- CEO Kent Greer stated, “Mr. Berry brings experience, expertise, and knowledge essential for our company's continued growth. Aaron’s key responsibilities will be the leadership of all our operating companies and to explore new opportunities. His recurring revenue models in the managed services area will integrate with our current platforms and operations and will be a key factor in our continued growth. We expect him to assume his new role in April 2026." Mr. Greer will continue as CEO of Fortran Corporation.
+ * Cardiovascular disease remains the leading cause of death in the United States, representing a significant and persistent healthcare burden that the company’s solutions are designed to address.
+* Cardio Diagnostics has developed a proprietary platform that integrates epigenetic and genetic biomarkers with artificial intelligence to generate personalized cardiovascular insights from a simple blood sample.
+* The company’s clinical tests are non-invasive, require no fasting or radiation, and are designed to detect and assess coronary heart disease, including forms that may not be identified through traditional diagnostic methods.
+* The company has established multiple commercialization channels, including provider networks, employer partnerships, and community-based programs, to expand access to its cardiovascular testing solutions.
+* Recent developments include expanded provider partnerships across the United States, finalized CMS reimbursement rates of $854 for its clinical tests, initial international expansion into India, and clinical data presentations supporting its ability to detect forms of coronary heart disease that traditional tools may miss.
 
- About Fortran Corporation: Fortran Corporation is a telecommunication system integrator dedicated to designing, implementing and maintaining complex telecommunications solutions focused on cloud based and AI platforms/services. Fortran is comprised of engineering and design, network services, sales, remote monitoring, and on-site service, fiber-optic and category cabling along with camera security. For more information, contact us at: info@fortrancorp.com.
+ At the core of its strategy is the integration of epigenetics, genetics, and artificial intelligence to generate insights from a patient’s molecular profile. By analyzing both inherited predisposition and changes influenced by lifestyle and environment, the company’s platform is designed to provide a more…
 
- Visit us at www.fortrancorp.com
+ Read More
 
- Safe Harbor Statement Under the Private Securities Litigation Reform Act of 1995 Statements and information contained in this communication that refer to or include Fortran's estimated or anticipated future results or other non-historical expressions of fact are forward-looking statements that reflect Fortran's current perspective of existing trends and information as of the date of the communication. Forward looking statements generally will be accompanied by words such as "anticipate," "believe," "plan," "could," "should," "estimate," "expect," "forecast," "outlook," "guidance," "intend," "may," "might," "will," "possible," "potential," "predict," "project," or other similar words, phrases or expressions. Such forward-looking statements include but are not limited to. It is important to note that Fortran's plans, objectives, expectations and intentions are not predictions of actual performance. Actual results may differ materially from Fortran's current expectation depending upon a number of factors affecting Fortran's business. Factors that could cause or contribute to such differences include, but are not limited to, fluctuation in operating results, the ability of Fortran to compete successfully and other events. These factors also include, among others, the risks associated with the ongoing COVID-19 pandemic and related public health measures on its business, customers, markets and the worldwide economy: the inherent uncertainty associated with financial and other projections: the anticipated size of the markets and continued demand for Fortran's products: the impact of competitive products and pricing: changes in generally accepted accounting principles: successful compliance with governmental regulations applicable to Fortran's facilities, products and/or businesses; changes in laws, regulations and governmental policies: the loss of key senior management or staff: and other events factor and risks previously and from time to time disclosed in Fortran Corporation's filings with the OTC Markets Group Inc. including, specifically, those factors set forth in any "Risk Factors" section contained in such filings.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Kent Greer828-324-4611 kgreer@fortrancorp.com
+ The latest news and updates relating to CDIO are available in the company’s newsroom at https://ibn.fm/CDIO
+
+ Forward Looking Statements
+
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fortran-corporation-appoints-aaron-berry-as-president-7086156)
+[Original/Source Press Release](https://www.newmediawire.com/news/cardio-diagnostics-holdings-cdio-is-one-to-watch-7086167)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fortran-corporation-appoints-aaron-berry-as-president-to-drive-growth/b8a82754d3c59f5f259ab80529a892f7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardio-diagnostics-revolutionizes-heart-disease-detection-with-ai-powered-blood-tests/d829feeb33f931e164e6e52ba14338b1) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/fortran-corporation-names-aaron-berry-as-president-to-drive-grow/202630417)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202604/419544-fortran-corporation-appoints-aaron-berry-as-president-to-drive-growth-through-managed-services-integration)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/339829-fortran-corporation-ernennt-aaron-berry-zum-prasidenten-um-wachstum-durch-integration-von-managed-services-voranzutreiben)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340395-fortran-corporation-designa-a-aaron-berry-como-presidente-para-impulsar-el-crecimiento-mediante-la-integracion-de-servicios-gestionados)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341149-fortran-corporation-nomme-aaron-berry-a-la-presidence-pour-stimuler-la-croissance-par-lintegration-de-services-manages)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339797-fortran-corporation-nomeia-aaron-berry-como-presidente-para-impulsionar-crescimento-atraves-da-integracao-de-servicos-gerenciados)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/fortran-corporation-names-aaron-berry-as-president-to-drive-grow/202630417)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fortran-corporation-appoints-aaron-berry-as-president-to-drive-g/202630417)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/419573-fortran-corporation-appoints-aaron-berry-as-president-to-drive-growth-in-telecommunications-and-ai-platforms)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/1/lendgl_E.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/1/quayR3Uv.webp)

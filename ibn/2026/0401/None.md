@@ -1,58 +1,62 @@
-# NetworkNewsBreaks – Linkers Industries Limited (NASDAQ: LNKS) Approves 1-for-250 Reverse Share Split Effective April 6
+# RockBreaks – CMX Gold &amp; Silver Corp. (CSE: CXC) (OTC: CXXMF) Explores Multi-Vein Potential at Idaho Clayton Project
 
-Linkers Industries Limited (NASDAQ: LNKS) announced its board has approved a 1-for-250 reverse share split of its Class A and Class B ordinary shares, with post-split trading set to begin April 6, 2026, under the same ticker and a new CUSIP. The move, intended to support continued Nasdaq listing compliance, will proportionally adjust outstanding shares, par value and warrants, while maintaining shareholder ownership percentages aside from fractional share rounding.
+Disseminated on behalf of CMX Gold & Silver Corp. (CSE: CXC) (OTC: CXXMF) and may include paid advertising.
 
- To view the full press release, visit https://nnw.fm/xD5yg
+ CMX (CSE: CXC) (OTC: CXXMF), an exploration-stage company, is moving forward with the exploration of its flagship Clayton Silver project in Idaho. The 1,028-acre property holds 29 patented mining claims, 2 patented mill sites, and 20 unpatented claims. “The mine once ranked as the most active underground mine in the district, producing silver, along with lead, zinc, minor gold, and copper. However, the Clayton mine was never fully explored. It was only mined along a single vein because no more ore was needed for the small mill operation. But the site represents a dolomite limestone deposit, uplifted when the mountains were formed. Geology suggests a high probability that there are other undiscovered cracks in the overall deposit, cracks into which geothermal fluids would have flowed and deposited minerals, just as they were in the original producing vein. As a result, the company sees it as highly improbable that the single partially mined vein was the only silver vein there.”
 
- About Linkers Industries Limited
+ To view the full article, visit https://ibn.fm/w0D27
 
- Linkers Industries Limited is a manufacturer and a supplier of wire/cable harnesses with manufacturing operations in Malaysia and have more than 20 years’ experience in the wire/cable harnesses industry. The Company offers customized wire harness for different applications and electrics designs. Our customers are generally global brand name manufacturers and original equipment manufacturers in the home appliances, industrial products and automotive industries that are mainly based in the Asia Pacific Region.
+ About CMX Gold & Silver Corp.
 
- For more information, visit https://www.linkers-hk.com/
+ CMX’s 100%-owned Clayton Silver Property is located in the mining-friendly state of Idaho, USA. The property comprises approximately 684 acres in Custer County in south-central Idaho, including the former Clayton silver- lead-zinc mine. The Clayton Mine was developed on eight levels to a depth of 1,100 feet below surface and is comprised of approximately 19,690 feet of underground development. Two major ore bodies, including the “South Ore Body” and the “North Ore Body,” were partially mined.
 
- About NetworkNewsWire
+ NOTE TO INVESTORS: The latest news and updates relating to CXXMF are available in the company’s newsroom at https://ibn.fm/CXXMF
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ About Rocks & Stocks
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://www.NetworkNewsWire.com
+ R&S is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+ For more information, please visit https://RocksAndStocks.news
 
- NetworkNewsWire is powered by IBN 
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-linkers-industries-limited-nasdaq-lnks-approves-1-for-250-reverse-share-split-effective-april-6/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-explores-multi-vein-potential-at-idaho-clayton-project/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/linkers-industries-announces-reverse-stock-split-to-maintain-nasdaq-listing/314266bbb19d3ae81b55e204b7302054) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cmx-revives-historic-idaho-silver-mine-with-major-exploration-push/fab6488bbc0f66062c90872909f3e4fa) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/linkers-industries-approves-reverse-share-split-to-maintain-nasd/202630427)
+Pickup - [https://advos.io/en](https://advos.io/en/cmx-gold-silver-corp-explores-multi-vein-potential-at-idahos-cla/202630433)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/419604-linkers-industries-limited-announces-1-for-250-reverse-share-split-to-maintain-nasdaq-listing)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/419725-cmx-gold-silver-corp-advances-exploration-at-idaho-clayton-project-citing-multi-vein-potential)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/linkers-industries-limited-approves-1-for-250-reverse-share-spli/202630427)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/339845-cmx-gold-silver-corp-treibt-exploration-im-idaho-clayton-projekt-voran-und-verweist-auf-mehr-ader-potenzial)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/linkers-industries-limited-approves-1-for-250-reverse-share-spli/202630427)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340411-cmx-gold-silver-corp-avanza-la-exploracion-en-el-proyecto-clayton-de-idaho-citando-potencial-de-multiples-vetas)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/339839-linkers-industries-limited-kundigt-1250-reverse-split-an-um-nasdaq-notierung-zu-erhalten)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341165-cmx-gold-silver-corp-poursuit-lexploration-du-projet-clayton-en-idaho-evoquant-un-potentiel-multi-veines)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340405-linkers-industries-limited-anuncia-una-consolidacion-de-acciones-de-1-por-250-para-mantener-su-cotizacion-en-nasdaq)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339813-cmx-gold-silver-corp-avanca-na-exploracao-do-projeto-clayton-em-idaho-citando-potencial-de-multiplas-veias)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341159-linkers-industries-limited-annonce-un-regroupement-dactions-de-1-pour-250-pour-maintenir-sa-cotation-au-nasdaq)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/cmx-gold-silver-corp-advances-exploration-at-idahos-clayton-silv/202630433)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339807-linkers-industries-limited-anuncia-agrupamento-de-acoes-na-proporcao-1-para-250-para-manter-listagem-na-nasdaq)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/cmx-gold-silver-corp-explores-multi-vein-potential-at-idaho-clay/202630433)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/419668-linkers-industries-announces-1-for-250-reverse-share-split-to-maintain-nasdaq-listing)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/419735-cmx-gold-silver-corp-advances-exploration-at-idahos-clayton-silver-project-citing-multi-vein-potential)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/1/chefd22v.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/1/elleFJ21.webp)
