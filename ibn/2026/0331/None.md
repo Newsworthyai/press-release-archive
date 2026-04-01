@@ -1,56 +1,38 @@
-# InvestorNewsBreaks – Frontieras North America to Livestream April 2 Groundbreaking for First Commercial FASForm(TM) Plant
+# 420 with CNW — US Military Scraps Cannabis Restrictions, Bumps Up Recruitment Age Bracket
 
-Frontieras North America will host a groundbreaking ceremony on Thursday, April 2, 2026, at 11:30 a.m. ET for its first commercial FASForm(TM) facility in Mason County, West Virginia, with a livestream broadcast from Point Pleasant allowing remote audiences to participate in the milestone event. The ceremony will feature remarks from company leadership and government officials and mark the launch of an estimated $850 million project expected to create approximately 300 full-time jobs and 2,000 construction roles as the company advances commercialization of its solid carbon fractionation technology.
+The United States Army has introduced new recruitment rules that expand eligibility, allowing older applicants to join. Under the updated policy, individuals up to 42 years old can now enlist in active duty, the Army Reserve, and the Army National Guard. This marks a notable shift from the previous age limit of 35.
 
- To view the livestream, visit https://ibn.fm/1CtAM
+ The marijuana industry, including leading firms like Cresco Labs Inc. (CSE: CL) (OTCQX: CRLBF), is likely to welcome the easing of marijuana-linked restrictions on…
 
- About Frontieras North America Inc.
+ Read More>>
 
- Frontieras is a clean hydrocarbon technology company commercializing FASForm(TM), a patented solid carbon fractionation process that redefines how coal is utilized, producing market-ready fuels, fertilizers, and industrial carbon with zero waste. With global patent protection and a commercialization roadmap focused on Appalachia, Frontieras is positioned to lead a modern energy revival from the coalfields of West Virginia.
+ About CNW420
 
- NOTE TO INVESTORS: The latest news and updates relating to Frontierasare available in the company’s newsroom at https://ibn.fm/Frontieras
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- About InvestorWire
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-frontieras-north-america-to-livestream-april-2-groundbreaking-for-first-commercial-fasformtm-plant/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-us-military-scraps-cannabis-restrictions-bumps-up-recruitment-age-bracket/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/frontieras-breaks-ground-on-850m-clean-coal-facility-in-west-virginia/dfd0b9fd6d516d085fc39270f7e98a01) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/us-army-raises-enlistment-age-to-42-eases-cannabis-restrictions/4361f83e95453e271d62d5642deac2ab) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/frontieras-north-america-to-break-ground-on-first-commercial-fas/202630370)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202603/419128-frontieras-north-america-to-livestream-groundbreaking-for-first-commercial-fasform-plant-in-west-virginia)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339785-frontieras-north-america-ubertragt-grundsteinlegung-fur-erste-kommerzielle-fasform-anlage-in-west-virginia-live)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340351-frontieras-north-america-transmitira-en-vivo-la-ceremonia-de-inauguracion-de-su-primera-planta-comercial-fasform-en-virginia-occidental)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341105-frontieras-north-america-diffusera-en-direct-la-ceremonie-de-premiere-pelletee-pour-sa-premiere-usine-commerciale-fasform-en-virginie-occidentale)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339753-frontieras-north-america-transmitira-ao-vivo-a-cerimonia-de-inauguracao-da-primeira-planta-comercial-fasform-na-virginia-ocidental)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/frontieras-north-america-to-break-ground-on-first-commercial-fas/202630370)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/frontieras-north-america-to-livestream-groundbreaking-for-first/202630370)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/419160-frontieras-north-america-to-break-ground-on-first-commercial-fasform-plant-in-west-virginia)
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/4361f83e95453e271d62d5642deac2ab)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/31/club_G7F.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/263/31/frogwm9q.webp)

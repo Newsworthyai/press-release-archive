@@ -1,84 +1,54 @@
-# Edgewater Wireless Expands Dual-Use Momentum With AirMetal MOU for High-Reliability Wireless Applications
+# cyan AG Achieves a Turnaround in Fiscal Year 2025 - Further Profitable Growth Expected for 2026
 
-OTTAWA, CANADA - March 31, 2026 (NEWMEDIAWIRE) - Edgewater Wireless Systems Inc. (TSXV: YFI) (OTC: KPIFF), a leader in interference-resilient wireless silicon and Spectrum Slicing™ technology, today announced that it has entered into a Memorandum of Understanding (“MOU”) with advanced robotics and unmanned systems group AirMetal Robotics (“AirMetal”) to pursue dual-use wireless opportunities requiring high-reliability, interference-tolerant radio performance.
+* Revenue increased by approximately 30% to EUR 9.2 million
+* Successful turnaround with positive EBITDA within the projected range (EUR 0.75 million to EUR 0.85 million)
+* Internationalization of the business with a 47% increase in the end-customer base
+* Market launch of cyan Guard 360
+* Outlook for 2026: Further company growth with positive EBITDA expected
 
- Spectrum Slicing™ positioned to power interference-tolerant, high-reliability radios for UAV, robotics, defence and mission-critical markets
+ MUNICH, GERMANY - March 31, 2026 (NEWMEDIAWIRE) - cyan AG, a provider of intelligent cybersecurity solutions, reported strong business growth in the 2025 fiscal year based on preliminary figures. Revenue increases by approximately 30% to EUR 9.2 million (2024: EUR 7.1 million), reaching the upper end of the forecast range of EUR 8.8 million to EUR 9.2 million. Growth was driven in particular by rising recurring revenue from existing and new customers. At the same time, the company achieved a turnaround in earnings with a positive EBITDA within the projected range of EUR 0.75 million to EUR 0.85 million.Markus Cserna, CEO & CTO of cyan AG: “The year 2025 was extremely successful for us. Not only did we achieve a series of long-term operational successes with our established cybersecurity solutions. We have also further internationalized our business and significantly expanded our customer base. Furthermore, with our new cybersecurity solution, cyan Guard 360, we are targeting a new customer group: medium-sized companies that are increasingly becoming the focus of cyberattacks. We offer them easy-to-integrate and cost-effective protection against digital threats.”Operational Successes Across All Cybersecurity Solutionscyan successfully continued to implement its growth strategy in 2025. The existing global group contract with the Orange Group was extended for at least three additional years. Through the Orange Group, cyan also entered new markets in Romania, Moldova, and the French overseas departments of Reunion and Mayotte. Furthermore, through a partnership with the local telecommunications provider Claro, cyan successfully entered the Latin American market, and through a partnership with an MVNO (Mobile Virtual Network Operator) in Mexico, it also entered the Central American market. cyan has also expanded its collaboration with T-Mobile Poland to include an additional cybersecurity offering. These operational advances contributed significantly to the growth of the end-customer base, which increased by 47% over the course of 2025.With the launch of the cybersecurity solution cyan Guard 360, the company is also targeting small and medium-sized enterprises as a new customer segment. They gain access to effective and cost-efficient protection against phishing attacks as a first line of defense against external threats and as a complement to standard antivirus programs. Odido was the first provider to launch the product in the Netherlands, offering its users real-time digital protection. Through the recently announced partnership with CANCOM, the leading digital-business provider in the DACH region, cyan Guard 360 will be increasingly positioned in the service provider segment in the future. Additionally, further distribution partnerships have been established with various partners.Positive business development expected for 2026Following a very successful 2025 fiscal year in operational terms, cyan plans to consistently continue its current growth trajectory. The partnerships established in recent years, along with the broad base of new and existing customers, provide a strong foundation for increasing recurring revenue. With significant investments from its own funds in the further development of cybersecurity solutions and the expansion of its sales force, cyan is also creating forward-looking structures for continued growth. This is expected to result in new, long-term customer relationships in the 2026 fiscal year. At the same time, the company continues to benefit from the globally rising demand for high-performance cybersecurity solutions. For the current fiscal year 2026, cyan therefore expects further revenue growth to between EUR 10.2 million and EUR 11.5 million, with EBITDA remaining positive.About cyancyan AG (XETR: CYR) is a provider of intelligent cybersecurity solutions with almost 20 years of experience in the IT industry. The company offers IT security products for end customers of mobile and fixed network internet providers as well as financial service providers. The solutions are integrated as white-label products into the apps and system landscape of international business partners, who offer them to private and business customers under their own brand. cyan also offers the cybersecurity solution cyan Guard 360 for medium-sized companies via Managed Service Providers.In addition, cyan operates its own research and development center with the aim of identifying industry trends at an early stage and developing optimal product solutions. Customers of cyan include the Orange Group, Deutsche Telekom (Magenta/T-Mobile), Claro Chile (America Movil Group) and dtac/True.Further information can be found at: www.cyansecurity.comcyan AG Investor Relations:cyan AGPhone: +49 89 71042 2073Mail: ir@cyansecurity.comcyan AG Press Contact:Kirchhoff Consult GmbHPhone: +49 40 60 91 86 65Mail: cyan@kirchhoff.de
 
- The MOU establishes a framework for the parties to evaluate collaboration opportunities in unmanned systems, robotics, defence, security, public safety, critical infrastructure and other applications where resilient wireless connectivity is increasingly mission-critical.
+ 
 
- The initiative represents one of several emerging dual-use opportunities now under way as the Company broadens the commercial opportunities and target markets for its PrismIQ™ silicon and Spectrum Slicing™ architecture beyond traditional Wi-Fi markets and into high-value, next-generation communications platforms.“AirMetal brings deep, real-world operational insight into how UAVs are deployed at scale - and where today’s RF links break down,” said Andrew Skafel, President & CEO of Edgewater Wireless. “This MOU creates a structured, commercially grounded path to explore next-generation, multi-channel communications designed for high-reliability performance - starting with disciplined NRE programs and moving toward scalable deployment.”
+ 
 
- “We believe the combination of AirMetal’s platform and deployment insight with Edgewater’s Spectrum Slicing™ innovation creates a highly differentiated position in the market,” said Kevin Toderel, CEO, AirMetal Robotics. “Together, we have the potential to advance a new class of sovereign dual-use radios designed to perform where conventional wireless links fall short - particularly in targeted UAV, robotics, defence and critical infrastructure applications.”
+ 
 
- Under the MOU, Edgewater and AirMetal will explore technical and commercial opportunities to integrate Edgewater’s interference-tolerant wireless technology into advanced dual-use platforms and communications systems.
-
- The timing aligns with a significant expansion in Canadian federal support for domestic semiconductor, aerospace, autonomous systems and defence-related innovation. Recent federal initiatives, including new defence industrial programs, drone innovation initiatives and support for Canadian advanced technology development, are helping accelerate the market opportunity for sovereign, high-performance communications technologies. Edgewater believes these developments strengthen the long-term commercial backdrop for Canadian companies developing enabling technologies for dual-use and mission-critical applications.
-
- Industry analysts continue to forecast strong growth for drones and the enabling communications stack. One estimate places the global drone market at approximately US$73.06B in 2024, projected to reach approximately US$163.60B by 2030 [1]. A separate market view values the drone communications segment at approximately US$3.6B in 2024, projected to reach approximately US$11.6B by 2030 [2], underscoring the scale of opportunity in the connectivity layer.
-
- The Company views the AirMetal MOU as strategically important for three reasons:
-
- 1. Expands Edgewater’s addressable market into a rapidly growing, strategically relevant segment
-2. Reinforces the applicability of Spectrum Slicing™ in high-reliability environments, beyond conventional broadband deployments
-3. Supports Edgewater’s broader strategy to position its silicon and IP platform at the centre of next-generation wireless architectures for commercial, industrial and dual-use use cases
-
- “This is about broadening Edgewater’s core silicon advantage into a new, emerging strategic market and is accretive to broader opportunity,” added Eric Smith, VP Product for Edgewater Wireless. “We are seeing growing interest in wireless systems that can maintain performance where conventional architectures begin to break down. That creates a compelling opportunity to extend our platform into dual-use programs and partnerships with meaningful long-term value.”
-
- The MOU is non-binding and is intended to support evaluation of potential collaboration opportunities, including technical integration, product planning, commercial structures and customer engagement strategies. There can be no assurance that the MOU will lead to a definitive agreement, commercial deployment or revenue-generating relationship. However, management believes the MOU reflects accelerating interest in the Company’s technology in dual-use and other high-value wireless markets.
-
- This announcement follows Edgewater’s broader efforts to expand its strategic reach into dual-use applications, reflecting increasing industry and customer recognition that interference resilience, deterministic performance and wireless reliability are becoming critical design requirements across a widening range of connected systems.
-
- About AirMetal Robotics
-
- AirMetal Robotics is a Canadian advanced robotics and unmanned systems company focused on high-performance platforms and domestic innovation for emerging government, industrial and dual-use applications.
-
- https://remoterobotic.com/
-
- About Edgewater Wireless
-
- We make Wi-Fi. Better.
-
- Edgewater Wireless delivers unmatched Wi-Fi QoS - bar none - by intelligently mitigating congestion, allocating spectrum in real time, and autonomously optimizing channel and link density to keep networks fast, fair, and reliable when it matters most. The result is tangible economics for service providers and their customers: reduced churn, improved efficiency, and consistently high-performance connectivity in the most demanding, high-density environments.
-
- Redefining Wi-Fi from the silicon up, Edgewater’s patented, AI-powered Wi-Fi Spectrum Slicing™ platformde - livered through the PrismIQ™ product family - breaks the limits of legacy Wi-Fi by enabling multiple concurrent channels within a single band, so more users get more usable capacity without the typical trade-offs. PrismIQ powers Edgewater’s Wi-Fi 8-ready solution set, designed for Ultra High Reliability and predictable performance at scale across residential, enterprise, and Industrial IoT deployments - while delivering 10× performance and up to 50% lower latency, even for legacy devices.
-
- With 26 granted patents, three AI-related patents pending, and a capital-efficient fabless model, Edgewater is transforming the economics of Wi-Fi for service providers, OEMs, and enterprises - powering scalable, standards-leading connectivity for the next era of global networks. A Silicon Catalyst portfolio company, Edgewater is building the intelligent wireless foundation for the future of connectivity.
-
- Visit https://edgewaterwireless.com
-
- Airmetal Robotics Corporation
-
- Kevin Toderel, PresidentE kevin@airmetal.com
-
- David Cunningham, CSROE David.Cunningham@airmetal.com
-
- Edgewater Wireless Contacts:
-
- Andrew Skafel, President and CEOE: andrews@edgewaterwireless.com
-
- Bill Mitoulas, Investor RelationsE: ir@edgewaterwireless.comT: +1.416.479.9547
-
- Forward-Looking Statements
-
- This news release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws. The use of any of the words "expect", "anticipate", "continue", "estimate", "objective", "ongoing", "may", "will", "project", "should", "believe", "plans", "intends" and similar expressions are intended to identify forward-looking information or statements. Although Edgewater Wireless believes that the expectations and assumptions on which such forward-looking statements and information are based are reasonable, undue reliance should not be placed on the forward-looking statements and information because Edgewater Wireless can give no assurance that they will prove to be correct. By its nature, such forward-looking information is subject to various risks and uncertainties, which could cause Edgewater Wireless’ actual results and experience to differ materially from the anticipated results or expectations expressed. These risks and uncertainties, include, but are not limited to access to capital markets, market forces, competition from new and existing companies and regulatory conditions. Readers are cautioned not to place undue reliance on this forward-looking information, which is given as of the date it is expressed in this news release or otherwise, and to not use future-oriented information or financial outlooks for anything other than their intended purpose. Edgewater Wireless undertakes no obligation to update publicly or revise any forward-looking information, whether as a result of new information, future events or otherwise, except as required by law.
-
- NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICES PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS RELEASE.
-
- 1 Source: Grand View Research, Drone Market Size, Share & Growth | Industry Report, 2030 (market summary, accessed February 20, 2026).
-
-2 Source: Research and Markets, Drone Communications Market – Global Strategic Business Report (market summary, accessed February 20, 2026). 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/edgewater-wireless-expands-dual-use-momentum-with-airmetal-mou-for-high-reliability-wireless-applications-7086135)
+[Original/Source Press Release](https://www.newmediawire.com/news/cyan-ag-achieves-a-turnaround-in-fiscal-year-2025-further-profitable-growth-expected-for-2026-7086140)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/edgewater-wireless-airmetal-robotics-partner-for-next-gen-dual-use-wireless-tech/dd06ceac0c91395486add6ec1dbb5982) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyan-ag-reports-30-revenue-surge-turnaround-to-profit-in-2025/2df71ba77be278f5cd6c62f5d318f9de) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/cyan-ag-reports-turnaround-with-30-revenue-growth-in-2025-eyes-f/202630386)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202603/419282-cyan-ag-reports-strong-fiscal-2025-turnaround-with-30-revenue-growth-and-positive-ebitda)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202603/339800-cyan-ag-meldet-starke-trendwende-im-geschaftsjahr-2025-mit-30-umsatzwachstum-und-positivem-ebitda)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202603/340366-cyan-ag-reporta-una-fuerte-recuperacion-en-el-ejercicio-fiscal-2025-con-un-crecimiento-del-30-en-ingresos-y-ebitda-positivo)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202603/341120-cyan-ag-annonce-un-redressement-solide-pour-lexercice-2025-avec-une-croissance-de-30-du-chiffre-daffaires-et-un-ebitda-positif)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202603/339768-cyan-ag-relata-forte-recuperacao-no-exercicio-fiscal-de-2025-com-crescimento-de-30-na-receita-e-ebitda-positivo)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/cyan-ag-reports-turnaround-with-30-revenue-growth-and-positive-e/202630386)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/cyan-ag-reports-fiscal-year-2025-turnaround-with-30-revenue-grow/202630386)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202603/419310-cyan-ag-reports-turnaround-with-30-revenue-growth-and-international-expansion-in-cybersecurity)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/2df71ba77be278f5cd6c62f5d318f9de)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/2df71ba77be278f5cd6c62f5d318f9de)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/warpa_2u.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/263/31/pinktU0A.webp)
