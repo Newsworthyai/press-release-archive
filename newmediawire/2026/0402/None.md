@@ -1,67 +1,36 @@
-# Thousands to be Trained in Hands Only CPR at NFL Draft
+# Datavault AI (DVLT) Partners With Demora Foundation To Power K-Entertainment Tokenization Platform
 
-PITTSBURGH - April 2, 2026 (NEWMEDIAWIRE) - When cardiac arrest strikes, immediate CPR can double or even triple a person’s chance of survival - yet more than half of people who collapse outside a hospital don’t receive it. To help close that gap, the American Heart Association and the National Football League (NFL), along with Damar Hamlin’s Chasing M’s Foundation, will welcome thousands to the field at Acrisure Stadium to be trained in Hands‑Only CPR at the NFL Draft.
+LOS ANGELES, CA - April 2, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), an AI-driven data monetization, RWA tokenization and Web 3.0 infrastructure company, and Demora Foundation announced a Technology Integration Agreement naming Datavault AI as the formal AI data intelligence and RWA tokenization technology partner for the K-Entertainment & K-Wave Global Platform, spanning Atlanta, Dallas and the New York Tri-State area. Under the agreement, Datavault AI will deploy its enterprise AI stack - Data Vault(R), DataValue(R), DataScore(R) and Information Data Exchange(R) Digital Twin - as the backbone of Demora Chain to score, value, credentialize and tokenize K-Entertainment assets including K-Pop concert revenues, K-Drama royalties, digital rights, K-Beauty brands and K-Food franchises, targeting a market supported by more than 200 million global Hallyu fans, more than $40 billion in annual economic impact and a tokenizable pipeline valued at more than $3 billion.
 
- The Hands‑Only CPR training will take place Friday, April 24, from 1:00-2:00 p.m. ET at Acrisure Stadium, Pittsburgh, Pa., during day two of the NFL Draft. The effort is designed to empower fans, families and communities with a simple, lifesaving skill they are most likely to use to help someone they know and love. Registration is free and open for participation: heart.org/NFLDraft.
+ To view the full press release, visit https://ibn.fm/8Scgm
 
- “Every second matters when someone experiences cardiac arrest and knowing how to perform CPR can be the difference between life and death,” said Nancy Brown, chief executive officer of the American Heart Association. “By bringing thousands of people together at the NFL Draft, we’re teaming up with the league and Damar Hamlin to equip individuals with the confidence and skills to act when it matters most. This moment reflects our shared commitment to build healthier, safer communities everywhere.”
+ About Datavault AI
 
- Participants will also join the Nation of Lifesavers™, a global movement launched by the American Heart Association in 2023 following the sudden cardiac arrest of NFL player Damar Hamlin during Monday Night Football™. Hamlin has used his experience to show the lifesaving difference bystander CPR can make through his collaboration with the Heart Association to offer CPR trainings across the country. Hamlin also officially serves as the National Ambassador for Nation of Lifesavers including leading an annual class of NFL player ambassadors. Since then, the American Heart Association and NFL have worked together to increase awareness of bystander CPR and expand access to CPR and AED education nationwide.
+ Datavault AI(TM) leads AI-driven data experiences, valuation, and monetization in the Web 3.0 environment. The Company’s cloud-based platform delivers comprehensive solutions through its collaborative Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division includes WiSA(R), ADIO(R), and Sumerian(R) patented technologies for spatial and multichannel wireless HD sound. The Data Science Division harnesses Web 3.0 and high-performance computing for experiential data perception, valuation, and secure monetization across industries including sports & entertainment, biotech, education, fintech, real estate, healthcare, and energy. The Information Data Exchange(R) (IDE) enables Digital Twins and secure NIL licensing, fostering responsible AI with integrity. Datavault AI’s customizable technology suite offers AI/ML automation, third-party integration, analytics, marketing automation, and advertising monitoring. Headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
 
- “As my experience with cardiac arrest has shown, CPR saves lives,” said Hamlin, Buffalo Bills Safety and National Ambassador for the Nation of Lifesavers. “Training in CPR during the NFL Draft Experience in my hometown of Pittsburgh is a full-circle moment for me, and I’m proud to see the NFL, the American Heart Association, and our community come together to build a life-saving legacy. It’s about bringing people together around a powerful message: be ready, because you never know when it could be your time to save a life. I also hope it encourages young people to stay active and reminds families to prioritize health, wellness, and life-saving skills like CPR.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- More than 90% of people who experience sudden cardiac arrest without immediate CPR do not survive, according to the American Heart Association. Yet learning Hands‑Only CPR takes as little as 90 seconds and requires no formal training, making large‑scale moments like this one a powerful step to improving survival rates.
+ Forward Looking Statements
 
- Beyond the NFL Draft, the collaboration between the American Heart Association and the NFL continues year‑round. Through the NFL Foundation, each team receives CPR grants to help expand CPR training and automated external defibrillator (AED) access in local communities. Since 2023, grants have supported Hands‑Only CPR training, Heartsaver® CPR AED credentialing, and the placement of CPR in Schools Kits and CPR Youth Sports Kits. The American Heart Association has worked alongside more than half of NFL teams to educate players, staff, youth coaches and families, helping communities better prepare for cardiac emergencies where people live, work and play.
-
- “Through our partnership with the American Heart Association, the NFL is committed to building safer, stronger communities by giving people the knowledge and confidence to act in a medical emergency,” said Anna Isaacson, NFL SVP of Social Responsibility. “We’re thrilled to stand alongside the American Heart Association and the Chasing M’s Foundation as we equip thousands of people with the skills to make a lifesaving difference.”
-
- Hands‑Only CPR education is also a key component of NFL PLAY 60 youth health and wellness efforts, delivered in partnership with the American Heart Association through the Kids Heart Challenge™ and American Heart Challenge™. Students and families learn how to recognize cardiac arrest, call 9‑1‑1 and take action by pushing hard and fast in the center of the chest—skills that can save lives at any age.
-
- With nearly 3 out of 4 cardiac arrests outside of the hospital occurring in homes, knowing how to perform CPR is critically important. If a teen or adult collapses, witnesses should immediately call 9-1-1 emergency services and begin chest compressions at a rate of 100-120 beats per minute and a depth of approximately two inches. Hands-Only CPR is chest compression-only CPR. Learn CPR today, visit www.heart.org/nation.
-
- Additional Resources:
-
- * Video interview with expert, Annie Arens, M.D., CPR/AED photos, demos and infographic available here.
-* Bystander CPR | Bystander CPR Infographic (PDF)
-* Hands-Only CPR Resources
-* Hands-Only CPR vs CPR with Breaths
-* Cardiac Arrest vs. Heart Attack
-* Take 90 seconds to learn how to save a life at www.heart.org/HandsOnlyCPR.
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries:
-
- American Heart Association: Linzy Cotaya, linzy.cotaya@heart.org
-
- National Football League: Ian Martin, Ian.Martin@nfl.com
-
- Damar Hamlin’s Chasing M’s Foundation: Kelley Denny, kdenny@ghadv.com
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/thousands-to-be-trained-in-hands-only-cpr-at-nfl-draft-7086177)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-partners-with-demora-foundation-to-power-k-entertainment-tokenization-platform-7086184)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nfl-draft-hosts-mass-cpr-training-with-aha-damar-hamlin-to-save-lives/2b04580a157a7f73b964bd96b04cc9da) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-powers-3b-k-entertainment-tokenization-with-demora-foundation/9be75df3327cd722db5c95e35b5c3671) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/nfl-draft-to-host-mass-cpr-training-event-in-pittsburgh/202630476)
+Pickup - [https://advos.io/en](https://advos.io/en/datavault-ai-partners-with-demora-foundation-to-tokenize-k-enter/202630513)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/420011-thousands-to-receive-hands-only-cpr-training-at-nfl-draft-event-in-pittsburgh)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/420356-datavault-ai-partners-with-demora-foundation-to-tokenize-k-entertainment-assets)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339876-datavault-ai-parceira-da-fundacao-demora-para-tokenizar-ativos-do-entretenimento-coreano)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/2/roamPAq0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/2/waitcrYs.webp)

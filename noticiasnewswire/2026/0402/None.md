@@ -1,60 +1,50 @@
-# First Therapy Funded by California Taxpayer Dollars is Approved to Treat Rare Childhood Disorder
+# Unidos en Alabanza Brings Alex Campos and Ingrid Rosario to Kissimmee This May
 
-SOUTH SAN FRANCISCO, CA — April 2, 2026 — (NOTICIAS NEWSWIRE) — The California Institute for Regenerative Medicine (CIRM) celebrates a major milestone in the agency’s 21-year history: the first approved therapy to come out of California taxpayer funding. The U.S. Food and Drug Administration (FDA) has given accelerated approval to KRESLADI™, a one-time therapy developed by Rocket Pharmaceuticals, Inc. to treat severe leukocyte adhesion deficiency-I (LAD-I) in children who have no bone marrow donor match for stem cell transplantation.
+KISSIMMEE, FL — April 2, 2026 – (NOTICIAS NEWSWIRE) – A powerful night of worship and live music is set to take place in Central Florida as Unidos en Alabanza brings award-winning artists Alex Campos and Ingrid Rosario to the Silver Spurs Arena on May 30, 2026, uniting communities through faith-driven performance.
 
- “With the first FDA-approved therapy from CIRM funding we are delivering on our commitment to Californians to support the development of new stem cell and gene therapies that save lives,” said Jonathan Thomas, PhD, JD, CIRM President and CEO. “Thank you to the people of California who entrusted us with funds to support therapies like this one, and to the patients and their families who participated in clinical trials leading up to this milestone. Clinical trial participants are heroes whose bravery helps the entire disease community have access to improved therapies.”
+ Bringing together two of the most influential voices in Spanish-language Christian music, the event is expected to draw audiences from across Florida and beyond for an evening centered on worship, inspiration, and community.
 
- LAD-I is a rare genetic disease where a child’s immune system can’t properly fight infections, putting them at risk for serious illness. Children with the disease have recurrent, life-threatening bacterial and fungal infections that respond poorly to antimicrobials and require frequent hospitalizations.
+ Alex Campos, a Colombian singer-songwriter and five-time Latin Grammy Award winner for Best Christian Album (Spanish), has built a global following through his distinctive fusion of gospel, rock, and Latin rhythms. With a career spanning more than two decades and beloved songs such as “Si Estoy Contigo,” Campos continues to shape the contemporary praise movement worldwide.
 
- The only treatment option available for children with LAD-I has been a bone marrow transplant, which runs the risk of serious long-term complications. With KRESLADI, doctors fix the defective gene in the patient’s own blood-forming stem cells, helping their body make healthy white blood cells to fight infections. By using the patient’s own cells, the approach avoids complications of a bone marrow transplant.
+ Joining him is Ingrid Rosario, a celebrated American worship leader of Dominican-Colombian heritage, whose ministry spans more than 25 years. Known for her role as Spanish Worship Director at Lakewood Church in Houston, Rosario has earned multiple nominations for both Latin Grammy and GMA Dove Awards, establishing herself as one of the leading female voices in contemporary worship music.
 
- “The FDA-approved treatment for LAD-I is a major step forward for Californians who supported investing in the promise of regenerative medicine,” said Rosa Canet-Avilés, PhD, CIRM Chief Science Officer. “We are thrilled that children with LAD-I have this new option available to them. In the future, we expect to see many more FDA-approved stem cell and gene therapies that will benefit people in California and around the world who have no other options.”
+ This marks the first appearance for both artists at the Silver Spurs Arena in Kissimmee.
 
- CIRM invested $5,867,085 to support a clinical trial site for KRESLADI™ at UCLA Mattel Children’s Hospital run by Dr. Donald Kohn. The global Phase 1/2 study of KRESLADI™ demonstrated a 100% survival rate one-year post-treatment for all nine patients enrolled in the trial. Patients were aged 5 months to 9 years with severe LAD-I, of which six were treated at the CIRM-funded UCLA site; the three other patients were treated at sites in London and Madrid.
+ Tickets for the event start at $31, with VIP Meet & Greet packages also available.
 
- This milestone comes at a time when CIRM is actively working to accelerate new therapies for rare diseases like LAD-I through its new Rare Disease Acceleration Through Platform Innovation and Delivery (RAPID) program. Although individually rare diseases don’t affect many people, cumulatively they affect over 30 million people in the U.S., about half of whom are young children with limited expected lifespan. Roughly 1 in 10 Americans have a rare disease of which 95% have no approved therapy.
+ To expand access to the event, the organizers are offering limited-time ticket savings on select seating through April 12. Attendees purchasing tickets online may use the promotional code “GLORIA” during the offer period.
 
- The milestone is also a result of CIRM’s network of supported clinics that deliver cell and gene therapy clinical trials and approved therapies to people across the state. The successful trial at UCLA took place in one of these supported clinics.
+ Click HERE for Tickets.
 
- The approval of KRESLADI reflects years of scientific research, clinical investigation, and community collaboration, including patients, families, clinicians, advocacy groups, and regulators. As with all CIRM clinical programs, Rocket Pharmaceuticals will provide a path for making this therapy accessible to people in California. That requirement is part of CIRM’s ongoing efforts to make sure people of California benefit from the therapies funded by CIRM.
+ Additional event information can be found at: https://unidosenalabanza.org/
 
- About the California Institute for Regenerative Medicine (CIRM)  The California Institute for Regenerative Medicine (CIRM) is a state agency created by California voters to accelerate stem cell and gene therapies for people with unmet medical needs. Since 2004, Californians have entrusted CIRM with $8.5 billion to accelerate promising discoveries through clinical trials, train a regenerative medicine workforce, strengthen the state’s biotechnology economy, and expand access to transformative therapies. Today, CIRM is pioneering new models of therapy development and accelerating medical breakthroughs that change lives — in California and around the world. For more information, visit www.cirm.ca.gov.
+ Click HERE for Promotional video
 
- CONTACT: Amy Adams Senior Director of Communications press@cirm.ca.gov 
+ A Growing Movement of Worship Across the U.S. Unidos en Alabanza is part of a broader Christian concert movement expanding across the United States, focused on bringing communities together through faith-based music experiences. Organizers also provide opportunities for individuals and organizations to support this mission through donations, helping expand future events and outreach.
+
+ More information on supporting the movement is available on the official website.
+
+ About Unidos en Alabanza Unidos en Alabanza is a faith-driven initiative dedicated to producing high-quality Christian worship events that unite diverse communities through music, faith, and shared purpose.
+
+ CONTACT: Charlie Jimenez / Brenda Ramos unidosenalabanza2021@gmail.com (305) 848-2577 / (954) 279-0742 https://unidosenalabanza.org/ 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/first-therapy-funded-by-california-taxpayer-dollars/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/boletos-a-la-venta-ahora/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cirm-s-historic-breakthrough-first-fda-approved-therapy-from-ca-taxpayer-funding/0b16f41b2ee2d8edba3fdcfeeba043d5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grammy-winners-alex-campos-ingrid-rosario-unite-for-historic-florida-worship-event/8df571a520f02a0ea2c5f72998014933) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/california-taxpayer-funded-therapy-receives-fda-approval-for-rar/202630455)
+Pickup - [https://advos.io/en](https://advos.io/en/unidos-en-alabanza-brings-top-christian-artists-to-central-flori/202630512)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/419928-california-funded-gene-therapy-receives-fda-approval-for-rare-childhood-immune-disorder)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/420358-unidos-en-alabanza-concert-to-feature-alex-campos-and-ingrid-rosario-in-kissimmee-this-may)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/339866-von-kalifornien-finanzierte-gentherapie-erhalt-fda-zulassung-fur-seltene-kindliche-immundefektstorung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340432-terapia-genica-financiada-por-california-recibe-aprobacion-de-la-fda-para-trastorno-inmunitario-infantil-raro)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341186-une-therapie-genique-financee-par-la-californie-obtient-lapprobation-de-la-fda-pour-un-trouble-immunitaire-rare-chez-lenfant)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339835-terapia-genica-financiada-pela-california-recebe-aprovacao-da-fda-para-disturbio-imunologico-raro-na-infancia)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/california-taxpayer-funded-therapy-receives-fda-approval-for-rar/202630455)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/first-california-taxpayer-funded-therapy-receives-fda-approval-f/202630455)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/419933-california-taxpayer-funded-therapy-receives-fda-approval-for-rare-childhood-disease)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/0b16f41b2ee2d8edba3fdcfeeba043d5)
-
-Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/0b16f41b2ee2d8edba3fdcfeeba043d5)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339875-concerto-unidos-em-louvor-apresentara-alex-campos-e-ingrid-rosario-em-kissimmee-em-maio)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/264/2/ellan8V7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/264/2/paveIzhj.webp)
