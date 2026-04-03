@@ -1,40 +1,42 @@
-# 420 with CNW — New Wisconsin Bill Could Legalize Medical and Recreational Cannabis
+# Musk Unifies His Space and AI Firms as SpaceX Buys xAI
 
-Wisconsin Democratic lawmakers recently introduced legislation that would legalize marijuana for both recreational and medical use, renewing a long-running debate as the state continues to lag behind nearby Midwestern neighbors on cannabis policy. Michigan and Illinois already permit recreational cannabis, while Minnesota has moved in the same direction. Wisconsin, by contrast, still treats most marijuana possession as a crime.
+Elon Musk announced that SpaceX has acquired his AI company, xAI, in a deal that brings together two of his most high-profile ventures and tightens the links between his work in space technology and AI development.
 
- The eventual passing of a law legalizing both medical and adult-use marijuana in Wisconsin could create room for enterprises similar to Innovative Industrial Properties Inc. (NYSE: IIPR) to emerge and…
+ As the tech race continues to gain momentum, this latest big bucks acquisition could magnify attention on the tech leaders while other tech firms like D-Wave Quantum Inc. (NYSE: QBTS) accelerate their…
 
  Read More>>
 
- About CNW420
+ About AINewsWire
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ AINW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.CannabisNewsWire.com
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ For more information, please visit www.AINewsWire.com
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- CannabisNewsWire is powered by IBN 
+ AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
+
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-new-wisconsin-bill-could-legalize-medical-and-recreational-cannabis/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/musk-unifies-his-space-and-ai-firms-as-spacex-buys-xai/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wisconsin-democrats-push-to-legalize-recreational-and-medical-marijuana/d6345d73257e8667f3f05572db66c730) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/musk-merges-space-and-ai-spacex-acquires-xai-in-major-tech-consolidation/eb32c14bd8fb1fe1a2ff14d69b595754) 
 
 
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202602/387400-wisconsin-lawmakers-introduce-legislation-to-legalize-recreational-and-medical-marijuana)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202602/387373-spacex-acquires-xai-in-major-elon-musk-venture-consolidation)
 
-Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/d6345d73257e8667f3f05572db66c730)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/eb32c14bd8fb1fe1a2ff14d69b595754)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/6/isleow9X.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/262/6/healTPTv.webp)

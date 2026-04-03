@@ -1,36 +1,75 @@
-# Datavault AI (DVLT) Partners With Demora Foundation To Power K-Entertainment Tokenization Platform
+# flatexDEGIRO Extends CEO Oliver Behrens' Board Mandate Early
 
-LOS ANGELES, CA - April 2, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), an AI-driven data monetization, RWA tokenization and Web 3.0 infrastructure company, and Demora Foundation announced a Technology Integration Agreement naming Datavault AI as the formal AI data intelligence and RWA tokenization technology partner for the K-Entertainment & K-Wave Global Platform, spanning Atlanta, Dallas and the New York Tri-State area. Under the agreement, Datavault AI will deploy its enterprise AI stack - Data Vault(R), DataValue(R), DataScore(R) and Information Data Exchange(R) Digital Twin - as the backbone of Demora Chain to score, value, credentialize and tokenize K-Entertainment assets including K-Pop concert revenues, K-Drama royalties, digital rights, K-Beauty brands and K-Food franchises, targeting a market supported by more than 200 million global Hallyu fans, more than $40 billion in annual economic impact and a tokenizable pipeline valued at more than $3 billion.
+* The term of office of Oliver Behrens as CEO of flatexDEGIRO has been extended early until 31 March 2029
+* Focus on continuity and stability in the Company’s leadership
 
- To view the full press release, visit https://ibn.fm/8Scgm
+ FRANKFURT AM MAIN, GERMANY - April 2, 2026 (NEWMEDIAWIRE) - The Supervisory Board of flatexDEGIRO SE today resolved to reappoint Oliver Behrens as Chief Executive Officer (CEO) of the Company. His original term of office, which was due to expire on 30 September 2027, has been extended early until 31 March 2029 by way of reappointment. Oliver Behrens has served as CEO of flatexDEGIRO SE since October 2024. At the same time, Oliver Behrens was also reappointed as CEO of flatexDEGIRO Bank SE until 31 March 2029.
 
- About Datavault AI
+ With this early contract extension, the Supervisory Board ensures continuity in the Company’s leadership and underscores its confidence in the Company’s performance to date as well as in the online broker’s long-term growth strategy.
 
- Datavault AI(TM) leads AI-driven data experiences, valuation, and monetization in the Web 3.0 environment. The Company’s cloud-based platform delivers comprehensive solutions through its collaborative Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division includes WiSA(R), ADIO(R), and Sumerian(R) patented technologies for spatial and multichannel wireless HD sound. The Data Science Division harnesses Web 3.0 and high-performance computing for experiential data perception, valuation, and secure monetization across industries including sports & entertainment, biotech, education, fintech, real estate, healthcare, and energy. The Information Data Exchange(R) (IDE) enables Digital Twins and secure NIL licensing, fostering responsible AI with integrity. Datavault AI’s customizable technology suite offers AI/ML automation, third-party integration, analytics, marketing automation, and advertising monitoring. Headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
+ Hans-Hermann Lotter, Chairman of the Supervisory Board of flatexDEGIRO SE, commented: “Under the leadership of Oliver Behrens, flatexDEGIRO has seen strong momentum over the past eighteen months and has significantly strengthened its position as the leading platform for building wealth in Europe. In particular, the continuous launch of new products and services, the strong development of operational and financial metrics, and the clear focus on customer value have sustainably driven the Company’s growth. The Supervisory Board is convinced that Oliver Behrens will further build on this successful trajectory in the years ahead and looks forward to continuing the close and constructive collaboration.”
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Since taking office in October 2024, Oliver Behrens has played a key role in further advancing flatexDEGIRO and consistently executing the strategic priorities presented in February 2025. Key areas of focus include improving operational efficiency, expanding the product offering, and driving the Company’s strategic growth initiatives.
 
- Forward Looking Statements
+ Oliver Behrens, Chief Executive Officer of flatexDEGIRO SE, said: “I would like to thank the Supervisory Board for the trust it has placed in me. The extension of my contract reflects our shared understanding that growth is primarily driven by innovation and the consistent rollout of new products. Together with the entire team, we will continue to pursue our growth strategy and further enhance efficiency in order to scale our European platform and create sustainable long-term value.”
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Media contacts:
+
+ Achim Schreck Phone +49 (0) 69 450001 1700 Head of IR & Corporate Communications achim.schreck@flatexdegiro.com
+
+ Laura HeckerPhone +49 (0) 160 3064 404 Executive Director Investor Relations laura.hecker@flatexdegiro.com
+
+ Paul Wolter Telefon +49 (0) 173 626 4647 Executive Director Public Relations paul.wolter@flatexdegiro.com
+
+ flatexDEGIRO SE – leading platform for building wealth in Europe
+
+ (www.flatexdegiro.com, ISIN: DE000FTG1111, Ticker: FTK.GR)
+
+ Serving more than 3.5 million customers in 16 countries, flatexDEGIRO’s aspiration is to be the leading European platform for building wealth. The company holds Assets under Custody of close to EUR 100 billion and processed more than 75 million securities transactions for its customers in 2025.
+
+ Through three brokerage platforms - DEGIRO, flatex and ViTrade, flatexDEGIRO provides trading access to around 50 stock exchanges in Europe, North America and the Asia-Pacific region as well as to over-the-counter direct trading. Its customers are active and well-informed traders who trade without investment advice. With ViTrade, flatexDEGIRO also serves highly active traders.
+
+ Brokerage and banking business related to securities trading are handled by flatexDEGIRO Bank SE, a subsidiary with a full banking license. flatexDEGIRO uses proprietary technology with very high availability along the entire value chain and thus sets standards in platform and service quality.
+
+ Contact:
+
+ Achim SchreckHead of IR & Corporate Communicationsflatex AGRotfeder-Ring 7D-60327 Frankfurt/Main+49 (0) 69 450001 1700[achim.schreck@flatex.com](mailto:achim.schreck@flatex.com) 
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-partners-with-demora-foundation-to-power-k-entertainment-tokenization-platform-7086184)
+[Original/Source Press Release](https://www.newmediawire.com/news/flatexdegiro-extends-ceo-oliver-behrens-board-mandate-early-7086194)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-powers-3b-k-entertainment-tokenization-with-demora-foundation/9be75df3327cd722db5c95e35b5c3671) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flatexdegiro-extends-ceo-oliver-behrens-contract-early-to-2029/19c33e0f0e59dacf15ac4559f3f2f3ad) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/datavault-ai-partners-with-demora-foundation-to-tokenize-k-enter/202630513)
+Pickup - [https://advos.io/en](https://advos.io/en/flatexdegiro-extends-ceo-oliver-behrens-contract-early-signaling/202630523)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/420356-datavault-ai-partners-with-demora-foundation-to-tokenize-k-entertainment-assets)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/420585-flatexdegiro-extends-ceo-oliver-behrens-contract-through-2029-emphasizing-leadership-continuity)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339876-datavault-ai-parceira-da-fundacao-demora-para-tokenizar-ativos-do-entretenimento-coreano)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/339932-flatexdegiro-verlangert-vertrag-von-ceo-oliver-behrens-bis-2029-und-betont-fuhrungskontinuitat)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340497-flatexdegiro-amplia-el-contrato-del-ceo-oliver-behrens-hasta-2029-destacando-la-continuidad-del-liderazgo)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341251-flatexdegiro-prolonge-le-contrat-du-pdg-oliver-behrens-jusquen-2029-soulignant-la-continuite-du-leadership)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339900-flatexdegiro-renova-contrato-do-ceo-oliver-behrens-ate-2029-reforcando-continuidade-de-lideranca)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/flatexdegiro-extends-ceo-oliver-behrens-contract-through-2029-em/202630523)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/flatexdegiro-extends-ceo-oliver-behrens-contract-early-through-2/202630523)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/420595-flatexdegiro-extends-ceo-oliver-behrens-contract-early-signaling-strategic-continuity)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/2/waitcrYs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/2/loftNiTp.webp)
