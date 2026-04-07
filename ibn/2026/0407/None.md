@@ -1,54 +1,58 @@
-# Australia Passes Bill Compelling Crypto Platforms to Obtain Financial Licenses
+# NetworkNewsBreaks – Greenland Energy Company (NASDAQ: GLND) Executives Ring Nasdaq Opening Bell in Times Square
 
-Australia has approved new legislation that brings crypto businesses under the country’s formal financial services regime. The measure, introduced by the Treasury last November, passed both chambers of parliament, setting clear requirements for companies dealing in digital assets.
+Greenland Energy (NASDAQ: GLND),an energy exploration company focused on developing hydrocarbon resources in Greenland’s Jameson Land Basin, marked its visit to the Nasdaq MarketSite in Times Square with a ceremonial Opening Bell ringing. CEO Robert Price, Executive Chairman Larry G. Swets Jr. and Executive Advisor Joe Moglia participated in the event, highlighting the company’s efforts to advance Arctic energy exploration and establish a publicly traded platform for responsible resource development.
 
- As more countries move to establish regulatory systems governing the crypto sector, entities like Cantor Equity Partners Inc. (NASDAQ: CEP) are likely to have more solid information upon which to base any…
+ To more information, visit https://nnw.fm/KjJs5
 
- Read More>>
+ About Greenland Energy Company
 
- About CryptoCurrencyWire
+ Greenland Energy Company (NASDAQ: GLND) is an energy exploration company focused on responsibly developing Greenland’s hydrocarbon resources, with an emphasis on the Jameson Land Basin. It aims to advance oil and gas exploration and create a publicly traded platform for Arctic energy development.
 
- CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
+ NOTE TO INVESTORS: The latest news and updates relating to GLND are available in the company’s newsroom at https://nnw.fm/GLND
 
- To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
+ About NetworkNewsWire
 
- For more information, please visit https://www.CryptoCurrencyWire.com
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- CryptoCurrencyWireNew York, NYwww.CryptoCurrencyWire.com212.994.9818 OfficeEditor@CryptoCurrencyWire.com
+ For more information, please visit https://www.NetworkNewsWire.com
 
- CryptoCurrencyWire is powered by IBN 
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/australia-passes-bill-compelling-crypto-platforms-to-obtain-financial-licenses/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-greenland-energy-company-nasdaq-glnd-executives-ring-nasdaq-opening-bell-in-times-square/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/australia-passes-landmark-crypto-regulation-bill/3499938a413e4e62c2612caf157ad9e9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-rings-nasdaq-bell-advances-arctic-exploration/a6d6c8ee1be79a35412813530bbc1e55) 
 
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/australia-enacts-legislation-requiring-cryptocurrency-platforms/202630621)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/greenland-energy-executives-ring-nasdaq-opening-bell-highlightin/202630643)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421483-australia-enacts-landmark-legislation-requiring-crypto-platforms-to-obtain-financial-licenses)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/greenland-energy-executives-ring-nasdaq-opening-bell-highlightin/202630643)
 
-Pickup - [https://advos.io/en](https://advos.io/en/australia-mandates-financial-licensing-for-crypto-platforms-in-r/202630621)
+Pickup - [https://advos.io/en](https://advos.io/en/greenland-energy-executives-ring-nasdaq-opening-bell-highlightin/202630643)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/421539-australia-enacts-legislation-requiring-crypto-platforms-to-obtain-financial-licenses)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/421710-greenland-energy-executives-ring-nasdaq-opening-bell-highlighting-arctic-exploration-efforts)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340029-australien-verabschiedet-gesetz-zur-lizenzpflicht-fur-kryptoplattformen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340050-greenland-energy-vorstande-lauten-nasdaq-eroffnungsglocke-und-heben-arktis-explorationsbemuhungen-hervor)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340591-australia-promulga-legislacion-que-exige-a-las-plataformas-de-criptomonedas-obtener-licencias-financieras)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340612-ejecutivos-de-greenland-energy-tocaran-la-campana-de-apertura-del-nasdaq-destacando-los-esfuerzos-de-exploracion-en-el-artico)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341347-laustralie-adopte-une-legislation-imposant-aux-plateformes-de-cryptomonnaies-dobtenir-des-licences-financieres)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341368-les-dirigeants-de-greenland-energy-sonnent-la-cloche-douverture-du-nasdaq-mettant-en-lumiere-les-efforts-dexploration-arctique)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339995-australia-promulga-legislacao-que-exige-que-plataformas-de-criptomoedas-obtenham-licencas-financeiras)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340017-executivos-da-greenland-energy-tocam-o-sino-de-abertura-da-nasdaq-destacando-esforcos-de-exploracao-no-artico)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/australia-enacts-legislation-requiring-crypto-platforms-to-obtai/202630621)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421700-greenland-energy-executives-ring-nasdaq-opening-bell-highlighting-arctic-energy-development)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/7/kissaJ7C.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/7/fasthXcN.webp)
