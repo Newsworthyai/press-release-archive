@@ -1,75 +1,70 @@
-# AtlasClear Holdings Begins Onboarding of Third Correspondent Broker-Dealer and Executes Clearing Agreement with Fourth Correspondent Broker-Dealer Through Wilson-Davis
+# AI Era Corp. (OTC: AERA) Appoints Dzmitry Kastahorau as Chief Financial Officer
 
-* Third Correspondent Begins Onboarding to Clearing Platform
-* Fourth Correspondent Clearing Agreement Executed
-* Operations Team Expanding to Support Current Activity and Growing Pipeline
-* Clearing Infrastructure Drives Operating Leverage with Each New Correspondent
+Veteran finance leader joins to strengthen strategy, governance, and accelerate AI-driven media expansion
 
  
 
- TAMPA, Fla., April 06, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – AtlasClear Holdings, Inc. (NYSE American: ATCH) (“AtlasClear” or the “Company”), a financial services company building modern clearing, custody, and trading infrastructure, today announced that a third introducing broker-dealer has begun onboarding with Wilson-Davis & Co., Inc. (“Wilson-Davis”), the Company’s wholly owned self-clearing correspondent broker-dealer subsidiary. Additionally, a correspondent clearing broker-dealer agreement has been executed with a fourth introducing broker-dealer.
+ MOUNT KISCO, N.Y., April 07, 2026 (GLOBE NEWSWIRE) – PRISM MediaWire (Press Release Service – Press Release Distribution) – AI Era Corp. (OTC: AERA), a leading intellectual property (IP) firm specializing in Agentic AI-powered media and movie licensing, today announced the appointment of Dzmitry Kastahorau as its new Chief Financial Officer effective immediately.
 
- This follows the successful integration of Dawson James Securities, Inc., the first major correspondent onboarded to Wilson-Davis’s enhanced clearing platform. Infrastructure improvements completed during that process have shortened onboarding timelines and expanded multi-client capacity. Wilson-Davis has added operations staff in response to current client activity and near-term pipeline demand.
+ Mr. Kastahorau is a seasoned finance executive with over a decade of experience in corporate finance, investor relations, capital markets, and public company operations. He currently serves as CFO and Board Member of MICROPOLIS AI ROBOTICS (NYSE American: MCRP), where he has been instrumental in financial strategy, investor relations, and corporate governance. He previously held senior finance leadership roles at international companies in the fashion retail, robotics, autonomous vehicles, and luxury sectors across the Middle East and Europe.
 
- “Dawson James was the proof point,” said Craig Ridenhour, President of AtlasClear. “We built the infrastructure with the next client in mind. What that work produced is a faster, more efficient onboarding process, and the staffing additions at Wilson-Davis reflect both the business in front of us and our commitment to servicing each correspondent at the same standard.”
+ Ahmad, CEO of AI Era Corp, said: “I am very pleased to welcome Dzmitry to our team. His proven expertise as a public company CFO, combined with his strong background in investor relations and financial strategy, will be extremely valuable as we prepare for our NYSE American uplisting. We look forward to working closely with him to strengthen our financial foundation and accelerate our growth.”
 
- “Our clearing infrastructure is built to scale — each new correspondent relationship adds revenue without meaningfully adding to our fixed cost base,” said John Schaible, Executive Chairman of AtlasClear. “We’re growing our team thoughtfully, but the economics improve with every new agreement. Three signed deals show the model is working. Now it’s about execution: turning our pipeline into real cleared volume.”
+ Fred Deng, Chairman of AI Era Corp, added: “Dzmitry’s appointment marks an important step in building a robust financial and governance team. We expect him to play a key role in integrating his extensive experience with our current initiatives in the AI creator ecosystem and physical cinema expansion. I am confident that he, together with CEO Ahmad, will drive the Company forward as we approach our upcoming second quarter report and continue to build long-term shareholder value.”
 
- AtlasClear continues to advance discussions with additional broker-dealer partners as it scales its correspondent clearing network through Wilson-Davis.
+ Mr. Kastahorau commented: “I am excited to join AI Era Corp at this transformative stage. The Company’s vision of combining AI technology with experiential entertainment through creator tools and physical cinemas is highly compelling. I look forward to contributing my expertise in strategic finance, investor relations, and public company readiness to support the team in achieving its ambitious goals, including the successful execution of the NYSE American uplisting and delivering strong financial performance in the upcoming quarters.”
 
- About AtlasClear Holdings, Inc.
+ About AI Era Corp. (OTC: AERA)
 
- AtlasClear Holdings, Inc. (NYSE American: ATCH) is building a cutting-edge, technology-enabled financial services platform designed to modernize trading, clearing, settlement, and banking for emerging financial institutions and fintechs. Through its subsidiary Wilson-Davis & Co., Inc., a full-service correspondent broker-dealer registered with the SEC and FINRA, and its pending acquisition of Commercial Bancorp of Wyoming, AtlasClear seeks to deliver a vertically integrated suite of brokerage, clearing, risk management, regulatory, and commercial banking solutions. For more information, follow us on LinkedIn or X and visit www.atlasclear.com.
+ AI Era Corp. is a New York-based intellectual property (IP) firm focused on the acquisition, development, and licensing of Agentic AI-powered creator media ecosystems. The Company owns the IP for UFilm.ai (Generative AI production), Uflix.ai (Distribution layer, the licensed flagship platform), and the NFT Movie Marketplace (MMM). AERA operates a physical movie theater and distribution hub in Mount Kisco, New York, providing a unique link between traditional cinema and next-gen AI technology.
 
- To stay up to date on AtlasClear’s platform strategy and market perspective, subscribe to the Company’s YouTube channel and watch the Clearing the View by AtlasClear video series.
+ Visit: www.ufilm.ai | www.abcinemasny.com | www.aieraco.com
 
  Forward-Looking Statements
 
- This communication contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995, as amended, that reflect AtlasClear Holdings’ current views with respect to, among other things, its future operations and financial performance. Forward-looking statements in this communication may be identified by the use of words such as “anticipate,” “assume,” “believe,” “continue,” “could,” “estimate,” “expect,” “foreseeable,” “future,” “intend,” “may,” “outlook,” “plan,” “potential,” “proposed,” “predict,” “project,” “seek,” “should,” “target,” “trends,” “will,” “would” and similar terms and phrases. Forward-looking statements contained in this communication include, but are not limited to, statements as to (i) the closing of the Company’s planned acquisition of Commercial Bancorp, including the ability to obtain required regulatory approvals, (ii) the Company’s expectations regarding planned future growth and financial results, (iii) AtlasClear Holdings’ expectations regarding future financings, (iv) AtlasClear Holdings’ expectations as to future operational results, (v) AtlasClear Holdings’ anticipated growth strategy, including its planned acquisition of Commercial Bancorp of Wyoming, and (vi) the financial technology of AtlasClear Holdings. Forward-looking statements are based on current expectations and assumptions that are subject to risks and uncertainties, many of which are beyond the Company’s control. Actual results may differ materially from those anticipated. For additional details regarding risks and uncertainties, please refer to AtlasClear Holdings’ filings with the SEC, including its Form 10-Q for the quarter ended September 30, 2025, and its Annual Report on Form 10-K filed September 29, 2025. AtlasClear Holdings undertakes no obligation to update or revise forward-looking statements, except as required by law.
+ This press release contains “forward-looking statements” within the meaning of the Private Securities Litigation Reform Act of 1995. These statements relate to the Company’s management team changes, strategic transformation, and operational performance. Actual results may differ materially due to risks including business disruption, competitive uncertainties, and general economic conditions. The Company undertakes no obligation to update these statements after the date of this release.
 
- Company Contact:AtlasClear Holdings, Inc.Email: AtlasClearIR@atlasclear.com
+ Investor Relations Contact:
 
- Investor Relations Contact:Jeff Ramson, CEOPCG Advisory, Inc.Email: jramson@pcgadvisory.com
+ Paul FoisyAI Era Corp. (OTC: AERA)X: @ABIntlGroupEmail: ir@aieraco.comTel: (914) 864 0313
 
- Source: AtlasClear Holdings, Inc.
+ Source: AI Era Corp.
 
- The latest news and updates relating to $ATCH are available in the company’s newsroom at: https://tinyurl.com/atchnewsroom
-
- Add us on Google as a Preferred Source to see more News in your Search Results
+ Add PRISM MediaWire as your preferred news source on Google
 
  
 
- The post AtlasClear Holdings Begins Onboarding of Third Correspondent Broker-Dealer and Executes Clearing Agreement with Fourth Correspondent Broker-Dealer Through Wilson-Davis first appeared on Prism Media Wire. 
+ The post AI Era Corp. (OTC: AERA) Appoints Dzmitry Kastahorau as Chief Financial Officer first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/atlasclear-holdings-begins-onboarding-of-third-correspondent-broker-dealer-and-executes-clearing-agreement-with-fourth-correspondent-broker-dealer-through-wilson-davis/)
+[Original/Source Press Release](https://prismmediawire.com/ai-era-corp-otc-aera-appoints-dzmitry-kastahorau-as-chief-financial-officer/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/atlasclear-expands-clearing-network-with-third-fourth-broker-dealer-partners/e532b0d7b4f981afd00dd4c847d13f57) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-era-corp-appoints-finance-veteran-to-lead-nyse-uplisting-ai-media-growth/01961bcfcff511721d8472a7309eea6e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/atlasclear-expands-broker-dealer-network-with-two-new-agreements/202630599)
+Pickup - [https://advos.io/en](https://advos.io/en/ai-era-corp-appoints-seasoned-finance-executive-dzmitry-kastahor/202630629)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/421293-atlasclear-holdings-expands-correspondent-clearing-network-with-third-and-fourth-broker-dealer-agreements)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/421531-ai-era-corp-appoints-seasoned-finance-executive-dzmitry-kastahorau-as-cfo-to-drive-nyse-american-uplisting-and-growth-strategy)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340006-atlasclear-holdings-erweitert-korrespondenz-clearing-netzwerk-mit-drittem-und-viertem-broker-dealer-vertrag)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ai-era-corp-appoints-veteran-finance-executive-dzmitry-kastahora/202630629)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340570-atlasclear-holdings-amplia-su-red-de-compensacion-correspondiente-con-tercer-y-cuarto-acuerdo-de-corredor-bolsa)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340037-ai-era-corp-ernennt-erfahrenen-finanzvorstand-dzmitry-kastahorau-zum-cfo-um-nyse-american-uplisting-und-wachstumsstrategie-voranzutreiben)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341326-atlasclear-holdings-elargit-son-reseau-de-compensation-correspondant-avec-des-accords-de-courtage-tiers-et-quatrieme)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340599-ai-era-corp-nombra-al-experimentado-ejecutivo-financiero-dzmitry-kastahorau-como-cfo-para-impulsar-el-ascenso-a-nyse-american-y-la-estrategia-de-crecimiento)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/339975-atlasclear-holdings-expande-rede-de-compensacao-correspondente-com-terceiro-e-quarto-acordo-de-corretora)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341355-ai-era-corp-nomme-le-financier-experimente-dzmitry-kastahorau-au-poste-de-directeur-financier-pour-piloter-la-cotation-au-nyse-american-et-la-strategie-de-croissance)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/atlasclear-expands-broker-dealer-network-as-clearing-infrastruct/202630599)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340003-ai-era-corp-nomeia-executivo-financeiro-experiente-dzmitry-kastahorau-como-cfo-para-impulsionar-listagem-na-nyse-american-e-estrategia-de-crescimento)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/atlasclear-expands-clearing-network-with-third-onboarding-and-fo/202630599)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ai-era-corp-appoints-seasoned-finance-executive-as-cfo-to-drive/202630629)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421303-atlasclear-expands-broker-dealer-network-as-clearing-infrastructure-demonstrates-scalability)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421598-ai-era-corp-appoints-seasoned-finance-executive-dzmitry-kastahorau-as-cfo-to-drive-nyse-american-uplisting-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/7/limepHoM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/7/poemvrL8.webp)
