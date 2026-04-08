@@ -1,50 +1,94 @@
-# Stuttering John Melendez Headlines Comic Strip Live in New York City on April 16
+# TNT Performance Supplements Now Available on Amazon for U.S. Customers
 
-New York, USA (Newsworthy.ai) Tuesday Apr 7, 2026 @ 2:15 PM Central — NEW YORK, NY, April 2026, Stuttering John Melendez is set to headline Comic Strip Live in New York City on Thursday, April 16, 2026 at 8:00 PM. The lineup also includes host Johnny McCarthy, feature Johnny Hollywood, and special guest Michele Balan. The show is listed by both Eventbrite and Comic Strip Live for April 16 at the club’s Upper East Side location.
+Boca Raton, Florida (Newsworthy.ai) Tuesday Apr 7, 2026 @ 6:00 PM Eastern — 
 
- Melendez approaches the show with strong recent momentum, promising an exciting performance. Rodney’s Comedy Club sold out. Tommy Foxx’s in New Jersey sold out. Celtic Corner in New Jersey sold out. One of those recent appearances also drew Page Six coverage, which added another burst of attention to his return to live stand-up.
+ True Nutrition Technology (TNT), the German sports nutrition brand trusted by more than 500,000 customers, announced that its Creatine Monohydrate with Creapure® and Synapsensause Pre-Workout are now available on Amazon, marking the company’s first live product offerings for U.S. consumers.
 
- Best known to many as “Stuttering John” from his years with The Howard Stern Show and later his television work, Melendez remains one of the more recognizable personalities to move from radio and TV into live comedy. His April 16 appearance gives fans a chance to see him live in one of New York City’s best-known comedy rooms, this time in a straightforward club setting built around the show itself.
+ The launch represents a key milestone in TNT’s expansion into the United States, with additional products expected to follow.
 
- Comic Strip Live lists the event as “The Stuttering John Show!” at 1568 2nd Avenue in New York. Eventbrite also lists tickets for the April 16 performance, with the show starting at 8:00 PM.
+ “Launching on Amazon with both creatine and Synapsensause is an important step for TNT in the U.S.,” said Markus Himmelstoss, Managing Director of True Nutrition Technology. “We’re starting with two of our most trusted performance products, with more to come.”
 
- With recent sold-out rooms behind him and fresh media attention surrounding his live appearances, Melendez now returns to the stage in Manhattan for what is expected to be a lively night of stand-up with a strong supporting lineup.
+ A Proven Foundation in Performance Nutrition Creatine monohydrate is one of the most widely studied supplements in sports nutrition and is commonly used to support strength, power, and high-intensity performance.
 
- Secure your tickets now on Eventbrite.
+ TNT’s Creatine Monohydrate with Creapure® is manufactured and bottled in Germany using one of the highest purity standards available in the global supplement market.
 
- Stuttering John Melendez is a comedian, broadcaster, and television personality known for his years on The Howard Stern Show and his later work in late-night television. He continues to perform live stand-up dates for audiences across the country.
+ Key product features include:
 
- Comic Strip Live is a historic New York City comedy club on the Upper East Side known for showcasing established talent and rising stand-up performers in an intimate live setting. The club lists “The Stuttering John Show!” for April 16, 2026 at 8:00 PM. 
+ * 99.99% pure Creapure® creatine
+* Manufactured exclusively in Germany
+* Micronized for improved solubility and absorption
+* 100% vegan formula
+* Regularly tested by independent laboratories for purity and safety
+
+ Creatine plays a central role in cellular energy production, helping support ATP regeneration during short, intense physical activity.
+
+ Pre-Workout Performance with Synapsensause TNT’s Synapsensause Pre-Workout is now also available on Amazon, offering a high-performance formula designed to support energy, focus, and training intensity.
+
+ Key formulation highlights include:
+
+ * 400mg total caffeine (200mg pure caffeine + 200mg from guarana extract)
+* 8g L-Citrulline for nitric oxide support and training “pump”
+* 6g L-Tyrosine for focus and mental performance
+* Manufactured and tested in Germany
+
+ The dual-phase caffeine system is designed to provide both immediate and sustained energy.
+
+ German Manufacturing and Verified Quality All TNT supplements are produced under strict German manufacturing standards, including IFS-certified processes and ongoing external laboratory testing.
+
+ More TNT Products Coming Soon With both creatine and Synapsensause now available on Amazon in the United States, TNT plans to continue expanding its product lineup.
+
+ Additional products expected to follow include:
+
+ * CLEAR WHEY Protein, a light, refreshing alternative to traditional protein shakes
+
+ Now Available on Amazon U.S. consumers can now purchase TNT products directly on Amazon:
+
+ * Creatine Monohydrate
+* Synapsensause Pre-Workout
+
+ About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
+
+ TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
+
+ From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
+
+ FDA Disclaimer
+
+ These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604072314/stuttering-john-melendez-headlines-comic-strip-live-in-new-york-city-on-april-16)
+[Original/Source Press Release](https://newsworthy.ai/news/202604072321/tnt-performance-supplements-now-available-on-amazon-for-us-customers)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/stuttering-john-headlines-comic-strip-live-with-sold-out-momentum/87d6d4b7ea8ef33e96dbd6fd11381710) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/german-sports-nutrition-brand-tnt-launches-on-amazon-us/b31a64dc637c0a82b673f67fa23b6f91) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/stuttering-john-melendez-to-headline-comic-strip-live-in-new-yor/202630644)
+Pickup - [https://advos.io/en](https://advos.io/en/german-sports-nutrition-brand-tnt-expands-to-us-market-through-a/202630654)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/421805-stuttering-john-melendez-to-headline-comic-strip-live-in-new-york-city-on-april-16)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/421944-german-sports-nutrition-brand-tnt-expands-to-us-market-through-amazon-launch)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340051-stuttering-john-melendez-tritt-am-16-april-im-comic-strip-live-in-new-york-city-auf)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340060-deutsche-sportnahrungsmarke-tnt-expandiert-uber-amazon-launch-auf-den-us-markt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340613-stuttering-john-melendez-sera-el-acto-principal-en-comic-strip-live-de-nueva-york-el-16-de-abril)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340622-la-marca-alemana-de-nutricion-deportiva-tnt-se-expande-al-mercado-estadounidense-a-traves-de-su-lanzamiento-en-amazon)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341369-stuttering-john-melendez-en-tete-daffiche-au-comic-strip-live-de-new-york-le-16-avril)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341378-la-marque-allemande-de-nutrition-sportive-tnt-setend-au-marche-americain-via-amazon)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340018-stuttering-john-melendez-sera-a-atracao-principal-no-comic-strip-live-em-nova-york-em-16-de-abril)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340027-marca-alema-de-nutricao-esportiva-tnt-expande-para-o-mercado-americano-atraves-do-lancamento-na-amazon)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/stuttering-john-melendez-to-headline-comic-strip-live-in-new-yor/202630644)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/german-sports-nutrition-brand-tnt-expands-to-us-market-through-a/202630654)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/stuttering-john-melendez-returns-to-new-york-comedy-stage-with-s/202630644)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/german-sports-nutrition-brand-tnt-expands-to-us-market-through-a/202630654)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421815-stuttering-john-melendez-to-headline-historic-new-york-comedy-club-amid-sold-out-momentum)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421949-german-sports-nutrition-brand-tnt-launches-us-market-entry-through-amazon)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/b31a64dc637c0a82b673f67fa23b6f91)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/b31a64dc637c0a82b673f67fa23b6f91)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/7/waitbK7b.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/7/gulfPh0l.webp)

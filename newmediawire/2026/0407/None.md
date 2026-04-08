@@ -1,50 +1,67 @@
-# Datavault AI (DVLT) CEO To Headline Major European Financial Innovation Events
+# Steyr Motors AG Completes the Acquisition of BUKH A/S Important Step Into New Markets With High Synergy Potential
 
-LOS ANGELES, CA - April 7, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) announced that CEO Nathaniel T. Bradley will deliver keynote presentations at CONV3RGENCE London & The Digital Commonwealth Awards on April 22, 2026, and AssetRush x Zurich 2026 on May 21, 2026, following an earlier appearance at XRP Tokyo 2026 on April 7, as the company expands its global presence in real-world asset tokenization. Bradley is expected to showcase Datavault AI’s proprietary platforms, including Information Data Exchange (IDE), DataValue, DataScore and Data Vault Bank AI technologies, highlighting how its infrastructure enables AI-driven valuation, digital asset creation and monetization of real-world assets while advancing partnerships and growth across Europe’s financial innovation ecosystem.
+* Closing successfully completed: initial consolidation from Q2 2026
+* Strategic quantum leap: expansion into a full-range provider (24–700 hp) with significantly higher revenue potential per customer
+* Scaling & synergies: strengthening production, sales, and aftermarket with significant cross-selling potential
+* Value-accretive: positive earnings contribution expected already in the first year of consolidation
 
- To view the full press release, visit https://ibn.fm/JWk41
+ STEYR, AUSTRIA - April 7, 2026 (NEWMEDIAWIRE) - Steyr Motors AG (ISIN AT0000A3FW25), one of the world's leading companies in the field of customized engines for mission-critical defense and civil applications, has successfully completed the acquisition of 100% of the shares in the Danish companies BUKH A/S and SLC Ejendomme ApS. With this transaction, Steyr Motors consistently continues its strategic expansion toward becoming a leading provider of mission-critical defense and marine applications. The initial consolidation of the BUKH Group will start from the second quarter of 2026.
 
- About Datavault AI
+ Julian Cassutti, CEO of Steyr Motors AG, comments: “With the successful closing of BUKH, we are taking a strategic quantum leap in our marine and defense business. The expansion of our portfolio, access to new markets, and the resulting synergy potential lay the foundation for further international growth.”
 
- Datavault AI(TM) leads AI-driven data experiences, valuation, and monetization in the Web 3.0 environment. The Company’s cloud-based platform delivers comprehensive solutions through its collaborative Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division includes WiSA(R), ADIO(R), and Sumerian(R) patented technologies for spatial and multichannel wireless HD sound. The Data Science Division harnesses Web 3.0 and high-performance computing for experiential data perception, valuation, and secure monetization across industries including sports & entertainment, biotech, education, fintech, real estate, healthcare, and energy. The Information Data Exchange(R) (IDE) enables Digital Twins and secure NIL licensing, fostering responsible AI with integrity. Datavault AI’s customizable technology suite offers AI/ML automation, third-party integration, analytics, marketing automation, and advertising monitoring. Headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
+ With BUKH, Steyr Motors integrates a leading internationally specialist for SOLAS-certified engines (Safety of Life at Sea) with a globally established distribution and service network. The transaction significantly expands the performance range from the previous range of 120–300 hp to a future range of 24–700 hp. This enables Steyr Motors, for the first time, to offer a nearly complete marine portfolio, significantly increases revenue potential per customer, and enhances competitiveness in international tenders.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ At the same time, Steyr Motors achieves substantial scaling effects following the completion of the transaction: sales volume in the SOLAS segment increases significantly, a second European production site strengthens the industrial base and enhances supply chain resilience. In addition, BUKH’s complementary sales network accelerates market access, particularly in Asia and South America, and opens up additional cross-selling opportunities.
 
- Forward Looking Statements
+ Strategically, the acquisition is particularly important in the defense sector. The expanded performance range enables stronger positioning in the growing market for unmanned surface vessels (USVs). At the same time, Steyr Motors further strengthens its position in the SOLAS segment, which is characterized by high regulatory barriers to entry, long spare parts cycles, and a high-margin, recurring aftermarket business.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law. 
+ The acquisition is expected to have a positive impact on earnings already in the first full year of consolidation and will sustainably strengthen Steyr Motors’ operational profitability and EBIT margin in the coming years.
+
+ To ensure a smooth integration process, the former owner and CEO of BUKH, Soren Christiansen, will remain on BUKH’s Supervisory Board for at least two years and actively support the integration. As of April 1, Torben Damberg has assumed the operational leadership of BUKH. The mechanical engineer has extensive experience across the industrial value chain and most recently served as CTO/COO at BUKH, where he was responsible for key parts of the operational business.Company profile of Steyr Motors AGHeadquartered in Steyr, Austria, Steyr Motors AG is a global leader in the development and production of high-performance customized special engines with high power density and durability. The Company’s engines are primarily used for military special vehicles, boats (both military and civilian) and as auxiliary power units (“APU”) for main battle tanks and locomotives.For further information, please contact:
+
+ Steyr Motors AGInvestor RelationsPhone: +43 676 6222 367Email: ir@steyr-motors.comwww.steyr-motors.com
+
+ Press contact CROSS ALLIANCE communication GmbHSusan HoffmeisterPhone: +49 89 125 09 0333Email: sh@crossalliance.dewww.crossalliance.de
+
+ 
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-ceo-to-headline-major-european-financial-innovation-events-7086247)
+[Original/Source Press Release](https://www.newmediawire.com/news/steyr-motors-ag-completes-the-acquisition-of-bukh-a-s-important-step-into-new-markets-with-high-synergy-potential-7086250)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-ceo-to-showcase-asset-tokenization-tech-at-global-events/1c061fe0b9ed94577beddcc5deede34f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/steyr-motors-completes-bukh-acquisition-expands-to-full-range-marine-engine-provider/24bb0fb1cea18563fd429b818e968e9a) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/datavault-ai-ceo-to-present-at-european-financial-events-as-comp/202630645)
+Pickup - [https://advos.io/en](https://advos.io/en/steyr-motors-completes-bukh-acquisition-expanding-marine-and-def/202630653)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/421854-datavault-ai-ceo-to-present-at-european-financial-innovation-events-showcasing-real-world-asset-tokenization-technology)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/421932-steyr-motors-ag-completes-acquisition-of-bukh-as-expanding-marine-and-defense-portfolio)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340052-datavault-ai-ceo-prasentiert-auf-europaischen-finanzinnovationsevents-technologie-zur-tokenisierung-realer-vermogenswerte)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340059-steyr-motors-ag-schliesst-ubernahme-von-bukh-as-ab-und-erweitert-marine-und-verteidigungsportfolio)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340614-ceo-de-datavault-ai-presentara-en-eventos-europeos-de-innovacion-financiera-mostrando-tecnologia-de-tokenizacion-de-activos-del-mundo-real)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340621-steyr-motors-ag-completa-la-adquisicion-de-bukh-as-ampliando-su-cartera-marina-y-de-defensa)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341370-le-pdg-de-datavault-ai-presentera-lors-devenements-europeens-dinnovation-financiere-pour-mettre-en-avant-la-technologie-de-tokenisation-dactifs-reels)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341377-steyr-motors-ag-finalise-lacquisition-de-bukh-as-elargissant-son-portefeuille-maritime-et-de-defense)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340019-ceo-da-datavault-ai-apresentara-em-eventos-europeus-de-inovacao-financeira-mostrando-tecnologia-de-tokenizacao-de-ativos-do-mundo-real)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340026-steyr-motors-ag-conclui-aquisicao-da-bukh-as-expandindo-portfolio-naval-e-de-defesa)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/datavault-ai-ceo-to-present-at-european-financial-events-showcas/202630645)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/steyr-motors-ag-completes-acquisition-of-bukh-as-expanding-marin/202630653)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/datavault-ai-ceo-to-showcase-tokenization-platforms-at-european/202630645)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/steyr-motors-ag-completes-acquisition-of-bukh-as-expanding-marin/202630653)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421859-datavault-ai-ceo-to-present-at-european-financial-innovation-events-showcasing-real-world-asset-tokenization-technology)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421939-steyr-motors-completes-acquisition-of-bukh-as-expanding-marine-and-defense-portfolio)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/421847-datavault-ai-ceo-to-showcase-tokenization-platforms-at-major-european-financial-events)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/24bb0fb1cea18563fd429b818e968e9a)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/7/idea_Un5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/7/joltAZYQ.webp)
