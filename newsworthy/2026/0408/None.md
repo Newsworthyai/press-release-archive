@@ -1,58 +1,58 @@
-# Dr. Richard Downs: Pioneering Airway Health and Nasal Hygiene Solutions
+# Award Winners Announced for Advancing Employee Experience in 2026
 
-Dubuque, IA (Newsworthy.ai) Wednesday Apr 8, 2026 @ 7:00 AM Eastern — Dr. Richard Downs, DDS, FAGD, FICOI, D-GMDIA, D-ASBA, embodies a remarkable journey of dedication and innovation within the realm of dental health and beyond. Dr. Downs’ work focuses on addressing one of the most overlooked drivers of chronic health issues: poor breathing and sleep quality. His research and product development efforts center on improving airway function through both dental interventions and antimicrobial technologies.
+Jacksons Point, Ontario, Canada (Newsworthy.ai) Wednesday Apr 8, 2026 @ 10:00 AM Eastern — 
 
- His recent innovations HypoNasal and XyloClean under the brand Nefense, a nasal rinse system designed to support nasal hygiene, airway function, and respiratory wellness.
+ HR.com is proud to announce the 2026 Employee Experience Award winners, recognizing standout technologies and HR leaders that are elevating the employee experience and delivering measurable impact across the workforce.
 
- “The CDC has labeled poor sleep as an unrecognized epidemic. That’s why I wrote the book Beautiful Faces: The Architects of Enhanced Attractiveness and Improved Human Breathing… which discusses how we’re now treating sleep by widening airways in the mouth and the nose.”
+ Best Employee Experience Platform Award: Semos Cloud - People and Culture Intelligence Platform
 
- Advancing Dental Sleep Medicine and Airway Health Dental sleep medicine is an emerging field that examines how oral structures impact breathing, sleep quality, and overall health. Dr. Downs has spent decades working on solutions that expand airway capacity, particularly through orthodontic approaches that prioritize widening the dental arches rather than reducing space.
+ Semos Cloud’s People and Culture Intelligence Platform brings together Total Rewards, Employee Communications, and Talent Development in a unified AI-powered solution. With deep integration into leading HR systems such as SAP SuccessFactors, Workday, and Oracle Cloud HCM, it enables organizations to increase engagement, reduce turnover, and strengthen manager effectiveness - positioning HR as a strategic driver of culture and performance.
 
- This approach relies on the anatomical link between the mouth and nasal passages, where expanding the upper dental arch enhances nasal airflow and breathing.
+ Most Engaging Employee Experience Award - Kimberly Cole, EVP of Human Capital, 9th Way Insignia
 
- Hypochlorous Acid: The Future of Nasal Hygiene In addition to his clinical work, Dr. Downs has developed Ionoxx hypochlorous acid (HOCl)-based products designed to support oral and nasal hygiene. Hypochlorous acid is a naturally occurring molecule produced by the human immune system and is recognized for its antimicrobial and anti-inflammatory properties.
+ Kimberly Cole is redefining employee experience through programs that enhance engagement, development, and retention. Her initiatives, including the CyberSmart professional development program and a 360-degree performance review system, expand growth opportunities and deliver measurable results. Through values-based recognition, high-touch onboarding, and ongoing connection strategies, she fosters trust, visibility, and loyalty - contributing to near-zero voluntary turnover and setting a new standard for HR excellence.
 
- His proprietary nasal sprays, HypoNasal and XyloClean, developed under the Nefense brand, reduce microbial load and support airway function safely.
+ View All HR.com Awards: www.hr.com/awards
 
- Dr. Downs notes that early observational findings and user reports suggest improvements in breathing and nasal airflow, though he emphasizes that formal clinical studies are ongoing.
+ “Employee experience has become a critical driver of organizational success,” said Debbie McGrath, CEO of HR.com. “This year’s award winners are setting a new standard by combining innovation, technology, and human-centered strategies to create workplaces where employees can truly thrive.”About HR.com
 
- From Clinical Practice to Innovation After 42 years in private dental practice, Dr. Downs transitioned into product development, building on his earlier work co-founding a dental products company. His current efforts include the development of hypochlorous acid-based nasal sprays and broader wellness applications.
+ HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
 
- This shift reflects a broader trend in healthcare toward integrative solutions that connect dentistry, respiratory health, and systemic wellness.
-
- A Broader Vision for Preventative Health Through Sleep Balance Academy, Dr. Downs educates on identifying and addressing sleep-disordered breathing, a frequent yet undiagnosed cause of fatigue and chronic illness. TopDoctor Magazine feature and nomination for Product of the Year underscore growing recognition of his contributions to advancing airway-focused health solutions.
-
- About Dr. Richard Downs Dr. Richard Downs, DDS, is a dental professional with more than four decades of experience and multiple advanced credentials in dental medicine and sleep health. He is the author of Beautiful Faces: The Architects of Enhanced Attractiveness and Improved Human Breathing and the founder of Sleep Balance Academy. His work focuses on airway health, oral health, sleep medicine, and the development of innovative oral and nasal health solutions. 
+ HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604082320/dr-richard-downs-pioneering-airway-health-and-nasal-hygiene-solutions)
+[Original/Source Press Release](https://newsworthy.ai/news/202604082319/award-winners-announced-for-advancing-employee-experience-in-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dental-pioneer-revolutionizes-sleep-health-with-airway-focused-innovations/70afc91641379d121ca0008614c229e9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-honors-2026-employee-experience-award-winners-for-workplace-innovation/0f43c6ae10511ed11b2d3eb87d7f396c) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/dental-professional-develops-nasal-hygiene-solutions-to-address/202630658)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/0f43c6ae10511ed11b2d3eb87d7f396c)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/421963-dental-innovator-develops-nasal-hygiene-solutions-to-address-sleep-epidemic)
+Pickup - [https://advos.io/en](https://advos.io/en/hrcom-announces-2026-employee-experience-award-winners-highlight/202630671)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340064-zahnmedizinischer-innovator-entwickelt-nasenhygienelosungen-zur-bekampfung-der-schlafepidemie)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/422104-hrcom-announces-2026-employee-experience-award-winners-recognizing-innovation-in-workforce-engagement)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340626-innovador-dental-desarrolla-soluciones-de-higiene-nasal-para-abordar-la-epidemia-del-sueno)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340077-hrcom-verkundet-die-gewinner-der-employee-experience-awards-2026-und-wurdigt-innovationen-im-bereich-mitarbeiterengagement)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341382-un-innovateur-dentaire-developpe-des-solutions-dhygiene-nasale-pour-lutter-contre-lepidemie-de-troubles-du-sommeil)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340643-hrcom-anuncia-los-ganadores-de-los-premios-experiencia-del-empleado-2026-reconociendo-la-innovacion-en-el-compromiso-laboral)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340031-inovador-odontologico-desenvolve-solucoes-de-higiene-nasal-para-enfrentar-epidemia-do-sono)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341397-hrcom-annonce-les-laureats-des-prix-de-lexperience-employe-2026-recompensant-linnovation-dans-lengagement-des-effectifs)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/dental-innovator-develops-nasal-hygiene-solutions-to-address-sle/202630658)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340046-hrcom-anuncia-os-vencedores-do-premio-experiencia-do-funcionario-2026-reconhecendo-inovacao-no-engajamento-da-forca-de-trabalho)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/dental-professional-develops-nasal-hygiene-solutions-to-address/202630658)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hrcom-announces-2026-employee-experience-award-winners-highlight/202630671)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/421978-dental-innovator-develops-nasal-hygiene-system-to-address-sleep-epidemic)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hrcom-announces-2026-employee-experience-award-winners-for-innov/202630671)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422140-hrcom-announces-2026-employee-experience-award-winners-highlighting-strategic-role-of-technology-and-leadership)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/422144-hrcom-announces-2026-employee-experience-award-winners-recognizing-innovative-technologies-and-leadership)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/8/chefQSkn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/8/quitFB0A.webp)
