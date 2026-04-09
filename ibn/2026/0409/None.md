@@ -1,62 +1,58 @@
-# NetworkNewsBreaks – ECGI Holdings Inc. (OTC: ECGI) Reports Rezy.Fi Launch And Platform Progress Toward Commercial Readiness
+# InvestorNewsBreaks – Kraig Biocraft Laboratories, Inc. (OTCQB: KBLB) Sets Record With 1.3 Metric Tons Of Spider Silk Production In One Month
 
-ECGI Holdings (OTC: ECGI) provided a shareholder update outlining continued advancement of its mortgage tokenization platform, including the launch of Rezy.Fi as a public-facing onboarding hub, a new advisory agreement with Axion OnChain and expected rollout of an investor portal next week. The company said it has validated core pooled-securities workflows in a sandbox environment, with operational compliance infrastructure including KYC, KYB and accredited investor verification, alongside integrated wallet provisioning, as it transitions from pilot development toward commercial launch preparation.
+Kraig Biocraft Laboratories (OTCQB: KBLB) announced it has produced more than 1.3 metric tons of recombinant spider silk cocoons in a single month, a new world record that marks a major step toward industrial-scale commercialization of the advanced biomaterial. The company said the milestone reflects successful execution of its 2026 scale-up plan, with expanded facilities and BAM-1 Alpha production hybrids delivering consistent, high-output performance, as it now targets ramping production to 10 metric tons per month to support applications across technical textiles and performance materials.
 
- To view the full press release, visit https://nnw.fm/htRmy
+ To view the full press release, visit https://ibn.fm/uky6M
 
- About ECGI Holdings
+ About Kraig Biocraft Laboratories, Inc.
 
- ECGI Holdings, Inc. (OTC: ECGI) is a technology-driven investment and development company focused on building innovative, technology-enabled businesses with sustainable, long-term revenue models. The company’s portfolio and strategic interests span high-growth sectors such as artificial intelligence, fintech, fashion technology, and experiential hospitality, industries with significant global demand and long-term growth potential.
+ Kraig Biocraft Laboratories, Inc, a reporting biotechnology company is the leading developer of genetically engineered spider silk-based fiber technologies.
 
- ECGI’s current investments and partnerships include Entrepreneur Ventures Fund I; TCA Venture Group; AuraChat.ai, an AI conversational platform transforming business communication; Payday Fantasy, a next-generation fantasy sports marketplace; TrueToForm, an AI-powered 3D body-scanning software improving fit accuracy in e-commerce; Pacific Saddlery, a luxury equestrian apparel and equipment brand; and Vintner’s Caldera Ranch, a five-acre vineyard and rental property in California’s wine country.
+ The Company has achieved a series of scientific breakthroughs in the area of spider silk technology with implications for the global textile industry.
 
- Through active partnerships, strategic investments, and disciplined development, ECGI leverages emerging technologies to unlock new revenue opportunities and position its portfolio for accelerated growth and broader market visibility.
+ For more information, https://www.kraiglabs.com/
 
- NOTE TO INVESTORS: The latest news and updates relating to ECGI are available in the company’s newsroom at https://nnw.fm/ECGI
+ About InvestorWire
 
- About NetworkNewsWire
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.InvestorWire.com
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- For more information, please visit https://www.NetworkNewsWire.com
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-ecgi-holdings-inc-otc-ecgi-reports-rezy-fi-launch-and-platform-progress-toward-commercial-readiness/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-kraig-biocraft-laboratories-inc-otcqb-kblb-sets-record-with-1-3-metric-tons-of-spider-silk-production-in-one-month/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ecgi-advances-mortgage-tokenization-platform-with-rezy-fi-launch-and-axion-partnership/28db9bd981b134aa3e269b2e742c855f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kraig-biocraft-labs-sets-world-record-with-1-3-tons-of-spider-silk/986d48cc8b561bbed021bc2019b2a6de) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ecgi-holdings-advances-mortgage-tokenization-platform-with-rezyf/202630728)
+Pickup - [https://advos.io/en](https://advos.io/en/kraig-biocraft-laboratories-achieves-world-record-in-spider-silk/202630746)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422683-ecgi-holdings-advances-mortgage-tokenization-platform-with-rezyfi-launch-and-commercial-readiness-milestones)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/422835-kraig-biocraft-laboratories-achieves-world-record-with-13-metric-tons-of-spider-silk-production-in-one-month)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340132-ecgi-holdings-treibt-plattform-fur-hypotheken-tokenisierung-mit-rezyfi-launch-und-meilensteinen-zur-marktreife-voran)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340150-kraig-biocraft-laboratories-stellt-mit-13-tonnen-spinnenseidenproduktion-in-einem-monat-weltrekord-auf)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340699-ecgi-holdings-avanza-plataforma-de-tokenizacion-de-hipotecas-con-lanzamiento-de-rezyfi-e-hitos-de-preparacion-comercial)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340712-kraig-biocraft-laboratories-establece-record-mundial-con-13-toneladas-metricas-de-produccion-de-seda-de-arana-en-un-mes)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341452-ecgi-holdings-progresse-dans-sa-plateforme-de-tokenisation-hypothecaire-avec-le-lancement-de-rezyfi-et-des-jalons-de-preparation-commerciale)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341470-kraig-biocraft-laboratories-etablit-un-record-mondial-avec-13-tonne-metrique-de-soie-daraignee-produite-en-un-mois)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340102-ecgi-holdings-avanca-plataforma-de-tokenizacao-de-hipotecas-com-lancamento-do-rezyfi-e-marcos-de-prontidao-comercial)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340120-kraig-biocraft-laboratories-bate-recorde-mundial-com-producao-de-13-toneladas-de-seda-de-aranha-em-um-mes)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/ecgi-holdings-advances-mortgage-tokenization-platform-with-rezyf/202630728)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/kraig-biocraft-laboratories-achieves-world-record-with-13-metric/202630746)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ecgi-holdings-advances-mortgage-tokenization-platform-with-rezyf/202630728)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/kraig-biocraft-laboratories-achieves-world-record-in-spider-silk/202630746)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422737-ecgi-holdings-advances-mortgage-tokenization-platform-with-rezyfi-launch)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422845-kraig-biocraft-laboratories-sets-world-record-with-13-metric-tons-of-spider-silk-production-in-one-month)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/9/ruby__zh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/9/rice2nRb.webp)
