@@ -1,56 +1,50 @@
-# First Orion Signs Agreement to Deliver INFORM® Branded Calling to Boost Mobile Subscribers
+# UGI Begins System Upgrades in Monroe Township
 
-April 08, 2026
+for immediate release - april 8, 2026
 
-First Orion, a leading provider of branded communications solutions, announced a new agreement with Boost Mobile to deliver INFORM® Branded Calling. With this carrier agreement, subscribers will see a business’s display name on incoming calls, allowing customization of up to 32 characters to help build trust in the call, increase answer rates, and enhance the business’s brand awareness.
+UGI Utilities is starting a system upgrades project in Monroe Township, Snyder County this week. The work is part of UGI’s commitment to provide safe and reliable service and is an opportunity for some homes and businesses along the project route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* First Orion, a leading provider of branded communications solutions, announced a new agreement with Boost Mobile to deliver INFORM® Branded Calling.
-* With this carrier agreement, subscribers will see a business’s display name on incoming calls, allowing customization of up to 32 characters to help build trust in the call, increase answer rates, and enhance the business’s brand awareness.
-* Under this agreement, Boost Mobile subscribers will receive incoming calls that display a business's name, through their existing business relationship, helping those customers recognize who is calling and make a more informed decision on whether to answer the call.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-begins-system-upgrades-in-monroe-township)UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-[Click image above to view full announcement.](https://first-orion.reportablenews.com/pr/first-orion-signs-agreement-to-deliver-inform-branded-calling-to-boost-mobile-subscribers)About First OrionAs a market leader in branded communication solutions, First Orion elevates the phone call and messaging experiences for businesses, carriers, and consumers. First Orion offers a comprehensive suite of branded communications solutions to improve customer engagement, enhance security and transparency, and provide actionable insights. In addition to branded calling and messaging, First Orion empowers businesses with advanced analytics to optimize call programs, real-time fraud detection to protect their customers, and other innovative solutions that enable enterprises to provide trust and transparency at scale. First Orion is a valued partner to Fortune 500 companies and is integrated into the largest U.S. mobile carriers. For more information, firstorion.com.
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Contacts:Katherine Waite 617 599 9798katherine@triercompany.com
-
-Source: First Orion
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://first-orion.reportablenews.com/pr/first-orion-signs-agreement-to-deliver-inform-branded-calling-to-boost-mobile-subscribers)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-begins-system-upgrades-in-monroe-township)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/first-orion-boost-mobile-launch-branded-calling-to-combat-spam/d465f14a648b3d0a1faa6f447e526c60) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-launches-major-gas-system-upgrades-in-monroe-township/9d63484abb477c97640154d40595a3bb) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/first-orion-partners-with-boost-mobile-to-implement-branded-call/202630664)
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-utilities-launches-natural-gas-system-upgrades-in-monroe-tow/202630706)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422044-first-orion-partners-with-boost-mobile-to-implement-informr-branded-calling-for-enhanced-customer-trust)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/422447-ugi-utilities-launches-natural-gas-system-upgrades-in-monroe-township)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340070-first-orion-kooperiert-mit-boost-mobile-zur-implementierung-von-informr-branded-calling-fur-mehr-kundenvertrauen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340110-ugi-utilities-startet-erdgasnetzmodernisierung-in-monroe-township)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340632-first-orion-se-asocia-con-boost-mobile-para-implementar-las-llamadas-identificadas-informr-y-aumentar-la-confianza-del-cliente)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340672-ugi-utilities-inicia-mejoras-del-sistema-de-gas-natural-en-monroe-township)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341390-first-orion-sassocie-a-boost-mobile-pour-deployer-lappel-identifie-informr-afin-de-renforcer-la-confiance-des-clients)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341430-ugi-utilities-lance-des-travaux-de-modernisation-du-reseau-de-gaz-naturel-dans-le-canton-de-monroe)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340039-first-orion-estabelece-parceria-com-a-boost-mobile-para-implementar-o-servico-de-chamadas-com-identificacao-informr-e-aumentar-a-confianca-dos-clientes)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340080-ugi-utilities-inicia-atualizacoes-do-sistema-de-gas-natural-em-monroe-township)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/first-orion-partners-with-boost-mobile-to-implement-informr-bran/202630664)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ugi-utilities-launches-natural-gas-system-upgrades-in-monroe-tow/202630706)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/first-orion-partners-with-boost-mobile-to-implement-informr-bran/202630664)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ugi-utilities-initiates-infrastructure-enhancement-project-in-mo/202630706)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422059-first-orion-partners-with-boost-mobile-to-deploy-informr-branded-calling-technology)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422452-ugi-utilities-launches-natural-gas-system-upgrades-in-monroe-township)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/d465f14a648b3d0a1faa6f447e526c60)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/d465f14a648b3d0a1faa6f447e526c60)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/9d63484abb477c97640154d40595a3bb)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/264/8/isledPiM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/264/8/barnrDT3.webp)

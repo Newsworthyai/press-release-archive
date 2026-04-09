@@ -1,57 +1,90 @@
-# Joe Lopez Law's Enhanced Website: A Testament to 20 Years of Legal Excellence
+# The Harvest Table Now Available on Amazon with Full Collagen and Plant-Based Nutrition Line
 
-Austin, TX (Newsworthy.ai) Wednesday Apr 8, 2026 @ 11:50 AM Central — Joe Lopez Law, a boutique personal injury firm known for its aggressive advocacy and multi-million dollar results, has officially launched a comprehensive redesign of its digital platform, www.joelopezlaw.com. The new website is designed to serve as a high-functioning resource for individuals throughout Texas who have suffered catastrophic injuries or the wrongful death of a loved one.
+Boca Raton, Florida (Newsworthy.ai) Wednesday Apr 8, 2026 @ 5:00 PM Eastern — 
 
- The redesigned site boasts a modern, user-friendly interface and enhanced accessibility features, enabling accident victims to swiftly access crucial legal information and representation. Since its founding, Joe Lopez Law has prioritized direct attorney-client communication. The new mobile-responsive design and simplified consultation process further streamline this vital connection.
+ The Harvest Table, the South African wellness brand known for its clean-label, whole-food nutrition products, is now fully available to U.S. consumers on Amazon with the launch of its complete initial product lineup.
 
- Founded by Joe Lopez, a seasoned trial advocate with over 20 years of experience, the firm consistently levels the playing field against major insurance companies. The updated website showcases the firm's expertise in high-stakes cases like commercial vehicle accidents, spinal cord and brain injuries, and premises liability.
+ The milestone marks the brand’s first full-scale availability in the United States, giving consumers access to The Harvest Table’s approach to simple, nutrient-dense nutrition through one of the world’s largest online marketplaces.
 
- 
+ Now Available on Amazon The full product range is now available through The Harvest Table’s Amazon storefront. The lineup includes:
 
- Key Digital Enhancements Include:
+ * Multi Collagen Radiance - 12.35 oz (350 g) Pouch
+* Multi Collagen Granules - 12.35 oz (350 g) Pouch
+* Bovine Collagen Granules - 12.35 oz (350 g) Pouch
+* Vegan Protein - 19.40 oz (550 g) Pouch
 
- * Bilingual Accessibility: Reflecting the firm’s commitment to the Hispanic community, the site offers comprehensive resources in both English and Spanish to ensure no barriers exist between victims and justice.
-* Specialized Practice Resources: New dedicated sections for complex litigation areas, including DWI victim advocacy, car accidents, and wrongful death claims.
-* Educational Content: A robust library of legal insights designed to help victims understand their rights and the timelines involved in Texas personal injury law.
-* Proven Results Showcase: An updated portfolio of the firm’s landmark cases, including multi-million dollar settlements and verdicts that have earned Joe Lopez lifetime membership in the Multi-Million Dollar Advocates Forum.
+ Each product reflects The Harvest Table’s commitment to clean-label formulations made without added fillers, preservatives, artificial flavors, or dyes.
 
- While based in Austin, Joe Lopez Law serves clients across the entire state of Texas, from El Paso to the Rio Grande Valley. With the digital relaunch, clients statewide can access the trial-ready expertise that earned Joe Lopez the titles of 'Texas Super Lawyer' and a member of the National Trial Lawyers Top 100.
+ Designed for Everyday Wellbeing The Harvest Table’s formulations are developed to support daily nutrition and integrate easily into everyday routines.
 
- 
+ Across the range, the brand focuses on:
 
- For more information on Joe Lopez Law or to view the new website, please visit https://www.joelopezlaw.com/.
+ * Supporting overall wellbeing through nutrient-dense nutrition
+* Providing highly bioavailable ingredients for consistent use
+* Maintaining simple, transparent formulations
 
- About Joe Lopez Law Joe Lopez Law is an Austin-based personal injury firm specializing in catastrophic injury and wrongful death cases. Led by founder Joe Lopez, a member of the Multi-Million Dollar Advocates Forum and a Texas Super Lawyer, the firm is dedicated to holding negligent parties accountable. With a focus on trial-ready preparation and personalized client care, Joe Lopez Law has recovered millions of dollars for victims of motor vehicle accidents, workplace injuries, and corporate negligence throughout the State of Texas. 
+ The products are designed for everyday use, supporting wellbeing through clean, food-based nutrition.
+
+ A Founder-Led Approach to Clean Nutrition The Harvest Table was founded by Catherine Clark following her personal health journey, which inspired a focus on simple, trustworthy nutrition made from recognizable ingredients.
+
+ “Our philosophy has always been simple. Good nutrition should be honest, effective, and easy to trust,” said Catherine Clark, Founder of The Harvest Table. “Making our full product range available on Amazon is an exciting milestone as we introduce our approach to everyday nutrition to U.S. consumers.”
+
+ “Expanding our presence on Amazon with our complete lineup allows us to reach more people while staying true to our standards,” added Sam Clark, CEO of The Harvest Table. “We remain focused on consistency, transparency, and quality as we grow in the U.S.”
+
+ Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house at the company’s custom-built facility in KwaZulu-Natal, South Africa, where the brand maintains full control over sourcing, formulation, and quality.
+
+ The facility:
+
+ * Passes annual Food Safety Assessment (FSA) audits
+* Meets GMP manufacturing requirements
+* Is recognized as a Food Safe Facility
+* Is Halaal-certified by the Muslim Judicial Council (MJC)
+
+ Product Attributes & Certifications Products are gluten-free and biodegradable, and export products are Halaal-certified at the product level by the National Independent Halaal Trust (NIHT). Sustainability is emphasized through recyclable packaging and responsible manufacturing practices.
+
+ For more information, visit The Harvest Table website, and their Instagram and Facebook channels.
+
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
+
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
+
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604082324/joe-lopez-laws-enhanced-website-a-testament-to-20-years-of-legal-excellence)
+[Original/Source Press Release](https://newsworthy.ai/news/202604082330/the-harvest-table-now-available-on-amazon-with-full-collagen-and-plant-based-nutrition-line)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/joe-lopez-law-launches-redesigned-website-to-empower-texas-injury-victims/69b302ee17d20e768c56ce569a5ffa49) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-launches-full-product-line-on-amazon-us/6d36eb72422727a0c01c94a3af2c49ef) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/joe-lopez-law-launches-redesigned-website-to-enhance-access-to-l/202630690)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/422400-the-harvest-table-expands-us-availability-with-full-product-line-on-amazon)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422303-joe-lopez-law-launches-redesigned-website-to-enhance-access-to-personal-injury-legal-services-across-texas)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340108-the-harvest-table-erweitert-verfugbarkeit-in-den-usa-mit-kompletter-produktpalette-auf-amazon)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340096-joe-lopez-law-startet-neu-gestaltete-website-fur-besseren-zugang-zu-personenschaden-rechtsdienstleistungen-in-ganz-texas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340668-the-harvest-table-amplia-su-disponibilidad-en-eeuu-con-su-linea-completa-de-productos-en-amazon)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340658-joe-lopez-law-lanza-sitio-web-redisenado-para-mejorar-el-acceso-a-servicios-legales-de-lesiones-personales-en-todo-texas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341428-the-harvest-table-elargit-sa-disponibilite-aux-etats-unis-avec-sa-gamme-complete-de-produits-sur-amazon)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341416-joe-lopez-law-lance-un-site-web-repense-pour-ameliorer-lacces-aux-services-juridiques-en-matiere-de-dommages-corporels-dans-tout-le-texas)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/south-african-wellness-brand-the-harvest-table-expands-us-availa/202630704)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340066-joe-lopez-law-lanca-site-redesenhado-para-melhorar-o-acesso-a-servicos-juridicos-de-danos-pessoais-em-todo-o-texas)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/south-african-wellness-brand-the-harvest-table-launches-full-pro/202630704)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/joe-lopez-law-launches-redesigned-website-to-enhance-access-to-l/202630690)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422420-south-african-wellness-brand-the-harvest-table-expands-us-availability-through-amazon-launch)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/joe-lopez-law-launches-redesigned-website-to-enhance-access-to-l/202630690)
+Pickup - [https://advos.io/en](https://advos.io/en/south-african-wellness-brand-the-harvest-table-expands-us-availa/202630704)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422308-joe-lopez-law-launches-redesigned-website-to-enhance-access-to-legal-services-in-texas)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340078-the-harvest-table-amplia-presenca-nos-eua-com-linha-completa-de-produtos-na-amazon)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/6d36eb72422727a0c01c94a3af2c49ef)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/6d36eb72422727a0c01c94a3af2c49ef)
+
+Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/6d36eb72422727a0c01c94a3af2c49ef)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/8/vibegi8R.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/8/vibeHj1T.webp)
