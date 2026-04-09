@@ -1,81 +1,82 @@
-# Mitch Gould Shares Insights from Helping Shape Amazon’s Sports Nutrition Category
+# Experts Form 2026 Managing and Leading Performance Advisory Board to Guide the HR Community
 
-Boca Raton, Florida (Newsworthy.ai) Thursday Apr 9, 2026 @ 7:00 AM Eastern — 
+Jacksons Point, Ontario, Canada (Newsworthy.ai) Thursday Apr 9, 2026 @ 8:00 AM Eastern — 
 
- As the sports nutrition category continues to expand across e-commerce and retail, Mitch Gould, Founder and CEO of Nutritional Products International (NPI), is sharing insights from his early involvement in helping shape Amazon’s sports nutrition marketplace during its formative years.
+ The HR Research Institute is proud to announce the formation of the 2026 Managing and Leading Performance Advisory Board, bringing together industry leaders, HR practitioners, and performance management experts to guide research and events focused on driving higher-performing employees, teams, and organizations.
 
- Over the course of his career, Gould has worked with high-profile figures across sports and entertainment, including Steven Seagal, Hulk Hogan, eight-time Mr. Olympia Ronnie Coleman, and martial arts legend Bob Wall-experience that helped shape his understanding of performance-driven products and consumer demand within the sports nutrition market.
+ As organizations prioritize performance outcomes, the advisory board will guide HR leaders on evolving performance management and leadership practices, including leveraging AI, data, and streamlined processes to optimize results, as well as the behaviors and mindsets that drive high performance.
 
- From Category Buildout to Mainstream Growth In the early stages of Amazon’s expansion into sports nutrition, the category was still developing, requiring a combination of product education, pricing strategy, and operational execution to gain traction.
+ HR.com's Future of Managing and Leading Performance 2026 Virtual Event July 29, 2026
 
- “When Amazon began building out sports nutrition, it wasn’t the dominant force it is today,” said Gould. “It took the right mix of brands, positioning, and execution to help establish the category and earn consumer trust.”
+ [REGISTER for FREE]
 
- Today, sports nutrition has evolved into a mainstream segment that spans performance supplements, functional beverages, and everyday wellness products-bringing increased competition and higher expectations from both retailers and consumers.
+ The newly formed 2026 Managing and Leading Performance Advisory Board features these distinguished experts:
 
- What Brands Still Get Wrong Despite the growth of the category, Gould notes that many brands continue to underestimate the complexity of entering the U.S. market.
+ * Lauren Bidwell, Ph.D., Senior Research Scientist, SAP SuccessFactors
+* Amanda Busfield, Senior Organizational Development Partner
+* Catarina Edlund, HR Specialist - HR Policy, Org Design & Performance Management, UN Women
+* Lena Finch, Vice President, People & Culture, Allego
+* Craig Friedman, Sr. Talent Advisor and Skills Practice Leader, St. Charles Consulting Group
+* Edie Goldberg, President & Founder, E.L. Goldberg & Associates
+* Kiara Graham, Sr. Talent Management and Organizational Development Advisor, Workleap
+* Kimberly Hodge, Talent Development Manager, MWM DesignGroup
+* Andrew Lane, Director, PM and Employee Engagement, George Mason University
+* Melissa Phillippi, VP, Organizational Development and Talent Management, Highspring
+* Robrette Vaden, Human Resources Specialist, Performance Management, DC Courts
 
- “Brands often focus heavily on product development but overlook what it takes to actually succeed at retail,” Gould explained. “Distribution, compliance, pricing, and sell-through strategy are just as critical as the product itself.”
+ “Performance management isn’t just a process; it’s how organizations thrive,” said Debbie McGrath, CEO of HR.com. “We’re thrilled to have these leaders on our advisory board to help HR professionals use modern strategies and technology to enhance performance reviews, foster employee growth, and drive business results.”
 
- According to Gould, success in sports nutrition depends on aligning every stage of the go-to-market process-from formulation to final sale.
+ The HR Research Institute releases annual “State of the Industry” reports in a variety of HR topic areas, including last year’s research report, HR.com's Future of Managing and Leading Performance 2025, covering the same topic.
 
- The Evolution of Distribution Platform To address these challenges, Gould developed his proprietary Evolution of Distribution, a turnkey system designed to streamline how brands enter and scale within the U.S. market.
+ This and other free research reports and infographics can be downloaded at hr.com/researchinstitute.
 
- The platform integrates:
+ About HR.com and the HR Research Institute
 
- * FDA compliance and regulatory alignment
-* Retail buyer negotiations and sales strategy
-* Logistics, import/export, and warehousing
-* Marketing and public relations through InHealth Media
+ The #1 source for HR research-read by more HR professionals than any other! The HR Research Institute (HRRI), powered by HR.com, identifies key trends and best practices to help more than 2 million HR professionals and their organizations make strategic decisions with informed and insightful research findings.
 
- By consolidating these functions, brands can reduce complexity, avoid costly missteps, and accelerate time to market.
+ The HRRI has published hundreds of high-quality reports across a wide array of HR topics. HR.com’s free membership offers many benefits, including access to over 300 exclusive primary research, state-of-the-industry reports, and infographics. These resources are published based on surveys developed with the assistance of a panel of thought leaders and industry experts on the advisory boards. Visit hr.com/hrresearchinstitute to maximize your HR potential. #hrresearchinstitute
 
- “Instead of managing multiple disconnected partners, brands can operate through one coordinated platform,” Gould said. “That’s how you move faster and more efficiently in a competitive category like sports nutrition.”
+ Become a part of HR.com’s HR research influencer panel today! Participate in surveys, share your insights, and earn rewards!
 
- Built on Real-World Retail Experience Gould’s approach is rooted in decades of hands-on experience working with brands, retailers, and consumers across highly competitive categories.
-
- “Inventory minus sales equals bankruptcy,” Gould noted. “You need a system that drives sell-through-not just distribution.”
-
- From Experience to Story Gould’s decades of experience in sports nutrition and retail are also reflected in his memoir, The Blonde, the Ferrari and the Kwan: The Quintessential American Success Story, which shares real-world insights from working with top athletes, brands, and major retailers. The book was recently included in Distinctive Assets’ “Everyone Wins” Nominee Gift Bags, independently produced and presented to select OSCAR® nominees in major acting and directing categories, further highlighting Gould’s recognition across industries.
-
- Looking Ahead As the sports nutrition category continues to grow, Gould believes brands that combine strong products with disciplined execution will be best positioned to succeed.
-
- “The opportunity is significant, but the margin for error is smaller than ever,” he said. “The brands that win will be the ones that understand how to execute from day one.”
-
- About [Mitch Gould](https://nutricompany.com/team/mitch-gould/) Mitch Gould is a third-generation retail distribution and manufacturing expert with more than 25 years of experience launching and scaling consumer products across dietary supplements, sports nutrition, skincare, hardware, and beverages. He has worked with iconic consumer brands such as Igloo, Rubbermaid, Sunbeam, and Miracle-Gro, as well as high-profile celebrity brands including Steven Seagal, Hulk Hogan, Chuck Liddell, 8× Mr. Olympia Ronnie Coleman, and martial arts pioneer Bob Wall.
-
- Over the course of his career, Gould has played a key role in helping shape the growth of the U.S. sports nutrition category-supporting the expansion of performance-focused products across major retail and e-commerce platforms, including Amazon, Walmart, GNC, CVS, and Walgreens. His work has centered on bringing muscle-building, recovery, and performance-oriented products to a broader consumer audience.
-
- Gould is known for his hands-on, execution-driven approach to building consumer brands at scale and for his deep understanding of what drives success in highly competitive categories such as sports nutrition and dietary supplements. He continues to focus on the evolving intersection of performance, wellness, and consumer demand for effective, results-driven products. 
+ HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604092333/mitch-gould-shares-insights-from-helping-shape-amazons-sports-nutrition-category)
+[Original/Source Press Release](https://newsworthy.ai/news/202604092329/experts-form-2026-managing-and-leading-performance-advisory-board-to-guide-the-hr-community)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/npi-s-mitch-gould-reveals-how-he-helped-build-amazon-s-sports-nutrition-empire/aac44d467210e8323be303f382819c69) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-leaders-unite-to-revolutionize-performance-management-with-ai-and-data/259d67dad240dfe829b9c9412db2887a) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/retail-veteran-mitch-gould-shares-insights-on-amazons-sports-nut/202630707)
+Pickup - [https://advos.io/en](https://advos.io/en/hr-leaders-form-advisory-board-to-guide-performance-management-e/202630710)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422457-retail-veteran-mitch-gould-details-evolution-of-amazons-sports-nutrition-category-and-challenges-for-modern-brands)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/422476-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340111-einzelhandelsveteran-mitch-gould-erlautert-die-entwicklung-von-amazons-sportnahrungs-segment-und-herausforderungen-fur-moderne-marken)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340114-hr-forschungsinstitut-bildet-beratungsgremium-fur-2026-zur-weiterentwicklung-des-performance-managements)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340673-el-veterano-del-retail-mitch-gould-detalla-la-evolucion-de-la-categoria-de-nutricion-deportiva-de-amazon-y-los-desafios-para-las-marcas-modernas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340676-el-instituto-de-investigacion-en-rrhh-forma-el-consejo-asesor-2026-para-guiar-la-evolucion-de-la-gestion-del-desempeno)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341431-mitch-gould-veteran-de-la-distribution-detaille-levolution-de-la-categorie-nutrition-sportive-damazon-et-les-defis-pour-les-marques-modernes)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341434-linstitut-de-recherche-rh-forme-un-conseil-consultatif-2026-pour-guider-levolution-de-la-gestion-de-la-performance)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340081-veterano-do-varejo-mitch-gould-detalha-evolucao-da-categoria-de-nutricao-esportiva-da-amazon-e-desafios-para-marcas-modernas)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340084-instituto-de-pesquisa-em-rh-forma-conselho-consultivo-2026-para-orientar-a-evolucao-da-gestao-de-desempenho)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/retail-expert-mitch-gould-details-evolution-of-amazons-sports-nu/202630707)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hr-research-institute-forms-2026-advisory-board-to-guide-perform/202630710)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/retail-veteran-mitch-gould-details-evolution-of-amazons-sports-n/202630707)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hr-research-institute-forms-2026-advisory-board-to-guide-perform/202630710)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422462-retail-veteran-mitch-gould-shares-amazon-sports-nutrition-insights-and-platform-strategy)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422488-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202604/422477-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/422479-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/259d67dad240dfe829b9c9412db2887a)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/259d67dad240dfe829b9c9412db2887a)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/9/loftQcSb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/9/lean9wp8.webp)
