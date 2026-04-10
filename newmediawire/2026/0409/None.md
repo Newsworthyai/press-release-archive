@@ -1,50 +1,58 @@
-# Datavault AI (DVLT) Secures $750M in Q1 Tokenization Contracts, Reinforces 2026 Revenue Outlook
+# Shelly Group SE to Join Germany's SDAX Small Cap Index
 
-LOS ANGELES, CA - April 9, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) announced it signed $750 million in aggregate tokenization contracts during the first quarter of 2026, generating approximately $77 million in associated fees across banking, IP licensing, minting and related services, supporting its previously stated full-year revenue guidance of at least $200 million. The contracts span multiple asset categories, including copper and gold mining, and come alongside the planned relaunch of the company’s core exchange platforms - Information Data Exchange (IDE), Sports Illustrated Exchange (SIx), New York Interactive Advertising Exchange (NYIAX) and International Elements Exchange (IEE) - which will feature enhanced AI-driven valuation, smart contracts and transparent trading capabilities as the company continues to scale its real-world asset tokenization infrastructure.
+SOFIA, BULGARIA and MUNICH, GERMANY - April 9, 2026 (NEWMEDIAWIRE) - Shelly Group SE (Ticker SLYG / ISIN: BG1100003166) (“Shelly Group”), a provider of IoT and smart building solutions based in Sofia, Bulgaria, will be included in the SDAX and thereby become part of Germany’s DAX index family, effective 10 April 2026, as announced by the index provider STOXX as part of an index adjustment. The SDAX comprises the 70 largest companies in the German equity market below the DAX and MDAX, based on free float market capitalization and trading volume.
 
- To view the full press release, visit https://ibn.fm/g0mD6
+ Shelly Group’s inclusion in the SDAX is the result of its consistently executed capital markets strategy. With its secondary listing in the Prime Standard of the Frankfurt Stock Exchange in November 2021, the commencement of trading on XETRA in April 2024, and the targeted increase in free float through placements by the company’s founders, Shelly Group has systematically built the foundation for index inclusion and now meets the relevant criteria for entry into the SDAX.Dimitar Dimitrov, Co-CEO and Co-Founder of Shelly Group SE, commented: “The inclusion in the SDAX marks a significant milestone for Shelly and confirms the consistent execution of our growth and capital markets strategy. When we first set this goal, it was ambitious – all the more reason we are pleased to have achieved it. We are proud to have been the first Bulgarian company to be admitted to trading on XETRA and now also the first Bulgarian company to be included in the SDAX.”Wolfgang Kirsch, Co-CEO of Shelly Group SE, added: “With our inclusion in the SDAX, Shelly enters a new phase in its capital markets development. The increased visibility among institutional investors and inclusion in index-based investment strategies are expected to further enhance the liquidity of our shares. Over the past years, we have deliberately worked to create the prerequisites for a broader international investor base and to strengthen Shelly Group’s positioning in the European capital markets. At the same time, we view the index inclusion as validation of our operational progress and as an incentive to continue executing on our growth trajectory.”
 
- About Datavault AI
+ Shelly Group is among the dynamically growing providers of smart home and building automation solutions worldwide. In the 2025 financial year, the company generated consolidated revenues of EUR 149.7 million, representing growth of more than 40% year-over-year. For 2026, Shelly Group expects revenues in the range of EUR 195 million to EUR 205 million, continuing its growth trajectory.About Shelly Group
 
- Datavault AI(TM) leads AI-driven data experiences, valuation, and monetization in the Web 3.0 environment. The Company’s cloud-based platform delivers comprehensive solutions through its collaborative Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division includes WiSA(R), ADIO(R), and Sumerian(R) patented technologies for spatial and multichannel wireless HD sound. The Data Science Division harnesses Web 3.0 and high-performance computing for experiential data perception, valuation, and secure monetization across industries including sports & entertainment, biotech, education, fintech, real estate, healthcare, and energy. The Information Data Exchange(R) (IDE) enables Digital Twins and secure NIL licensing, fostering responsible AI with integrity. Datavault AI’s customizable technology suite offers AI/ML automation, third-party integration, analytics, marketing automation, and advertising monitoring. Headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
+ Shelly Group SE develops, designs, and distributes IoT and smart building solutions for DIY and professional users, offering advanced technology, seamless interoperability, and a high degree of technological flexibility. Shelly products enable remote control and automation as well as energy management of electrical appliances and smart building solutions via smartphones, PCs, or third-party home automation systems. In addition to the sale of devices, the Shelly Group generates revenue from its cloud applications. The Shelly Group benefits from asset-light production through the use of contract manufacturers. The Company has a strong presence in German-speaking countries and is represented with its products in more than 100 countries. With sales organizations in the regions of DACH (Germany, Austria, Switzerland), Benelux (Belgium, the Netherlands, Luxembourg), the Nordics (Denmark, Sweden, Norway, and Finland), Iberia (Spain and Portugal), as well as in Poland, Italy, France, the United Kingdom, Bulgaria, Slovenia, the United States and China, the Shelly Group has a broad international presence.Contact Investor Relations
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ CROSS ALLIANCE communication GmbHSven PaulyPhone: +49 89 125 09 0331Mail: sp@crossalliance.dewww.crossalliance.de
 
- Forward Looking Statements
+ 
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-secures-750m-in-q1-tokenization-contracts-reinforces-2026-revenue-outlook-7086286)
+[Original/Source Press Release](https://www.newmediawire.com/news/shelly-group-se-to-join-germany-s-sdax-small-cap-index-7086289)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-secures-750m-in-q1-tokenization-deals-bolsters-2026-outlook/0604f80160271f5c62c28a7795d39adb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shelly-group-makes-history-as-first-bulgarian-company-joining-germany-s-sdax-index/dcbbedc245cc88d3f1607d935327ec83) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/datavault-ai-secures-750-million-in-q1-tokenization-contracts-bo/202630747)
+Pickup - [https://advos.io/en](https://advos.io/en/shelly-group-se-to-join-germanys-sdax-index-marking-milestone-fo/202630753)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422851-datavault-ai-secures-750-million-in-q1-tokenization-contracts-reinforcing-2026-revenue-outlook)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/423131-shelly-group-se-to-join-germanys-sdax-index-marking-milestone-for-bulgarian-company)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340151-datavault-ai-sichert-sich-tokenisierungsvertrage-im-wert-von-750-millionen-us-dollar-im-ersten-quartal-und-bekraftigt-umsatzprognose-fur-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340156-shelly-group-se-wird-in-den-deutschen-sdax-aufgenommen-meilenstein-fur-bulgarisches-unternehmen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340713-datavault-ai-asegura-contratos-de-tokenizacion-por-750-millones-de-dolares-en-el-primer-trimestre-reforzando-las-perspectivas-de-ingresos-para-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340729-shelly-group-se-se-incorporara-al-indice-sdax-de-alemania-marcando-un-hito-para-la-empresa-bulgara)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341471-datavault-ai-securise-750-millions-de-dollars-en-contrats-de-tokenisation-au-t1-renforcant-les-perspectives-de-revenus-pour-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341494-shelly-group-se-integre-lindice-sdax-allemand-une-etape-historique-pour-une-entreprise-bulgare)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340121-datavault-ai-garante-us-750-milhoes-em-contratos-de-tokenizacao-no-1o-trimestre-reforcando-perspectiva-de-receita-para-2026)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340126-shelly-group-se-integrara-o-indice-sdax-da-alemanha-marcando-um-marco-para-empresa-bulgara)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/datavault-ai-secures-750-million-in-q1-tokenization-contracts-re/202630747)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/shelly-group-se-to-join-germanys-sdax-index-marking-milestone-fo/202630753)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/datavault-ai-secures-750-million-in-q1-tokenization-contracts-re/202630747)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/shelly-group-se-to-join-germanys-sdax-small-cap-index/202630753)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422856-datavault-ai-secures-750m-in-q1-tokenization-contracts-reinforces-2026-revenue-outlook)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/423146-shelly-group-se-gains-sdax-listing-marking-milestone-for-bulgarian-tech-firm)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202604/423254-shelly-group-se-to-become-first-bulgarian-company-included-in-germanys-sdax-index)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202604/423271-shelly-group-se-to-become-first-bulgarian-company-listed-on-germanys-sdax-index)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/dcbbedc245cc88d3f1607d935327ec83)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/dcbbedc245cc88d3f1607d935327ec83)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/9/herbsiTw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/9/openCTSR.webp)

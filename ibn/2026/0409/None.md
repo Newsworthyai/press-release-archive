@@ -1,58 +1,40 @@
-# InvestorNewsBreaks – Kraig Biocraft Laboratories, Inc. (OTCQB: KBLB) Sets Record With 1.3 Metric Tons Of Spider Silk Production In One Month
+# 420 with CNW — Advisory Council Recommends Marijuana Legalization in North Carolina
 
-Kraig Biocraft Laboratories (OTCQB: KBLB) announced it has produced more than 1.3 metric tons of recombinant spider silk cocoons in a single month, a new world record that marks a major step toward industrial-scale commercialization of the advanced biomaterial. The company said the milestone reflects successful execution of its 2026 scale-up plan, with expanded facilities and BAM-1 Alpha production hybrids delivering consistent, high-output performance, as it now targets ramping production to 10 metric tons per month to support applications across technical textiles and performance materials.
+A state-appointed advisory panel is urging North Carolina legislators to move toward legalizing cannabis under a controlled system that would permit adult sales. The group argues that regulation would improve public safety and generate significant revenue for the state.
 
- To view the full press release, visit https://ibn.fm/uky6M
+ The wider marijuana industry, including firms like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY), will be monitoring how drug reform discussions in…
 
- About Kraig Biocraft Laboratories, Inc.
+ Read More>>
 
- Kraig Biocraft Laboratories, Inc, a reporting biotechnology company is the leading developer of genetically engineered spider silk-based fiber technologies.
+ About CNW420
 
- The Company has achieved a series of scientific breakthroughs in the area of spider silk technology with implications for the global textile industry.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- For more information, https://www.kraiglabs.com/
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- About InvestorWire
+ For more information, please visit https://www.CannabisNewsWire.com
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- For more information, please visit https://www.InvestorWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-kraig-biocraft-laboratories-inc-otcqb-kblb-sets-record-with-1-3-metric-tons-of-spider-silk-production-in-one-month/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-advisory-council-recommends-marijuana-legalization-in-north-carolina/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kraig-biocraft-labs-sets-world-record-with-1-3-tons-of-spider-silk/986d48cc8b561bbed021bc2019b2a6de) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-carolina-panel-urges-cannabis-legalization-for-safety-and-revenue/fdd6a56ef69279869994383c96e1a5a5) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/kraig-biocraft-laboratories-achieves-world-record-in-spider-silk/202630746)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202604/422984-north-carolina-advisory-panel-recommends-cannabis-legalization-for-public-safety-and-revenue)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422835-kraig-biocraft-laboratories-achieves-world-record-with-13-metric-tons-of-spider-silk-production-in-one-month)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340150-kraig-biocraft-laboratories-stellt-mit-13-tonnen-spinnenseidenproduktion-in-einem-monat-weltrekord-auf)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340712-kraig-biocraft-laboratories-establece-record-mundial-con-13-toneladas-metricas-de-produccion-de-seda-de-arana-en-un-mes)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341470-kraig-biocraft-laboratories-etablit-un-record-mondial-avec-13-tonne-metrique-de-soie-daraignee-produite-en-un-mois)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340120-kraig-biocraft-laboratories-bate-recorde-mundial-com-producao-de-13-toneladas-de-seda-de-aranha-em-um-mes)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/kraig-biocraft-laboratories-achieves-world-record-with-13-metric/202630746)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/kraig-biocraft-laboratories-achieves-world-record-in-spider-silk/202630746)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422845-kraig-biocraft-laboratories-sets-world-record-with-13-metric-tons-of-spider-silk-production-in-one-month)
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/fdd6a56ef69279869994383c96e1a5a5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/9/rice2nRb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/9/dual3Mel.webp)

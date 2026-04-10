@@ -1,82 +1,76 @@
-# Experts Form 2026 Managing and Leading Performance Advisory Board to Guide the HR Community
+# Grayline Group® Launches Applied Intelligence Practice to Close the AI Execution Gap for Defense, Energy and Infrastructure Leaders
 
-Jacksons Point, Ontario, Canada (Newsworthy.ai) Thursday Apr 9, 2026 @ 8:00 AM Eastern — 
+Austin, Texas (Newsworthy.ai) Thursday Apr 9, 2026 @ 3:50 PM Central — Grayline Group®, a strategic advisory firm specializing in AI strategy, cybersecurity, and technology program management for defense and critical infrastructure, today announced the formal launch of its Applied Intelligence practice. The new service line integrates AI strategy and implementation with the firm’s proprietary Catalyst™ framework-a methodology for managing disruptive change developed by President Joseph Kopser and Partner Bret Boyd in their book Catalyst and refined through engagements spanning autonomous transit networks, defense technology programs, and energy infrastructure.
 
- The HR Research Institute is proud to announce the formation of the 2026 Managing and Leading Performance Advisory Board, bringing together industry leaders, HR practitioners, and performance management experts to guide research and events focused on driving higher-performing employees, teams, and organizations.
+ Addressing the AI Execution Gap While AI tools have proliferated across every sector, Grayline Group identifies a persistent gap between AI capability and organizational readiness. Most organizations have access to the same foundation models and platforms-the differentiator is whether leadership can integrate AI into mission-critical workflows with the governance, workforce alignment, and measurement rigor the technology demands.
 
- As organizations prioritize performance outcomes, the advisory board will guide HR leaders on evolving performance management and leadership practices, including leveraging AI, data, and streamlined processes to optimize results, as well as the behaviors and mindsets that drive high performance.
+ “AI is the defining catalyst of our era, but it remains a leadership problem, not a technology problem,” said Joseph Kopser, President of Grayline Group and co-author of Catalyst. “We aren’t just deploying models. We are helping leaders rebuild organizational assumptions so that AI generates durable value-not just pilot projects.”
 
- HR.com's Future of Managing and Leading Performance 2026 Virtual Event July 29, 2026
+ The Catalyst™ Framework: From Disruption Theory to AI Execution The Catalyst™ framework is a structured methodology for diagnosing organizational complexity, mapping technology opportunity, and sequencing investments that compound over time. Originally developed through Grayline Group’s work with transit agencies, defense contractors, and municipal governments, the framework now anchors the firm’s AI strategy engagements. Applied Intelligence services include:
 
- [REGISTER for FREE]
+ AI Readiness Assessment and Organizational Diagnostics - Evaluating where AI fits actual decision-making workflows, not hypothetical use cases.
 
- The newly formed 2026 Managing and Leading Performance Advisory Board features these distinguished experts:
+ Governance and Ethical Framework Design - Establishing operational guardrails, data governance, and accountability structures before deployment.
 
- * Lauren Bidwell, Ph.D., Senior Research Scientist, SAP SuccessFactors
-* Amanda Busfield, Senior Organizational Development Partner
-* Catarina Edlund, HR Specialist - HR Policy, Org Design & Performance Management, UN Women
-* Lena Finch, Vice President, People & Culture, Allego
-* Craig Friedman, Sr. Talent Advisor and Skills Practice Leader, St. Charles Consulting Group
-* Edie Goldberg, President & Founder, E.L. Goldberg & Associates
-* Kiara Graham, Sr. Talent Management and Organizational Development Advisor, Workleap
-* Kimberly Hodge, Talent Development Manager, MWM DesignGroup
-* Andrew Lane, Director, PM and Employee Engagement, George Mason University
-* Melissa Phillippi, VP, Organizational Development and Talent Management, Highspring
-* Robrette Vaden, Human Resources Specialist, Performance Management, DC Courts
+ Workforce Alignment and Change Management - Preparing teams to operate alongside intelligent systems through structured transition programs.
 
- “Performance management isn’t just a process; it’s how organizations thrive,” said Debbie McGrath, CEO of HR.com. “We’re thrilled to have these leaders on our advisory board to help HR professionals use modern strategies and technology to enhance performance reviews, foster employee growth, and drive business results.”
+ Outcome Measurement and ROI Architecture - Building measurement frameworks that demonstrate compounding returns, not vanity metrics.
 
- The HR Research Institute releases annual “State of the Industry” reports in a variety of HR topic areas, including last year’s research report, HR.com's Future of Managing and Leading Performance 2025, covering the same topic.
+ Built on a Decade of High-Stakes Delivery Grayline Group’s Applied Intelligence practice is backed by operational credibility across sectors where failure is not theoretical. The firm’s current portfolio includes cybersecurity program management for what will be the first fully autonomous public transit network in the United States, AI-enabled manufacturing supply chain optimization through portfolio company Sustainment, and strategic advisory for organizations navigating the intersection of AI, policy, and national security.
 
- This and other free research reports and infographics can be downloaded at hr.com/researchinstitute.
+ The firm’s leadership team combines military intelligence experience, Fortune 500 technology strategy, entrepreneurial exits (including the acquisition of Kopser’s RideScout by Mercedes-Benz), and deep expertise in cybersecurity, defense innovation, and critical infrastructure protection.
 
- About HR.com and the HR Research Institute
+ New Digital Headquarters Reflects Strategic Direction Coinciding with the Applied Intelligence launch, Grayline Group has rebuilt its digital headquarters at graylinegroup.com from the ground up. The redesigned platform features the firm’s four core service areas-AI Strategy & Implementation, Technology Program Management, Cybersecurity & Risk, and Intelligence & Decision Support-alongside the Grayline Insights blog, which houses the firm’s published analysis on applied AI, defense innovation, and organizational change.
 
- The #1 source for HR research-read by more HR professionals than any other! The HR Research Institute (HRRI), powered by HR.com, identifies key trends and best practices to help more than 2 million HR professionals and their organizations make strategic decisions with informed and insightful research findings.
+ Kopser detailed the firm’s strategic rationale in a recent essay on the Grayline Insights blog, framing the shift as the natural evolution of the Catalyst thesis: “The organizations that will capture durable value from AI aren’t the ones rushing to deploy the latest model. They’re the ones doing the harder work: governance, workforce readiness, and rigorous outcome measurement.”
 
- The HRRI has published hundreds of high-quality reports across a wide array of HR topics. HR.com’s free membership offers many benefits, including access to over 300 exclusive primary research, state-of-the-industry reports, and infographics. These resources are published based on surveys developed with the assistance of a panel of thought leaders and industry experts on the advisory boards. Visit hr.com/hrresearchinstitute to maximize your HR potential. #hrresearchinstitute
+ About Grayline Group® Grayline Group is a strategic advisory firm headquartered in Austin, Texas, operating at the intersection of technology, public policy, and national security. Founded by Bret Boyd with managing partners Joseph Kopser and Brandon Thomas, the firm helps leaders in defense, energy, mobility, and civic infrastructure manage disruptive change through applied intelligence-combining AI strategy, analytical tradecraft, and operational discipline to convert complex environments into clear, actionable decisions. Grayline Group’s work spans autonomous transit cybersecurity, defense technology advisory, AI strategy for enterprise and government, and the Catalyst™ framework for organizational change management. For more information, visit graylinegroup.com.
 
- Become a part of HR.com’s HR research influencer panel today! Participate in surveys, share your insights, and earn rewards!
+ Media Contact:
 
- HR.com Newsroom 
+ Grayline GroupBrandon ThomasEmail Contact512-537-7415Austin, Texas 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604092329/experts-form-2026-managing-and-leading-performance-advisory-board-to-guide-the-hr-community)
+[Original/Source Press Release](https://newsworthy.ai/news/202604092336/grayline-groupr-launches-applied-intelligence-practice-to-close-the-ai-execution-gap-for-defense-energy-and-infrastructure-leaders)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-leaders-unite-to-revolutionize-performance-management-with-ai-and-data/259d67dad240dfe829b9c9412db2887a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grayline-group-launches-ai-practice-to-bridge-execution-gap-with-catalyst-framework/364ecb9591515fdff1225ef1b48562a8) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/hr-leaders-form-advisory-board-to-guide-performance-management-e/202630710)
+Pickup - [https://advos.io/en](https://advos.io/en/grayline-group-launches-applied-intelligence-practice-to-address/202630752)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/422476-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/423132-grayline-group-launches-applied-intelligence-practice-to-address-ai-implementation-challenges-in-critical-sectors)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340114-hr-forschungsinstitut-bildet-beratungsgremium-fur-2026-zur-weiterentwicklung-des-performance-managements)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340155-grayline-group-startet-applied-intelligence-practice-zur-bewaltigung-von-ki-implementierungsherausforderungen-in-kritischen-sektoren)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340676-el-instituto-de-investigacion-en-rrhh-forma-el-consejo-asesor-2026-para-guiar-la-evolucion-de-la-gestion-del-desempeno)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340728-grayline-group-lanza-su-practica-de-inteligencia-aplicada-para-abordar-los-desafios-de-implementacion-de-ia-en-sectores-criticos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341434-linstitut-de-recherche-rh-forme-un-conseil-consultatif-2026-pour-guider-levolution-de-la-gestion-de-la-performance)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341493-grayline-group-lance-une-pratique-dintelligence-appliquee-pour-relever-les-defis-de-mise-en-oeuvre-de-lia-dans-les-secteurs-critiques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340084-instituto-de-pesquisa-em-rh-forma-conselho-consultivo-2026-para-orientar-a-evolucao-da-gestao-de-desempenho)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340125-grayline-group-lanca-pratica-de-inteligencia-aplicada-para-enfrentar-desafios-de-implementacao-de-ia-em-setores-criticos)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/hr-research-institute-forms-2026-advisory-board-to-guide-perform/202630710)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/grayline-group-launches-applied-intelligence-practice-to-address/202630752)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hr-research-institute-forms-2026-advisory-board-to-guide-perform/202630710)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/grayline-group-launches-applied-intelligence-practice-to-address/202630752)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/422488-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/423114-grayline-group-launches-applied-intelligence-practice-to-address-ai-implementation-challenges-in-critical-sectors)
 
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/202604/422477-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/423118-grayline-group-launches-applied-intelligence-practice-to-bridge-ai-execution-gap)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/422479-hr-research-institute-forms-2026-advisory-board-to-guide-performance-management-evolution)
+Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/202604/423267-grayline-group-launches-applied-intelligence-practice-to-bridge-ai-capability-and-organizational-readiness-gap)
 
-Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/259d67dad240dfe829b9c9412db2887a)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202604/423272-grayline-group-launches-applied-intelligence-practice-to-bridge-ai-capability-and-organizational-readiness-gap)
 
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/259d67dad240dfe829b9c9412db2887a)
+Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/202604/423286-grayline-group-launches-applied-intelligence-practice-to-bridge-ai-capability-and-organizational-readiness-gap)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/364ecb9591515fdff1225ef1b48562a8)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/364ecb9591515fdff1225ef1b48562a8)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/9/lean9wp8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/9/eachW0yb.webp)
