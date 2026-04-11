@@ -1,64 +1,44 @@
-# LIXTE Biotechnology Holdings Inc. (NASDAQ: LIXT) Accelerates Cancer Care Innovation with Liora Technologies Acquisition and Leadership Expansion
+# 420 with CNW — Pennsylvania is Handing Revenue to Neighboring States as Marijuana Legalization Stalls
 
-* LIXT is advancing its lead compound LB-100 across different clinical programs aimed at difficult-to-treat cancers
-* The company’s acquisition of Liora Technologies introduces a complementary therapy platform with recurring revenue potential
-* These updates underscore LIXTE’s broader strategy: integrating drug development and med-tech innovation to redefine cancer treatment
+On a cold Friday afternoon near the New York–Pennsylvania border, cars begin to line up outside Organic Blooms, a recreational cannabis shop that has quickly become a regional draw. Vehicles with New York plates share space with those from Pennsylvania, a sign of a growing cross-border market fueled by differing state laws.
 
- LIXTE Biotechnology (NASDAQ: LIXT) is executing a differentiated strategy in oncology, extending beyond traditional drug development into a more integrated and multi-dimensional approach to cancer care. With the company’s lead clinical candidate, LB-100, advancing through trials and the addition of Liora Technologies to its platform, they are positioning themselves at the nexus of pharmaceutical innovation and next-generation radiotherapy (ibn.fm/C7Kms).
-
- At the core of LIXTE’s pipeline is LB-100, a one-of-a-kind PP2A inhibitor created to improve the overall effectiveness of existing cancer therapies. Instead of competing directly with established treatments, the company is focused on boosting outcomes by amplifying them. This strategic approach underscores a…
+ The marijuana industry, including firms like Aurora Cannabis Inc. (NASDAQ: ACB) (TSX: ACB), hopes that the state will eventually reform its drug policy so…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to LIXT are available in the company’s newsroom at ibn.fm/LIXT
+ About CNW420
 
- About BioMedWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- BMW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- For more information, please visit https://www.BioMedWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
-
- BioMedWireSan Francisco, CAwww.BioMedWire.com415.949.5050 OfficeEditor@BioMedWire.com
-
- BioMedWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/lixte-biotechnology-holdings-inc-nasdaq-lixt-accelerates-cancer-care-innovation-with-liora-technologies-acquisition-and-leadership-expansion/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-pennsylvania-is-handing-revenue-to-neighboring-states-as-marijuana-legalization-stalls/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lixte-biotech-integrates-drug-tech-to-redefine-cancer-care-strategy/4bdd86882ead214eb3d72850b8e6fbcf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pennsylvania-loses-cannabis-revenue-as-legalization-stalls-border-shops-thrive/2dde27d7ce14a94a648b9c2e24ef2e9d) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/lixte-biotechnology-expands-cancer-treatment-strategy-with-acqui/202630785)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/pennsylvania-losing-revenue-to-neighboring-states-as-marijuana-l/202630791)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/423803-lixte-biotechnology-expands-oncology-strategy-with-liora-technologies-acquisition-and-lb-100-clinical-progress)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/423897-pennsylvanias-cannabis-policy-stalemate-drives-revenue-to-neighboring-states)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340187-lixte-biotechnology-erweitert-onkologie-strategie-durch-ubernahme-von-liora-technologies-und-klinische-fortschritte-bei-lb-100)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202604/423900-cross-border-cannabis-traffic-highlights-regional-market-dynamics-and-regulatory-disparities)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340768-lixte-biotechnology-amplia-su-estrategia-oncologica-con-la-adquisicion-de-liora-technologies-y-el-progreso-clinico-de-lb-100)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341530-lixte-biotechnology-elargit-sa-strategie-en-oncologie-avec-lacquisition-de-liora-technologies-et-les-progres-cliniques-du-lb-100)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340158-lixte-biotechnology-amplia-estrategia-oncologica-com-aquisicao-da-liora-technologies-e-progresso-clinico-do-lb-100)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/lixte-biotechnology-expands-cancer-treatment-strategy-with-acqui/202630785)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lixte-biotechnology-expands-oncology-strategy-with-liora-technol/202630785)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/423828-lixte-biotechnology-advances-integrated-cancer-strategy-with-acquisition-and-clinical-progress)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/202604/423861-lixte-biotechnology-pursues-integrated-oncology-strategy-through-drug-enhancement-and-technology-acquisition)
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/2dde27d7ce14a94a648b9c2e24ef2e9d)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/10/poem8XtP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/10/xenoGDcH.webp)
