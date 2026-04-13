@@ -1,42 +1,80 @@
-# Silver Crown Royalties Announces $4.5m Fully Allocated Private Placement at Premium to Market
+# Metavesco's Epic Labor Subsidiary to Launch Recruiting Division Targeting Data Center Construction and GPU Infrastructure Workforce
 
-TORONTO, ON - April 13, 2026 (NEWMEDIAWIRE) - Silver Crown Royalties Inc. (Cboe: SCRI, OTCQX: SLCRF, BF: QS0) (“Silver Crown”, “SCRi”, the “Corporation”, or the “Company”) is pleased to announce a fully allocated non-brokered private placement of common shares of the Corporation (“Common Shares”) for gross proceeds of approximately C$4,500,000 (the “Offering”). The Offering consists of 321,429 Common Shares to be issued to strategic investors at a price of $14.00 per Common Share (the “Offering Price”). The Offering Price represents a 5% premium to the closing price of the Common Shares on the Cboe Canada Exchange on April 10, 2026, the last trading day prior to the announcement of the Offering.
+CUMMING, GA - April 13, 2026 (NEWMEDIAWIRE) - Metavesco Inc. (OTC: MVCO) (“Metavesco” or the “Company”) today announced the launch of Epic Labor AI, a specialized recruiting division of its wholly-owned subsidiary Epic Labor, Inc. The new division will focus exclusively on recruiting skilled tradespeople and technical personnel for AI data center construction, commissioning, and operations nationwide.
 
- The Offering is expected to close on or about April 17, 2026, and is subject to customary closing conditions including all necessary regulatory approvals. Common Shares issued under the Offering will be subject to a statutory hold period of four months and one day from the date of issuance.
+ The announcement comes amid what industry leaders have described as the largest infrastructure buildout in modern history. Hyperscale technology companies have committed hundreds of billions of dollars to new data center construction to support artificial intelligence computing demands. The primary constraint on this buildout is not capital, semiconductors, or energy. It is labor.
 
- No finder’s fees or other consideration is payable by the Corporation in connection with the Offering.
+ According to recent industry data, the United States will need approximately 300,000 new electricians over the next decade to support data center and electrification demand, while an additional 200,000 current electricians are expected to retire during the same period. Demand for HVAC engineers has surged 67% since late 2022, and construction workers on data center projects are earning approximately 32% more than those on standard commercial builds.
 
- Peter Bures, President and Chief Executive Officer of the Corporation, commented: “We are excited to announce this fully allocated minimally dilutive equity financing at a premium to market. The proceeds will fully finance our pipeline of growth opportunities to our unaffected share price. This endorsement by sophisticated mining investors strongly supports our view that our shares remain significantly undervalued in this unprecedented precious metals bull market. When combined with our nearly C$10m cash in hand, the proceeds will fully finance our pipeline of growth opportunities.”
+ Epic Labor AI will recruit across two categories. On the construction trades side, the division will place electricians, HVAC and cooling specialists, pipefitters, welders, and general construction labor into data center build projects. On the technical personnel side, the division will recruit GPU deployment technicians - the specialized workers who rack, install, cable, and commission GPU computing clusters - as well as fiber optic and structured cabling technicians, data center operations technicians, and controls specialists.
 
- ABOUT SILVER CROWN ROYALTIES INC.
+ “The AI revolution requires a massive physical foundation, and right now America does not have enough skilled workers to build it,” said Ryan Schadel, CEO of Metavesco. “The Epic Labor team has over 50 years combined experience placing skilled tradespeople on jobsites. With Epic Labor AI, we are applying that expertise, combined with AI-powered recruiting tools, to the most acute labor shortage in the market today. Most recruiting firms specialize in either construction trades or technology personnel. We intend to offer both under one roof.”
 
- Founded by seasoned industry professionals, Silver Crown Royalties (Cboe: SCRI | OTCQX: SLCRF | BF: QS0) is a publicly traded silver royalty company dedicated to generating free cash flow. Silver Crown (SCRi) currently holds five silver royalties. Its business model offers investors exposure to precious metals, providing a natural hedge against currency devaluation while mitigating the adverse effects of production-related cost inflation. SCRi strives to minimize the economic burden on mining projects while simultaneously maximizing shareholder returns. For further information, please contact:
+ Epic Labor AI will operate on a recruiting and placement fee model, which is distinct from Epic Labor’s traditional temporary staffing operations. The division expects to generate revenue through direct-hire placement fees and contract-to-hire arrangements with general contractors, data center developers, hyperscale operators, and electrical and mechanical subcontractors building or operating AI data center facilities.
 
- Silver Crown Royalties Inc.Peter Bures, Chairman and CEOTelephone: (416) 481-1744Email: pbures@silvercrownroyalties.com
+ The launch of Epic Labor AI extends Metavesco’s previously announced AI-native operating model. The division will leverage artificial intelligence tools for candidate sourcing, screening, and matching, enabling faster pipeline development and higher placement accuracy with lower overhead than traditional recruiting operations.
 
- FORWARD-LOOKING STATEMENTS
+ Electrical work alone accounts for an estimated 45% to 70% of total data center construction costs, according to the International Brotherhood of Electrical Workers. A single hyperscale data center under construction can require between 50 and 100 electricians simultaneously, with peak construction crews often exceeding 1,500 workers across all trades. The GPU deployment technician category is among the fastest-growing roles in technology infrastructure, with firms deploying over 100,000 GPUs reporting networks of 1,000 or more field engineers.
 
- This release contains certain “forward looking statements” and certain “forward-looking information” as defined under applicable Canadian and U.S. securities laws. Forward-looking statements and information can generally be identified by the use of forward-looking terminology such as “may”, “will”, “should”, “expect”, “intend”, “estimate”, “anticipate”, “believe”, “continue”, “plans” or similar terminology. The forward-looking information contained herein is provided for the purpose of assisting readers in understanding management’s current expectations and plans relating to the future. Readers are cautioned that such information may not be appropriate for other purposes. Forward-looking statements and information include, but are not limited to, the Offering is expected to close on or about April 17, 2026, and is subject to customary closing conditions including all necessary regulatory approvals; Common Shares issued under the Offering will be subject to a statutory hold period of four months and one day from the date of issuance; the proceeds will fully finance our pipeline of growth opportunities. Forward-looking statements and information are based on forecasts of future results, estimates of amounts not yet determinable and assumptions that, while believed by management to be reasonable, are inherently subject to significant business, economic and competitive uncertainties and contingencies.
+ Epic Labor AI will initially target data center construction markets with the highest concentration of active and planned projects, including Northern Virginia, Texas, Iowa, Ohio, and Georgia markets.
 
- Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the actual actions, events or results to be materially different from those expressed or implied by such forward-looking information, including but not limited to: the impact of general business and economic conditions; the absence of control over mining operations from which SCRI will purchase silver and other metals or from which it will receive royalty payments and risks related to those mining operations, including risks related to international operations, government and environmental regulation, delays in mine construction and operations, actual results of mining and current exploration activities, conclusions of economic evaluations and changes in project parameters as plans continue to be refined; accidents, equipment breakdowns, title matters, labor disputes or other unanticipated difficulties or interruptions in operations; SCRI’s ability to enter into definitive agreements and close proposed royalty transactions; the inherent uncertainties related to the valuations ascribed by SCRI to its royalty interests; problems inherent to the marketability of silver and other metals; the inherent uncertainty of production and cost estimates and the potential for unexpected costs and expenses; industry conditions, including fluctuations in the price of the primary commodities mined at such operations, fluctuations in foreign exchange rates and fluctuations in interest rates; government entities interpreting existing tax legislation or enacting new tax legislation in a way which adversely affects SCRI; stock market volatility; regulatory restrictions; liability, competition, the potential impact of epidemics, pandemics or other public health crises on SCRI’s business, operations and financial condition, loss of key employees. SCRI has attempted to identify important factors that could cause actual results to differ materially from those contained in forward looking statements, there may be other factors that cause results not to be as anticipated, estimated or intended. There can be no assurance that such statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. SCRI undertakes no obligation to update forward-looking information except as required by applicable law. Such forward-looking information represents management's best judgment based on information currently available. There can be no assurance that forward-looking statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, the reader is cautioned not to place undue reliance on forward-looking statements.
+ About Epic Labor, Inc.
 
- This document does not constitute an offer to sell, or a solicitation of an offer to buy, securities of the Company in Canada, the United States, or any other jurisdiction. Any such offer to sell or solicitation of an offer to buy the securities described herein will be made only pursuant to subscription documentation between the Company and prospective purchasers. Any such offering will be made in reliance upon exemptions from the prospectus and registration requirements under applicable securities laws, pursuant to a subscription agreement to be entered into by the Company and prospective investors.
+ Epic Labor delivers fast, reliable, on-demand labor to small and mid-sized businesses. Services span construction, warehousing, hospitality, manufacturing, and event staffing, available 24/7 with Epic Labor’s trademark 2-Hour Guarantee.
 
- CBOE CANADA DOES NOT ACCEPT RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS NEWS RELEASE.
+ About Metavesco, Inc.
+
+ Metavesco is a diversified holding company focused on acquiring and managing assets across multiple sectors, including digital assets, DeFi, crypto mining including Bitcoin, and staffing services. The company is dedicated to long-term growth through organic expansion, strategic acquisitions and innovative market solutions. Learn more at metavesco.com.
+
+ Safe Harbor Statement
+
+ This press release contains statements that constitute forward-looking statements. These statements appear in a number of places in this press release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its officers with respect to, among other things: (i) financing plans; (ii) trends affecting its financial condition or results of operations; and (iii) growth strategy and operating strategy. The words “may”, “would”, “will”, “expect”, “estimate”, “can”, “believe”, “potential”, and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company’s ability to control, and that actual results may differ materially from those projected in the forward-looking statements as a result of various factors. More information about the potential factors that could affect the business and financial results is included in the Company’s filings on otcmarkets.com.
+
+ MEDIA CONTACT:Ryan Schadel678-341-5898info@metavesco.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/silver-crown-royalties-announces-4-5m-fully-allocated-private-placement-at-premium-to-market-7086311)
+[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-s-epic-labor-subsidiary-to-launch-recruiting-division-targeting-data-center-construction-and-gpu-infrastructure-workforce-7086313)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-crown-raises-4-5m-at-premium-in-private-placement/4fa8097df52db6bda596e76fab4aef4c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-launches-epic-labor-ai-to-tackle-data-center-workforce-crisis/a50061eb4e0609852202eb0aa0aed667) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/metavesco-launches-epic-labor-ai-to-address-critical-data-center/202630802)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/424021-metavesco-launches-epic-labor-ai-division-to-address-critical-workforce-shortage-in-ai-data-center-construction)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340203-metavesco-startet-epic-labor-ai-division-um-kritischen-arbeitskraftemangel-im-bau-von-ki-rechenzentren-zu-beheben)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340786-metavesco-lanza-la-division-epic-labor-ai-para-abordar-la-critica-escasez-de-mano-de-obra-en-la-construccion-de-centros-de-datos-de-ia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341547-metavesco-lance-la-division-epic-labor-ai-pour-repondre-a-la-penurie-critique-de-main-doeuvre-dans-la-construction-des-centres-de-donnees-ia)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340174-metavesco-lanca-divisao-epic-labor-ai-para-enfrentar-escassez-critica-de-mao-de-obra-na-construcao-de-data-centers-de-ia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/metavesco-launches-ai-powered-recruiting-division-to-address-cri/202630802)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/metavesco-launches-epic-labor-ai-division-to-address-critical-wo/202630802)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/424030-metavesco-launches-epic-labor-ai-to-address-critical-workforce-shortage-in-ai-data-center-construction)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/424017-metavesco-launches-epic-labor-ai-to-address-critical-skilled-labor-shortage-in-ai-data-center-construction)
+
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/a50061eb4e0609852202eb0aa0aed667)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/a50061eb4e0609852202eb0aa0aed667)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202604/424064-metavesco-launches-epic-labor-ai-to-address-critical-skilled-trade-shortage-in-data-center-construction)
+
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/202604/424070-metavesco-launches-epic-labor-ai-to-address-critical-skilled-labor-shortage-in-ai-data-center-construction)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202604/424073-metavesco-launches-epic-labor-ai-to-address-critical-skilled-labor-shortage-in-data-center-construction)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/13/odorx6aQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/13/ovalbhCg.webp)
