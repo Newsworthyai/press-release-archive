@@ -1,48 +1,40 @@
-# GreenEnergyBreaks – American Fusion Inc. (OTC: AMFN) Highlights Commercial Strategy, Partnerships at ARPA-E Energy Innovation Summit
+# NetworkNewsBreaks – Beyond Meat, Inc. (NASDAQ: BYND) Collapse From $14B Darling To Penny Stock Reflects Deeper Structural Issues
 
-American Fusion (OTC: AMFN) a developer of next-generation fusion energy technologies, reported its participation in the 2026 ARPA-E Energy Innovation Summit, where the company advanced its commercialization strategy, strengthened relationships with government agencies, research institutions and industry participants, and refined its positioning within the evolving fusion landscape. The company highlighted progress on its Texatron(TM) roadmap, identified data centers as a key initial customer segment for high-density power solutions, evaluated supply chain partnerships for critical inputs such as helium-3 and deuterium, and explored potential capital markets expansion, including a Frankfurt listing, as it moves toward scalable deployment of its modular fusion technologies.
+Beyond Meat (NASDAQ: BYND) has fallen from a peak valuation of more than $14 billion to penny stock territory, driven by a combination of declining sales, mounting losses, intensifying competition and eroding consumer demand, according to a MarketWatch report by Bill Peters and Tomi Kilgore. Once buoyed by IPO enthusiasm and expectations of mass adoption, the company now faces a shrinking addressable market, widening price gaps with traditional meat and continued cash burn, with revenue falling 20% and operational losses more than tripling in recent results.
 
- To view the full press release, visit: https://ibn.fm/glHVm
+ The report highlights additional pressures including shareholder dilution from debt restructuring, concerns around management oversight and compensation and the ongoing threat of Nasdaq delisting as the stock remains below $1. While restructuring efforts have temporarily supported the balance sheet, they have significantly reduced shareholder value, leaving Beyond Meat grappling with both financial instability and a fundamental shift in consumer behavior away from premium-priced plant-based alternatives.
 
- About American Fusion Inc.
+ About Beyond Meat
 
- American Fusion Inc. (OTC: AMFN) is an advanced energy platform company focused on the development and commercialization of fusion energy technologies through its wholly owned subsidiary, Kepler Fusion Technologies. Following its previously announced merger with Kepler, the Company has changed its name and is operating under the American Fusion brand. The Company’s strategy is centered on building a scalable, infrastructure-grade fusion energy platform supported by proprietary technology, disciplined intellectual property development, and long-term commercial deployment objectives. For more information about American Fusion, please visit: americanfusionenergy.com
+ Beyond Meat, Inc. (NASDAQ: BYND), otherwise known as Beyond The Plant Protein Company(TM), is a plant protein company offering a portfolio of plant-based products made from simple ingredients without GMOs, no added hormones or antibiotics, and 0mg of cholesterol per serving. Founded in 2009, Beyond Meat’s core products are designed to have the same taste and texture as animal-based meat while being better for people and the planet. The company’s brand promise, Eat What You Love(R), represents a strong belief that there is a better way to feed our future and that the positive choices we all make, no matter how small, can have a great impact on our personal health and the health of our planet. By shifting from animal-based protein to plant-based protein, we can positively impact four growing global issues: human health, climate change, constraints on natural resources and animal welfare.
 
- About Kepler Fusion Technologies
+ For more information, Visit www.BeyondMeat.com
 
- Kepler Fusion Technologies is an advanced energy technology company developing the Texatron(TM) aneutronic fusion platform. Kepler’s technology is designed to support modular, infrastructure-grade deployment for industrial, commercial, and grid-constrained applications. The Company’s development strategy emphasizes system-level engineering, disciplined intellectual property protection, and scalable architectures intended to support long-term commercial operation. Kepler Fusion Technologies operates as a wholly owned subsidiary of American Fusion Inc. (OTC: AMFN) For more information about Kepler Fusion Technologies and its Texatron(TM) platform, please visit: www.keplerfusion.com
+ About NetworkNewsWire
 
- NOTE TO INVESTORS: The latest news and updates relating to AMFN are available in the company’s newsroom at http://ibn.fm/AMFN
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- About GreenEnergyStocks
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.NetworkNewsWire.com
 
- To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
 
- For more information, please visit https://www.GreenEnergyStocks.com
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
 
- Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
-
- GreenEnergyStocksAustin, Texaswww.GreenEnergyStocks.com512.354.7000 OfficeEditor@GreenEnergyStocks.com
-
- GreenEnergyStocks is powered by IBN 
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-american-fusion-inc-otc-amfn-highlights-commercial-strategy-partnerships-at-arpa-e-energy-innovation-summit/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-beyond-meat-inc-nasdaq-bynd-collapse-from-14b-darling-to-penny-stock-reflects-deeper-structural-issues/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-advances-commercial-strategy-at-arpa-e-summit-targets-data-centers/4773714e8b82da1b732a935577be5763) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-meat-s-stunning-collapse-from-14b-giant-to-penny-stock/e7220e71b14f05e56e38415a9f2ea638) 
 
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-fusion-advances-commercial-strategy-at-arpa-e-summit-ta/202630822)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/424197-american-fusion-advances-commercial-strategy-at-arpa-e-summit-targets-data-centers-and-european-markets)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/13/hushm4ns.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/13/fernBq8D.webp)
