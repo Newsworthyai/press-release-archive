@@ -1,34 +1,48 @@
-# LIXTE Biotechnology (LIXT) Reports Interim Ovarian Cancer Trial Results at SGO Conference
+# PLANOPTIK AG: Final Figures for 2025
 
-LOS ANGELES, CA - April 13, 2026 (NEWMEDIAWIRE) - LIXTE Biotechnology Holdings (NASDAQ: LIXT), a clinical-stage pharmaceutical company advancing cancer treatments, announced preliminary results from a clinical trial evaluating its proprietary compound LB-100 in combination with dostarlimab at the 2026 Society of Gynecologic Oncology conference in San Juan, Puerto Rico. Interim data from 20 evaluable patients showed a 40% disease control rate and encouraging survival trends with an acceptable safety profile, supporting continued enrollment of an expanded cohort as the company investigates the combination’s potential to enhance immunotherapy response in ovarian clear cell carcinoma.
+ELSOFF, GERMANY - April 13, 2026 (NEWMEDIAWIRE) - PLANOPTIK AG confirms its preliminary consolidated figures in accordance with IFRS for the 2025 financial year.
 
- To view the full press release, visit https://ibn.fm/alcex
+ Consolidated revenue for 2025 stood at EUR 11,274 thousand, compared with EUR 11,858 thousand in the previous year. Consequently, EBITDA fell to EUR 1,602 thousand (previous year: EUR 2,506 thousand). EBIT stood at EUR 129 thousand (previous year: EUR 1,114 thousand) and EBT at EUR -15 thousand (previous year: EUR 1,032 thousand). Net profit for the year was EUR -59 thousand (previous year: EUR 678 thousand).The full annual report will be published on 29 April 2026. Contact:Stefan ThomaPLANOPTIK AGUeber der Bitz 3D-56479 Elsoff Telephone: +49 (0)2664 5068 52[investor.relations@planoptik.com](mailto:investor.relations@planoptik.com)About PLANOPTIKPLANOPTIK AG sets global standards in the use of glass in microsystems technology and the semiconductor industry. Manufacturers from over 40 countries use microstructured components from PLANOPTIK in their products. These are used in state-of-the-art sensors, in ever-smaller microelectronics, and to open up new possibilities in microfluidics for medical diagnostics and therapy.More than 100 employees work together with our customers and partners to develop the latest products and ensure the precise manufacture of microcomponents. The latest wafer-based production technologies enable fast and customised solutions for high production volumes.[](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=fb980595823d94bc7777187f387a0eae&application_id=2307348&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news) 
 
- About LIXTE Biotechnology Holdings, Inc.
-
- LIXTE Biotechnology Holdings, Inc. is a clinical-stage pharmaceutical and med-tech company focused on new targets for cancer drug development and developing and commercializing cancer therapies. LIXTE has demonstrated that LB-100, its lead compound and first-in-class lead clinical PP2A inhibitor, is well-tolerated in cancer patients at doses associated with anti-cancer activity. Based on published preclinical data, LB-100 has the potential to significantly enhance chemotherapies and immunotherapies and improve outcomes for patients with cancer. It is part of a pioneering effort in an entirely new field of cancer biology - activation lethality - that is advancing a new treatment paradigm. LIXTE’s novel approach is covered by a comprehensive patent portfolio, with proof-of-concept clinical trials currently in progress for Ovarian Clear Cell Carcinoma, Metastatic Colon Cancer and Advanced Soft Tissue Sarcoma. Additional information can be found at www.lixte.com.
-
- Through LIXTE’s wholly owned subsidiary, Liora Technologies Europe Ltd., the Company also is pioneering the development of electronically controlled proton therapy systems for treating tumors in various types of cancers. Liora’s proprietary flagship technology, LiGHT System, is believed to provide significant advantages over currently available technologies for treating tumors with proton therapy. Additional information about Liora Technologies can be found at www.lioratechnologies.com.
-
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/lixte-biotechnology-lixt-reports-interim-ovarian-cancer-trial-results-at-sgo-conference-7086323)
+[Original/Source Press Release](https://www.newmediawire.com/news/planoptik-ag-final-figures-for-2025-7086325)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lixte-reports-40-disease-control-in-ovarian-cancer-trial-with-lb-100/3283e381a1af96ba80cfe48099d29f03) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/planoptik-ag-reports-2025-financial-decline-amid-microtech-challenges/93a2952687e4a2e05c07dbe1ec87f7e5) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/planoptik-ag-reports-declining-financial-performance-for-2025/202630840)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/424417-planoptik-ag-reports-2025-financial-results-with-revenue-decline-and-profitability-challenges)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340236-planoptik-ag-meldet-finanzergebnisse-2025-mit-umsatzruckgang-und-rentabilitatsproblemen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/340824-planoptik-ag-reporta-resultados-financieros-2025-con-caida-de-ingresos-y-desafios-de-rentabilidad)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341581-planoptik-ag-publie-ses-resultats-financiers-2025-avec-une-baisse-du-chiffre-daffaires-et-des-defis-de-rentabilite)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340207-planoptik-ag-divulga-resultados-financeiros-de-2025-com-queda-na-receita-e-desafios-de-rentabilidade)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/planoptik-ag-reports-declining-financial-performance-for-2025-fi/202630840)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/planoptik-ag-reports-declining-financial-performance-for-2025/202630840)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/424427-planoptik-ag-reports-declining-financial-performance-for-2025-amid-semiconductor-industry-challenges)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202604/424435-planoptik-ag-reports-challenging-2025-financial-results-with-revenue-decline-and-profitability-pressures)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/93a2952687e4a2e05c07dbe1ec87f7e5)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/93a2952687e4a2e05c07dbe1ec87f7e5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/13/diveJT7N.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/13/islewM0a.webp)
