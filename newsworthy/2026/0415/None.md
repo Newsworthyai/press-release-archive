@@ -1,55 +1,37 @@
-# Justin McKenzie Shares Vision for Texas Innovation on Change &amp; Creativity Podcast
+# eMerge Americas 12th Annual Conference in Miami: Tech Meets National Security
 
-SAN MARCOS, Texas (Newsworthy.ai) Tuesday Apr 14, 2026 @ 7:45 PM Central — In a compelling conversation on the Change and Creativity Podcast, host Judy Oskam, professor and director of the School of Journalism and Mass Communication at Texas State University, sat down with fellow Bobcat and entrepreneur Justin McKenzie, host of the Building Texas Show. The discussion explored how Texas’s growth is being shaped by local leaders, entrepreneurs, and a commitment to telling the stories that fuel opportunity across the state.
+Miami, FL (Newsworthy.ai) Wednesday Apr 15, 2026 @ 6:00 AM Central — eMerge Americas, one of the nation's premier technology conferences, is preparing to welcome approximately 25,000 attendees to its 12th annual spring event in Miami. The conference brings together startups, universities, and government leaders across four key verticals: Health Tech, FinTech, AI and Quantum, and National Security.
 
- Oskam, a proud native Texan, opened the episode by emphasizing that innovation isn’t confined to major metros.
+ Founded by Melissa Medina and Manny Medina, eMerge Americas grew out of the family's deep roots in Miami's tech infrastructure. The Medinas previously built Terremark Worldwide, Inc., a data and IT infrastructure company best known for creating the Network Access Point of the Americas. After selling Terremark Worldwide to Verizon, the father-daughter team turned their attention to expanding South Florida's technology ecosystem, and eMerge Americas was born.
 
- “In Texas, innovation isn't just happening in big cities, it's unfolding in small towns and communities across the state,” she stated. This theme resonated throughout the interview, as McKenzie detailed his journey from international student to a voice highlighting Texas’s economic development landscape.
+ Today the organization hosts roughly 50 events per year, with the annual spring conference serving as the flagship gathering.
 
- From Global Perspective to Texas FocusMcKenzie, a two-time Texas State graduate and first-generation college student, shared how his unique background-growing up abroad as a Texan-shaped his perspective. “They'd say, ‘Oh, you're American.’ ‘Oh, we're from Texas.’ Immediately, American was forgotten. You're Texan,” he recalled.
+ National Security Takes Center Stage This year's conference features a prominent national security track headlined by Emil Michael, Undersecretary of War for Research and Engineering, and DARPA Director Steven Winchell. The two will appear together on the main stage for a discussion on how the private sector can engage with the federal government and how defense agencies are accelerating the adoption of emerging technologies.
 
- This early lesson in state identity fueled his passion for showcasing Texas as the “center of the universe” for growth, entrepreneurialism, and opportunity. His show, which began as a local radio program in the Hill Country, was born from a desire to fill a visibility gap.
+ The conference will also feature a significant U.S. Army presence, with representatives from the Army Research Lab and Devcom participating in programming. A university hackathon organized in partnership with Devcom will tackle real-world defense problem sets, and a live xTech Army Pitch Competition will take place on the conference floor. The pitch competition marks the first time xTech has partnered with eMerge and the first time the competition has been held in Miami.
 
- “I was in the Hill Country and seeing some great entrepreneurial activities happening, but it's not making the local paper,” McKenzie explained. He believes storytelling is essential for acknowledging innovators, informing taxpayers, and inspiring the next generation. “High school kids need to see that even in the rural hill country, anything is possible.”
+ Live Demonstration Day Kicks Off the Week On April 21, just days before the main conference opens, eMerge Americas will host its second Live Demonstration Day. Approximately 20 companies will showcase their technologies to a curated audience of around 400 attendees from both the public and private sectors. Lieutenant Governor Jay Collins will open the event.
 
- The Mayor’s Perspective: Growth, Grit, and GovernanceA significant portion of the Building Texas Show involves interviewing mayors from across Texas. McKenzie shared common themes from these conversations, noting that rapid growth is a universal challenge and opportunity. From Bastrop, which has seen an influx of companies like SpaceX and The Boring Company, to Lubbock and Amarillo, each city is navigating how to scale while preserving its heritage.
+ The morning will feature company presentations, followed by afternoon demonstrations that allow companies to show their technologies in action rather than through static displays or slide decks. The format builds on a successful September event at Port Miami, where 10 companies demonstrated capabilities above, on, and below the water for roughly 200 guests.
 
- He highlighted the symbiotic relationship between cities and universities, using Texas State University and San Marcos as a prime example.
+ A Proven Launchpad for Founders Since its founding, eMerge Americas has run a large-scale accelerator program, putting approximately 100 companies per year through the program. More than 1,200 founders have participated to date, and alumni companies have collectively raised over $2.5 billion in funding.
 
- “If you can work that together, you can retain a lot of that talent,” McKenzie said, addressing a key issue for the state. “Texas is very guilty. We all export so much talent that if we could retain it here, it'll help with our growth.”
+ The organization's broader economic footprint is equally notable. eMerge Americas has generated over $3 billion in economic impact across South Florida and Florida, contributing to the creation of more than 10,000 jobs.
 
- Expanding the Mission: Vote Like a Texan and Work Like a TexanBeyond profiling builders and mayors, McKenzie has launched new initiatives to engage Texans in civic and economic life. Vote Like a Texan focuses on nonpartisan civic education, explaining local government roles and encouraging participation in often-overlooked local elections.
+ With four verticals and thousands of attendees, eMerge Americas recommends that first-time attendees choose one or two themes of interest and review the published agenda on the conference website. A companion app is available for download, allowing attendees to browse the lineup and connect with other participants ahead of the event.
 
- “I really saw my hometown with a 7% turnout on a mayoral election. That May election was very important to our local community, our kids, and the future of that area,” he noted.
+ For more information, visit eMergeAmericas.com or follow eMerge Americas on LinkedIn, X, and Instagram.
 
- The upcoming Work Like a Texan series will connect job seekers and employers, highlighting in-demand skills and partnerships with trade schools and community colleges.
+ About SBIR Advisors SBIR Advisors was founded by military veterans with the mission to get great technology to the warfighter. With diverse military backgrounds, SBIR Advisors know what the military needs and the fastest way to get technology to the Department of War. SBIR Advisors is a full-service military contract consultant that helps clients identify the right Department of War stakeholders for their technology and provides comprehensive capture services through proposal, negotiations, contract terms, and post-award administration. To learn more, visit sbiradvisors.com.
 
- Advice for Entrepreneurs and StudentsWhen asked for advice, McKenzie echoed a principle from Oskam’s own TEDx talk: take action. “Do it and then figure it out,” he advised. He encouraged entrepreneurs to deeply research a city’s comprehensive plan and regional economic strategy before planting roots.
-
- “Anywhere that you're researching, pull back their comprehensive plan… and say, is this going to fit what I want to be doing in 10 years?”
-
- For students and lifelong learners, he emphasized the enduring value of community and mentorship, often found in unexpected places.
-
- “What can you learn while you're at this phase or stage that you're in? It may be a professor from twenty years ago that you go back and call.”
-
- Listen to the Full Conversation on the Change and Creativity Podcast
-
- The full interview offers deeper insights into Texas’s innovation corridors, the future of work, and the power of storytelling. It is now available on the Change and Creativity Podcast.
-
- Listen to the episode and subscribe for more stories of innovation:https://www.changeandcreativity.com/
-
- About Change and Creativity PodcastHosted by Judy Oskam, the Change and Creativity Podcast explores stories of innovation, leadership, and community impact. Each episode features conversations with entrepreneurs, educators, and change-makers who are reimagining what’s possible in Texas and beyond. The podcast is dedicated to inspiring action and highlighting the creative solutions shaping our future.
-
- About The Building Texas ShowThe Building Texas Show is a premier media platform dedicated to exploring the people, policies, and projects shaping the future of the Lone Star State. Through candid conversations with founders, policymakers, and community leaders, the show provides invaluable insights into Texas’s innovation economy and civic landscape.
-
- Media Contact:Justin McKenzieHost, The Building Texas Show210-748-2312 | Email Contacthttps://buildingtexasshow.com 
+ Media Contact: Justin McKenzie Email Contact (210) 748-2312 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604152352/justin-mckenzie-shares-vision-for-texas-innovation-on-change-and-creativity-podcast)
+[Original/Source Press Release](https://newsworthy.ai/news/202604152346/emerge-americas-12th-annual-conference-in-miami-tech-meets-national-security)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-growth-story-podcast-reveals-how-local-innovation-fuels-statewide-opportunity/7fd620c8d5f43ddebfbb72a1396380c6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emerge-americas-2026-national-security-tech-innovation-take-center-stage/12be26e4bd3fe7f863a80f3968a4b0f5) 
 
  
 
@@ -57,4 +39,4 @@ SAN MARCOS, Texas (Newsworthy.ai) Tuesday Apr 14, 2026 @ 7:45 PM Central — In 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/15/markKqhJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/15/ellePpKD.webp)
