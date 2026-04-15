@@ -1,52 +1,54 @@
-# NeuroOne® Advances Brain Drug Delivery Platform Through Collaboration With University of Minnesota
+# HeartBeam (BEAT) Launches Proposed Public Offering to Support Commercialization and AI Initiatives
 
-sEEG-Based Drug Delivery System to be Utilized for Local Delivery of Novel Epilepsy Therapies
+LOS ANGELES, CA - April 15, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT), a medical technology company focused on cardiac care innovation, announced it is commencing an underwritten public offering of shares of its common stock or common stock equivalents, with all securities to be offered by the company and the final size and terms subject to market conditions. The company said it intends to use net proceeds from the offering to advance commercialization of its FDA-cleared 12-lead synthesized ECG system, further development of its extended-wear patch and heart attack detection initiatives, enhance its AI capabilities and support working capital and general corporate purposes, with Titan Partners, a division of American Capital Partners, acting as sole bookrunner.
 
- EDEN PRAIRIE, MINN. - April 15, 2026 (NEWMEDIAWIRE) - NeuroOne Medical Technologies Corporation (Nasdaq: NMTC) ("NeuroOne" or the "Company"), a medical technology company dedicated to transforming the surgical diagnosis and treatment of neurological disorders, today announced a collaboration with the Department of Neurology’s Division of Epilepsy at the University of Minnesota Medical School to advance a study evaluating next-generation epilepsy therapies using the company’s sEEG-based platform.
+ To view the full press release, visit https://ibn.fm/pxFOz
 
- The program is being led by Sandipan Pati, MD, Professor and Epilepsy Division Director, an academic, dual board-certified epileptologist, and neurophysiologist at the forefront of innovation in epilepsy care and research. The study tests novel therapeutics delivered locally into specific brain regions involved in sustaining seizures with the goal of improving clinical efficacy and lowering systemic toxicity and off-target effects. The collaboration is expected to begin in large animal models and, if primary objectives are met, progress to human studies shortly thereafter.
+ About HeartBeam, Inc.
 
- “Localized intracerebral delivery of therapeutics represents an important emerging direction for improving precision in epilepsy treatment while minimizing systemic side effects,” said Dr. Sandipan Pati, Professor and Epilepsy Division Director at the University of Minnesota, Director of the University of Minnesota Physicians MINCEP® Epilepsy Care Program and epileptologist at M Health Fairview. “In our clinical practice, we use FDA-cleared intracranial electrodes for recording brain activity and performing therapeutic interventions such as stimulation and ablation. In parallel, our current research is focused on preclinical studies evaluating the feasibility, safety, and physiological effects of intracerebral drug infusion using minimally invasive intracranial platforms, including ultra-thin electrode-based systems designed to reduce tissue disruption. These pre-clinical studies aim to better understand how targeted delivery influences seizure networks and brain–body interactions. If successful, this approach may help inform future translational efforts towards a human study to develop more precise and individualized therapies for patients with epilepsy.”
+ HeartBeam, Inc. is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar directions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024 and the 12-lead ECG synthesis software in December 2025. The Company holds over 20 issued patents related to technology enablement.
 
- “The University of Minnesota is at the forefront of next-generation epilepsy research,” said Dave Rosa, President and CEO of NeuroOne. “As we continue advancing our preclinical drug delivery platform toward commercial readiness, we believe this collaboration will support development of a first-in-human study utilizing our technology for intracerebral treatment of epileptic seizures. If successful, this approach could redefine seizure care and establish a new era of precision brain-directed therapy.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About NeuroOne
-
- NeuroOne Medical Technologies Corporation is a medical technology company focused on improving surgical care options and outcomes for patients suffering from neurological disorders. NeuroOne markets a minimally invasive and high-definition/high-precision electrode technology platform with four FDA-cleared product families: Evo® Cortical Electrodes, Evo® sEEG Electrodes, OneRF® Ablation System (for brain), and OneRF® Trigeminal Nerve Ablation System. These solutions offer the potential to reduce the number of hospitalizations and surgical procedures, lower costs, and improve patient outcomes by offering combination diagnostic and therapeutic functions. The Company is engaged in research and development for drug delivery and spinal cord stimulation programs. For more information, visit nmtc1.com.
+ The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
  Forward Looking Statements
 
- This press release may include forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. Except for statements of historical fact, any information contained in this press release may be a forward looking statement that reflects NeuroOne's current views about future events and are subject to known and unknown risks, uncertainties and other factors that may cause our actual results, levels of activity, performance or achievements to be materially different from the information expressed or implied by these forward-looking statements. In some cases, you can identify forward looking statements by the words or phrases "may," "might," "will," "could," "would," "should," "expect," "intend," "plan," "forecasts," "objective," "anticipate," "believe," "estimate," "predict," "project," "potential," "target," "seek," "contemplate," "continue, "focused on," "committed to" and "ongoing," or the negative of these terms, or other comparable terminology intended to identify statements about the future. Forward looking statements may include statements regarding the collaboration with the University of Minnesota including the timing, content and potential success of the program, the potential development of a first-in-human study utilizing our technology for intracerebral treatment of epileptic seizures, the ability of our technology to redefine seizure care and establish a new era of precision brain-directed therapy; business strategy, potential growth opportunities, future operations, future efficiencies, and other financial and operating information. Although NeuroOne believes that we have a reasonable basis for each forward-looking statement, we caution you that these statements are based on a combination of facts and factors currently known by us and our expectations of the future, about which we cannot be certain. Our actual future results may be materially different from what we expect due to factors largely outside our control, including risks related to whether the Company will continue to maintain compliance with all Nasdaq continued listing requirements, risks that our strategic partnerships may not facilitate the commercialization or market acceptance of our technology whether due to supply chain disruptions, labor shortages or otherwise risks that our technology will not perform as expected based on results of our pre-clinical and clinical trials risks related to uncertainties associated with the Company's capital requirements to achieve its business objectives and ability to raise additional funds: the risk that we may not be able to secure or retain coverage or adequate reimbursement for our technology uncertainties inherent in the development process of our technology risks related to changes in regulatory requirements or decisions of regulatory authorities that we may not have accurately estimated the size and growth potential of the markets for our technology risks related to clinical trial patient enrollment and the results of clinical trials that we may be unable to protect our intellectual property rights and other risks, uncertainties and assumptions, including those described under the heading "Risk Factors" in our filings with the Securities and Exchange Commission. These forward looking statements speak only as of the date of this press release and NeuroOne undertakes no obligation to revise or update any forward looking statements for any reason, even if new information becomes available in the future.
-
- sEEG-RF Depth Electrode and OneRF Ablation System - Caution: Federal law restricts this device to sale by or on the order of a physician.
-
- IR ContactMZ Group – MZ North AmericaNMTC@mzgroup.us
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/neuroone-r-advances-brain-drug-delivery-platform-through-collaboration-with-university-of-minnesota-7086352)
+[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-launches-proposed-public-offering-to-support-commercialization-and-ai-initiatives-7086366)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/neuroone-and-university-of-minnesota-pioneer-seeg-based-epilepsy-drug-delivery/537e9c66edce89d25200089f820659f3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-launches-public-offering-to-fuel-cardiac-tech-innovation/c6583cafc4bf9f57db625ff3726185e3) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/neuroone-partners-with-university-of-minnesota-to-advance-target/202630911)
+Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-announces-public-offering-to-fund-cardiac-technology-c/202630951)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/424984-neuroone-partners-with-university-of-minnesota-to-advance-targeted-epilepsy-treatment-platform)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/425833-heartbeam-announces-public-offering-to-fund-cardiac-technology-commercialization-and-ai-development)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340280-neuroone-geht-partnerschaft-mit-der-university-of-minnesota-ein-um-zielgerichtete-epilepsie-behandlungsplattform-voranzutreiben)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340344-heartbeam-kundigt-offentliches-angebot-zur-finanzierung-der-kommerzialisierung-von-herztechnologie-und-ki-entwicklung-an)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341618-neuroone-sassocie-a-luniversite-du-minnesota-pour-faire-progresser-une-plateforme-de-traitement-cible-de-lepilepsie)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341130-heartbeam-anuncia-oferta-publica-para-financiar-la-comercializacion-de-tecnologia-cardiaca-y-el-desarrollo-de-ia)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340252-neuroone-estabelece-parceria-com-a-universidade-de-minnesota-para-avancar-plataforma-de-tratamento-direcionado-para-epilepsia)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341694-heartbeam-annonce-une-offre-publique-pour-financer-la-commercialisation-de-sa-technologie-cardiaque-et-le-developpement-de-lia)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/neuroone-partners-with-university-of-minnesota-to-advance-target/202630911)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340312-heartbeam-anuncia-oferta-publica-para-financiar-comercializacao-de-tecnologia-cardiaca-e-desenvolvimento-de-ia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-announces-public-offering-to-fund-cardiac-technology-c/202630951)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-announces-public-offering-to-fund-cardiac-technology-c/202630951)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/425856-heartbeam-announces-public-offering-to-fund-cardiac-ai-and-commercialization-efforts)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/425850-heartbeam-announces-public-offering-to-fund-cardiac-technology-commercialization)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/15/chipsj7N.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/15/fern9TuI.webp)
