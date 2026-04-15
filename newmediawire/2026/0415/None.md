@@ -1,98 +1,52 @@
-# Loneliness Linked to Increased Risk of Degenerative Heart Valve Disease
+# NeuroOne® Advances Brain Drug Delivery Platform Through Collaboration With University of Minnesota
 
-Research Highlights:
+sEEG-Based Drug Delivery System to be Utilized for Local Delivery of Novel Epilepsy Therapies
 
- * Adults who reported feeling lonely or that they can’t confide in someone close to them had a higher risk of developing degenerative heart valve disease, even after considering traditional heart disease risk factors and genetics.
-* Unhealthy lifestyle habits, such as smoking, excessive alcohol and inactivity, played a major role in linking loneliness to degenerative heart valve disease.
-* However, social isolation, defined as living alone, having little social contact with friends or family in a month and not participating in social or leisure activities, was not associated with increased degenerative heart valve disease risk.
-* Loneliness may be an independent and potentially modifiable risk factor that may help reduce the risk of degenerative valvular heart disease.
+ EDEN PRAIRIE, MINN. - April 15, 2026 (NEWMEDIAWIRE) - NeuroOne Medical Technologies Corporation (Nasdaq: NMTC) ("NeuroOne" or the "Company"), a medical technology company dedicated to transforming the surgical diagnosis and treatment of neurological disorders, today announced a collaboration with the Department of Neurology’s Division of Epilepsy at the University of Minnesota Medical School to advance a study evaluating next-generation epilepsy therapies using the company’s sEEG-based platform.
 
- DALLAS - April 15, 2026 (NEWMEDIAWIRE) - Adults who reported feeling lonely had a higher risk of developing degenerative heart valve disease, even after accounting for traditional heart disease risk factors and genetics, according to new research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
+ The program is being led by Sandipan Pati, MD, Professor and Epilepsy Division Director, an academic, dual board-certified epileptologist, and neurophysiologist at the forefront of innovation in epilepsy care and research. The study tests novel therapeutics delivered locally into specific brain regions involved in sustaining seizures with the goal of improving clinical efficacy and lowering systemic toxicity and off-target effects. The collaboration is expected to begin in large animal models and, if primary objectives are met, progress to human studies shortly thereafter.
 
- Valvular heart disease occurs when one of the heart’s four valves stops functioning properly. According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics Report, valvular heart disease accounted for more than 440,000 deaths in the U.S. between 1999 and 2020, which is roughly the population of Oakland, California. Valvular heart disease represented 2.38% of total cardiovascular deaths in 1999-2000. Birth defects, as well as aging-related degeneration or other conditions, can cause heart valve problems. Degenerative valvular heart disease occurs when the heart valves gradually become stiff or leaky over time, making it harder for blood to flow properly through the heart.
+ “Localized intracerebral delivery of therapeutics represents an important emerging direction for improving precision in epilepsy treatment while minimizing systemic side effects,” said Dr. Sandipan Pati, Professor and Epilepsy Division Director at the University of Minnesota, Director of the University of Minnesota Physicians MINCEP® Epilepsy Care Program and epileptologist at M Health Fairview. “In our clinical practice, we use FDA-cleared intracranial electrodes for recording brain activity and performing therapeutic interventions such as stimulation and ablation. In parallel, our current research is focused on preclinical studies evaluating the feasibility, safety, and physiological effects of intracerebral drug infusion using minimally invasive intracranial platforms, including ultra-thin electrode-based systems designed to reduce tissue disruption. These pre-clinical studies aim to better understand how targeted delivery influences seizure networks and brain–body interactions. If successful, this approach may help inform future translational efforts towards a human study to develop more precise and individualized therapies for patients with epilepsy.”
 
- A 2022 scientific statement from the American Heart Association about the impact of objective and perceived social isolation on heart and brain health noted that a lack of social connection is associated with an increased risk of premature death from all causes, as well as other adverse health outcomes.
+ “The University of Minnesota is at the forefront of next-generation epilepsy research,” said Dave Rosa, President and CEO of NeuroOne. “As we continue advancing our preclinical drug delivery platform toward commercial readiness, we believe this collaboration will support development of a first-in-human study utilizing our technology for intracerebral treatment of epileptic seizures. If successful, this approach could redefine seizure care and establish a new era of precision brain-directed therapy.”
 
- Researchers say this is one of the first large-scale studies to comprehensively examine the relationships between loneliness, a lack of connection or engagement with others, and the risk of degenerative valvular heart disease.
+ About NeuroOne
 
- “Degenerative valvular heart disease is becoming more common as populations age,” said study author Zhaowei Zhu, M.D., Ph.D., an associate professor of cardiovascular medicine at The Second Xiangya Hospital, Central South University in Changsha, Hunan, China. “Our findings suggest that loneliness may be an independent and potentially modifiable risk factor for degenerative valvular heart disease.
+ NeuroOne Medical Technologies Corporation is a medical technology company focused on improving surgical care options and outcomes for patients suffering from neurological disorders. NeuroOne markets a minimally invasive and high-definition/high-precision electrode technology platform with four FDA-cleared product families: Evo® Cortical Electrodes, Evo® sEEG Electrodes, OneRF® Ablation System (for brain), and OneRF® Trigeminal Nerve Ablation System. These solutions offer the potential to reduce the number of hospitalizations and surgical procedures, lower costs, and improve patient outcomes by offering combination diagnostic and therapeutic functions. The Company is engaged in research and development for drug delivery and spinal cord stimulation programs. For more information, visit nmtc1.com.
 
- “Identifying this new risk is an important step in potentially preventing valve disease, which can lead to heart failure, reduced quality of life and the need for valve replacement surgery,” Zhu said. “Heart valve disease diagnosed in people who reported ‘feeling lonely’ may reflect a biological vulnerability related to an individual’s feelings and emotional well-being, and also a growing societal burden.”
+ Forward Looking Statements
 
- In this study, researchers reviewed existing information from about 463,000 adults enrolled in the UK Biobank. Participants completed questionnaires to assess loneliness and social isolation when they enrolled. Researchers followed participants for a median of nearly 14 years, using medical records to track new diagnoses of degenerative valvular heart disease.
+ This press release may include forward-looking statements within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. Except for statements of historical fact, any information contained in this press release may be a forward looking statement that reflects NeuroOne's current views about future events and are subject to known and unknown risks, uncertainties and other factors that may cause our actual results, levels of activity, performance or achievements to be materially different from the information expressed or implied by these forward-looking statements. In some cases, you can identify forward looking statements by the words or phrases "may," "might," "will," "could," "would," "should," "expect," "intend," "plan," "forecasts," "objective," "anticipate," "believe," "estimate," "predict," "project," "potential," "target," "seek," "contemplate," "continue, "focused on," "committed to" and "ongoing," or the negative of these terms, or other comparable terminology intended to identify statements about the future. Forward looking statements may include statements regarding the collaboration with the University of Minnesota including the timing, content and potential success of the program, the potential development of a first-in-human study utilizing our technology for intracerebral treatment of epileptic seizures, the ability of our technology to redefine seizure care and establish a new era of precision brain-directed therapy; business strategy, potential growth opportunities, future operations, future efficiencies, and other financial and operating information. Although NeuroOne believes that we have a reasonable basis for each forward-looking statement, we caution you that these statements are based on a combination of facts and factors currently known by us and our expectations of the future, about which we cannot be certain. Our actual future results may be materially different from what we expect due to factors largely outside our control, including risks related to whether the Company will continue to maintain compliance with all Nasdaq continued listing requirements, risks that our strategic partnerships may not facilitate the commercialization or market acceptance of our technology whether due to supply chain disruptions, labor shortages or otherwise risks that our technology will not perform as expected based on results of our pre-clinical and clinical trials risks related to uncertainties associated with the Company's capital requirements to achieve its business objectives and ability to raise additional funds: the risk that we may not be able to secure or retain coverage or adequate reimbursement for our technology uncertainties inherent in the development process of our technology risks related to changes in regulatory requirements or decisions of regulatory authorities that we may not have accurately estimated the size and growth potential of the markets for our technology risks related to clinical trial patient enrollment and the results of clinical trials that we may be unable to protect our intellectual property rights and other risks, uncertainties and assumptions, including those described under the heading "Risk Factors" in our filings with the Securities and Exchange Commission. These forward looking statements speak only as of the date of this press release and NeuroOne undertakes no obligation to revise or update any forward looking statements for any reason, even if new information becomes available in the future.
 
- Results of the analysis:
+ sEEG-RF Depth Electrode and OneRF Ablation System - Caution: Federal law restricts this device to sale by or on the order of a physician.
 
- * More than 11,000 new cases of degenerative valvular heart disease were diagnosed during the follow-up.
-* Among those, more than 4,200 cases were aortic valve stenosis, a condition in which the valve that allows blood to leave the heart becomes narrowed and restricts blood flow; and nearly 4,700 were mitral valve regurgitation, a condition in which the valve between the heart’s left chambers does not close properly, allowing blood to leak backward.
-* About 72% of participants reported minimal loneliness, while 28% reported higher levels of loneliness.
-* Compared with people who reported minimal loneliness, those with the highest level of loneliness had a 19% higher risk of developing degenerative valvular heart disease; a 21% higher risk of aortic valve stenosis; and a 23% higher risk of mitral valve regurgitation.
-* In contrast, social isolation was not significantly associated with increased risk for any valvular heart disease conditions.
-* Loneliness appeared to increase the risk regardless of a person’s genetic background. However, people who had both high genetic risk for heart valve disease and high loneliness scores had the highest risk of valvular heart disease diagnosis.
-* Unhealthy lifestyle behaviors (such as obesity, smoking, excess alcohol drinking, suboptimal sleep duration or irregular physical activity) partially explained the relationship between loneliness and valvular heart disease.
-
- “Our results suggest that addressing loneliness could help delay disease progression, postpone surgical interventions such as valve replacement, and ultimately reduce the long-term clinical and economic burden of valvular heart disease,” said study co-author Cheng Wei, M.D, a Ph.D. candidate in cardiovascular medicine at The Second Xiangya Hospital.
-
- “These findings should highlight for patients and health care professionals that loneliness is not just an emotion; not something a person must get over or deal with on their own,” said American Heart Association volunteer expert Crystal Wiley Cene, M.D., M.P.H., FAHA, who led the writing group on perceived isolation and cardiovascular disease, and who was not involved in this study. “Loneliness, particularly chronic loneliness, is a stressor for the body that can damage people’s health. Patients and health care professionals need to understand the importance of talking about loneliness and social disconnectedness as a health risk, not a moral failing or sign of weakness.“
-
- “The aging process can cause degeneration of heart values, and the risk of social isolation and loneliness also increase with age, so it is not inconceivable that loneliness is associated with heart valve disease,” said Cene, who is also a professor of medicine and public health at University of California, San Diego and chair elect of the Association’s Implementation Science Committee for the Council on Epidemiology and Prevention.
-
- She also noted that loneliness is about the quality of relationships, not quantity. "You can be lonely even when you are surrounded by others, if those connections aren’t fulfilling or meaningful,” Cene said. “Loneliness represents a mismatch between the connections a person desires and what they have. This explains why our youngest generations are the most connected generations with lots of online ‘friends,’ yet also may be the loneliest. Connections that exist online only may not be the most fulfilling.”
-
- Both Wei and Cene encourage people to discuss how they feel with health care professionals, and health care professionals should encourage patients to engage in meaningful forms of social connection.
-
- Study limitations include that it was observational, meaning the research cannot prove that loneliness directly caused valvular heart disease; rather, the findings showed an association between the two. Another limitation is that loneliness was measured using self-reported questionnaires completed at a single point in time, which does not capture changes over time. In addition, most participants of the UK Biobank are white adults, which may limit how broadly the results apply to people in other racial or ethnic groups.
-
- “Future studies are needed to confirm these findings in more diverse populations, understand the biological mechanisms linking loneliness and valve degeneration, and test whether interventions that reduce loneliness can lower the risk of valvular heart disease,” Wei said.
-
- Study details, background and design:
-
- * Data for 462,917 adults participating in the UK Biobank were included in this study. Participants’ median age was 58 years; 45% were men, 55% were women; and 95% were white adults.
-* All participants were free of valvular heart disease when they enrolled in the UK Biobank, and they were followed for a median of 13.9 years.
-* Loneliness was assessed by asking if respondents often felt lonely and how often they were able to confide in others. Questions about social isolation focused on the frequency of physical interactions. Researchers separated high-risk loneliness as feeling lonely and never confiding in others, vs. high-risk social isolation, which was defined as living alone, having less than once-a-month contact with family or friends, and not participating in any social or leisure activities.
-* Participants with higher loneliness scores tended to be male and to have lower educational attainment. They also exhibited less favorable lifestyle profiles, including high rates of current smoking, physical inactivity, unhealthy sleep patterns and low dietary scores.
-* Medical records were tracked for reported incidence of valvular heart disease.
-* Genetic information and family history were obtained from blood samples, and participants completed the loneliness questionnaire during their first visit to a UK Biobank assessment center.
-
- Co-authors, disclosures and funding sources are listed in the manuscript.
-
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- Additional Resources:
-
- * Multimedia is available on the right column of release link.
-* After April 15, 2026, view the manuscript online.
-* American Heart Association health information: Understanding Heart Valve Disease
-* American Heart Association news release: Social isolation and loneliness increase the risk of death from heart attack, stroke (Aug. 2022)
-* American Heart Association news release: Social isolation and loneliness linked to increased risk of CVD in post-menopausal women (May 2021)
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association @JAHA_AHA
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries and American Heart Association Expert Perspective: 214-706-1173
-
- Bridgette McNeill: Bridgette.McNeill@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ IR ContactMZ Group – MZ North AmericaNMTC@mzgroup.us
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/loneliness-linked-to-increased-risk-of-degenerative-heart-valve-disease-7086351)
+[Original/Source Press Release](https://www.newmediawire.com/news/neuroone-r-advances-brain-drug-delivery-platform-through-collaboration-with-university-of-minnesota-7086352)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/loneliness-linked-to-19-higher-risk-of-degenerative-heart-valve-disease/658324044295020760a6fd3722ecf6c7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neuroone-and-university-of-minnesota-pioneer-seeg-based-epilepsy-drug-delivery/537e9c66edce89d25200089f820659f3) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/neuroone-partners-with-university-of-minnesota-to-advance-target/202630911)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/424984-neuroone-partners-with-university-of-minnesota-to-advance-targeted-epilepsy-treatment-platform)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340280-neuroone-geht-partnerschaft-mit-der-university-of-minnesota-ein-um-zielgerichtete-epilepsie-behandlungsplattform-voranzutreiben)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341618-neuroone-sassocie-a-luniversite-du-minnesota-pour-faire-progresser-une-plateforme-de-traitement-cible-de-lepilepsie)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340252-neuroone-estabelece-parceria-com-a-universidade-de-minnesota-para-avancar-plataforma-de-tratamento-direcionado-para-epilepsia)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/neuroone-partners-with-university-of-minnesota-to-advance-target/202630911)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/15/riftMS7C.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/15/chipsj7N.webp)
