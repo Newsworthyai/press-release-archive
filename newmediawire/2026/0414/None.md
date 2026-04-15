@@ -1,27 +1,53 @@
-# Datavault AI (DVLT) Partners With AgSensor to Tokenize Agricultural Data Assets
+# HMS Bergbau With Preliminary Figures for the 2025 Financial Year
 
-LOS ANGELES, CA - April 14, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) has entered a consulting partnership with AgSensor Solutions to identify, value and tokenize high-value agricultural data assets, targeting sectors such as soil sensing, sustainability data and agricultural IoT. The agreement leverages AgSensor’s industry expertise alongside Datavault AI’s Information Data Exchange (R), DataScore (R) and DataValue (R) platforms to create tokenized assets tied to the global agricultural economy, offering producers and technology providers a compliant pathway to monetize data while expanding the company’s real-world asset tokenization strategy.
+* Initial consolidation of Maatla Resources (Pty.) Ltd as part of the change in accounting and financial reporting from German GAAP (HGB) to the international IFRS with a clearly positive impact on earnings: EBITDA tripled to EUR 59.4 million
+* Sales at EUR 1.22 billion just below the prior year level
+* Equity significantly increased to EUR 136.5 million
+* Strategic transformation into a diversified commodities company is progressing successfully
+* Webcast for investors and media representatives on 15 April at 09.30 a.m.
 
- To view the full press release, visit https://ibn.fm/Hi4Hd
+ BERLIN - April 14, 2026 (NEWMEDIAWIRE) - HMS Bergbau AG (ISIN: DE0006061104, WKN: 606110, “HMS”), a leading independent commodities trading and marketing company from Germany, presents preliminary and unaudited figures for the 2025 financial year. The figures were prepared for the first time in accordance with the international financial reporting standards IFRS. The change in accounting and financial reporting from German GAAP (HGB) to the international IFRS means that the financial figures for 2025 are only comparable to a limited extent with the prior year figures.
 
- About Datavault AI Inc.
+ According to preliminary figures, HMS generated sales in the amount of EUR 1.22 billion in 2025, compared to EUR 1.36 billion in the previous year. The decline in sales is mainly due to significantly lower commodity prices versus prior year. EBITDA increased substantially from EUR 20.1 million to EUR 59.4 million. Positive earnings contributions of approx. EUR 37 million are attributable to one-off valuation effects from the transition to IFRS, in particular from the initial consolidation of Maatla Resources (Pty.) Ltd. Net income for the financial year amounted to EUR 54.8 million (PY: EUR 13.2 million). Equity stood at EUR 136.5 million as of 31 December 2025 (PY: EUR 51.1 million) and the equity ratio at around 38.2 per cent after 23.2 per cent in the previous year.
 
- Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
+ With the change in its consolidated financial reporting to the International Financial Reporting Standards (IFRS), HMS is improving comparability with listed international competitors and increasing transparency for international investors.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ In 2025, HMS took important strategic steps for the long-term growth of the company. The company is positioning itself beyond coal trading as a fully integrated, internationally established commodities trading, commodities mining and commodities marketing company along the entire value chain. In the field of mining, HMS has acquired a majority stake in the mining company Hoshoza Resources Vryheid in South Africa and successfully completed the acquisition of the majority stake in Maatla in Botswana. After Maatla already made a positive contribution to earnings in 2025, HMS also expects positive earnings effects from Hoshoza for 2026. In addition, business activities in the field of liquid fuels and lubricants were significantly expanded.
 
- Forward Looking Statements
+ Dennis Schwindt, CEO of HMS Bergbau: “2025 was once again a very good financial year for HMS, in which we were able maintain a very good and profitable position in the market despite significantly lower commodity prices. We have substantially expanded our commodity activities along the value chain and operate as a broadly positioned commodity company with activities in coal trading, liquid fuels, ore and cement product trading as well as in commodity mining. This makes us even more resilient to crises and enables us to offer customers services from a single source. We see the change in our accounting and financial reporting to IFRS as a logical step for even greater visibility on the capital market.”
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ The complete annual financial statements and the annual report for the 2025 financial year, including the outlook for the 2026 financial year, will be available for download from 30 June 2026 on the company's website www.hms-ag.com in the Investor Relations section.
+
+ The Management Board of HMS Bergbau AG is currently reviewing various options to further strengthen the company’s capital base. This includes consideration of potential capital measures. No decision has yet been made in this regard.
+
+ Webcast on 15 April 2026
+
+ HMS invites investors and media representatives to a webcast in German on 15 April 2026 at 09.30 am. CEO Dennis Schwindt and CFO Jens Moir will explain the figures for the 2025 financial year and the outlook for 2026 and report on current developments within the company. The Management Board will then be available for questions in a Q&A session. To participate in the event, please register using the following link:
+
+ https://www.appairtime.com/event/a91ab325-6284-46e8-a156-159f3e0c1a88
+
+ About HMS Bergbau AG:
+
+ HMS Bergbau AG is one of the leading independent commodity trading and marketing companies headquartered in Germany. Its core business is the international trade in commodities such as coal products, liquid fuels, ores, cement and other products as well as increasingly also the production of commodities within the framework of majority holdings in mining companies. Its customers include renowned international industrial companies as well as energy traders and producers, who are supplied worldwide and on schedule. With activities spanning Asia, Africa, Europe, North and South America, HMS Bergbau AG also has high-quality commodity reserves and an extensive global network.
+
+ Company contact:HMS Bergbau AGAn der Wuhlheide 23212459 BerlinT.: +49 (30) 65 66 81-0F: +49 (30) 65 66 81-15Email: info@hms-ag.comURL: www.hms-ag.comHMS Investor Relations contact:edicto GmbHDoron Kaufmann / Ralf DrozT: +49 69 905 505 53E-Mail: hms-bergbau@edicto.de
+
+ 
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-partners-with-agsensor-to-tokenize-agricultural-data-assets-7086343)
+[Original/Source Press Release](https://www.newmediawire.com/news/hms-bergbau-with-preliminary-figures-for-the-2025-financial-year-7086349)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-partners-with-agsensor-to-tokenize-agricultural-data-assets/2d0e90096e82c74689d31ccfe5a05987) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hms-bergbau-triples-ebitda-to-eur59-4m-in-2025-amid-ifrs-transition/8e3ac2d51426dbc80e0f5fd285fb493e) 
 
  
 
@@ -29,4 +55,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/14/glue_rja.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/14/neonGcbR.webp)
