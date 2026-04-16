@@ -1,82 +1,75 @@
-# Stacey Eisenberg’s Innovative Memory Beads Launch to Aid Alzheimer’s Research
+# BISD Board President Kristi Schmidt and Secretary Rich Sena Make the Case for Re-Election
 
-Round Rock, TX (Newsworthy.ai) Thursday Apr 16, 2026 @ 8:00 AM Central — Community Health Innovation Announcement In April 2026, Stacey Eisenberg, senior care expert, owner of A Place At Home - North Austin, and community educator for the Alzheimer’s Association Capital of Texas Chapter, announced the release of Peter’s Memory Beads, a tactile brain health tool inspired by a lifetime of personal experiences in senior care and designed to support the mission of the Alzheimer’s Association.
+Boerne, TX (Newsworthy.ai) Thursday Apr 16, 2026 @ 11:15 AM Central — With the May 2 school board election just days away, Boerne Independent School District Board President Kristi Schmidt, who represents Place 6, and Secretary Rich Sena, who represents Place 7, released a joint statement outlining their accomplishments and goals for the next term.
 
- Available now at https://seniorkareexpert.com/beads/, the product offers individuals and organizations a way to actively engage the mind while contributing to Alzheimer’s research and support services.
+ The two trustees, who bring more than 15 years of combined service to the board, said their focus remains on academic excellence, responsible financial management, and protecting the values that matter to Boerne families.
 
- Who Was Peter and How Did His Story Inspire This Brain Health Tool? Decades before founding her home care agency, Stacey Eisenberg spent time in a nursing home where her mother worked. It was there that she met Peter, a resident who would leave a lasting impression on her life and career.
+ "We are parents, educators, volunteers, and neighbors who care deeply about this community," Sena said. "Our service goes beyond board meetings because we believe in supporting Boerne in every way we can."
 
- Peter lived to the remarkable age of 116. But what stood out most was not just his longevity, it was his presence. He remained engaged, aware, and connected in ways that inspired curiosity and admiration.
+ Schmidt pointed to the district's academic performance as proof that the board's approach is delivering results.
 
- One of his daily habits was simple: he would sit and count beads. This repetitive, tactile activity helped him stay focused and grounded. It wasn’t framed as therapy or science at the time. It was just something he did. But its impact was undeniable.
+ "Boerne ISD has maintained its A rating from the Texas Education Agency while also expanding programs such as our P-TECH academies in health careers and cybersecurity," Schmidt said. "We have done that while receiving less per-student funding than the average Texas district."
 
- Years later, that memory stayed with Stacey. It became a quiet but powerful example of how small, consistent actions can support mental clarity and connection over time.
+ Under their leadership, Boerne ISD has compiled one of the strongest records among public school districts in Texas:
 
- How Does Peter’s Memory Beads Help Keep the Mind Active? Peter’s Memory Beads transforms that early-life observation into a practical tool for today’s families, caregivers, and communities concerned about dementia.
+ * An A rating every year since the TEA accountability system began, making BISD one of only 31 districts statewide, and the only medium-large district in the San Antonio area, to achieve that mark
+* $85 million saved through bond refinancing, early debt payoff, and disciplined financial management, with more savings expected as additional bond series become eligible for refinancing
+* A 95 percent College, Career, and Military Readiness rate among graduates, compared with the state average of 82 percent
+* Two P-TECH academies launched, one in health careers at Boerne High School and one in cybersecurity at Champion High School, putting more than 200 seniors on track by 2028 to graduate with both a diploma and an associate degree at no added cost to families
+* Elimination of $120 million in Robin Hood recapture after a seven-year advocacy effort that included legislative testimony and trips to Austin, helping keep local tax dollars in Boerne
+* Fifteen consecutive Superior ratings from the Texas Financial Integrity Rating System, even as many districts across the state face budget shortfalls
+* A 33 percent reduction in the M&O tax rate since 2019 and the second-lowest Interest and Sinking tax rate among 17 fast-growth districts in the San Antonio-Austin corridor
 
- The beads are designed to encourage hands-on cognitive engagement, supporting focus, routine, and memory through simple interaction. This aligns with widely recognized brain health principles, including those highlighted in one of her recent articles about keeping the mind active.
+ "Strong schools are built through teamwork, commitment, and responsible stewardship," Sena said. "The progress we have made reflects the work of the board, administrators, teachers, and the community."
 
- By offering a physical activity that is both calming and mentally stimulating, the tool provides a meaningful way to stay engaged, whether used independently or as part of a caregiving routine.
+ Schmidt and Sena said their next term would focus on four priorities:
 
- How Is This Round Rock Collaboration Turning a Personal Story Into Community Impact? The journey from memory to product became possible through collaboration with RR3D Funfactory, a local 3D printing service that helped bring Peter’s Memory Beads into production.
+ * Expanding career and technical education by building on the success of P-TECH and exploring additional pathways tied to workforce opportunities, dual credit, and industry certifications
+* Continuing to improve efficiency after the district identified $1.5 million in central office and administrative reductions last year and redirected those funds to classrooms
+* Supporting teacher recruitment and retention through higher pay and continued investment in staff
+* Preserving Boerne's Hill Country character while managing continued enrollment growth
 
- This partnership reflects the spirit of Round Rock, where local businesses come together to support initiatives that address real community needs.
+ "We have led this district through a period of extraordinary growth, adding nearly 4,000 students while maintaining academic excellence, keeping taxes low, and expanding student opportunities," Schmidt said. "That takes experienced leadership and a board committed to working together."
 
- Beyond individual use, the product is also available for bulk orders, allowing organizations, schools, and community groups to create their own fundraising campaigns centered around brain health awareness.
+ Both trustees also noted their longstanding involvement in the community outside of school board service. Sena serves on the board of the Hill Country Pregnancy Care Center, teaches Sunday School at Currey Creek Church, and has been active with Boerne Sunrise Rotary and the Kendall County Republican Club. Schmidt, a former BISD teacher, volunteers through First Baptist Church Boerne and serves on the board of LKCK.
 
- How Does This Product Support Alzheimer’s Awareness and Research? Every purchase of Peter’s Memory Beads directly contributes to a larger cause.
+ "We respectfully ask for the support of our community as we continue working to build on Boerne ISD's legacy of excellence," they said in the joint statement.
 
- All proceeds are donated to the Alzheimer’s Association, turning a simple activity into a meaningful act of support for individuals and families affected by memory-related conditions.
-
- This model bridges personal action with collective impact; giving people a tangible way to participate in the fight against Alzheimer’s while supporting their own or their loved ones’ cognitive well-being.
-
- Quote from Stacey Eisenberg “I never forgot Peter. Watching him stay present by counting beads shaped how I think about brain health. This is a way to share that lesson and help others.”
-
- About A Place At Home - North Austin A Place At Home - North Austin provides in-home senior care services across Round Rock, Austin, and surrounding communities. The organization focuses on personalized care, dementia support, and helping individuals maintain independence at home.
-
- Learn more: https://aplaceathome.com/north-austin/about/
-
- Through initiatives like Peter’s Memory Beads, the organization continues to expand its role as both a care provider and a community advocate for aging populations.
-
- Where Can You Learn More or Purchase Peter’s Memory Beads? * Product page: https://seniorkareexpert.com/beads/
-* Brain health resource: https://seniorkareexpert.com/keeping-the-mind-active-one-of-the-most-powerful-things-you-can-do-for-brain-health/
-* About the organization: https://aplaceathome.com/north-austin/about/ 
+ Early voting runs April 20 through April 28, exact dates and times available here, at the Fair Oaks Ranch City Police Department headquarters and the Kendall County Annex across from Boerne High School. On Election Day, May 2, voters may cast ballots at Boerne City Hall or the Fair Oaks Ranch Police Department. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604162359/stacey-eisenbergs-innovative-memory-beads-launch-to-aid-alzheimers-research)
+[Original/Source Press Release](https://newsworthy.ai/news/202604162366/bisd-board-president-kristi-schmidt-and-secretary-rich-sena-make-the-case-for-re-election)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/peter-s-memory-beads-a-tactile-tool-for-brain-health-and-alzheimer-s-support/6d6a82920bbb3b41b24e4d1dcde88473) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boerne-isd-trustees-tout-record-of-excellence-ahead-of-school-board-election/a3887b718ab7b523618bf67756631347) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/memory-beads-inspired-by-116-year-old-resident-support-alzheimer/202630964)
+Pickup - [https://advos.io/en](https://advos.io/en/boerne-isd-trustees-highlight-academic-financial-achievements-ah/202630988)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/426313-memory-beads-inspired-by-116-year-olds-routine-support-alzheimers-research)
+Pickup - [https://burstable.news](https://burstable.news/news/202604/426564-boerne-isd-trustees-schmidt-and-sena-highlight-academic-and-financial-achievements-ahead-of-school-board-election)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340357-gedachtnisperlen-inspiriert-von-der-routine-eines-116-jahrigen-unterstutzen-alzheimer-forschung)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340379-boerne-isd-vorstandsmitglieder-schmidt-und-sena-heben-akademische-und-finanzielle-erfolge-vor-schulvorstandswahl-hervor)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341157-las-cuentas-de-memoria-inspiradas-en-la-rutina-de-un-hombre-de-116-anos-apoyan-la-investigacion-del-alzheimer)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341181-los-fideicomisarios-schmidt-y-sena-del-distrito-escolar-independiente-de-boerne-destacan-logros-academicos-y-financieros-de-cara-a-las-elecciones-de-la-junta-escolar)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341721-des-perles-de-memoire-inspirees-de-la-routine-dun-centenaire-de-116-ans-soutiennent-la-recherche-sur-alzheimer)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341744-les-administrateurs-schmidt-et-sena-du-district-scolaire-de-boerne-mettent-en-avant-les-realisations-academiques-et-financieres-avant-les-elections-du-conseil-detablissement)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340325-contas-da-memoria-inspiradas-na-rotina-de-idoso-de-116-anos-apoiam-pesquisa-sobre-alzheimer)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340347-trustees-schmidt-e-sena-do-boerne-isd-destacam-conquistas-academicas-e-financeiras-antes-da-eleicao-do-conselho-escolar)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/memory-beads-inspired-by-116-year-olds-routine-support-alzheimer/202630964)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/boerne-isd-board-leaders-highlight-academic-financial-achievemen/202630988)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/memory-beads-inspired-by-116-year-old-resident-support-alzheimer/202630964)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bisd-board-president-schmidt-and-secretary-sena-outline-accompli/202630988)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/426324-memory-beads-product-launches-to-support-alzheimers-research-through-tactile-brain-health-tool)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/426579-boerne-isd-trustees-highlight-academic-excellence-and-fiscal-stewardship-ahead-of-election)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202604/426381-texas-senior-care-expert-launches-memory-beads-to-support-alzheimers-research)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/202604/426585-boerne-isd-trustees-highlight-academic-excellence-financial-stewardship-ahead-of-election)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202604/341164-experta-en-cuidado-de-adultos-mayores-de-texas-lanza-cuentas-de-la-memoria-para-apoyar-la-investigacion-del-alzheimer)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/202604/426386-memory-beads-inspired-by-116-year-olds-routine-support-alzheimers-research-through-tactile-cognitive-engagement)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/202604/341183-los-fideicomisarios-del-distrito-escolar-independiente-de-boerne-destacan-la-excelencia-academica-y-la-administracion-financiera-de-cara-a-las-elecciones)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/16/pale_CPd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/16/notegFyZ.webp)
