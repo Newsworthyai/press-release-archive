@@ -1,94 +1,94 @@
-# InnoEX and Electronics Fair (Spring Edition) Attract Over 88,000 Global Buyers
+# Blue Lagoon Reaches 100 Tonnes Per Day Milestone, Doubles Production Crew With Second Mining Contractor and Advances Toward 150 Tonnes Per Day
 
-- AI+ and Robotics Technology Applications Drive Hong Kong's Development as an International Innovation and Technology Hub
+VANCOUVER, BC - April 17, 2026 (NEWMEDIAWIRE) - Blue Lagoon Resources Inc. (the “Company”) (CSE: BLLG; OTCQB: BLAGF; FSE:7BL) is pleased to provide an operational update from its 100-per-cent-owned Dome Mountain gold and silver mine near Smithers, B.C., reporting a series of significant operational and organizational milestones as the ramp-up toward steady-state production continues.
 
- HONG KONG - April 17, 2026 (NEWMEDIAWIRE) - InnoEX, jointly organised by the Innovation, Technology and Industry Bureau (ITIB) of the Hong Kong SAR Government and the Hong Kong Trade Development Council (HKTDC), and the HKTDC’s Hong Kong Electronics Fair (Spring Edition) (EFSE), both concluded today. The four-day exhibitions were a resounding success, attracting over 88,000 buyers from 155 countries and regions for connection building and business matching. Buyers from outside Hong Kong mainly came from the Chinese Mainland, Japan, India, the United States, and Korea, among others.
+ Production reaches 100 tonnes per day
 
- Jenny Koo, Deputy Executive Director of the HKTDC, said: "InnoEX and EFSE bring together elites from the global innovation, technology, and electronics industries, and leverage Hong Kong's unique advantage of connecting the Chinese Mainland and the world. The HKTDC provides a crucial platform connecting global innovation and technology by assisting Chinese Mainland enterprises in expanding overseas and seizing global business opportunities and also offering global enterprises a springboard to enter the Asian and Chinese Mainland markets. The HKTDC helps enterprises from various regions master cutting-edge technologies, promotes in-depth cross-industry and cross-sectoral exchanges and application transformation, and also promotes Hong Kong's development as an international innovation and technology hub."
+ Dome Mountain has achieved consistent underground production of 100 tonnes per day, a key near-term target outlined in Blue Lagoon's January operational update (see news release January 5, 2026). This milestone reflects the resolution of early-stage commissioning constraints and the subsequent establishment of consistent underground production cycles.
 
- Both exhibitions align with China’s 15th Five-Year Plan and the innovation and technology policies in the Hong Kong Government’s latest Budget, which focus on cutting-edge technologies and market applications driven by AI. The newly launched RoboPark brought together technology companies from Hong Kong, the Chinese Mainland and overseas. RoboPark featured over 100 robots in a variety of application scenarios. Among the exhibitors at the RoboPark, UBTECH is the world’s first humanoid robot company listed in Hong Kong. As one of the top five global humanoid robot vendors by sales[1], UBTECH engaged with potential buyers from the Chinese Mainland, the United States, Europe and Southeast Asia during the fair. The company reported that its participation delivered results well beyond expectations, underscoring the exhibition’s strong international reach.
+ The Company has engaged a second mining contractor, doubling the underground production crew from two to four shifts, and will be deploying additional mobile equipment to the mine site. With multiple working spaces now open across the mine, the increased crew capacity and equipment will enable the Company to advance toward the 150 tonnes per day target in the coming weeks.
 
- Global buyers gather and enterprises expand into overseas markets via exhibitions
+ Milling and revenue update
 
- InnoEX focused on five key areas: AI+, Robotics, the Low-altitude Economy, Property Technology and Retail Technology, presenting a comprehensive showcase of innovation and cutting-edge technology solutions. The fair brought together exhibitors from 21 countries and regions. Both the UK Pavilion and the Macao Pavilion welcomed the strong turnout of high quality buyers, with exhibitors from the Macao Pavilion alone holding more than 280 business meetings during the first three days of the exhibition.
+ To date, Blue Lagoon has completed three sales of Dome Mountain gold and silver concentrates to Ocean Partners U.K. Ltd., for a total sum of approximately US$4.1 million. Additional quantities of mineralized material have been processed by the Company’s milling partner, Nicola Mining, and are awaiting delivery and final settlement. Further sales of concentrates will be announced in due course.
 
- In addition, the exhibition featured participation from universities, research institutes and leading technology enterprises, including Huawei, China Mobile Hong Kong, HKT and Lenovo. Beyond exhibiting, Huawei organised Huawei Hong Kong Tech Week 2026 concurrently with InnoEX. Through 12 themed events and industry specific forums, Huawei explored innovative applications and real world practices of Artificial Intelligence+ across various sectors, generating strong synergy with InnoEX and further enriching the exhibition’s thought leadership programme.
+ Approximately 2,000 tonnes of mineralized material is currently stockpiled at the mine site and the Nicola mill site, with regular trucking shipments to Nicola ongoing.
 
- The Chinese Mainland pavilions comprised from 17 provinces and municipalities. Among them, Zhongguancun Beijing Hong Kong-Macao Youth Innovation Center which has been bringing delegations to the fair since its inaugural edition, said that the 10 high quality technology enterprises in this year’s delegation span a wide range of frontier technology sectors, including artificial intelligence, intelligent robotics, the low altitude economy and application specific chips. On the first day of the exhibition alone, the delegation attracted strong interest from relevant institutions and enterprises from Brazil, Germany, India, Japan, Malaysia, South Korea and the Middle East.
+ Assay laboratory is now operational
 
- EFSE showcased smart living electronics and new products attracting buyers' attention
+ The Company has also built a local fire assay laboratory near the town of Smithers, which is now fully operational. The lab is accelerating the turnaround of grade-control assays, directly supporting mine planning and operational decision-making at Dome Mountain. In addition, the lab will now conduct mill production and settlement assays for Dome Mountain material processed at Nicola, a function previously performed externally. This brings a meaningful improvement to the speed and efficiency of the reconciliation and invoicing process and is expected to materially reduce the time between milling and final settlement with Ocean Partners going forward.
 
- The EFSE presented three major areas, including Smart Home & Solutions, Health Tech & Gadgets, and Pet Intelligence, with around 60 products being launched for the first time. Among them, local company HelloBaby, which specialises in the research, development and sales of baby monitor products, showcased its latest product at the fair. Qin Zhihui, Sales Director at HelloBaby, said: “The exhibition is highly international in character, and we participate every year. Our buyers mainly come from Japan, Korea, Singapore and other Asian markets.”
+ Blue Lagoon Reaches 100 Tonnes Per Day Milestone, Doubles Production Crew with Second Mining Contractor and Advances Toward 150 Tonnes Per Day
 
- Buyers noted that EFSE is a strong brand focused platform, enabling companies to connect successfully with Chinese Mainland and global markets through Hong Kong’s international platform. Carmate Electronics Pty Ltd, an Australian manufacturer of automotive electronics, said it had successfully engaged with a number of high quality buyers from markets, including Brazil, Mexico, Belgium and Indonesia, through EFSE. The company recorded potential transactions of around US$200,000 on the first day and expects follow up orders to reach US$400,000 to US$500,000. Michael Lin, General Manager of the company, noted that amid heightened China-US tensions, Hong Kong’s unique role as an international platform has positioned the city as an important bridge between overseas and Chinese Mainland enterprises, generating valuable business opportunities. He described the exhibition as highly fruitful and confirmed the company’s participation again next year.
+ Samples being loaded into the furnace at the Company's newly commissioned fire assay laboratory near Smithers, B.C.
 
- In addition to one-stop sourcing, buyers also gained valuable insights into industry trends. Pari Jazz, a buyer from Germany based P.J Global Way Management Ltd, said that the exhibition not only enabled her to place orders, but also helped her stay abreast of the latest market trends and technological developments. Overall, she found the experience highly rewarding. During the fair, she arranged around 12 business meetings, engaging with exhibitors from Hong Kong, the Chinese Mainland and Denmark, meeting approximately 10 to 13 contacts in total, and identifying two to three potential partners with good prospects for collaboration.
+ Team expansion and planning ahead
 
- Over 100 events with 260+ speakers decoding new industry trends
+ Blue Lagoon has made a number of additional hires across operations as the Company continues to grow its operational team in line with the expanding scope of underground activities. Planning is underway for an exploration drill program at Dome Mountain, expected to commence in late Q3 2026 and funded from internally generated cash flow. The drilling campaign is intended to include both infill drilling and a work program targeting new areas along Dome Mountain's largely unexplored 18-kilometre strike length.
 
- InnoEX and EFSE invited many well-known technology companies, industry experts and scholars to share the latest industry trends, technological innovations and practical experiences with buyers, promoting in-depth exchange and cooperation. This year, more than 260 speakers shared their insights across the fair’s five major thematic areas.
+ To ensure the site can support ongoing production with an expanded workforce alongside an active drill program, a site infrastructure upgrade plan is being scoped and will be advanced in the coming months.
 
- In the area of AI+, the Hong Kong Computer Society co-organised the session ‘From +AI to AI+: Enhancing Workplace Performance’ during the exhibition, where representatives from HKT Limited, Lenovo and CLP joined other industry leaders to exchange insights and foster greater innovation collaboration. InnoEX, for the first time, co-organised the ‘Low-altitude Economy Development Conference’ with the Working Group on Developing Low-altitude Economy and the Greater Bay Area Low-altitude Economy Alliance. Distinguished guests included Michael Wong, Deputy Financial Secretary of the HKSAR; Liu Chun-san, JP, Under Secretary for Transport and Logistics, HKSAR Government; Bakhtiyar Mukhametkaliyev, Vice Minister of Artificial Intelligence and Digital Development of Kazakhstan; and Professor Zhang Qingxin of the Liaoning General Aviation Academy, who shared insights on the development opportunities of the low-altitude economy across Hong Kong, the Chinese Mainland, ASEAN and Central Asia.
+ The Company also announces the grant of an aggregate of 3,850,000 stock options to certain directors, officers, employees and consultants of the Company pursuant to its omnibus equity incentive plan. The options are exercisable at a price of $0.77 per share and will expire five years from the date of issuance. The grant is subject to approval by the Canadian Securities Exchange.
 
- Another highlight was the thematic seminar ‘Embodied AI in Robotics: The Dawn of Autonomy,’ which explored the rise of embodied artificial intelligence in robotics, marking a new era where autonomous systems are capable of independent decision-making and executing complex tasks. Distinguished speakers included Prof Xuguang Lan from the School of Artificial Intelligence at Xi’an Jiaotong University and Kristine Mo, Vice President of Global Market and Ecosystem at AI2 Robotics, who shared how AI-driven robotics are transforming industries such as education, entertainment and services, while delving into technological breakthroughs, ethical considerations and future applications.
+ Additionally, the Company received a $500,000 unsecured, interest-free bridge loan from its President & CEO to support short-term working capital requirements while awaiting concentrates settlement. During the start-up phase of mining operations, the cash settlement cycle from mining through to final payment by Ocean Partners was significantly extended beyond typical timelines. This insider loan serves to bridge this transitional period, with no similar requirement anticipated going forward.
 
- Some 80% of respondents have explored or adopted generative AI technologies
+ The interest free loan is due on March 20, 2027, or may be paid earlier at the Company's option. Pursuant to the loan agreement, the Company will issue an aggregate of 129,870 bonus common shares and 129,870 warrants to the lender, at a price of $0.77 per share, for a period of two years, being the market price at the time the loan agreement was entered into. The lender is a related party to the Company and the loan constitutes a related party transaction pursuant to Multilateral Instrument 61-101 - Protection of Minority Security Holders in Special Transactions. The Company is relying on the exemptions from the formal valuation requirements contained in Section 5.5(b) of MI 61-101 and the minority shareholder approval requirements contained in Section 5.7(1)(b) of MI 61-101.
 
- To further understand the development trends of the innovation and technology as well as the electronics industry, an independent institution was appointed to conduct surveys during the fairs, interviewing 347 exhibitors and buyers at InnoEX and 648 exhibitors and buyers at EFSE. Key findings are as follows:
+ For further information, please contact:
 
- InnoEX and EFSE
+ Rana VigPresident and Chief Executive OfficerTelephone: 604-218-4766Email: rana@bllg.ca
 
- 81% of respondents expressed interest in expanding into emerging markets, including Europe, ASEAN, the Chinese Mainland, and Latin America.78% of respondents indicated that their companies have already explored or adopted generative AI technologies.
+ About Blue Lagoon Resources Inc.
 
- InnoEX
+ Blue Lagoon Resources Inc. (CSE: BLLG; FSE: 7BL; OTCQB: BLAGF) is a Canadian-based, well-funded, growth-oriented mining company producing from its 100% owned Dome Mountain Gold Mine near Smithers, British Columbia. Led by a team with deep mining and finance experience, the Company operates in one of the world’s most attractive mining jurisdictions.
 
- In terms of applications of generative AI, 42% of respondents said they have applied or are planning to apply it to sales and customer communications, 40% to data analysis and reporting, while 39% plan to deploy it in product design and research and development.
+ In February 2025, Blue Lagoon achieved a major milestone with the granting of a full mining permit - one of only nine issued in British Columbia since 2015 – and has since commenced underground mining operations. Mineralized material from Dome Mountain is processed under a long-term milling agreement with Nicola Mining. Beginning in H2 2026, the Company plans to reinvest internally generated cash flow into near-mine and regional exploration to further expand its resource base on its extensive property.
 
- EFSE
+ With a strong commitment to sustainability, community, and First Nation engagement, Blue Lagoon’s objective is to be a profitable, cash-flowing gold producer while creating lasting value for shareholders and stakeholders alike.
 
- 59% of respondents expect their overall sales revenue to increase in the next one to two years.33% of respondents believe that, compared with traditional electronic products and appliances, consumers are willing to pay a premium of 11% to 20% for products that support smart home or artificial intelligence applications.
+ The Company is not basing its production decision at Dome Mountain on a feasibility study of mineral reserves demonstrating economic and technical viability. The production decision is based on having existing mining infrastructure, past bulk sampling and processing activity, and the established mineral resource. The Company understands that there is increased uncertainty, and consequently a higher risk of failure, when production is undertaken in advance of a feasibility study.
 
- [1]Source: Omdia Market Radar: General-purpose Embodied Intelligent Robots, 2026, published on 8 January 2026.
+ The CSE has not reviewed and does not accept responsibility for the adequacy or accuracy of this release.
 
- Photo download: https://bit.ly/3Qt7Fd3
+ Forward-Looking Statement
 
- Websites
+ This news release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws. Forward-looking statements include, but are not limited to, statements regarding future gold and silver prices, production levels, cash-flow generation, operational expansion, permitting amendments, infrastructure enhancements, exploration potential, and the Company’s plans, objectives, and expectations for future operations at the Dome Mountain Gold and Silver Project. Forward-looking statements are based on management’s current expectations and assumptions, including assumptions regarding commodity prices, operating conditions, regulatory approvals, availability of labour and equipment, and continued support from stakeholders, including Indigenous partners. Forward-looking statements involve known and unknown risks, uncertainties, and other factors that may cause actual results or events to differ materially from those expressed or implied by such statements. These risks include, but are not limited to, changes in commodity prices, operational and technical challenges, regulatory or permitting delays, environmental risks, changes in laws or government policy, availability of financing, and general economic and market conditions. Readers are cautioned not to place undue reliance on forward-looking statements. The Company does not undertake any obligation to update or revise forward-looking statements, except as required by applicable securities laws.
 
- InnoEX: innoex.hktdc.com/en
-
- Hong Kong Electronics Fair (Spring Edition): hkelectronicsfairse.hktdc.com/en
-
- Media enquiries
-
- Yuan Tung Financial Relations:
-
- Salina Cheng Tel: (852) 3428 2362 Email: salcheng@yuantung.com.hk
-
- Tiffany Leung Tel: (852) 3428 2361 Email: tleung@yuantung.com.hk
-
- HKTDC’s Communications & Public Affairs Department:
-
- Stanley So Tel: (852) 2584 4049 Email: stanley.hp.so@hktdc.org
-
- Navin Law Tel: (852) 2584 4525 Email: navin.cm.law@hktdc.org
-
- Serena Cheung Tel: (852) 2584 4272 Email: serena.hm.cheung@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/innoex-and-electronics-fair-spring-edition-attract-over-88-000-global-buyers-7086393)
+[Original/Source Press Release](https://www.newmediawire.com/news/blue-lagoon-reaches-100-tonnes-per-day-milestone-doubles-production-crew-with-second-mining-contractor-and-advances-toward-150-tonnes-per-day-7086394)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-tech-fairs-draw-88k-global-buyers-showcase-ai-robotics-innovation/63c4c64f95553435a325a6c3ffe2e773) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-lagoon-hits-100-tonne-daily-gold-production-doubles-crew-for-expansion/8c9a501997809bd9197d562c82cd8917) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/blue-lagoon-resources-achieves-100-tonnes-daily-production-at-do/202631009)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/426805-blue-lagoon-resources-achieves-100-tonnes-per-day-production-at-dome-mountain-mine-expands-toward-150-tonnes-target)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340398-blue-lagoon-resources-erreicht-100-tonnen-pro-tag-produktion-in-der-dome-mountain-mine-und-strebt-150-tonnen-ziel-an)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341202-blue-lagoon-resources-alcanza-produccion-de-100-toneladas-diarias-en-la-mina-dome-mountain-y-avanza-hacia-la-meta-de-150-toneladas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341764-blue-lagoon-resources-atteint-une-production-de-100-tonnes-par-jour-a-la-mine-dome-mountain-et-vise-desormais-lobjectif-de-150-tonnes)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340366-blue-lagoon-resources-atinge-producao-de-100-toneladas-por-dia-na-mina-dome-mountain-e-avanca-para-meta-de-150-toneladas)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/blue-lagoon-resources-achieves-production-milestone-and-expands/202631009)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/426815-blue-lagoon-resources-achieves-100-tonnes-daily-production-doubles-mining-crew-at-dome-mountain)
+
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/202604/426857-blue-lagoon-resources-achieves-100-tonnes-per-day-production-at-dome-mountain-mine)
+
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/202604/341769-blue-lagoon-resources-atteint-une-production-de-100-tonnes-par-jour-a-la-mine-dome-mountain)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/202604/426858-blue-lagoon-resources-achieves-100-tonnes-per-day-production-at-dome-mountain-mine)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/17/swiml_KG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/17/fernwHvz.webp)
