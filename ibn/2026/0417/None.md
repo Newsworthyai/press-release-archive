@@ -1,18 +1,10 @@
-# AINewsBreaks – HeartBeam Inc. (NASDAQ: BEAT) Closes $10 Million Public Offering to Advance Cardiac Technology Commercialization
+# Study Finds AI Medical Diagnosis Errors Exceed 80%
 
-HeartBeam (NASDAQ: BEAT) announced the closing of its underwritten public offering of 12.5 million shares of common stock, generating gross proceeds of $10 million before expenses, with the transaction completed on April 16, 2026. The offering, supported by key stakeholders including ClearCardio(TM), company leadership and institutional investors, will fund commercialization of HeartBeam’s FDA-cleared 12-lead synthesized ECG system, further development of its extended-wear patch and heart attack detection technologies, expansion of AI capabilities and general corporate purposes
+A new study suggests that generative AI has yet to develop the level of reasoning required for safe use in clinical settings. While recent systems show stronger performance when given detailed patient information, researchers found they still struggle with one of the most critical aspects of medical decision-making.
 
- To view the full press release, visit https://ibn.fm/9iNYY
+ Developers of cutting-edge tech software and hardware, like D-Wave Quantum Inc. (NYSE: QBTS), may not be surprised by these findings since AI models are only as…
 
- About HeartBeam, Inc.
-
- HeartBeam, Inc. (NASDAQ: BEAT) is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar directions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024 and the 12-lead ECG synthesis software in December 2025(1). The Company holds over 20 issued patents related to technology enablement.
-
- NOTE TO INVESTORS: The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
-
- (1)Cleared Indications for Use
-
- The HeartBeam System with 12-Lead ECG synthesis software for arrhythmia assessment received FDA clearance in December 2025. Refer to the Company’s Cleared Indications for Use at https://www.heartbeam.com/indications for details on the intended use of its technology.
+ Read More>>
 
  About AINewsWire
 
@@ -26,41 +18,27 @@ HeartBeam (NASDAQ: BEAT) announced the closing of its underwritten public offeri
 
  Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
+ AINewsWireLos Angeles, CAwww.AINewsWire.com310.299.1717 OfficeEditor@AINewsWire.com
 
  AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-heartbeam-inc-nasdaq-beat-closes-10-million-public-offering-to-advance-cardiac-technology-commercialization/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/study-finds-ai-medical-diagnosis-errors-exceed-80/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-raises-10m-to-advance-revolutionary-portable-cardiac-monitoring-tech/23432a45516a8a1e9a4563d84274ce90) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-diagnostic-errors-exceed-80-in-medical-settings-study-finds/271f28d451e5b52a63ddf42c87b11da3) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/heartbeam-secures-10-million-in-public-offering-to-accelerate-ca/202631012)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/study-reveals-ai-medical-diagnosis-error-rates-exceed-80-highlig/202631033)
 
-Pickup - [https://burstable.news](https://burstable.news/news/202604/426834-heartbeam-secures-10-million-in-public-offering-to-accelerate-cardiac-technology-commercialization)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/427070-study-reveals-ai-medical-diagnosis-error-rates-exceed-80-highlighting-critical-safety-concerns)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340401-heartbeam-sichert-sich-10-millionen-us-dollar-in-offentlichem-angebot-zur-beschleunigung-der-kommerzialisierung-von-herztechnologie)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341205-heartbeam-obtiene-10-millones-en-oferta-publica-para-acelerar-la-comercializacion-de-tecnologia-cardiaca)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341767-heartbeam-leve-10-millions-de-dollars-lors-dune-offre-publique-pour-accelerer-la-commercialisation-de-sa-technologie-cardiaque)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340369-heartbeam-levanta-us-10-milhoes-em-oferta-publica-para-acelerar-comercializacao-de-tecnologia-cardiaca)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/heartbeam-secures-10-million-in-public-offering-to-advance-cardi/202631012)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heartbeam-secures-10-million-in-public-offering-to-accelerate-ca/202631012)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/426853-heartbeam-secures-10-million-in-public-offering-to-accelerate-commercialization-of-ai-enhanced-cardiac-monitoring-technology)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/426822-heartbeam-completes-10-million-public-offering-to-fund-cardiac-technology-commercialization)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/427075-study-reveals-generative-ai-lacks-critical-reasoning-for-clinical-safety)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/17/wallSQTK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/17/pinkHX65.webp)
