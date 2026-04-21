@@ -1,25 +1,13 @@
-# One Good Story Project Launches to Counter Negative News
+# KROK Thai Emerges as One of Chinatown Las Vegas’ Most Talked-About Dining Destinations
 
-San Diego, CA (Newsworthy.ai) Tuesday Apr 21, 2026 @ 2:00 AM Pacific — One Good Story Project, an innovative media platform founded by Rob Burns, announces its official launch, aiming to provide an alternative to the prevalent negative media narratives. Established during the Covid lockdown, the project seeks to shift focus from divisive content to stories that embody empathy and compassion.
-
- Rob Burns conceived the idea for One Good Story Project during a personal reflection period amidst the pandemic. Observing a cultural shift towards division, Burns was inspired to showcase stories of everyday individuals who use empathy to make a positive impact in their communities. "I knew there was more to our story than just division and anger," Burns stated. "People are exhausted from all this drama and are starving to see better examples."
-
- The project highlights examples like interior decorators transforming homeless shelters into welcoming homes, significantly increasing retention rates, and individuals expressing appreciation, creating profound emotional impacts on recipients.
-
- Burns emphasizes the importance of these narratives, noting, "Think of it as a palate cleanser for the relentless doom and gloom we are constantly fed." Through these uplifting stories, Burns hopes to inspire others to contribute positively to society, fostering a ripple effect akin to the butterfly effect.
-
- Located in San Diego, California, One Good Story Project serves as a conduit for stories that celebrate humanity's better angels. With each film, the project not only enriches its audience but also contributes to Burns' personal growth.
-
- For more information about One Good Story Project, visit their platform and discover stories that encourage positive change.
-
- About One Good Story ProjectBased in San Diego, CA, One Good Story Project is committed to highlighting narratives that inspire empathy, compassion, and positive societal contributions. Founded by Rob Burns, the project serves as a refreshing alternative to negative media, showcasing everyday heroes and their impactful stories. 
+Las Vegas (Newsworthy.ai) Tuesday Apr 21, 2026 @ 8:00 AM Pacific — In a corridor known for its culinary depth and diversity, [KROK Thai Social Restaurant](https://www.kroksocial.com)is quickly separating itself from the pack. The restaurant has emerged as one of the most talked-about dining destinations in [Chinatown Las Vegas](https://chinatownvegas.com/restaurants-las-vegas-chinatown2026/), drawing locals and tourists alike with its vibrant atmosphere and elevated take on traditional Thai cuisine. Located just minutes from the Las Vegas Strip on Spring Mountain Road, KROK Thai is redefining what guests expect from a Thai restaurant. Chef TK, with a background in luxury hotels and Michelin-starred collaborations, leads KROK Thai in offering a menu that marries authentic Thai flavors with modern Wagyu Khao Soi, crab fried rice, and panang curry, all signature dishes, highlight bold flavors and premium ingredients in visually stunning presentations perfect for sharing.sharing. The concept leans into a social dining experience where food, ambiance, and energy come together, making it a popular choice for group dinners, date nights, and late-night outings. As Chinatown Las Vegas continues to evolve into one of the most dynamic dining corridors in the country, KROK Thai represents a new wave of concepts blending cultural authenticity with experiential dining. It is part of the district’s ongoing rise as a destination not just for great food, but for memorable, high-energy dining experFueled by word-of-mouth, social media buzz, and glowing reviews, KROK Thai stands as a must-visit on Spring Mountain Road.corridor. KROK Thai is also preparing to celebrate its first anniversary early next month, with details expected to be announced soon. For more information, visit KROK Thai Social Restaurant on Spring Mountain Road or follow the restaurant on social media for upcoming announcements. Media Contact: [Chinatown Vegas](https://chinatownvegas.com) [Email Contact](https://newsworthy.email/post/3c0d0a85775eeac8978e9a3a97726e8d-2362) About [ChinatownVegas.com](https://chinatownvegas.com/) [ChinatownVegas.com](https://chinatownvegas.com/) is the leading digital media platform covering the Spring Mountain corridor, delivering real-time news, business spotlights, and community-driven storytelling for one of the fastest-growing cultural districts in the country. This release was distributed in partnership with Vegas Amplify, a marketing and PR agency 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604212381/one-good-story-project-launches-to-counter-negative-news)
+[Original/Source Press Release](https://newsworthy.ai/news/202604212362/krok-thai-emerges-as-one-of-chinatown-las-vegas-most-talked-about-dining-destinations)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/one-good-story-project-launches-to-counter-negative-media-with-empathy/790cb997b2d5439f04095ae07723ff19) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/krok-thai-social-restaurant-elevates-las-vegas-dining-scene-in-chinatown/9ccb1872f48c9892bb2fd5416fcf3bb9) 
 
  
 
@@ -27,4 +15,4 @@ San Diego, CA (Newsworthy.ai) Tuesday Apr 21, 2026 @ 2:00 AM Pacific — One Goo
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/21/yarnpvRq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/21/swim0c9C.webp)

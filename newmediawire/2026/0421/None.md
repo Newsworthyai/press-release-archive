@@ -1,98 +1,76 @@
-# Andina Copper Reports Step-Out Porphyry Cu-Mo Results
+# GivBux Advances AI-Powered Super App Strategy With Dual Architecture Designed to Drive Engagement and Monetization
 
-VANCOUVER, BC - April 21, 2026 (NEWMEDIAWIRE) - Andina Copper Corporation (TSX-V: ANDC | FSE: FIR | OTCQB: PMMCF) is pleased to report an outstanding drill intercept from CDH007, the second hole completed from a new step-out drill pad at the Cobrasco Project in Chocó, Colombia.
+NEWPORT BEACH, CA - April 21, 2026 (NEWMEDIAWIRE) - GivBux Inc. (OTCID: GBUX) (“GivBux” or the”Company”), a publicly traded Super App and charitable giving platform, today announced it is developing a next-generation artificial intelligence (AI) architecture designed to fundamentally enhance how users interact with its platform. The AI platform combines voice-driven engagement with predictive intelligence to increase transaction activity and long-term user value.
 
- Following the high-grade Cu-Mo intersections reported in recent drillholes CDH003 to CDH005 (refer March 24, 2026 News Release), a new step-out drill pad was collared to test the continuity and extension of the Cobrasco Central mineralized system to the northwest. Drillhole CDH006 was drilled to the southwest along this new section line intersecting 232m @ 0.68% Cu, 75ppm Mo, 2 g/t Ag from 38m (refer April 14, 2026 News Release). Hole CDH007 was drilled from the same pad to the northeast, in a section line parallel to previous holes CDH001 and CDH004.
+ As artificial intelligence continues to redefine consumer applications, platforms that successfully integrate both conversational interfaces and embedded intelligence are increasingly capturing disproportionate share of user engagement and digital spending. GivBux is building its Super App to operate across both dimensions, what users actively experience and what works continuously in the background to influence behavior.
 
- Results from CDH007 further expand the Cobrasco Central Cu-Mo porphyry system to the northwest and closely mirror those of CDH006, with near-surface mineralization commencing at 44m and continuing uninterrupted to 324m where a fault zone terminates the mineralized host unit and grades decrease. Two additional holes have been subsequently drilled from the same platform, with extensive visible mineralization observed in both holes and assay results pending.
+ The company’s AI roadmap is centered on a dual architecture that integrates a visible, voice-enabled assistant with an embedded intelligence layer designed to operate silently and contextually.
 
- HIGHLIGHTS:
+ GivBux AI: Conversational Interface
 
- * Hole CDH007 intercept confirms a significant extension of shallow Cu-Mo mineralization to the northwest continuous on section with hole CDH006:
+ GivBux AI, which the Company is integrating into its platform, represents the user-facing intelligence layer. Accessible upon login, the system enables voice-activated communication, conversational chat, real-time responses and streamlined execution of key actions within the app.
 
- 292m @ 0.48% Cu, 62ppm Mo, 1.7g/t Ag from 44m
+ This functionality is designed to reduce friction, simplify navigation and create a more intuitive user experience, which allows users to interact with the platform in a natural, conversational manner.
 
- * Additional step-out drillholes CDH008 (completed) and CDH009 (in progress) have been drilled from the same pad to test extensions to mineralization in north and northwest orientations respectively, with assays pending for both holes.
-* Ongoing program of scout drilling continues to rapidly expand the mineralized footprint at Cobrasco Central, with every drillhole completed to date reporting significant porphyry Cu-Mo mineralized intercepts from surface or near-surface to depths of approximately 600m.
-* Drillholes completed to date demonstrate a potentially world-class copper porphyry complex, comprising multiple intrusive phases, subvolcanic flow-domes and mineralization events occurring at (or near) surface.
-* The current drillhole defined Cu-Mo mineralized footprint now measures approximately 1,000m x 500m, remains open in all directions and is expected to expand further with results from CDH008 and CDH009.
-* High-grade intervals reported to date will be targeted with a 2nd drill rig.
+ GivBux Intelligent: Predictive Engagement Engine
 
- Andina Copper’s President and CEO Joseph van den Elsen commented:
+ Currently in development, GivBux Intelligent represents the next phase of the company’s AI strategy. This background intelligence layer is designed to deliver contextual insights and drive user action without requiring direct interaction.
 
- “We continue to rapidly advance a wide-spaced scout drilling programme and actively extend the limits of the Cobrasco Central system. Incredibly, after only 7 drillholes the Cu-Mo mineralization footprint already covers an area of 1,000 x 500m, continues to grow with each drillhole and remains open in all directions. Step-out drillholes CDH008 and CDH009 are expected to further extend the drillhole defined mineralization footprint.
+ The system is expected to generate dynamic insight cards on the home screen, surfacing timely and relevant prompts such as activating cashback opportunities, completing reward thresholds or optimizing purchasing behavior. Rather than functioning as a traditional chatbot, this intelligence layer is designed to operate invisibly, appearing only when actionable value is identified.
 
- "Our team will continue to test the limits of mineralization and preparations are underway for the mobilization of a second drill rig. A second drill rig will support both the testing of further mineralized targets and the delineation of the high-grade mineralization intersected in each of the widely spaced scout holes completed to date.”
+ By embedding predictive intelligence directly into the user experience, GivBux expects to increase engagement, improve conversion rates and enhance user retention.
 
- Figure 1: Cobrasco Project Collar Plan showing drill traces and Cu-mineralization histograms.
+ Future Development: Real-Time AI and Machine Learning Integration
 
- Geology and Mineralization - Drillhole CDH007
+ In a subsequent phase, the company plans to introduce advanced AI agents capable of real-time, two-way voice communication alongside enhanced machine learning capabilities. This evolution is intended to further personalize the user experience and continuously optimize engagement and transaction pathways.
 
- Previous drillhole CDH006 was the first of multiple holes from a large step-out collar position designed to test the NW-extensions of the Cobrasco Central mineralization footprint and was collared approximately 400m NW of the previous drill pad (CDH002 – CDH005), and approximately 300m SW of CDH001. CDH006 was drilled parallel to CDH001 and CDH004 and was notable in intersecting a near-surface (shallow) and continuous moderate to high grade Cu-Mo mineralized interval commencing at 38m over a span of 232m (refer Table 1: Cobrasco Project - Significant Drill Intercepts).
+ GivBux intends to provide additional updates as these capabilities move toward full deployment.
 
- Hole CDH007 (Az: 45o Dip: -70º Depth: 603m) was the second hole to be drilled from this drill pad, oriented to drill parallel to CDH006 but trending NE along a SW-NE section line. Its relatively steep 70o dip allowed it to test approximately 565m vertically and 205m horizontally.
+ Strategic Positioning
 
- Mineralization observed in CDH007 is broadly consistent with that intersected in CDH006 and is dominated by chalcopyrite hosted within structurally prepared zones, including strong argillic alteration in near-surface saprolite and clay-rich fault gouge, transitioning to phyllic and grey-green sericite (GGS) alteration in more competent core intervals, with bornite occurring sporadically as disseminations and as rims to chalcopyrite mineralization.
+ GivBux believes its dual AI architecture represents a differentiated approach within the fintech landscape. While many platforms deploy either conversational AI or algorithmic recommendation engines, GivBux is integrating both into a unified ecosystem.
 
- Figure 2: Oblique 3D view of all drillholes at the Cobrasco Project (view looking East).
+ This approach allows the platform to combine active user interaction with passive intelligence - creating an environment that not only responds to users, but anticipates needs and influences behavior in real time. The result is a more intelligent, responsive and monetizable platform positioned at the intersection of fintech, artificial intelligence and consumer engagement.
 
- CDH007 is mineralized from surface, reporting subdued grades generally in the 0.10 – 0.20% Cu range and with strong saprolite development to 48m. This depth marks the start of strongly fractured rhyolitic porphyry that extends to 218m containing a continuous high-grade interval punctuated by local microdiorite xenoliths and fault zones with high clay and sulphide content. A discrete interval of daci-andesite is contained between 218-237m and is accompanied by a corresponding decrease in Cu-grades before returning to rhyolitic porphyry and moderate to high Cu-grades to a depth of 254m.
+ GivBux Founder, Ken Jones, said, “Our vision is to create an intelligent financial ecosystem that works with the user and for the user. By combining a voice-driven assistant with predictive intelligence, we are building a platform designed to increase engagement, drive transactions and deliver long-term value.”
 
- Figure 3: Hole CDH007 - Selection of mineralization and alteration examples in upper 336m moderate-high grade mineralized interval.
+ Market Opportunity
 
- 254m marks the first occurrence of magmatic breccias with associated high-grade assays greater than 1% Cu. Two intervals of breccias are recorded (254-284m and 292-324m) where the host exhibit intense A-veins as stockwork veining and chalcopyrite (Cpy) as fault gouge and fracture fill. The main alteration is sericitic superimposed on remnant potassic alteration.
+ The adoption of AI across financial services and digital commerce is experiencing rapid, high-growth expansion, with both sectors moving from experimental AI to operational AI-driven ecosystems. The global AI in Finance market is projected to grow from roughly USD 38 billion in 2024 to over USD 190 billion by 2030. Simultaneously, the AI-enabled Digital Commerce market is forecast to grow at a CAGR of over 20%, with some projections placing it over USD 60 billion by 2034.
 
- The end of the magmatic-hydrothermal brecciation in the drill hole is marked by a faulted contact at 324m, below which an intermediate composition dacitic-andesitic intrusive unit is present. This unit extends to 436m and is characterized by a marked decrease in Cu-Mo grades. A subsequent fault zone between 436m and 445m separates the dacitic-andesitic unit from a poorly mineralized phaneritic granodiorite to tonalite intrusion carrying abundant magnetite veins. This intrusive unit was intersected to the end of the hole at 603m.
+ Platforms that integrate AI into daily consumer workflows are increasingly positioned to capture greater share of digital activity and wallet spend. GivBux’s AI development strategy is aligned with these trends, focusing on both conversational engagement and predictive intelligence to drive sustained growth.
 
- The Company’s Corporate Presentation is available at: Andina Copper Corporate Presentation
+ About GivBux, Inc.
 
- Interested parties can subscribe to our mailing list and follow our social media channels in the links below:
+ The GivBux Super App revolutionizes shopping by offering a user-friendly tool to make purchases swiftly and easily at over 100 national retailers, along with an expanding roster of local merchants. Users earn cash back on every purchase, a portion of which can be directed towards a charity of their choice, embodying GivBux Inc.’s commitment to "give back."
 
- Mailing List | Andina Copper LinkedIn | Andina Copper X | Andina Copper Instagram
+ The GivBux Super App is free to use and available now at Google Play Store (Android) and the Apple App Store (IOS). The GivBux Super App is constantly evolving and adding new enhancements and functionalities, including social networking, e-commerce, banking, messaging, food delivery and transportation.
 
- ON BEHALF OF THE BOARD
+ GivBux is forging a new path in ecommerce and charitable giving and aspires to build the largest community of givers, first in the United States and eventually worldwide. For more details and regular updates, visit https://givbux.com.
 
- Joseph van den ElsenPresident & Chief Executive Officerjoseph@andinacopper.com
+ Forward-Looking Statements
 
- Jordan WebsterVP – Technical Communicationsjordan@andinacopper.com
+ This press release contains “forward-looking statements.” Although the forward-looking statements in this release reflect the good faith judgment of management, forward-looking statements are inherently subject to known and unknown risks and uncertainties that may cause actual results to be materially different from those discussed in these forward-looking statements. Readers are urged to carefully review and consider the various disclosures made by GivBux, Inc. in our reports filed with the Securities and Exchange Commission, including the risk factors that attempt to advise interested parties of the risks that may affect our business, financial condition, results of operation and cash flows. If one or more of these risks or uncertainties materialize, or if the underlying assumptions prove incorrect, our actual results may vary materially from those expected or projected. Readers are urged not to place undue reliance on these forward-looking statements, which speak only as of the date of this release. We assume no obligation to update any forward-looking statements in order to reflect any event or circumstance that may arise after the date of this release. The Company intends that all statements included herein, including those referring to future revenues and earnings, be subject to the "Safe Harbors" provision of the Private Securities Litigation Reform Act of 1995.
 
- QUALIFIED PERSON
+ Contact:Investor RelationsEmail: ir@Givbux.comwww.GivBux.comInstagram: https://www.instagram.com/givbux/X (formerly Twitter): https://twitter.com/givbux
 
- Francisco Montes, a consultant of Andina Copper Corp and a “qualified person” (“QP”) within the definition of that term in National Instrument 43-101, Standards of Disclosure for Mineral Projects, has reviewed and approved the technical information contained in this news release. Francisco Montes is a member of Australian Institute of Geoscientists (MAIG #4160).
-
- QAQC
-
- CDH007 was collared with a PQ size drill string to a depth of 153m and continued with HQ/HQ3 to a final depth of 603.00m. In all cases the drill core was extracted from the core barrel by the drill contractor under the supervision of Andina Copper personnel and placed in core boxes with appropriate depth markers (core blocks) and padding added for extra protection during transport. Full core boxes were then sealed before being transported by helicopter and pickup truck to the Cobrasco core cutting facility in Quibdó. Core was cleaned where required, marked-up and photographed, prior to undergoing geotechnical and geological logging. All core was cut by diamond saw by Andina Copper technicians, other than the top saprolite intervals that could be cut and sampled by hand tools. All sampling was conducted in nominal 2m intervals with cut-lines marked by the supervising geologists to ensure representative sampling. Samples were placed in plastic bags with non-repeatable sample tags and bagged in polyweave sacks ready for transport.
-
- The core trays with the remaining half-core are stored at the Andina Copper facility in Quibdó for ongoing geotechnical (Terraspec spectral analysis, magnetic susceptibility readings, rock density measurements) and follow-up detailed geological logging. From Quibdó, core samples were sent to the ALS preparation facility in Medellin, an accredited laboratory which is independent of the Company. Prepared sample pulps were then sent to the ALS laboratory in Lima, Peru for gold (Au-AA23), multi-elements (ME-MS61), and “overlimits” analysis (ME-OG62 including copper Cu-OG62). Coarse and fine rejects are returned by ALS Medellin for storage at the Andina Copper storage facility.
-
- Table 1: Cobrasco Project – Significant Drill Intercepts.
-
- Table 2: Cobrasco Project – Drill Collar Parameters (WGS84, UTM Zone 18N).
-
- ABOUT ANDINA COPPER
-
- Andina Copper Corporation is a unique South America-focused copper explorer listed on the TSX Venture Exchange (TSXV: ANDC), Frankfurt (FSE: FIR), and OTC (OTCQB: PMMCF) exchanges. The Company holds two significant discoveries along the world’s premier copper producing Andean porphyry belt in Argentina and Colombia, and a compelling undrilled copper-gold target in the prolific copper production district of the Coastal Cordillera of Chile.
-
- FORWARD-LOOKING STATEMENT
-
- This news release contains certain statements that may be deemed "forward-looking statements". All statements in this release, other than statements of historical fact, that address events or developments that Andina Copper expects to occur, are forward-looking statements. Forward-looking statements are statements that are not historical facts and are generally, but not always, identified by the words "expects" and similar expressions, or that events or conditions "will" or "may" occur. These statements are subject to various risks. Although Andina Copper believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are no guarantee of future performance, and actual results may differ materially from those in forward-looking statements.
-
- Neither the TSXV nor the Canadian Investment Regulatory Organization accepts responsibility for the adequacy or accuracy of this release.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/andina-copper-reports-step-out-porphyry-cu-mo-results-7086444)
+[Original/Source Press Release](https://www.newmediawire.com/news/givbux-advances-ai-powered-super-app-strategy-with-dual-architecture-designed-to-drive-engagement-and-monetization-7086445)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/andina-copper-s-colombian-project-expands-with-major-292m-copper-intercept/a0d74390d866ab9f265a25fae53c573a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/givbux-unveils-dual-ai-architecture-to-power-its-super-app-and-drive-engagement/91c62502b81e6fdb8f498ff9b4f0cf24) 
 
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/427340-givbux-unveils-dual-ai-architecture-to-transform-user-engagement-and-drive-financial-transactions)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/21/urge6B_r.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/21/noonQa34.webp)
