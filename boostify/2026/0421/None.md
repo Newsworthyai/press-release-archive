@@ -1,39 +1,49 @@
-# Taking Biomass to Market: Phi Earth and Sana Fortis Launch Pilot for Regenerative Fuel Systems
+# If Oklahoma City Wins The Championship, Your Mattress Is Free!
 
-Phi Earth Technologies and Sana Fortis have partnered to launch a biomass pilot program in Singapore and Malaysia, integrating Phi Trees™ with high-yield HTG Grass to create a scalable, regenerative agroforestry model. By combining Phi Earth's bio-digital technology with Sana Fortis' agronomic expertise, the initiative aims to establish a high-performance biomass platform for the energy and industrial sectors that restores soil health while maximizing land productivity. This collaboration underpins a broader strategy to deploy sustainable feedstock systems across Southeast Asia, bridging the gap between restorative agriculture and the growing global demand for renewable energy and carbon-linked materials.
+With excitement growing around Oklahoma City basketball, Bob Mills Furniture is offering customers in Oklahoma City and Tulsa the chance to get their mattress free if the Oklahoma City team wins the championship.
 
- Phi Earth Technologies, a bio-digital technology company developing regenerative biomass systems, has partnered with Sana Fortis, a specialist in tropical forage and animal feed systems, to launch a pilot focused on deploying scalable biomass pathways for energy and industrial use. The initiative marks a key step in translating regenerative agroforestry systems into real-world fuel and material applications, as industries seek viable alternatives to conventional fossil-based inputs.
+ There's a different kind of energy building across Oklahoma right now, and Bob Mills Furniture is finding a way to be part of it.
 
- The pilot will combine Phi Earth's Phi Trees™ (enhanced Paulownia) with HTG Grass, a fast-growing, high-yield biomass crop widely used in bioenergy and livestock systems. The collaboration is focused on improved understanding of how integrated agroforestry systems can be optimized at scale. By bringing together Phi Earth's technology with Sana Fortis' established agricultural systems, the pilot will explore new ways of improving productivity while restoring soil health and making more efficient use of land and resources. For both companies, this is an opportunity to test how their respective strengths can come together to create more resilient and commercially viable agricultural models. More broadly, the initiative reflects a growing shift in the industry toward solutions that can deliver consistent biomass supply while supporting long-term environmental sustainability.
+ With excitement growing around Oklahoma City basketball, Bob Mills Furniture is offering customers in Oklahoma City and Tulsa the chance to get their mattress free if the Oklahoma City team wins the championship.
 
- "Our focus has always been on building high-performance tropical crop systems," said Simon Denby, Head of Agronomy at Sana Fortis. "Working with Phi Earth allows us to extend that into integrated models that improve productivity while strengthening long-term resilience."
+ "This is a fun moment for Oklahoma," said Bob Mills, owner of Bob Mills Furniture. "You can feel it in OKC, you can feel it in Tulsa. People are paying attention, talking about the games, and we wanted to give them a way to be part of it."
 
- "This pilot is about rethinking how land can work harder and more intelligently," said Theo Davies, Founder of Phi Earth. "By combining our approach with Sana Fortis' expertise, it changes how biomass, energy, and agriculture come together."
+ How It Works:
 
- HTG Grass was selected for its rapid growth and versatility across biomass markets, including bioenergy, silage, and soil regeneration. When paired with Phi Trees™, the system is expected to create a dual-output biomass platform capable of supporting multiple value chains from renewable energy to carbon-linked applications.
+ Customers who purchase any mattress at Bob Mills Furniture in Oklahoma City or Tulsa during the promotional period are eligible. If the Oklahoma City basketball team wins the championship, those purchases are refunded.
 
- Under the MOU, Sana Fortis will provide land access, field operations, and local inputs, while Phi Earth will deploy its proprietary Phi Tech™ platform, including biological treatments, technical protocols, and monitoring systems. Both parties will collaborate on pilot design, execution, and data analysis to ensure robust, actionable results. The collaboration also allows for potential expansion into additional crops, supporting broader application across Southeast Asia's agricultural landscape.
+ There are no complicated steps. Customers simply visit the store, find the right mattress, and take part in the promotion.
 
- As demand for sustainable biomass and regenerative agriculture solutions accelerates globally, this partnership positions Phi Earth and Sana Fortis to develop next-generation feedstock systems that align productivity with climate and land restoration goals.
+ Tapping Into the Moment:
 
- About Phi Earth Technologies Pte. Ltd.
+ Across Oklahoma City and Tulsa, the excitement has been hard to miss. From watch parties to conversations at work and home, the buzz has carried into everyday life.
 
- Phi Earth is a Singapore-based bio-digital technology company advancing agroforestry, biomass, and energy systems through its Phi Tech™ platform to enhance plant performance, restore soil health, and support climate-resilient agriculture.
+ At the same time, buying a mattress is one of those decisions people tend to put off. This promotion gives shoppers a reason to move now, turning something practical into something a little more exciting.
 
- About Sana Fortis Sdn Bhd
+ Inside Bob Mills Furniture, customers will find an exciting selection of mattresses, from budget-friendly options to more premium comfort levels. Whether someone is looking for a king mattress, a queen set, or just starting their mattress search, the goal is to make the process simple and comfortable.
 
- Sana Fortis is a Malaysia-based agricultural and biomass development company focused on delivering sustainable, commercially viable solutions across the region's evolving bioeconomy.
+ Customers should take advantage of BedMatch®, a system designed to take the guesswork out of mattress shopping. Using 18 statistical measurements and thousands of calculations, BedMatch® helps match each person to the right mattress for proper support and comfort. The process only takes a few minutes and gives shoppers added confidence in their choice.
 
- Media ContactAndrea Pradana, Phi Earth Technologies Pte. Ltd., 65 66816422, [email protected], https://phiearth.com/Hector Ingram, Sana Fortis Sdn Bhd, [email protected]
+ About Bob Mills Furniture:
 
- SOURCE Phi Earth Technologies Pte. Ltd. 
+ Bob Mills Furniture has been family-owned since 1971, built on a simple idea. Take care of people, focus on quality, and make the experience easy.
+
+ With locations across Oklahoma, Texas, and Kansas, the company offers a wide selection of furniture and mattresses designed for real homes and everyday life. From living room and bedroom furniture to mattresses and home accents, the focus is on helping customers find what works for them without the pressure.
+
+ In Oklahoma City and Tulsa, customers will find furniture stores designed to feel comfortable from the moment they walk in. Shoppers can take their time, explore different options, and get help when they need it. It is a straightforward way to shop for furniture and mattresses, built around how people actually want to buy.
+
+ Media Contact
+
+ Rebecca Sites, Bob Mills Furniture, 1 405-947-6500, [email protected], https://www.bobmillsfurniture.com/
+
+ SOURCE Bob Mills Furniture 
 
 ---
 
-[Original/Source Press Release](https://boositfypr.com/news/taking-biomass-to-market-phi-earth-and-sana-fortis-launch-pilot-for-regenerative-fuel-systems)
+[Original/Source Press Release](https://boositfypr.com/news/if-oklahoma-city-wins-the-championship-your-mattress-is-free)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/phi-earth-sana-fortis-launch-biomass-pilot-for-sustainable-energy-in-southeast-asia/b589e11278089cb880e263e52d84fb4b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bob-mills-furniture-bets-on-okc-win-the-title-get-your-mattress-free/ed401489f89939a544084ed7bb8ed69e) 
 
  
 
