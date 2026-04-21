@@ -1,36 +1,38 @@
-# Snapchat Slashes 1,000 Jobs Saying AI is Taking Over Repetitive Tasks
+# 420 with CNW — Idaho MMJ Ballot Initiative Supporters Have 100k Signatures as Deadline Looms
 
-Snapchat’s parent company, Snap Inc., has announced a major round of layoffs, cutting about 1,000 jobs, which is around 16 percent of its workforce. The company is also removing hundreds of open job listings as it shifts its focus toward a leaner and more efficient way of operating. This decision reflects a growing trend in the tech industry where companies are turning to artificial intelligence to handle routine tasks that were once done by humans.
+Backers of a proposed medical marijuana measure in Idaho say they have surpassed 100,000 collected signatures and are now racing to meet an April 30 deadline that would place the issue before voters in November.
 
- When tech startups like AI Maverick Intel Inc. (OTC: AIMV) incorporate AI from the get-go, the message is clear: the jobs of the future are…
+ Advocates for marijuana policy reform, as well as industry actors like TerrAscend Corp. (TSX: TSND) (OTCQX: TSNDF), hope that efforts to…
 
  Read More>>
 
- About TechMediaWire
+ About CNW420
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/snapchat-slashes-1000-jobs-saying-ai-is-taking-over-repetitive-tasks/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-idaho-mmj-ballot-initiative-supporters-have-100k-signatures-as-deadline-looms/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/snapchat-cuts-1000-jobs-as-ai-replaces-human-tasks/fa56eb8748fb039da2a78b2075c8f51f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/idaho-medical-marijuana-initiative-hits-100k-signatures-nears-ballot-deadline/a038d968fbacd1369e18d6f9d26b3de4) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202604/427271-idaho-medical-marijuana-initiative-surpasses-100000-signatures-nears-april-deadline-for-november-ballot)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/20/glue1uF2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/20/cornlEWc.webp)
