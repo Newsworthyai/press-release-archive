@@ -1,44 +1,44 @@
-# PsychedelicNewsBreaks – Optimi Health Corp. (CSE: OPTI) (OTCQX: OPTHF) (FSE: 8BN) Launches Ibogaine Initiative Amid U.S. Policy Shift
+# RockBreaks – Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) Advances Amidst a New Critical Minerals Race
 
-This article has been disseminated on behalf of Optimi Health Corp. and may include paid advertising.
+Disseminated on behalf of Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) and may include paid advertising.
 
- Optimi Health (CSE: OPTI) (OTCQX: OPTHF) (FSE: 8BN) announced the launch of its Ibogaine Initiative to expand its Health Canada-licensed GMP manufacturing platform to include ibogaine production and supply, aligning with emerging U.S. regulatory momentum to accelerate psychedelic research and patient access. The move follows a recent U.S. executive order supporting clinical development and access pathways, including IND clearance for ibogaine trials, as Optimi positions itself to meet anticipated demand with regulated, pharmaceutical-grade supply while advancing its broader global strategy in MDMA and psilocybin therapies.
+ Exploration companies such as Powermax Minerals (CSE: PMAX) (OTCQB: PWMXF) are advancing REE projects in Canada and the United States, all of which are in a position to benefit from growing geopolitical pressures. A recent article discussing this reads, “The push to diversify rare earth supply is gaining momentum. Policymakers in the United States and Canada have begun directing public funding toward domestic mining and processing capacity, including grants and long-term procurement commitments tied to national security. The urgency of that effort has grown as tensions rise between Washington and Beijing over trade, technology and geopolitical alignment. If China further restricts rare earth exports, particularly in response to global conflicts or sanctions, the ripple effects could hit sectors ranging from semiconductor manufacturing to aerospace.”
 
- To view the full press release, visit https://ibn.fm/CMDVt
+ To view the full article, visit https://ibn.fm/Ow2Pt
 
- About Optimi Health Corp.
+ About Powermax Minerals Inc.
 
- Optimi Health Corp. (CSE: OPTI) (OTCQX: OPTHF) (FSE: 8BN) is a leading producer of prescribed psychedelic treatments for mental health therapies. As a Health Canada-licensed, GMP compliant pharmaceutical manufacturer producing validated MDMA and botanical psilocybin products from two 10,000-square-foot facilities in British Columbia, Optimi supplies active pharmaceutical ingredients and finished dosage forms to regulated channels, with products currently in market for prescription use in Australia via the Authorized Prescriber Scheme and accessible in Canada through the Special Access Program.
+ Powermax Minerals is a Canadian mineral exploration company focused on advancing rare earth element projects. The company holds an option to acquire the Cameron REE Property, comprising three mineral claims totaling approximately 2,984 hectares in British Columbia. Powermax also optioned to acquire the Atikokan REE Property, consisting of 455 unpatented mining claims in NW Ontario. Powermax also owns a 100% interest in the Ogden Bear Lodge Project, in Crook County, Wyoming.
 
- For more information, please visit www.optimihealth.ca
+ NOTE TO INVESTORS: The latest news and updates relating to PWMXF are available in the company’s newsroom at https://ibn.fm/PWMXF
 
- About PsychedelicNewsWire
+ About Rocks & Stocks
 
- PsychedelicNewsWire (“PNW”) is a specialized communications platform with a focus on all aspects of psychedelics and the latest developments and advances in the psychedelics sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, PNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, PNW brings its clients unparalleled recognition and brand awareness. PNW is where breaking news, insightful content and actionable information converge.
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS alerts from PsychedelicNewsWire, text “Groovy” to 888-902-4192 (U.S. Mobile Phones Only)
+ R&S is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.PsychedelicNewsWire.com
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the PsychedelicNewsWire website applicable to all content provided by PNW, wherever published or re-published: https://www.PsychedelicNewsWire.com/Disclaimer
+ For more information, please visit https://RocksAndStocks.news
 
- PsychedelicNewsWireAustin, Texaswww.PsychedelicNewsWire.com512.354.7000 OfficeEditor@PsychedelicNewsWire.com
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
 
- PsychedelicNewsWire is powered by IBN 
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/pnw/psychedelicnewsbreaks-optimi-health-corp-cse-opti-otcqx-opthf-fse-8bn-launches-ibogaine-initiative-amid-u-s-policy-shift/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-powermax-minerals-inc-cse-pmax-otcqb-pwmxf-advances-amidst-a-new-critical-minerals-race/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/optimi-health-launches-ibogaine-initiative-amid-u-s-regulatory-shift/27edcbc39fe11dec07d2933e7fc46e12) 
-
-
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202604/427385-optimi-health-expands-psychedelic-manufacturing-platform-to-include-ibogaine-production)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powermax-minerals-advances-rare-earth-projects-amid-geopolitical-shifts/87201105b523ba41b84330a2bae86476) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/21/herbhf4Z.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/21/quizeeix.webp)

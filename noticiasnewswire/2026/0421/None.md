@@ -1,52 +1,57 @@
-# 80% of Americans Ignore Important Calls Out of Fear of Scams, New Truecaller Survey Finds
+# Denny’s Battle Cat-Themed Masters of The Universe™ Mobile Diner Roars Across America
 
-STOCKHOLM, SWEDEN — April 21, 2026 — (NOTICIAS NEWSWIRE) — Truecaller, the leading global platform for safe and trusted communication, today released findings from its new 2026 Phone Fraud & AI Threat Survey, revealing that AI-powered scams have moved well beyond an emerging threat and are now costing people money, eroding trust and leaving consumers so wary of scam attempts that many are avoiding phone calls and text messages altogether.
+SPARTANBURG, SC — April 21, 2026 — (NOTICIAS NEWSWIRE) — Denny’s is ROAR-ing cross-country with a custom-wrapped Masters of the Universe™ Mobile Diner, created in partnership with Mattel, Inc. and Amazon MGM Studios. This coast-to-coast activation kicked off in Spartanburg today as the truck loaded up and hit the road out to Los Angeles for fan fueled activations leading up to the movie hitting theaters on June 5.
 
- The survey examined how AI-powered scams are reshaping the way Americans communicate and what’s at stake when trust in everyday phone calls and texts breaks down. Americans were asked about their firsthand experiences with scam calls and texts, their awareness of AI and deepfake tactics, the financial toll of falling victim, and whether they feel adequately protected.
+ This truck is destined to turn heads on the highway, with its colorful and detailed tractor and trailer wrapped to resemble a giant, roaring Battle Cat – the loyal, armored green tiger steed of He-Man. The 53-foot tractor trailer has a fully functional commercial kitchen, including ovens, grills, a walk-in cooler and a commercial coffee maker, and it can serve thousands at each stop.
 
- Fear and AI Are Hampering Everyday Communication
+ “At Denny’s, we believe every meal should feel like a victory. By bringing the world of Eternia to life through our Mobile Diner, we’re giving fans a chance to experience the power of Grayskull beyond our restaurant booths,” said Chris Bode, President & CEO, Denny’s. “This journey is our way of celebrating the fans whose passion has kept this legend alive, rewarding their loyalty with epic prizes as we charge toward the Masters of the Universe premiere. We’re calling on all heroic warriors to spot us, capture the roar, and fuel up for the most legendary adventure in diner history.”
 
- 75% of respondents report being targeted by a scam call or text in the past 12 months, and 84% say they are more concerned about the threat today than a year ago. The impact on everyday behavior is alarming: 82% say they have ignored important calls or texts out of fear it was a scam, a sharp rise from 59% in Truecaller’s 2024 survey. For the 33% of respondents who say calls and texts are “very” or “critically” important to their work, this avoidance comes with real professional consequences.
+ Fans who want the full experience with the truck are invited to Fiesta Broadway on April 26 in Los Angeles. This is one of the largest Cinco de Mayo celebrations in the country – bringing thousands together for a full day of music, culture, and community. Denny’s has been a sponsor of Fiesta Broadway for years as part of its commitment to fostering connection and meaningfully engaging with communities. This year, Denny’s is expanding its presence at the event and providing an immersive experience to bring to life the Masters of the Universe partnership, including FREE tastings of the new Masters of the Universe menu items, photo opportunities and movie swag.
 
- “People are no longer just screening spam — they’re screening out real life,” said Clayton LiaBraaten, senior executive advisor at Truecaller. “When people miss calls from doctors, schools, clients and family members because they can’t tell what’s real, this stops being a nuisance. It becomes a trust crisis.”
+ Hear the Roar, Score Diner Deals To unleash the excitement of Eternia, Denny’s is inviting fans who spot the Denny’s Masters of the Universe Mobile Diner on its journey to share a picture of the truck using #roarinacrossUSA, follow and tag @dennysdiner, and use #iagree after reviewing Denny’s User Generated Content terms at dennys.com/UGC. Participants will receive exclusive diner deals, including Free Eternia Everyday Value Slams and Free Skeletor’s Dark Shakeverse milkshakes, available on a first-come, first served basis, the ultimate bounty for anyone with a Battle Cat-sized appetite.
 
- AI-powered scams are no longer hypothetical – they’re happening. In the past 12 months, 30% of respondents received a deepfake voice call impersonating a family member, celebrity or political figure that felt more convincing than any scam they had previously encountered.
+ Here’s How to Enter**:
 
- The Financial Damage Is Real, and AI Is Making It Worse
+ * Follow @dennysdiner
+* Post a picture of the Denny’s Masters of the Universe Mobile Diner
+* Agree to Denny’s User Generated Content terms
+* Post with #roarinacrossUSA and #iagree
+* Tag @dennysdiner
 
- With 78% of respondents knowing AI is being used against them, the threat has moved beyond awareness into real financial harm. In the past 12 months, one in four respondents fell victim to a scam that cost them money, with 7% losing more than $250. The data shows that AI is a significant factor in who gets deceived. Among respondents who lost money, 53% had received a deepfake voice call, compared to just 22% of those who were targeted but did not lose money.
+ Looking for the Denny’s Masters of the Universe Mobile Diner? Find it on its route from South Carolina to California*:
 
- The survey also found that identity theft has surpassed direct financial loss as the top concern for the coming year. This anxiety is compounded by a lack of preparedness. Half of the respondents admit they would not know the exact steps to take to protect their identity or recover lost funds if targeted today.
+ * April 21-22: Spartanburg, S.C. to Memphis, Tenn.
+* April 22-23: Memphis, Tenn. to Oklahoma City, Okla.
+* April 23-24: Oklahoma City, Okla. to Albuquerque, N.M.
+* April 24-25: Albuquerque, N.M. to Los Angeles, Calif.
 
- Consumers Feel Exposed and Unprotected
+ Legendary Swag In addition to its Masters of the Universe menu items, Denny’s has dropped legendary co-branded swag for its biggest fans. New themed t-shirts are now available on DinerDrip, including “By the Power of Grayskull I Have the Pancakes” and “Defeat Your Cravings.” Available in limited quantities, while supplies last.
 
- Distrust in institutional safeguards compounds the problem. 75% of respondents say the U.S. government is not adequately protecting consumers from AI-driven scams, and 39% say recent regulatory changes, including shifts in funding and staffing for the Consumer Financial Protection Bureau, have undermined their confidence in scam-prevention efforts. Taken together, the findings paint a picture of a public that feels increasingly unprotected.
+ *Weather and traffic may affect the exact locations.
 
- Yet even as institutional trust erodes, most people aren’t filling the gap with additional tools. 63% say they do not use any third-party app or service beyond their carrier’s built-in tools to block scam calls or texts. When asked what matters most in a protection solution, respondents ranked automatic blocking of fraudulent calls first, followed by unknown caller identification — two functions where default tools often fall short.
+ **No purchase necessary. To be eligible, participants must follow and tag @dennysdiner, post a picture of the Denny’s Masters of the Universe Mobile Diner, review and agree to Denny’s User Generated Content terms located at www.dennys.com/UGC, and use hashtags #roarinacrossUSA and #iagree. Eligible participants will receive a coupon code via DM on a first-come, first-served basis, while supplies last. Limit one coupon per guest. Offer available from April 22, 2026 – June 8, 2026, or until all coupons have been distributed, whichever occurs first. Denny’s reserves the right to verify eligibility and disqualify entries that are incomplete, fraudulent, or do not comply with these terms. This promotion is not sponsored, endorsed, or administered by any social media platform. Void where prohibited. Sponsor reserves the right to modify or terminate the promotion at any time.
 
- “What we’re witnessing is a full-blown communication paralysis crisis where millions of people are so afraid of being scammed that they’ve stopped answering their phones altogether,” said LiaBraaten. “As AI grows in sophistication and makes scams more convincing, default tools simply can’t keep up. People deserve tools that evolve faster than the threats they face, and our mission is to build trust in communication and help people know who’s really on the other end to restore confidence in picking up the phone.”
+ About Denny’s Corp. Denny’s is a Spartanburg, S.C. – based family dining restaurant brand that has been welcoming guests to our booths for more than 70 years. Our guiding principle is simple: We love to feed people. Denny’s provides craveable meals at a meaningful value across breakfast, lunch, dinner, and late night. Whether it’s at our brick-and-mortar locations, via Denny’s on Demand (the first delivery platform in the family dining segment), or at The Meltdown, Banda Burrito, and The Burger Den, our three virtual restaurant concepts, Denny’s is ready to delight guests whenever and however they want to order. Our longstanding commitment to supporting our local communities in need is brought to life with our Mobile Relief Diner (that delivers hot meals to our neighbors during times of disaster), Denny’s Hungry for Education™ scholarship program, our annual fundraiser with long-time-partner No Kid Hungry, and our new partnership supporting Cookies for Kids’ Cancer in their mission to fund research for new, improved and less toxic treatments for kids facing cancer.
 
- Scammers rely on urgency and fear to override good judgment, and slowing down remains one of the most effective defenses available. Truecaller, which is used by more than 500 million users worldwide, always recommends that consumers download a trusted caller ID application, never share sensitive personal or financial information over the phone, avoid clicking unknown links in text messages, register with the Do Not Call list, report any fraudulent call and take time to verify the identity of any caller before responding. To learn more, visit www.truecaller.com.
+ Denny’s is one of the largest franchised full-service restaurant brands in the world, based on the number of restaurants. As of December 31, 2025, the Denny’s brand consisted of 1,438 global restaurants, 1,376 of which were franchised and licensed restaurants and 62 of which were company-operated. This includes 164 restaurants in Canada, Costa Rica, Curacao, El Salvador, Guam, Guatemala, Honduras, Mexico, New Zealand, the Philippines, Puerto Rico, the United Arab Emirates, and the United Kingdom.
 
- About the Survey The Truecaller 2026 Phone Fraud & AI Threat Survey is based on an online survey of 1,614 U.S. adults conducted by Centiment from Feb. 20 to March 17, 2026. Additional survey findings are available from Truecaller Insights.
+ To learn more about Denny’s, please visit our brand website at www.dennys.com or the brand’s social channels via Facebook, X, Instagram, TikTok, LinkedIn or YouTube.
 
- About Truecaller Truecaller is an essential part of everyday communication for over 500 million active users worldwide, with more than one billion downloads since launch and 68 billion spam and fraud calls identified in 2025 alone. The company is headquartered in Stockholm and has been publicly listed on Nasdaq Stockholm since October 2021. For more information, visit www.truecaller.com.
+ For media assets click HERE
 
- CONTACT: Erica Torres erica.torres@moburst.com Uproar by Moburst for Truecaller 
+ CONTACT: Denny’s Media Team 864-597-8005 media@dennys.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/new-truecaller-survey/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/dennys-battle-cat-themed-masters-of-the-universe/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-scams-cause-communication-paralysis-cost-americans-millions/877563c29fafb58775d43d396e648e0b) 
-
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/202604/427387-truecaller-survey-reveals-ai-powered-scams-are-causing-communication-paralysis-and-financial-harm)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/denny-s-launches-masters-of-the-universe-mobile-diner-on-epic-cross-country-tour/1fa549ddb618dc3f9db1fc7025179b69) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/264/21/rubyxEZN.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/264/21/hintzp8K.webp)
