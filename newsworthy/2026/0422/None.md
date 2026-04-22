@@ -1,62 +1,63 @@
-# HR Leaders Join Forces to Advance Total Rewards and Performance-Driven Compensation
+# Discover Precision Medicine at Functional Longevity Summit Dallas 2026
 
-Jacksons Point, Ontario, Canada (Newsworthy.ai) Wednesday Apr 22, 2026 @ 9:00 AM Eastern — 
+Dallas, TX (Newsworthy.ai) Wednesday Apr 22, 2026 @ 3:00 PM Eastern — The Functional Longevity Summit Dallas 2026, hosted by Boston BioLife, will take place May 15-17, 2026 at the Hilton Anatole, convening physicians, clinicians, and healthcare innovators at the intersection of precision medicine, regenerative therapies, and practice optimization.
 
- The HR Research Institute has formed its 2026 Compensation and Total Rewards Advisory Board, bringing together senior HR leaders, compensation experts, and performance specialists to guide upcoming research and a virtual event on the topic of compensation and benefits.
+ This three-day medical education event showcases the latest longevity science advancements and equips providers with actionable strategies to enhance patient outcomes and business performance.
 
- As organizations face pressure to improve pay transparency, link pay to performance, manage costs, and adapt to advances in AI and analytics, the board will help shape research on how compensation and total rewards can more directly support business strategy and talent outcomes.
+ The Functional Longevity Summit introduces a new model for medical conferences, offering a clinical and operational training environment, unlike traditional biohacking events. The focus extends beyond exposure to new technologies and therapies. It emphasizes:
 
- The board will guide the upcoming virtual event with research-backed insights on evolving total rewards strategies - helping HR leaders attract, retain, and motivate critical talent through more agile, data-driven, performance-aligned compensation approaches.
+ * Practical implementation in real-world clinical settings
+* Revenue and profit optimization for longevity-focused practices
+* Integration of multiple modalities into cohesive treatment systems
 
- HR.com's Future of Compensation and Total Rewards Virtual EventAugust 5, 2026
+ Featured Experts and Innovators The Dallas 2026 summit is expected to include contributions from leading voices in longevity science and clinical innovation, including:
 
- [REGISTER for FREE]
+ * Dr. Aimee Duffy
+* Dr. Bill Andrews
+* Dr. Jeffrey Gross
 
- The newly formed 2026 Compensation and Total Rewards Advisory Board features these distinguished experts:
+ These experts represent a range of disciplines across functional medicine, regenerative therapies, and advanced longevity research.
 
- * Edelynne Austria-Gavino, Compensation Manager, Qualcomm
-* Lisa Barry, Compensation Consultant, Cornerstone Compensation Partners
-* Mary Bissette-Clarke, Senior Director, Human Resources - Global Benefits, Siemens Canada
-* Emily DuPont, Compensation Manager, NFI Industries
-* Chris Fusco, SVP Compensation, Research and Content Creation, Salary.com
-* Gail Greenfield, EVP of Total Rewards Strategy and Solutions, Trusaic
-* Stephanie Martin, Senior Director, HR Operations & Total Rewards, SpringWorks Therapeutics
-* Tom McMullen, Senior Client Partner and Total Rewards Expertise Leader, Korn Ferry
-* Kim Taylor, Compensation Consulting Director, USI Insurance Services
-* Eric Tuch, Executive Director, Total Rewards, Octave
-* Lauren Winans, CEO, Principal HR Consultant, Next Level Benefits
+ Participating Brands and Technologies The summit is also expected to feature companies and solution providers across the longevity and regenerative medicine ecosystem, including:
 
- “Compensation and total rewards are no longer just support functions; they’re central to how organizations drive performance and compete for talent,” said Debbie McGrath, CEO of HR.com. “This panel will ensure HR leaders have the insights they need to connect rewards strategy directly to business impact.”
+ * Kimera Labs
+* Life Armour
+* OxyHealth
+* Regenerative Lifespan
+* Mavrix Profit System
 
- The HR Research Institute releases annual “State of the Industry” reports in a variety of HR topic areas, including last year’s research report, HR.com’s Future of Compensation and Total Rewards 2025-26, covering the same topic.
+ These organizations reflect a broader shift in the industry: combining clinical innovation with scalable business infrastructure.
 
- This and other free research reports and infographics can be downloaded at hr.com/researchinstitute.
+ Key Clinical and Business Topics The summit's curriculum covers high-impact areas in medicine and practice growth: Advanced Diagnostics, Personalized Therapies, Regenerative Medicine, Energy-Based Modalities, and Practice Integration.
 
- About HR.com and the HR Research Institute The #1 source for HR research-read by more HR professionals than any other! The HR Research Institute (HRRI), powered by HR.com, identifies key trends and best practices to help more than 2 million HR professionals and their organizations make strategic decisions with informed and insightful research findings.
+ Many providers are exposed to technologies without clear guidance on:
 
- The HRRI has published hundreds of high-quality reports across a wide array of HR topics. HR.com’s free membership offers many benefits, including access to over 300 exclusive primary research, state-of-the-industry reports, and infographics. These resources are published based on surveys developed with the assistance of a panel of thought leaders and industry experts on the advisory boards. Visit hr.com/hrresearchinstitute to maximize your HR potential. #hrresearchinstitute
+ * How to integrate them into workflows
+* How to combine modalities effectively
+* How to build a financially sustainable model
 
- Become a part of HR.com’s HR research influencer panel today! Participate in surveys, share your insights, and earn rewards!
+ The Functional Longevity Summit aims to address that gap directly.
 
- HR.com Newsroom 
+ Who Should Attend * Physicians, nurse practitioners, and physician assistants
+* Functional and integrative medicine practitioners
+* Longevity and anti-aging specialists
+* Clinic owners and healthcare entrepreneurs
+
+ Event Details Event: Functional Longevity Summit Dallas 2026Dates: May 15-17, 2026Location: Hilton Anatole, Dallas, TXHost: Boston BioLifeWebsite: https://dallas.regenmedworkshops.com
+
+ About the Functional Longevity Summit The Functional Longevity Summit is a practitioner-focused educational platform advancing precision, functional, and regenerative medicine through immersive, hands-on training. By combining clinical education with real-world implementation and business strategy, the summit is designed to help providers translate innovation into measurable patient outcomes and scalable practice growth. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604222385/hr-leaders-join-forces-to-advance-total-rewards-and-performance-driven-compensation)
+[Original/Source Press Release](https://newsworthy.ai/news/202604222384/discover-precision-medicine-at-functional-longevity-summit-dallas-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-leaders-form-2026-advisory-board-to-revolutionize-compensation-strategies/fc22f73f35d651c679b589f63d899a3c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/functional-longevity-summit-2026-bridging-innovation-and-clinical-practice/737266d64aeff23456e6f532797d0322) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hr-leaders-form-advisory-board-to-shape-future-of-compensation-a/202631158)
-
-Pickup - [https://boostifypr.com](https://boostifypr.com/news/202604/428489-hr-leaders-form-advisory-board-to-shape-future-of-compensation-strategies)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202604/428514-hr-leaders-form-advisory-board-to-shape-future-of-compensation-and-total-rewards-strategies)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/22/knotmP9c.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/22/veilj7AE.webp)

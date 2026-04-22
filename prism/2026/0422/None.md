@@ -1,80 +1,82 @@
-# SKYX Signs Additional Agreement with Prominent European Development Group to Deploy and Market Its Technologies to Vast European Hospitality Market of Over 132,000 Hotels
+# PRISM MarketView Spotlights Eight Public Companies Driving the Clean Economy on Earth Day 2026
 
-During the Course of the Agreement the Prominent European Development Group OTT Heritage Hospitality Expects toMarket and Deploy SKYX’s Disruptive Technologies into Hundreds of European Hotels, Buildings and Developments
-
- Throughout the Term of the Agreement Prominent Developer and SKYX Expect to Deploy and Market Hundreds of Thousands of Products into Massive European Hospitality Market
-
- 124,000 Hotel Rooms are Projected to Open in Europe in 2026, with Over 250,000 Additional Rooms in the Development Pipeline Industry-Wide
-
- Through Its Platform and Network, OTT Heritage Hospitality Provides Access to a Broad Pipeline of Hospitality Projects Across Europe and Intends to Actively Market and Facilitate the Adoption of SKYX’s Technologies Across a Range of Hotel, Building, and Development Opportunities Leveraging Significant Time and Cost Efficiencies of Up to 90%
-
- SKYX’s Technologies are Expected to Offer Long-Term Recurring Revenue Opportunities Through Monitoring, Subscriptions, and AI Services, in Addition to Product Upgrades, Interchangeability and Platform-Wide Integrations for Future Development
+Spotlight features small and mid-cap names spanning power generation, storage, electric mobility, charging, electric aviation, and environmental remediation
 
  
 
- MIAMI, April 22, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – SKYX Platforms Corp. (NASDAQ: SKYX) (d/b/a SKYX Technologies) (the “Company” or “SKYX”), an award winning highly disruptive advanced and smart home and AI platform technology company with over 100 U.S. and global pending and issued patents and a portfolio of 60 lighting and home décor websites, with a mission to make homes and buildings become advanced-safe-smart instantly as the new standard, today announced that it has entered into an agreement with OTT Heritage Hospitality, a prominent European developer, to deploy and market its technologies across the vast European hotel chains segment and buildings.
+ NEW YORK, April 22, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – PRISM MarketView, the financial media platform serving active retail and self-directed investors, today marked Earth Day with a spotlight on eight public companies advancing the clean economy across power generation, storage, electric mobility, charging, electric aviation, and environmental remediation. The featured names are drawn from the PRISM Emerging New Energy Index, the PRISM Emerging EV Index, and the PRISM Emerging AI Datacenter and Infrastructure Index.
 
- This agreement marks a significant step in SKYX’s global expansion strategy as it continues to advance its mission to make hotels, homes, and buildings smarter, safer, and advanced.
+ Data center electricity demand is climbing, policy support for domestic clean infrastructure has held, and the companies behind the U.S. clean energy build-out are showing measurable progress in public markets. The eight names featured here reflect that breadth, from grid-scale infrastructure to consumer-facing technology. Each was selected for its role in a specific layer of the clean economy supply chain.
 
- Under the agreement, SKYX’s advanced and smart home and building technologies are expected to penetrate the vast European hotel market with over 132,000 hotels with hundreds of thousands of additional rooms in the development pipeline in addition to residential and commercial projects throughout Europe.
+ The feature is part of PRISM’s ongoing coverage of emerging growth sectors and thematic indexes tracking the convergence of energy, infrastructure, and technology.
 
- During the course of the agreement SKYX and OTT Heritage Hospitality expect to deploy and market SKYX’s disruptive technologies to hundreds of European hotels, buildings and developments with the aim of deploying hundreds of thousands of units across European hotel and real estate developments.
+ Featured Companies Bloom Energy (NYSE: BE) — Power Generation
 
- OTT Heritage Hospitality provides its platform and network as well as access to a broad pipeline of hospitality projects across Europe and intends to actively market and facilitate the adoption of SKYX’s technologies across a range of hotel, building, and development opportunities, leveraging the significant time and cost efficiencies of up to 90% provided by SKYX’s technologies.
+ Bloom manufactures solid-oxide fuel cells that generate electricity on-site without combustion. As AI and data center load growth strains the U.S. power grid, distributed clean generation is becoming structurally important rather than supplemental. Bloom is one of the few public companies with a deployed, commercial-scale platform addressing this demand.
 
- “As a long-time developer of hotel and real estate projects, I see a tremendous opportunity in marketing and facilitating the penetration of SKYX’s highly disruptive technologies into hotels and real estate projects across Europe. By leveraging significant time and cost efficiencies of up to 90% for hotel renovations as well as new builds, we can enable properties to become smarter, safer, and more technologically advanced”.
+ Fluence Energy (NASDAQ: FLNC) — Energy Storage
 
- Jean-François Ott, Founder of OTT Heritage Hospitality
+ Fluence designs and deploys utility-scale battery storage systems. Storage is the technology that resolves the intermittency problem in solar and wind, and without it the renewable transition stalls. Fluence sits among the largest pure-play storage integrators in the public markets.
 
-Rani Kohen, Founder and Executive Chairman of SKYX Platforms, said; “This partnership marks a significant step in our global expansion strategy as we continue with our goal and mission to advance hotels, homes, and buildings by making them smarter and safer. We look forward to partnering with such an established European hotel and real estate developer”.
+ Clearway Energy (NYSE: CWEN) — Renewables Operator
 
- Rani Kohen, Founder and Executive Chairman of SKYX Platforms
+ Clearway owns and operates a portfolio of U.S. wind, solar, and storage assets under long-term contracts. The operator layer is often overlooked in clean energy coverage, but it is where renewable generation actually meets the grid and produces revenue. Clearway represents the operating economics of the transition rather than the technology bet.
 
- For more information about OTT Heritage Hospitalityclick here: www.ottheritagehospitality.com
+ Sunrun (NASDAQ: RUN) — Distributed Solar
 
- For more information about SKYX click here: www.skyx.com
+ Sunrun is the largest U.S. residential solar and storage provider. Distributed generation matters because it reduces transmission losses, builds grid resilience, and puts clean power decisions in the hands of consumers. Sunrun’s virtual power plant programs are an early example of how home batteries can function as distributed grid infrastructure.
 
- About SKYX Platforms Corp.
+ Rivian Automotive (NASDAQ: RIVN) — Electric Vehicles
 
- As electricity is a standard in every home and building, our mission is to make homes and buildings become safe-advanced and smart as the new standard. SKYX has a series of highly disruptive advanced-safe-smart platform technologies, with over 100 U.S. and global patents and patent pending applications. Additionally, the Company owns 60 lighting and home decor websites for both retail and commercial segments. Our technologies place an emphasis on high quality and ease of use, while significantly enhancing both safety and lifestyle in homes and buildings. We believe that our products are a necessity in every room in both homes and other buildings in the U.S. and globally. For more information, please visit our website at https://www.skyx.com/ or follow us on LinkedIn.
+ Rivian designs and manufactures electric trucks, SUVs, and commercial delivery vans. Transportation is the largest source of U.S. greenhouse gas emissions, and the segments Rivian targets, including pickup trucks and delivery fleets, are among the hardest to electrify. If Rivian can make an electric pickup work commercially, it answers one of the harder questions about whether EVs can move beyond urban sedans into the segments where U.S. consumers purchase most vehicles.
 
- Forward-Looking Statements
+ ChargePoint Holdings (NYSE: CHPT) — EV Charging Infrastructure
 
- Certain statements made in this press release are not based on historical facts, but are forward-looking statements. These statements can be identified by the use of forward-looking terminology such as “aim,” “anticipate,” “believe,” “can,” “could,” “continue,” “estimate,” “expect,” “evaluate,” “forecast,” “guidance,” “intend,” “likely,” “may,” “might,” “objective,” “ongoing,” “outlook,” “plan,” “potential,” “predict,” “probable,” “project,” “seek,” “should,” “target” “view,” “will,” or “would,” or the negative thereof or other variations thereon or comparable terminology, although not all forward-looking statements contain these words. These statements reflect the Company’s reasonable judgment with respect to future events and are subject to risks, uncertainties and other factors, many of which have outcomes difficult to predict and may be outside our control, that could cause actual results or outcomes to differ materially from those in the forward-looking statements. Such risks and uncertainties include statements relating to the Company’s ability to successfully launch, commercialize, develop additional features and achieve market acceptance of its products and technologies and integrate its products and technologies with third-party platforms or technologies; the Company’s ability to achieve positive cash flows; the Company’s efforts and ability to drive the adoption of its products and technologies as a standard feature, including their use in homes, hotels, offices and cruise ships; the Company’s ability to capture market share; the Company’s estimates of its potential addressable market and demand for its products and technologies; the Company’s ability to raise additional capital to support its operations as needed, which may not be available on acceptable terms or at all; the Company’s ability to continue as a going concern; the Company’s ability to execute on any sales and licensing or other strategic opportunities; the possibility that any of the Company’s products will become National Electrical Code (NEC)-code or otherwise code mandatory in any jurisdiction, or that any of the Company’s current or future products or technologies will be adopted by any state, country, or municipality, within any specific timeframe or at all; risks arising from mergers, acquisitions, joint ventures and other collaborations; the Company’s ability to attract and retain key executives and qualified personnel; guidance provided by management, which may differ from the Company’s actual operating results; the potential impact of unstable market and economic conditions on the Company’s business, financial condition, and stock price; and other risks and uncertainties described in the Company’s filings with the Securities and Exchange Commission, including its periodic reports on Form 10-K and Form 10-Q. There can be no assurance as to any of the foregoing matters. Any forward-looking statement speaks only as of the date of this press release, and the Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by U.S. federal securities laws.
+ ChargePoint operates one of the largest EV charging networks in North America and Europe. Charging availability is the most frequently cited barrier to mass EV adoption, which makes the companies building the network one of the more important and least discussed layers of the EV transition. ChargePoint is among the most direct public market exposures to that work.
 
- Investor Relations Contacts:
+ Joby Aviation (NYSE: JOBY) — Electric Aviation
 
- Jeff RamsonPCG Advisoryjramson@pcgadvisory.com
+ Joby is developing an electric vertical takeoff and landing aircraft for commercial passenger service. Aviation is one of the most difficult sectors to decarbonize through conventional means, and electric aircraft represent one of the few credible paths for short-haul flight. Of the handful of electric aircraft companies trading publicly, Joby is the closest to actually flying paying passengers, a distinction that matters in a sector where most competitors are still years from commercial operation.
 
- Ronald A. BothEncore Investor Relationsrb@encore-ir.com
+ 374Water (NASDAQ: SCWO) — Environmental Remediation
 
- Source: SKYX Platforms Corp.
+ 374Water has commercialized supercritical water oxidation, a process that destroys PFAS, organic waste, and other persistent contaminants. PFAS regulation is tightening across federal and state agencies, and existing destruction methods are limited. 374Water represents a remediation technology category that is becoming increasingly relevant to public health and environmental policy.
 
- The latest news and updates relating to $SKYX are available in the company’s newsroom at: https://tinyurl.com/skyxnewsroom
+ The featured companies are included across PRISM’s thematic indexes tracking emerging growth trends in energy, mobility, and infrastructure.
+
+ About PRISM MarketView
+
+ PRISM MarketView is a financial media platform covering emerging growth companies and sector innovation across public markets. Through original editorial, video features, and executive Q&A content, PRISM provides timely market intelligence and expanded visibility for high-potential companies. The platform maintains a suite of proprietary indexes tracking momentum across sectors including AI infrastructure, biotech, space, precious metals, NextGen Tech and AI, and psychedelics, among others. Learn more at www.prismmarketview.com.
+
+ PRISM MarketView does not provide investment advice.
+
+ Contact:
+
+ PRISM MarketView
+
+ info@prismmarketview.com
+
+ 646-863-6341
+
+ Source: PRISM MarketView
 
  Add PRISM MediaWire as your preferred news source on Google
 
  
 
- The post SKYX Signs Additional Agreement with Prominent European Development Group to Deploy and Market Its Technologies to Vast European Hospitality Market of Over 132,000 Hotels first appeared on Prism Media Wire. 
+ The post PRISM MarketView Spotlights Eight Public Companies Driving the Clean Economy on Earth Day 2026 first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/skyx-signs-additional-agreement-with-prominent-european-development-group-to-deploy-and-market-its-technologies-to-vast-european-hospitality-market-of-over-132000-hotels/)
+[Original/Source Press Release](https://prismmediawire.com/prism-marketview-spotlights-eight-public-companies-driving-the-clean-economy-on-earth-day-2026/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/skyx-partners-with-european-developer-to-transform-hotels-with-smart-tech/ff2c0b7847c6e45764bbce208b8a4784) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prism-marketview-spotlights-8-public-companies-driving-clean-economy-on-earth-day/71ca0a436f4f11c9ebb388bb1bc4ea6f) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/skyx-platforms-expands-european-presence-through-hospitality-tec/202631172)
-
-Pickup - [https://boostifypr.com](https://boostifypr.com/news/202604/428474-skyx-platforms-expands-european-presence-through-hospitality-technology-partnership)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202604/428500-skyx-platforms-expands-european-presence-through-partnership-with-ott-heritage-hospitality)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/22/daveO7mu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/22/paleVgc6.webp)
