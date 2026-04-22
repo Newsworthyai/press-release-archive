@@ -1,42 +1,44 @@
-# Demanlink Unveils Sarawak's First Telecommunications Smart Pole in Siburan and Debuts Its First Built-to-Suit Tower in Bintulu
+# Austad's Golf Expands Premium Offering Across the Upper Midwest With New PXG Partnership
 
-Milestone Deployments Strengthen 5G Connectivity, Enhance Digital Access in Urban Developments and Transport Networks
+SIOUX FALLS, SD - April 22, 2026 (NEWMEDIAWIRE) - Austad’s Golf, a premier golf retailer and Top 100 custom fitting destination, today announced a new partnership with PXG (Parsons Xtreme Golf), a global leader in high-performance golf equipment and innovation. Beginning April 21, Austad’s will offer PXG clubs at all of its retail locations across the Upper Midwest, delivered through its expert custom fitting experience.
 
- SARAWAK, MALAYSIA - April 22, 2026 (NEWMEDIAWIRE) - Demanlink Connexion Sdn. Bhd. (“Demanlink”), a Sarawak-based telecommunications infrastructure company, today announced the successful deployment of two tailored connectivity solutions for communities in Siburan and Bintulu. The Company deployed Sarawak’s first telecommunications smart pole, a multi-function street infrastructure in Siburan, and Demanlink’s first built-to-suit (B2S) site in Kampung Jepak, Bintulu. Both solutions comprise future-ready 5G equipment and serve to enhance connectivity coverage in the state’s growing urban areas and transport networks.
+ The partnership marks a key step in PXG’s strategic retail expansion, extending access to its tour-proven equipment through select partners who can deliver the brand’s fitting-first approach at scale. Austad’s will serve as a certified regional partner, bringing PXG’s technology to golfers across Nebraska, Iowa, South Dakota, North Dakota, and Minnesota. Through Austad’s award-winning, data-driven fitting process, PXG’s technology will be precisely fit to help golfers of all abilities play better.
 
- Situated at the heart of Taman Impiana, Siburan, the smart pole delivers seamless 5G connectivity for residents and commuters in the area. Its compact, multi-functional design supports 5G-ready equipment and enables co-location for multiple Mobile Network Operators (MNOs), optimizing infrastructure use and network coverage. It also functions as a lamp pole, enhancing visibility for both drivers and pedestrians alike.
+ “This is a huge moment for us and for golfers in the Midwest,” said Ryan Austad, President of Austad’s Golf. “PXG has built an incredible reputation for innovation, and we’re excited to pair that with what we believe is the best custom fitting experience in golf. When you combine PXG’s technology with a true fitting process, the results can be game-changing.”
 
- In addition, Demanlink’s maiden B2S site in Kampung Jepak, Bintulu will deliver seamless network coverage for the surrounding residential and commercial areas as well as a nearby transport network. The new telecommunications site is also strategically located close to six schools and Technical and Vocational Education and Training (TVET) centres, enabling students and educators to access digital learning platforms and online educational resources with high-speed connectivity. The tower is also expected to strengthen mobile coverage along nearby stretches of the Pan Borneo Highway, improving connectivity, navigation and safety for users of the state’s key transport corridor.
+ “This is about access without compromise,” said Brad Schweigert, Chief Operating Officer at PXG. “As we continue to grow, we’re intentional about partnering with retailers who deliver the fitting experience the right way, combining product knowledge, advanced fitting capabilities, and a commitment to helping golfers play better. Austad’s shares our fitting-first philosophy and is well positioned to deliver the experience PXG is known for.”
 
- Hanad Yusuf, Chief Executive Officer of Demanlink, said, “Technology is a powerful socioeconomic catalyst. These deployments are about more than coverage. They are about giving communities in Siburan and Bintulu the digital foundation to participate in Sarawak's growth. As the state works toward its 2030 digital economy ambitions, Demanlink's role is to make that infrastructure a reality, one community at a time."
+ With the addition of PXG, Austad’s continues to strengthen its position as a destination for golfers seeking expert guidance, premium equipment, and measurable performance gains. “At the end of the day, it’s about helping golfers play better and enjoy the game more,” added Austad. “PXG gives us another incredible tool to do exactly that.”
 
- Following these deployments, Demanlink continues to expand its footprint across Sarawak in partnership with key local and industry stakeholders. Most recently, the company completed an In-Building Coverage (IBC) deployment at One Shell Square Miri, bringing high-speed 5G connectivity to one of the state's key energy sector hubs. Building on this momentum, Demanlink is also currently deploying several high-speed 5G IBC sites across Sarawak, further growing its portfolio of macro sites, smart poles, and in-building solutions to serve the state's evolving connectivity needs.
+ To learn more or book a fitting visit Austad's Customfit – Austad's Golf.
 
- With a clear focus on delivery excellence, speed-to-market, and local collaborations, Demanlink aims to play a long-term role in strengthening Sarawak’s connectivity landscape and enabling inclusive economic growth across communities and enterprises.
+ About Austad’s GolfFounded in 1963, Austad’s Golf is a family-owned retailer with 10 locations across the Upper Midwest. Known for its award-winning custom fitting services, extensive product selection, and commitment to customer experience, Austad’s Golf is dedicated to helping golfers of all skill levels play better through expert advice and premium equipment.
 
- About Demanlink Connexion Sdn. Bhd.
+ About PXG (Parsons Xtreme Golf)Founded by entrepreneur and self-proclaimed golf nut Bob Parsons, PXG embodies his belief that every new product - from clubs to apparel - should be markedly better. Every innovation should noticeably improve performance, and every moment of impact should elevate enjoyment.
 
- Demanlink is an independent Sarawakian telecommunications infrastructure company focusing on providing shareable and future-ready telecommunications solutions in Sarawak. Demanlink aims to be a key player in Sarawak’s growth journey through achieving its digital goals and ensuring digital equity throughout the state, in partnership with investor(s) such as EdgePoint Infrastructure.For more information, visit https://edgepointinfra.com/demanlink.
+ Today, PXG offers a complete lineup of both right- and left-handed golf clubs, including drivers, fairway woods, hybrids, irons, wedges, and putters, engineered to be custom fit and built to every golfer’s unique specification. The company also designs and delivers high-performance golf apparel and accessories.
 
- Media contact:
+ PXG’s professional staff includes Christiaan Bezuidenhout, Eric Cole, Patrick Fishburn, Jake Knapp, David Lipsky, Marco Penge, Aldrich Potgieter, Chad Ramey, Mason Andersen, Christian Banke, Paul Barjon, Sebastian Cappelen, Patrick Cover, Cristobal Del Solar, Keven Dougherty, Joey Garber, Ryan McCormick, Henrik Norlander, Augusto Nunez, Nathan Petronzio, Garrett Reband, Shad Tuten, Celine Boutier, Olivia Cowan, Minji Kang, Megan Khang, Auston Kim, Christina Kim, Gina Kim, Mina Kreiter, Kaitlin Milligan, and Linnea Storm.
 
- Annushia BalavijendranCommunications, EdgePoint InfrastructureEmail: annushia@edgepointinfra.com
-
- Nur Amalia Binti RosshaimiNarro CommunicationsEmail: amalia@narrocomms.com
-
- Timothy GunapalanNarro CommunicationsEmail: timothy@narrocomms.com 
+ Contact:Austad’s GolfSara Austadsara@austadgolf.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/demanlink-unveils-sarawak-s-first-telecommunications-smart-pole-in-siburan-and-debuts-its-first-built-to-suit-tower-in-bintulu-7086455)
+[Original/Source Press Release](https://www.newmediawire.com/news/austad-s-golf-expands-premium-offering-across-the-upper-midwest-with-new-pxg-partnership-7086462)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/demanlink-deploys-sarawak-s-first-smart-pole-and-b2s-site-for-5g-connectivity/7417ae745463b685e34c038ef7dc8453) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/austad-s-golf-partners-with-pxg-to-bring-high-performance-fitting-to-midwest/386b9a142e07904bcef39faef69c8895) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/austads-golf-partners-with-pxg-to-expand-premium-equipment-acces/202631173)
+
+Pickup - [https://boostifypr.com](https://boostifypr.com/news/202604/428473-austads-golf-partners-with-pxg-to-expand-premium-equipment-access-across-upper-midwest)
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/428499-austads-golf-partners-with-pxg-to-expand-premium-equipment-access-across-upper-midwest)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/barnXH3h.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/wallhMHk.webp)
