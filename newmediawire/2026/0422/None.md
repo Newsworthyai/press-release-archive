@@ -1,66 +1,37 @@
-# KoreSummit Brings Industry Leaders Together to Explore Regulation A+ and the Future of Capital Formation
+# Demanlink Unveils Sarawak's First Telecommunications Smart Pole in Siburan and Debuts Its First Built-to-Suit Tower in Bintulu
 
-Sara Hanks, Peter Daneyko, and David Weild IV to Headline April 23 Webinar on Hybrid Public Offerings
+Milestone Deployments Strengthen 5G Connectivity, Enhance Digital Access in Urban Developments and Transport Networks
 
- NEW YORK, NY - April 21, 2026 (NEWMEDIAWIRE) - KoreSummit, in partnership with KoreInside & FintechTV and its global ecosystem, announces Week 3 of the KoreSummit Intermediary Series 2026:
+ SARAWAK, MALAYSIA - April 22, 2026 (NEWMEDIAWIRE) - Demanlink Connexion Sdn. Bhd. (“Demanlink”), a Sarawak-based telecommunications infrastructure company, today announced the successful deployment of two tailored connectivity solutions for communities in Siburan and Bintulu. The Company deployed Sarawak’s first telecommunications smart pole, a multi-function street infrastructure in Siburan, and Demanlink’s first built-to-suit (B2S) site in Kampung Jepak, Bintulu. Both solutions comprise future-ready 5G equipment and serve to enhance connectivity coverage in the state’s growing urban areas and transport networks.
 
- “Regulation A+ The Hybrid Public Offering: How RegA+ is Reshaping Access to Capital”The live webinar will take place:Thursday, April 23, 20261:00 PM - 2:00 PM EST
+ Situated at the heart of Taman Impiana, Siburan, the smart pole delivers seamless 5G connectivity for residents and commuters in the area. Its compact, multi-functional design supports 5G-ready equipment and enables co-location for multiple Mobile Network Operators (MNOs), optimizing infrastructure use and network coverage. It also functions as a lamp pole, enhancing visibility for both drivers and pedestrians alike.
 
- Free to attend
+ In addition, Demanlink’s maiden B2S site in Kampung Jepak, Bintulu will deliver seamless network coverage for the surrounding residential and commercial areas as well as a nearby transport network. The new telecommunications site is also strategically located close to six schools and Technical and Vocational Education and Training (TVET) centres, enabling students and educators to access digital learning platforms and online educational resources with high-speed connectivity. The tower is also expected to strengthen mobile coverage along nearby stretches of the Pan Borneo Highway, improving connectivity, navigation and safety for users of the state’s key transport corridor.
 
- Register here: https://events.zoom.us/ev/AuBDbiDOSqGTESMON-JUoBz98kS0FVxZ5n-xvOnipBeYuzQQ1L6t~AmbCiIV_3-WaDG6l_OvIBdVUjF476XSMC5FBHS_E9y5eWd5o5rI6KxURYg
+ Hanad Yusuf, Chief Executive Officer of Demanlink, said, “Technology is a powerful socioeconomic catalyst. These deployments are about more than coverage. They are about giving communities in Siburan and Bintulu the digital foundation to participate in Sarawak's growth. As the state works toward its 2030 digital economy ambitions, Demanlink's role is to make that infrastructure a reality, one community at a time."
 
- Bridging Private and Public Capital Markets
+ Following these deployments, Demanlink continues to expand its footprint across Sarawak in partnership with key local and industry stakeholders. Most recently, the company completed an In-Building Coverage (IBC) deployment at One Shell Square Miri, bringing high-speed 5G connectivity to one of the state's key energy sector hubs. Building on this momentum, Demanlink is also currently deploying several high-speed 5G IBC sites across Sarawak, further growing its portfolio of macro sites, smart poles, and in-building solutions to serve the state's evolving connectivity needs.
 
- Regulation A+ has emerged as one of the most important tools in modern capital formation, enabling companies to raise capital from both accredited and non-accredited investors while operating within a structured regulatory framework.
+ With a clear focus on delivery excellence, speed-to-market, and local collaborations, Demanlink aims to play a long-term role in strengthening Sarawak’s connectivity landscape and enabling inclusive economic growth across communities and enterprises.
 
- Often referred to as a “hybrid public offering,” RegA+ is reshaping how companies access capital, creating new opportunities for issuers while expanding access for investors.
+ About Demanlink Connexion Sdn. Bhd.
 
- This session will explore:
+ Demanlink is an independent Sarawakian telecommunications infrastructure company focusing on providing shareable and future-ready telecommunications solutions in Sarawak. Demanlink aims to be a key player in Sarawak’s growth journey through achieving its digital goals and ensuring digital equity throughout the state, in partnership with investor(s) such as EdgePoint Infrastructure.For more information, visit https://edgepointinfra.com/demanlink.
 
- * How RegA+ compares to RegD 506c
-* Effective distribution strategies and platforms
-* The role of transfer agents and intermediaries
-* Compliance, reporting, and operational considerations
-* Real-world RegA+ success stories
-* Can RegA+ change how companies go public, direct listing, IPO, or SPAC
+ Media contact:
 
- Featured Speakers
+ Annushia BalavijendranCommunications, EdgePoint InfrastructureEmail: annushia@edgepointinfra.com
 
- Sara Hanks, Founder & CEO, CrowdCheck. A leading expert in securities compliance for online capital formation, Sara Hanks has played a critical role in shaping the RegA+ ecosystem and advising issuers and platforms on regulatory requirements.
+ Nur Amalia Binti RosshaimiNarro CommunicationsEmail: amalia@narrocomms.com
 
- David Weild IV, Former Vice Chairman of NASDAQ and widely recognized as the “Father of the JOBS Act,” has been instrumental in advancing capital formation and expanding access to investment opportunities.
-
- Peter Daneyko, CRO at KoreInside, brings deep expertise in capital markets and infrastructure, with a focus on enabling issuers and intermediaries to successfully execute capital-formation strategies.
-
- Host Katie JohnsonVP Investor Relations, KoreInsideKatie Johnson leads investor engagement and ecosystem initiatives, bringing together intermediaries and market participants to drive meaningful dialogue across private capital markets.
-
- Designed for Private Market Intermediaries
-
- This session is tailored for professionals across the private capital markets ecosystem, including:
-
- Lawyers • Auditors • Broker-Dealers • ATS Platforms • Transfer Agents • Funding Platforms • FinTech Providers • Service Intermediaries
-
- Expanding Access to Capital
-
- As private capital markets continue to evolve, Regulation A+ represents a critical pathway for issuers seeking scalable capital solutions while maintaining regulatory compliance.
-
- The KoreSummit Intermediary Series continues to bring together leading voices to provide practical insights and guidance on the most important developments shaping the future of capital markets.
-
- About KoreSummit
-
- KoreSummit is a global initiative designed to bring together leaders, innovators, and intermediaries across the private capital markets ecosystem. Through education, collaboration, and industry engagement, KoreSummit supports the continued evolution of modern capital markets.
-
- Media Contact:Katie JohnsonVP IRkatie@kore.inc
-
-View the original release on www.newmediawire.com 
+ Timothy GunapalanNarro CommunicationsEmail: timothy@narrocomms.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/koresummit-brings-industry-leaders-together-to-explore-regulation-a+-and-the-future-of-capital-formation-7086453)
+[Original/Source Press Release](https://www.newmediawire.com/news/demanlink-unveils-sarawak-s-first-telecommunications-smart-pole-in-siburan-and-debuts-its-first-built-to-suit-tower-in-bintulu-7086455)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/koresummit-webinar-how-rega-hybrid-offerings-transform-capital-access/c98c88d0ba745b20eb9957fe5cb5e90f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/demanlink-deploys-sarawak-s-first-smart-pole-and-b2s-site-for-5g-connectivity/7417ae745463b685e34c038ef7dc8453) 
 
  
 
@@ -68,4 +39,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/hike61vj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/barnXH3h.webp)
