@@ -1,68 +1,72 @@
-# VPR Brands Retains McAndrews, Held &amp; Malloy as Lead Patent Counsel for US Patent No. 8,205,622 B2
+# Intershop Publishes Figures for Q1 2026
 
-Matthew McAndrews Named Lead Counsel to Head Comprehensive Patent Commercialization, Licensing, Enforcement, and IP Transaction Initiative - Including ITC Proceedings and M&A Support - Covering FDA PMTA-Authorized ENDS Products
+* EBIT slightly positive at EUR 0.1 million as cost-cutting measures take hold; operating cash flow clearly positive at EUR 2.9 million
+* Key cloud figures show positive trend: incoming orders up 8%, cloud revenues grow 3% to EUR 5.3 million
+* Anticipated decrease in revenues to EUR 7.9 million (previous year: EUR 9.1 million)
 
- FORT LAUDERDALE, FL - April 22, 2026 (NEWMEDIAWIRE) - VPR Brands, LP (OTC: VPRB), a pioneer and active participant in the electronic nicotine delivery systems sector with its own branded products in the market and an active intellectual property portfolio, today announced the retention of McAndrews, Held & Malloy, Ltd., one of the nation's preeminent intellectual property law firms, as lead patent counsel for the Company's US Patent No. 8,205,622 B2 (“the ‘622 patent”) licensing and commercialization program. The firm has been involved in IP transactions representing a cumulative value exceeding $15 billion over the past five years and is consistently ranked among the world's leading patent practices by IAM Patent 1000, Chambers USA, and Best Lawyers.
+ JENA, GERMANY - April 22, 2026 (NEWMEDIAWIRE) - Intershop Communications AG (ISIN: DE000A254211), a global provider of B2B commerce solutions for the upper mid-market in the manufacturing and wholesale sectors, generated revenues of EUR 7.9 million in the first quarter of the financial year 2026 (previous year: EUR 9.1 million). Despite the anticipated decline in revenues, a positive EBIT of EUR 0.1 million was achieved, mainly as a result of the cost-cutting measures that were put in place. In contrast to the overall revenue trend, Intershop’s revenues from its strategically important cloud business increased by 3% to EUR 5.3 million. Cloud revenues accounted for 67% of total revenues, an increase of eleven percentage points.
 
- Matthew McAndrews, a senior partner at McAndrews, Held & Malloy, has been appointed lead counsel to oversee all aspects of VPR Brands' commercialization, licensing, and enforcement strategy for the ‘622 patent. Mr. McAndrews brings a broad base of experience in intellectual property, technology licensing, and trial and appellate practice, having litigated dozens of cases culminating in jury and bench trials and obtained recoveries totaling well into the nine-figure range. He has a notable record before the U.S. Court of Appeals for the Federal Circuit - having obtained reversals in the majority of appeals he has argued, with decisions cited as precedential authority nearly 3,000 times - and is admitted to practice before the Supreme Court of the United States. Mr. McAndrews holds Martindale-Hubbell's highest AV Preeminent Peer Review Rating and is recognized as an Illinois Super Lawyer and member of the Multi-Million Dollar Advocates Forum. Mr. McAndrews and his firm will lead VPR Brands' efforts across the full spectrum of IP activity, including:
+ Incoming cloud orders also rose by 8% to EUR 4.2 million in the first quarter of 2026 (previous year: EUR 3.9 million). However, overall new business was still subdued, with annual recurring cloud revenues (ARR) declining by 4% to EUR 19.6 million as of 31 March 2026 (31 March 2025: EUR 20.4 million). At EUR 0.6 million, new ARR matched the previous year’s level. Net new ARR (new ARR minus terminations) was EUR -0.6 million for the first quarter of 2026 (previous year: EUR 0.6 million). This was mainly due to a lag effect resulting from customer contracts that were not renewed last year and are expiring in 2026. The cloud margin improved slightly from 64% in the previous year to 65%.
 
- * Patent evaluation, strategic portfolio assessment, and commercialization planning
-* Licensing negotiations and structured IP transaction support, including potential acquisition, exclusive licensing, and joint commercialization arrangements
-* Patent enforcement proceedings in federal district courts and before the USPTO Patent Trial and Appeal Board (PTAB)
-* Patent enforcement and litigation in federal district courts and before the United States International Trade Commission (ITC) under Section 337, including exclusion order proceedings
-* IP due diligence and M&A support for any transaction involving US Patent No. 8,205,622 B2
+ As expected, revenues from licenses and maintenance fell to EUR 1.0 million (previous year: EUR 1.8 million). Service revenues also dropped as anticipated to EUR 1.6 million (previous year: EUR 2.2 million), reflecting the shift of projects to the Intershop partner network for strategic reasons. The acceptance of a complex large-scale project in February 2026 had a positive impact on earnings in this segment and led to a noticeable improvement in the service margin compared to previous quarters.
 
- The ‘622 patent, titled "Electronic Cigarette," covers foundational auto-draw electronic cigarette technology and expires on or about July 2030. The patent covers draw/airflow-activated sensing architectures used in buttonless auto-draw electronic cigarette devices. This technology is broadly relevant to closed-system ENDS products currently authorized for marketing by the U.S. Food and Drug Administration (FDA) under the Premarket Tobacco Product Application (PMTA) process, including major national brands with FDA PMTA marketing authorization. VPR Brands has previously executed licensing agreements with more than 17 parties across the ENDS supply chain - including some of the industry’s largest brands, as well as manufacturers, distributors, and brand owners - and continues to advance its commercialization program across the industry.
+ Gross profit amounted to EUR 3.9 million in the reporting period (previous year: EUR 4.4 million). The gross margin edged up slightly to 49% (previous year: 48%). Operating expenses and income fell by a significant 13% to EUR 3.8 million (previous year: EUR 4.3 million) as a result of the consistent cost-cutting measures initiated in the previous year. R&D expenses decreased by 11% and stood at EUR 1.7 million (previous year: EUR 1.9 million). At EUR 1.3 million, selling and marketing expenses were down 19% year-on-year (previous year: EUR 1.6 million). General administrative expenses remained unchanged at EUR 0.8 million. Total expenses, including cost of revenues and operating expenses/income, declined by 14% to EUR 7.8 million (previous year: EUR 9.1 million).
 
- The ENDS industry is currently experiencing one of the most active periods of patent enforcement in its history, with multiple Section 337 proceedings before the ITC involving the industry's largest participants. The ‘622 patent has survived two inter partes review (IPR) challenges at the USPTO Patent Trial and Appeal Board, with both petitions denied at institution, and the claims remaining intact. The retention of McAndrews, Held & Malloy positions VPR Brands to participate fully in this landscape, whether through commercial licensing, structured IP transactions, or enforcement proceedings.
+ In terms of earnings, Intershop recorded a slightly positive result of EUR 0.1 million in the first three months of 2026, a modest improvement compared to the previous year (EUR 73 thousand). Earnings before interest, taxes, depreciation and amortization (EBITDA) reached EUR 0.9 million, up from EUR 0.8 million in the same period of the previous year.
 
- The engagement of McAndrews, Held & Malloy reflects VPR Brands’ commitment to pursuing a structured, professionally managed IP commercialization program. The Company’s program encompasses licensing, IP transactions including potential patent acquisition or exclusive licensing arrangements, and enforcement of rights where appropriate. VPR Brands remains open to commercially reasonable resolutions with industry participants and will continue to advance its licensing program through all appropriate channels.
+ Markus Dränert, CEO of Intershop Communications AG: “The market environment remains challenging – but our cost-cutting measures are taking effect and have laid the foundation for the balanced result we are targeting for the year as a whole. Right now our main focus is on our Spring Release 2026 planned for May, featuring AI agents that automate business processes, lower our customers’ costs and redefine B2B e-commerce in the mid-market. We strongly believe this technology focus will clearly set us apart as one of the leading agentic B2B commerce providers in the long run.”
 
- "We have engaged one of the country's leading IP firms to advance our licensing and commercialization program for US Patent No. 8,205,622 B2," said Kevin Frija, Chief Executive Officer of VPR Brands, LP. "The patent covers foundational auto-draw electronic cigarette technology that is broadly relevant to FDA PMTA-authorized products currently on the market. With McAndrews, Held & Malloy leading our efforts across licensing, transactions, and IP strategy, we are well positioned to execute a structured program and remain open to commercially reasonable resolutions with all industry participants."
+ At EUR 12.0 million, equity as of the interim reporting date remained in line with the end of 2025. The equity ratio was stable at 35% (31 December 2025: 36%). Cash flow from operating activities improved significantly to EUR 2.9 million in the reporting period, compared to a cash outflow of EUR 0.1 million in the previous year. Cash and cash equivalents climbed by 25% to EUR 10.9 million as of 31 March 2026 (31 December 2025: EUR 8.8 million).
 
- McAndrews, Held & Malloy - Key Credentials
+ Against this backdrop, Intershop expects incoming cloud orders and net new ARR for the full year 2026 to stay at the previous year’s level. Revenues are projected to decline by a slightly smaller percentage than in the previous year. Thanks to the improved cost base, Intershop anticipates a balanced operating result (EBIT).
 
- IP Transactions: Cumulative transaction value exceeding $15 billion over the past five years - including patent acquisitions, exclusive licenses, and joint commercialization structures.
+ The quarterly statement for the first three months of 2026 is available at https://www.intershop.com/en/financial-reports.
 
- ITC & Litigation: Regularly engaged for Section 337 ITC proceedings, federal district court patent litigation, and PTAB inter partes reviews - one of the most active PTAB practices in the country.
+ Contact:Investor RelationsIsabell ZeitzT: +49-3641-50-1000ir@intershop.com
 
- M&A & Due Diligence: Full M&A support including IP due diligence, portfolio valuation, transaction structuring, and post-closing IP integration across domestic and cross-border transactions.
+ 
 
- Rankings: Ranked Tier One nationally for Patent Law, IP Litigation, and Trademark Law (US News Best Law Firms 2026); IAM Patent 1000 and IAM Strategy 300 - higher percentage of attorneys recognized than the eight largest megafirm IP practices and eight largest IP boutique competitors combined; Chambers USA Intellectual Property.
+ 
 
- Scale: 90+ attorneys, 74 USPTO-registered patent attorneys; average attorney experience of 18 years (vs. 9.5 years at megafirm competitors); 75% of attorneys have spent their entire legal careers at the firm; senior attorneys handle matters directly - not delegated to associates.
+ 
 
- FDA / Regulatory: Dedicated FDA regulatory IP practice including patent term extensions, PMTA-related patent analysis, and Orange Book proceedings - directly relevant to the ENDS and tobacco product sector.
-
- About VPR Brands, LP
-
- VPR Brands, LP (OTC: VPRB) is a Delaware limited partnership and market pioneer in the electronic nicotine delivery systems and vaporizer industry. The Company designs, develops, and markets its own branded products - including the HoneyStick and Dissim lines - and has been engaged in product development, commercialization, and innovation in the ENDS and vaporizer space since 2009. VPR Brands holds US and international patents across multiple product categories, including the ‘622 patent, and maintains an active research and development program focused on novel ENDS technologies. The Company is headquartered in Fort Lauderdale, Florida.
-
- About McAndrews, Held & Malloy, Ltd.
-
- McAndrews, Held & Malloy, Ltd. is a premier, full-service intellectual property law firm headquartered in Chicago, Illinois, founded in 1988. Ranked Tier One nationally for Patent Law, IP Litigation, and Trademark Law by US News Best Law Firms 2026, the firm has been involved in IP transactions exceeding $15 billion in cumulative value over the past five years and is regularly engaged for ITC Section 337 proceedings, federal district court patent litigation, and PTAB inter partes reviews. With 90+ attorneys averaging 18 years of experience and 75% having spent their entire careers at the firm, McAndrews is recognized by IAM Patent 1000, IAM Strategy 300, and Chambers USA as one of the nation's leading IP practices.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995 and Section 27A of the Securities Act of 1933. Forward-looking statements include, without limitation, statements regarding the anticipated scope and outcome of licensing negotiations, the potential for IP transactions including patent acquisition or exclusive licensing arrangements, the anticipated outcome of any enforcement or litigation proceedings, the commercialization of US Patent No. 8,205,622 B2, and the anticipated benefits of the engagement of McAndrews, Held & Malloy. These statements are based on management's current expectations and are subject to a number of risks and uncertainties that could cause actual results to differ materially, including: the uncertainty of patent litigation and licensing outcomes, including pending and future proceedings in federal district courts, the ITC, and before the USPTO; changes in applicable law or USPTO or court interpretations of patent validity or scope; the financial condition and strategic priorities of potential licensees; regulatory developments in the ENDS industry including FDA enforcement actions; competition from other intellectual property holders; and general economic and market conditions. Forward-looking statements speak only as of the date made. VPR Brands, LP undertakes no obligation to update or revise any forward-looking statements to reflect new information, future events, or otherwise, except as required by applicable securities law.
-
- Media & Investor Contact:
-
- Kevin FrijaChief Executive OfficerVPR Brands LPkevin.frija@vprbrands.com754-216-6410
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/vpr-brands-retains-mcandrews-held-malloy-as-lead-patent-counsel-for-us-patent-no-8-205-622-b2-7086468)
+[Original/Source Press Release](https://www.newmediawire.com/news/intershop-publishes-figures-for-q1-2026-7086478)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vpr-brands-hires-top-ip-firm-to-lead-patent-strategy-for-key-e-cig-technology/cdb5d81fad19f1482532d19ab5cfcd35) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intershop-s-cost-cuts-deliver-positive-ebit-despite-revenue-dip-in-q1-2026/da9cd62828e15194ba42d45d0f570332) 
 
+
+Pickup - [https://burstable.news](https://burstable.news/news/202604/429669-intershop-reports-q1-2026-results-with-positive-ebit-and-strong-cash-flow-amid-revenue-decline)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340572-intershop-meldet-q1-2026-ergebnisse-mit-positivem-ebit-und-starkem-cashflow-trotz-umsatzruckgang)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341399-intershop-reporta-resultados-del-primer-trimestre-de-2026-con-ebit-positivo-y-fuerte-flujo-de-caja-pese-a-la-caida-de-ingresos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/341996-intershop-publie-ses-resultats-du-t1-2026-avec-un-ebit-positif-et-une-tresorerie-solide-malgre-une-baisse-du-chiffre-daffaires)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340537-intershop-reporta-resultados-do-1o-trimestre-de-2026-com-ebit-positivo-e-forte-fluxo-de-caixa-apesar-da-queda-na-receita)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/intershop-achieves-slight-profit-in-q1-2026-through-cost-cuts-as/202631247)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/intershop-achieves-positive-ebit-in-q1-2026-through-cost-reducti/202631247)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/429757-intershop-reports-q1-2026-results-cost-cuts-drive-slight-ebit-profit-amid-revenue-decline-cloud-business-shows-growth)
+
+Pickup - [https://advos.io/en](https://advos.io/en/intershop-reports-q1-2026-results-with-positive-ebit-amid-revenu/202631247)
+
+Pickup - [https://boostifypr.com](https://boostifypr.com/news/202604/429813-intershop-reports-q1-2026-results-cost-cutting-drives-slight-ebit-profit-amid-revenue-decline-cloud-business-shows-growth)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/202604/429833-intershop-communications-ag-reports-q1-2026-results-revenue-decline-offset-by-cost-cutting-and-cloud-growth)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/lend44Yf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/22/pinerNSn.webp)
