@@ -1,38 +1,36 @@
-# 420 with CNW — Bipartisan Congressional Bill to Let States Have Their Own Hemp THC Rules
+# Ethereum Foundation Exposes 100 Crypto Operatives of North Korea
 
-A new bipartisan effort in Congress is offering states a way to sidestep an upcoming federal crackdown on hemp-derived THC products, instead of forcing an immediate nationwide ban. The proposal, introduced last week, would let individual states maintain their existing regulatory systems rather than adopt a stricter federal standard scheduled to begin in November.
+A recent investigation tied to the Ethereum Foundation’s ETH Rangers initiative has uncovered a major security concern within the Web3 sector. The Ketman Project, one of several efforts funded under the program, reports that roughly 100 individuals linked to North Korea have secured roles inside blockchain companies by using false identities.
 
- The cannabis industry, including other ecosystem players like Innovative Industrial Properties Inc. (NYSE: IIPR), will be following how these…
+ The uncovering of these embedded operatives raises serious concerns, and entities like Canaan Inc. (NASDAQ: CAN) may need to do thorough background checks to ensure that all their employees are…
 
  Read More>>
 
- About CNW420
+ About CryptoCurrencyWire
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.CannabisNewsWire.com
+ For more information, please visit https://www.CryptoCurrencyWire.com
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ CryptoCurrencyWireNew York, NYwww.CryptoCurrencyWire.com212.994.9818 OfficeEditor@CryptoCurrencyWire.com
 
- CannabisNewsWire is powered by IBN 
+ CryptoCurrencyWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-bipartisan-congressional-bill-to-let-states-have-their-own-hemp-thc-rules/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/ethereum-foundation-exposes-100-crypto-operatives-of-north-korea/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/congress-offers-states-escape-from-federal-hemp-thc-crackdown/f49055be60bb7408e609e3547236dce6) 
-
-
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/202604/427447-bipartisan-proposal-offers-states-alternative-to-federal-hemp-derived-thc-crackdown)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-foundation-uncovers-100-north-korean-operatives-in-crypto-firms/0c9d4ad031aa7e42a5b62cbd20e14377) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/21/jazzCnpy.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/23/finenTSA.webp)

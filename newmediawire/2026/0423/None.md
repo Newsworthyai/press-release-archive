@@ -1,49 +1,54 @@
-# CHARBONE Announces the Signing of a Three-year UHP Oxygen Supply Contract With a Strategic American Customer, Strengthening Its Presence in the United States
+# Alternative Data Can Give Investors An Edge: BattleFin's Alt Data Consensus Estimates Platform Delivers It
 
-BROSSARD, QUEBEC - April 23, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a North American producer and distributor specializing in clean Ultra High Purity (“UHP”) hydrogen and strategic industrial gases, is pleased to announce the signing of a three (3) year supply contract with an American industrial client for the sale of UHP oxygen.
+By Meg Flippin, Benzinga
 
- A structuring contractual commitment in the United States
+ Ready to trade on more than just earnings and basic fundamental research? Alt Data Consensus gives you insights beyond the status quo.
 
- This long-term contract strengthens the established business relationship with this US-based customer and follows previously announced orders, including an initial delivery of UHP oxygen. The agreement provides for a regular supply of UHP oxygen meeting the highest purity standards, thus supporting the customer's critical operations in an advanced industrial sector.
+ DETROIT, MICHIGAN - April 23, 2026 (NEWMEDIAWIRE) - Everyone has opinions, but when it comes to stocks, investors need more than the conviction of sell-side analysts alone. They need insights and ground truth for how companies are actually performing. Whether it's consumer transaction data which can help show revenue trends or web traffic indicating customer trends, they want access to these signals. Research analysts have largely been limited to sellside analyst estimates – until now.
 
- Strengthening CHARBONE's presence in a key market
+ That’s what The BattleFin Group is gearing up to do with its new Alt Data Consensus (ADC) estimates platform, launching May 14th at the BattleFin NYC event aboard the Intrepid aircraft carrier. Previously, alternative data could only be leveraged by sophisticated hedge funds with big budgets and data science teams. The launch of ADC estimates allows buy-side firms to get a sense of which alt datasets relate to which tickers, KPIs and company moving data points. The mapping, tagging, modeling and outputs have been taken care of. ADC aggregates signals from multiple vetted alternative data providers and delivers them in one standardized framework, giving investors a continuously updated consensus built from real-world data.
 
- The signing of this three-year contract marks a significant milestone in CHARBONE's commercial expansion in the United States, particularly in the strategic "Tech Valley" region of New York State. It demonstrates the confidence placed in CHARBONE as a reliable partner for the supply of UHP industrial gases.
+ Tracking Wall Street Discrepancies While Supporting Analysts
 
- Acceleration of the multi-molecule strategy
+ With the platform, investors see where the alternative data sources agree or disagree with Wall Street predictions. Because it updates constantly between official reports, investors can act on information as it happens. Alternative data providers spanning consumer transaction data, workforce intelligence, web traffic, app and mobile intelligence, geolocation data, survey data and more are integrated into the ADC platform.
 
- This agreement is directly aligned with CHARBONE's strategy to build an integrated platform of UHP industrial gases, combining hydrogen, oxygen, helium, and other specialty gases. By expanding its offering beyond hydrogen, CHARBONE strengthens its ability to meet the needs of advanced technology, pharmaceutical, and manufacturing industries.
+ This growing consortium of industry-leading data providers ensures that the consensus is built on the most relevant and high-quality datasets available today, said BattleFin. Since the vendors on ADC have to follow a rigorous vetting process, the company says only datasets demonstrating measurable signal relevance for institutional use cases are included. Investors don’t have to worry about wasting time with needless information.
 
- CEO statement
+ Being able to easily access actionable insights is something particularly important today, with the war in Iran, global tariffs, rising oil prices and heightened market volatility making it more complex to get an edge. Traditional financial reports and analyst estimates may not give investors a clear picture of what’s really happening. Earnings reports are backward-looking, and relying on analyst opinions can prove risky if the call is wrong.
 
- “The signing of this three-year UHP oxygen supply contract with an American customer confirms the strength of our business relationship and our ability to deliver ultra-high purity gases according to the most demanding market standards,” said Dave Gagnon, CHARBONE’s Chief Executive Officer and Chairman of the Board. “This agreement strengthens our presence in the United States and fully validates our multi-molecule development strategy. We are pursuing our goal of becoming a key player in UHP industrial gases in North America.”
+ “Our new Alt Data Consensus platform is the missing aggregation layer for alternative data,” said Tim Harrington, CEO at The BattleFin Group. ADC was built from the ground up to complement fundamental research, serving as a benchmark and risk management tool designed to empower analysts and guide investment decisions, he said. The platform moves beyond broad predictions to provide insights at the key performance indicator or KPI level, allowing investors to track the specific metrics that actually drive stock prices.
 
- About CHARBONE CORPORATION
+ Get all the Alt data you need in one place with ADC. Click here to get started on the platform today.
 
- CHARBONE is a developer and producer of clean Ultra High Purity (UHP) hydrogen with a growing industrial gas distribution platform. Through a modular approach, CHARBONE is focused on developing a network of clean hydrogen production facilities throughout North America and select markets abroad, starting with its flagship Sorel-Tracy project in Quebec. The Company’s integrated model reduces risk, enhances scalability, and enables diversified revenue streams through partnerships in helium and other specialty gases. CHARBONE is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gas solutions while supporting underserved industrial gas customers and accelerating the shift to localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). Visit www.charbone.com.
+ Getting That Edge
 
- Forward-Looking Statements
+ ADC acts as an early warning system too, bridging the gap between official reports and allowing investors to see exactly when the market’s expectations are off.
 
- This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Management’s Discussion & Analysis for the period ended September 30, 2025, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+ With ADC, investors will be able to do several things, including:
 
- Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+ * See how multiple providers' views on the same company or sector align or diverge.
+* Spot divergences from Street expectations provide a signal investors can investigate.
+* Calibrate conviction between earnings.
+* Reduce vendor management overhead with one integration point. Investors don’t have to worry about maintaining separate onboarding, normalization and QA pipelines for each provider independently.
 
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ ADC is slated to launch publicly on May 14th at the company’s BattleFin Discovery Day in New York. There, investors and traders can see in-person demonstrations of ADC buy-side investor use cases. Can’t wait until then? ADC has opened a waitlist for interested buy-side investors to get exclusive early access.
 
- Contact Charbone Corporation  Telephone: +1 450 678 7171Email: ir@charbone.comBenoit Veilleux CFO and Corporate Secretary
+ Investors need more than financial reports and analyst calls to make a decision about a stock. They need a variety of data points they can leverage to make moves in real time. ADC offers them that. To learn more about ADC and BattleFin, click here.
 
- 
+ Featured image from Shutterstock.
 
- 
+ This content was originally published on Benzinga. Read further disclosures here.
+
+ This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/charbone-announces-the-signing-of-a-three-year-uhp-oxygen-supply-contract-with-a-strategic-american-customer-strengthening-its-presence-in-the-united-states-7086481)
+[Original/Source Press Release](https://www.newmediawire.com/news/alternative-data-can-give-investors-an-edge-battlefin-s-alt-data-consensus-estimates-platform-delivers-it-7086489)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-inks-3-year-uhp-oxygen-supply-deal-with-us-client/96b930ea5aef8a571ef60eb8d2307752) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battlefin-s-alt-data-consensus-platform-gives-investors-real-time-edge/33fa24a3af15b472689f60b2c1c2335e) 
 
  
 
@@ -51,4 +56,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/finechPu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/beanHfTn.webp)

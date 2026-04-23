@@ -1,184 +1,98 @@
-# Auddia Expands AI Infrastructure Moat with 14th Patent Supporting Distributed Edge Data Center Deployments
+# Premier Graphene Inc., in Coordination with its Joint Venture Partners – HGI Industrial Technologies SAPI and Nevada Ballistic Armor Corp., along with other Affiliates, secured their Initial Contract with Mexico’s Defense Sector
 
-New patent strengthens LT350’s canopy based AI deployment architecture that turns the airspace of parking lots into distributed AI inference datacenters at the edge
-
- Portfolio now spans 14 issued and 2 pending patents across the canopy and modular cartridges that support power, cooling, and modular AI compute
-
- LT350 technology solves the biggest constraints in AI infrastructure — land, power, cooling, and community compatibility
+This Milestone Accomplishment Positions the Team for Follow-On Contract Opportunities and Other Related and Unrelated Military Contracts
 
  
 
- BOULDER, CO, April 23, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Auddia Inc. (NASDAQ: AUUD) (“Auddia” or the “Company”) announced today that the U.S. Patent and Trademark Office has notified the company that LT350’s 14th patent will be allowed, further expanding the intellectual property portfolio supporting LT350’s distributed AI infrastructure platform.
+ Mexico City, April 23, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Premier Graphene, Inc. (OTC: BIEI), a developer of advanced graphene-based defense and protective-wear fortification technologies, along with its affiliate, HGI Industrial Technologies SAPI (formerly known as HGI Industrial Technologies S.A. de P.I. de C.V.) were awarded a contract. Significantly, test results preceding the contract award, invariably conformed perfectly to the military’s specifications, often exceeding expectations, culminating in this initial contract award.
 
- This newly allowed patent strengthens LT350’s proprietary canopy‑based deployment architecture, which enables high‑density AI compute to be installed in the unused airspace above existing parking lots. LT350’s IP portfolio now includes 16 issued and pending patents covering canopy structures, modular compute cartridges, battery systems, closed loop cooling, power aware operation, distributed mesh connectivity, and mobility/logistics integration.
+ Premier Graphene, along with its Mexican affiliate, HGI, have secured their first contract with the Dirección General de Fábrica de Vestuario y Equipo (FAVE), a division of Mexico’s Secretaría de la Defensa Nacional (DEFENSA).
 
- LT350 is one of three new businesses that would be combined with Auddia in the new McCarthy Finney holding company if Auddia’s recently announced business combination with Thramann Holdings, LLC (“Thramann Holdings”) is completed.
+ This landmark achievement marks a strategic entry into Mexico’s defense manufacturing ecosystem and establishes both companies as emerging participants within a highly selective procurement framework.
 
- “Our IP portfolio is the foundation of LT350’s competitive advantage. It protects a deployment model that solves the biggest constraints in AI infrastructure — land, power, cooling, and community compatibility — while also enabling mobility, logistics, and robotics workloads that hyperscale datacenters cannot optimally support.”
+ This also opens the door to other Latin American Countries with whom we have been negotiating and supplying various equipment and products resulting in consistently successful testing results. We are now primed for other contracts.
 
- Jeff Thramann, CEO of Auddia and Founder of LT350
+ As a Mexican company, HGI facilitated this contract with its established network within Mexico’s manufacturing infrastructure, combined with the coordination and support of Lic. Emmanuel Hernández Rico. The award follows governmental agency’s direct request for proposal prompted by our uniquely fabricated, specialized belt assemblies with our integrated magazine (ammunition) carriers, designed to meet demanding operational requirements, including protecting military personnel.
 
- A Comprehensive IP Portfolio Designed for the Future of AI Infrastructure
+ This initial production will function as a validating, qualification batch, surviving rigorous evaluation protocols, including durability, performance, and compliance testing by the operative defense authorities. Such successful validation should inevitably unlock access to even larger procurement opportunities, for a wide range of products, positioning both companies for scaled participation in future supply programs.
 
- LT350’s patents span the full stack of its distributed AI infrastructure model, including:
+ Premier Graphene and HGI delivered a competitive and technically aligned proposal, demonstrating not only cost efficiency but also the capacity to meet stringent quality and delivery standards mandated by applicable defense supply chains. The formal award reflects affirmation of both companies’ operational execution capabilities and long-term potential as reliable suppliers for a multiplicity of products for ongoing revenue streams.
 
- Canopy Architecture
+ Significantly, we have secured the necessary financing for the production costs and delivery costs so as to assure product delivery and consummation of this initial contract. We anticipate similar financial arrangements for every future contract, for this product as well as other products destined for future delivery. Initial product should be delivered within 10 business days.
 
- * Deploys datacenter grade compute in parking lot airspace
-* Eliminates land acquisition, zoning battles, and community resistance
+ “This contract represents more than a first award—it is an affirmation and a validation point,” states Pedro Mendez, President of both Premier Graphene and HGI. Mr. Mendez continues: “This demonstrates our capacity to strategically navigate complex procurement environments, align with institutional requirements, and deliver solutions meeting, if not exceeding, the demanding standards of defense authorities. Equally significant, this is a start of something which we feel will be inevitably more profound, particularly with the addition of graphene in these and other products.”
 
- Modular GPU + Battery Cartridges
+ “After many months of intense work, we finally have the first of many contracts. We still await a successful landing of three major ongoing supply contracts currently in process,” added Lic. Emmanuel Hernández Rico.
 
- * Rapid installation and replacement of GPUs
-* 2:1 GPU‑to‑battery ratio enabling lower electricity costs
+ Further details regarding production timelines, technical specifications, and contract expansion pathways will be communicated as we achieve each milestone event, opening doors to our inevitable success.
 
- Closed Loop Liquid Cooling (Zero Water Consumption)
+ About HGI Industrial Technologies SAPI
 
- * No evaporative cooling or its associated noise
-* No water rights or municipal hookups
-* No wastewater or environmental discharge
+ HGI Industrial Technologies SAPI is a Mexico-based company specializing in advanced carbon material production, supported by its proprietary bio-based graphene technology. The company focuses on industrial innovation and strategic market development, leveraging strong domestic partnerships to bridge international technologies into high-value sectors, including defense, infrastructure, and energy. HGI also maintains access to graphite mining resources and is actively pursuing rare earth mineral contracts to further strengthen its vertically integrated materials platform.
 
- Power Aware, Grid Supportive Operation
+ Website: www.hgiindustrialtechnologies.com
 
- * Circuit level deployment on the grid
-* Off peak battery charging
-* Automatic grid relief during periods of constraint
-* Solar energy generation
+ About Premier Graphene Inc.
 
- Distributed Mesh + Hyperscaler Interoperability
+ Premier Graphene Inc., a leader in the graphene industry, focuses on developing innovative and high-performance graphene materials from sustainable sources like industrial hemp. With cutting-edge technology and research capabilities, the company is dedicated to propelling the industry forward, promoting sustainable practices, and delivering high-quality products across multiple industries, with a current focus on delivering innovative, high-performance solutions that enhance protection, efficiency, and sustainability.
 
- * Edge inference distributed across ubiquitous parking lots
-* Low latency and highly secure inference due to proximity to model use
-* High resilience across multiple interconnected nodes
-* Cloud overflow routing as needed
+ Media Contact:
 
- Mobility, Logistics, and Robotics Integration
+ President of HGI Industrial Technologies SAPI / Premier Graphene Inc.
 
- * Autonomous vehicle fleet inference naturally located in parking lots
-* Robotics coordination through edge locations
-* Warehouse and logistics capabilities at the edge
-* Real‑time sensor fusion
-* Autonomous EV and drone charging
+ Pedro Alberto Méndez.
 
- This portfolio provides LT350 with a defensible, multi‑layered moat at a time when demand for AI compute is accelerating and traditional datacenter models face increasing constraints.
+ p.mendez@premiergrapheneinc.com
 
- IP Protected Architecture Supports Large Scale Deployments
+ www.premiergrapheneinc.com
 
- Auddia previously announced that LT350’s REIT partner controls 4,000,000 square feet of suitable parking lot airspace. LT350’s patented canopy design can support 480 GPUs per 2,000 sf of canopy space, enabling up to:
+ www.hgiindustrialtechnologies.com
 
- * 2,000 canopies
-* 960,000 GPUs across the full footprint of 4M sf
+ To get the latest news on the exciting developments from Premier Biomedical Inc. (OTC: BIEI), now known as Premier Graphene, Inc., subscribe by submitting to:
 
- This footprint represents one customer and one property type. LT350’s IP‑protected architecture is applicable across:
+ https://www.linkedin.com/in/pedro-mendez-a504741ba
 
- * Healthcare systems
-* Universities and research campuses
-* Retail and commercial real estate
-* Industrial and logistics hubs
-* Municipal and public‑sector properties
-* Mobility hubs and autonomous fleet depots
-* Convenience stores and Quick Service Restaurants (QSRs)
-* Stadiums
-* Smart cities
+ For more information, please contact us at:
 
- “The REIT footprint is just one example of where LT350 can scale,” Thramann added. “Our patents allow us to operate across industries and property types in ways traditional datacenter models cannot. This is the foundation of LT350’s long‑term strategic advantage.”
+ info@premiergrapheneinc.com
 
- For information about LT350, please visit www.LT350.com.
+ Website (upgrading in process): https://premiergrapheneinc.com/
 
- LT350’s whitepaper, Distributed, Power‑Sovereign AI Infrastructure for the Inference Economy, is available here.
+ X: @PREMIERGRAPHENE
 
- About LT350, LLC
+ Forward-Looking Statements
 
- LT350 is a distributed AI data center company with 13 issued and 3 pending patents covering a proprietary solar parking lot canopy infrastructure platform that integrates modular battery storage and GPU cartridges into the ceiling of the canopy to turn any parking lot into an AI data center. LT350 aims to build the most secure, lowest latency, cost effective, and rapidly deployed network of distributed AI data centers at the edge by leveraging the use of underutilized parking lot space while strengthening the existing power infrastructure of local utilities.
+ This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. These statements are based on current expectations and assumptions and involve risks and uncertainties that could cause actual results to differ materially. Words such as “anticipate,” “expect,” “believe,” “intend,” and similar expressions are intended to identify such forward-looking statements. Premier Graphene Inc. undertakes no obligation to update or revise these statements except as required by law.
 
- About Auddia Inc.
+ Contact:
 
- Auddia, through its proprietary AI platform for audio, is reinventing not only how consumers engage with AM/FM radio, podcasts, and other audio content but also how artists and labels promote their music and gain access to mainstream radio audiences. Auddia’s Discovr Radio is the first music-promotion platform to deliver artists guaranteed exposure to radio listeners. Auddia’s flagship audio superapp, called faidr, delivers multiple industry firsts, including:
+ Premier Graphene Inc.Investor RelationsEl Centro, Californiap.mendez@premiergrapheneinc.comwww.premiergrapheneinc.com
 
- * Ad-free listening on any AM/FM music station
-* Content skipping across any AM/FM music station
-* One-touch skipping of entire podcast ad breaks
-* Integrated artist discovery experiences
-
- For more information, visit www.auddia.com
-
- Cautionary Note on Forward-Looking Statements
-
- Certain statements in this communication, other than purely historical information, may constitute “forward-looking statements” within the meaning of the federal securities laws, including for purposes of the “safe harbor” provisions under the Private Securities Litigation Reform Act of 1995, concerning Auddia, Thramann Holdings, and the proposed merger between Auddia and Thramann Holdings (the “Proposed Transaction”) and other matters. These forward-looking statements include, but are not limited to, express or implied statements relating to Auddia’s and Thramann Holdings’ management expectations, hopes, beliefs, intentions or strategies regarding the future including, without limitation, statements regarding: the structure, timing and completion of the proposed merger by and between Auddia and Thramann Holdings, and the expected effects, perceived benefits or opportunities of the Proposed Transaction; the combined company’s listing on Nasdaq after the closing of the Proposed Transaction; expectations regarding the structure, timing and completion of the financing needed to close the Proposed Transaction, including investment amounts from investors, timing of closing of the Proposed Transaction, expected proceed, expectations regarding the use of proceeds, and impact on ownership structure; the anticipated timing of the closing; the expected executive officers and directors of the combined company; each company’s and the combined company’s expected cash position at the closing and cash runway of the combined company following the proposed merger and any additional financing; the future operations of the combined company, including research and development activities; the nature, strategy and focus of the combined company; the development and commercial potential and potential benefits of any products and services of the combined company; the cash balance of the combined entity at closing; expectations related to the anticipated timing of the closing of the Proposed Transaction (the “Closing”); the expectations regarding the ownership structure of the combined company; the expected trading of the combined company’s stock on Nasdaq under the ticker symbol “MCFN” after the Closing; and other statements that are not historical fact.
-
- All statements other than statements of historical fact contained in this communication are forward-looking statements. In addition, any statements that refer to projections, forecasts or other characterizations of future events or circumstances, including any underlying assumptions, are forward-looking statements. The words “opportunity,” “potential,” “milestones,” “pipeline,” “can,” “goal,” “strategy,” “target,” “anticipate,” “achieve,” “believe,” “contemplate,” “continue,” “could,” “estimate,” “expect,” “intends,” “may,” “plan,” “possible,” “project,” “should,” “will,” “would” and similar expressions (including the negatives of these terms or variations of them) may identify forward-looking statements, but the absence of these words does not mean that a statement is not forward-looking. These forward-looking statements are made based on current expectations, estimates, forecasts, and projections, as well as the beliefs and assumptions of management, concerning future developments and their potential effects. There can be no assurance that future developments affecting Auddia, Thramann Holdings, or the Proposed Transaction will be those that have been anticipated.
-
- These forward-looking statements involve a number of risks and uncertainties, some of which are beyond Auddia’s or Thramann Holdings’ control, or other assumptions that may cause actual results or performance to be materially different from those expressed or implied by these forward-looking statements. These risks and uncertainties include, but are not limited to, the risk that the conditions to the Closing or consummation of the Proposed Transaction are not satisfied, including the failure to timely obtain approval of the proposed merger from Auddia’s stockholders the risk that the required financing is not obtained in a timely manner, if at all; uncertainties as to the timing of the consummation of the Proposed Transaction; risks related to Auddia’s continued listing on Nasdaq until closing of the Proposed Transaction and the combined company’s ability to remain listed following the Closing; uncertainties regarding the impact any delay in the Closing would have on the anticipated cash resources of the combined company, and other events and unanticipated spending and costs that could reduce the combined company’s cash resources; the occurrence of any event, change or other circumstance or condition that could give rise to the termination of the merger agreement; the effect of the announcement or pendency of the merger on Auddia’s or Thramann Holdings’ business relationships, operating results and business generally; costs related to the merger; the risk that as a result of adjustments to the exchange ratio, Auddia’s or Thramann Holdings’ stockholders could own more or less of the combined company than is currently anticipated; risks related to the market price of Auddia’s common stock relative to the value suggested by the exchange ratio; risks related to the inability of the combined company to obtain sufficient additional capital to continue to advance the development of its products and services; costs of the Proposed Transaction and unexpected costs, charges or expenses resulting from the Proposed Transaction; potential adverse reactions or changes to business relationships, operating results, and business generally, resulting from the announcement or completion of the Proposed Transaction;
-
- Actual results and the timing of events could differ materially from those anticipated in such forward-looking statements as a result of these risks and uncertainties. These and other risks and uncertainties are more fully described in periodic filings with the SEC, including the factors described in the section titled “Risk Factors” in Auddia’s Annual Report on Form 10-K for the year ended December 31, 2025, which was originally filed with the SEC on March 6, 2026, subsequent Quarterly Reports on Form 10-Q filed with the SEC, and in other filings that Auddia makes and will make with the SEC in connection with the Proposed Transaction, including the Form S-4 and Proxy Statement described below, as well as discussions of potential risks, uncertainties, and other important factors included in other filings by Auddia from time to time. Should one or more of these risks or uncertainties materialize, or should any of Auddia’s or Thramann Holdings’ assumptions prove incorrect, actual results may vary in material respects from those projected in these forward-looking statements. Nothing in this communication should be regarded as a representation by any person that the forward-looking statements set forth herein will be achieved or that any of the contemplated results of such forward-looking statements will be achieved. You should not place undue reliance on forward-looking statements in this communication, which speak only as of the date they are made and are qualified in their entirety by reference to the cautionary statements herein. Neither Auddia nor Thramann Holdings undertakes or accepts any duty to release publicly any updates or revisions to any forward-looking statements contained herein to reflect any change in its expectations with regard thereto or any change in events, conditions or circumstances on which any such statements are based, except as required by law. This communication does not purport to summarize all of the conditions, risks and other attributes of an investment in Auddia or Thramann Holdings.
-
- No Offer or Solicitation
-
- This communication and the information contained herein is not intended to and does not constitute (i) a solicitation of a proxy, consent or approval with respect to any securities or in respect of the proposed transaction or (ii) an offer to sell or the solicitation of an offer to subscribe for or buy or an invitation to purchase or subscribe for any securities pursuant to the proposed transaction or otherwise, nor shall there be any sale, issuance or transfer of securities in any jurisdiction in contravention of applicable law. No offering of securities shall be made except by means of a prospectus meeting the requirements of Section 10 of the Securities Act of 1933, as amended, and otherwise in accordance with applicable law, or an exemption therefrom. Subject to certain exceptions to be approved by the relevant regulators or certain facts to be ascertained, the public offer will not be made directly or indirectly, in or into any jurisdiction where to do so would constitute a violation of the laws of such jurisdiction, or by use of the mails or by any means or instrumentality (including without limitation, facsimile transmission, telephone and the internet) of interstate or foreign commerce, or any facility of a national securities exchange, of any such jurisdiction.
-
- NEITHER THE SEC NOR ANY STATE SECURITIES COMMISSION HAS APPROVED OR DISAPPROVED OF THE SECURITIES OR DETERMINED IF THIS COMMUNICATION IS TRUTHFUL OR COMPLETE.
-
- Important Additional Information about the Proposed Transaction Will be Filed with the SEC
-
- This communication relates to the proposed merger involving Auddia and Thramann Holdings and may be deemed to be solicitation material in respect of the proposed merger. In connection with the proposed Transaction, Auddia intends to file relevant materials with the SEC, including a registration statement on Form S-4 (the “Form S-4”) that will contain a proxy statement (the “Proxy Statement”) and prospectus. This communication is not a substitute for the Form S-4, the Proxy Statement or for any other document that Auddia may file with the SEC and/or send to Auddia’s stockholders in connection with the proposed merger. AUDDIA URGES, BEFORE MAKING ANY VOTING DECISION, INVESTORS AND STOCKHOLDERS TO READ THE FORM S-4, THE PROXY STATEMENT AND ANY OTHER RELEVANT DOCUMENTS THAT MAY BE FILED WITH THE SEC, AS WELL AS ANY AMENDMENTS OR SUPPLEMENTS TO THESE DOCUMENTS, CAREFULLY AND IN THEIR ENTIRETY IF AND WHEN THEY BECOME AVAILABLE BECAUSE THEY WILL CONTAIN IMPORTANT INFORMATION ABOUT AUDDIA, THRAMANN HOLDINGS, THE PROPOSED TRANSACTION AND RELATED MATTERS.
-
- Investors and stockholders will be able to obtain free copies of the Form S-4, the Proxy Statement and other documents filed by Auddia with the SEC (when they become available) through the website maintained by the SEC at www.sec.gov. Copies of the documents filed by Auddia with the SEC will also be available free of charge on Auddia’s website at www.auddia.com or by contacting Auddia’s Investor Relations at investors.auddiainc.com/contact. In addition, investors and stockholders should note that Auddia with investors and the public using its website at investors.auddiainc.com.
-
- Participants in the Solicitation
-
- Auddia, Thramann Holdings, and their respective directors and certain of their executive officers and other members of management may be deemed to be participants in the solicitation of proxies from Auddia’s stockholders in connection with the proposed transaction under the rules of the SEC. Information about Auddia’s directors and executive officers, including a description of their interests in Auddia, is included in Auddia’s most recent Annual Report on Form 10-K for the year ended December 31, 2025, which was filed with the SEC on March 6, 2026. Additional information regarding the persons who may be deemed participants in the proxy solicitations, including about the directors and executive officers of Thramann Holdings, and a description of their direct and indirect interests, by security holdings or otherwise, will also be included in the Form S-4, the Proxy Statement and other relevant materials to be filed with the SEC when they become available. These documents can be obtained free of charge from the sources indicated above.
-
- Investor Relations:Kirin Smith, PresidentPCG Advisory, Inc.ksmith@pcgadvisory.comwww.pcgadvisory.com
-
- Source: Auddia Inc.
-
- The latest news and updates relating to $AUUD are available in the company’s newsroom at: https://tinyurl.com/auudnewsroom
+ Source: Premier Graphene, Inc.
 
  
 
- $AUUD Auddia secures 14th patent for LT350, enabling scalable AI edge data centers in parking lot airspace with efficient power and cooling https://t.co/X8b44yx2Ua pic.twitter.com/yh21RtiDSN
+ $BIEI Premier Graphene secures its first DEFENSA contract, opening doors to future military supply opportunities in Mexico and Latin America https://t.co/eZ1rIo7VVY pic.twitter.com/mUVJ6OrQeD
 
-— PRISM MediaWire (@prism_mediawire) [April 23, 2026](https://twitter.com/prism_mediawire/status/2047255147466666178?ref_src=twsrc%5Etfw) 
+— PRISM MediaWire (@prism_mediawire) [April 23, 2026](https://twitter.com/prism_mediawire/status/2047300055971823805?ref_src=twsrc%5Etfw) 
 
  Add PRISM MediaWire as your preferred news source on Google
 
  
 
- The post Auddia Expands AI Infrastructure Moat with 14th Patent Supporting Distributed Edge Data Center Deployments first appeared on Prism Media Wire. 
+ The post Premier Graphene Inc., in Coordination with its Joint Venture Partners – HGI Industrial Technologies SAPI and Nevada Ballistic Armor Corp., along with other Affiliates, secured their Initial Contract with Mexico’s Defense Sector first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/auddia-expands-ai-infrastructure-moat-with-14th-patent-supporting-distributed-edge-data-center-deployments/)
+[Original/Source Press Release](https://prismmediawire.com/premier-graphene-inc-in-coordination-with-its-joint-venture-partners-hgi-industrial-technologies-sapi-and-nevada-ballistic-armor-corp-along-with-other-affiliates-secured-their-initial-c/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/auddias-lt350-secures-14th-patent-for-parking-lot-ai-data-centers/09b64fd7c4934e1eaec35c973741ddc8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-graphene-secures-first-defense-contract-with-mexico/5950bb1638e988fcae4e985c46c2158c) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/auddia-secures-14th-patent-for-ai-edge-data-centers-in-parking-l/202631252)
-
-Pickup - [https://boostifypr.com](https://boostifypr.com/news/202604/429891-auddias-14th-patent-strengthens-ai-edge-data-center-deployment-model)
-
-Pickup - [https://burstable.news](https://burstable.news/news/202604/429893-auddias-14th-patent-strengthens-distributed-ai-infrastructure-for-edge-data-centers)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/202604/340634-auddias-14-patent-starkt-verteilte-ki-infrastruktur-fur-edge-rechenzentren)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/202604/341455-la-14a-patente-de-auddia-fortalece-la-infraestructura-de-ia-distribuida-para-centros-de-datos-perifericos)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/202604/342056-le-14e-brevet-dauddia-renforce-linfrastructure-dia-distribuee-pour-les-centres-de-donnees-en-peripherie)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/202604/340605-14a-patente-da-auddia-fortalece-infraestrutura-de-ia-distribuida-para-data-centers-de-borda)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/auddia-secures-14th-patent-for-lt350-distributed-ai-edge-data-ce/202631252)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/auddia-secures-14th-patent-for-distributed-ai-edge-data-centers/202631252)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/202604/429903-auddia-secures-14th-patent-for-distributed-edge-ai-data-centers-in-parking-lot-airspace)
-
-Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/202604/429906-auddia-secures-14th-patent-for-distributed-ai-infrastructure-platform-lt350)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/23/irisj98_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/264/23/fastzFgt.webp)
