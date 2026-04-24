@@ -1,63 +1,55 @@
-# USCG Bill of Sale Requirements for Vessel Transfers
+# Hansen Orthodontics Expands Invisalign Availability in Wichita This Spring
 
-How a USCG Bill of Sale Protects Boat Buyers and Sellers During Ownership Transfer
+Founder-Led Invisalign Care Expands in Wichita: Hansen Orthodontics Spring 2026 Update
 
- Hampton, United States - April 22, 2026 / Remote NotarEZ /
+ Wichita, United States - April 23, 2026 / Hansen Orthodontics /
 
- Remote NotarEZ has expanded its remote online notarization services to directly support maritime vessel transfers, offering Virginia-commissioned notaries specifically available to authenticate uscg bill of sale documents for boat buyers, sellers, and maritime professionals across the United States. The expansion addresses a consistent gap in the market where vessel owners struggle to locate qualified notaries familiar with Coast Guard documentation requirements.
+ Hansen Orthodontics has opened expanded Invisalign appointment availability for spring 2026 at its Wichita, KS office located at 881 N Tyler Rd, the practice announced this month. The move reflects growing scheduling capacity under Dr. Levi Hansen's direct oversight, with slots now available for both adults and teenagers seeking invisalign wichita ks treatment before the new year begins.
 
-Why Vessel Ownership Transfers Require Proper Documentation
+A Founder Who Handles Every Case Personally
 
-When a federally documented vessel changes hands, the transaction is governed by specific U.S. Coast Guard requirements that go beyond a standard handshake or informal receipt. A properly executed uscg bill of sale serves as the legal record confirming the transfer of ownership from one party to another. Without it, neither the buyer nor the seller has clear legal standing regarding the vessel.
+At a time when corporate dental service organizations operate multiple locations with rotating clinical staff, Hansen Orthodontics takes a different approach. Dr. Levi Hansen, the practice founder, personally manages every clear aligner case that comes through the door - from the initial consultation through final retention. No case is handed off to an associate or delegated mid-treatment.
 
-The document must include the vessel's official number, hull identification number, the names and addresses of both parties, the agreed purchase price, and the signatures of both the seller and a commissioned notary. Incomplete or improperly notarized documents are one of the most common reasons Coast Guard documentation applications are delayed or rejected.
+This structure matters to patients who want consistency. At a DSO-style chain, a patient may see a different provider at each appointment. At Hansen Orthodontics, the same orthodontist who designs the treatment plan is the one monitoring progress at every visit. For patients evaluating an orthodontist wichita ks families have access to, that distinction carries practical weight.
 
-Buyers who skip this step risk inheriting unresolved liens, title disputes, or registration complications that can surface months or years after the sale. Sellers face equal exposure if ownership is not formally and legally transferred in a documented record.
+Silver Plus Provider Status and What It Means
 
-How Remote Notarization Supports Federal Compliance
+Hansen Orthodontics holds Silver Plus Invisalign provider status, a designation Align Technology assigns to orthodontists based on case volume and clinical activity. The recognition places Dr. Hansen among a smaller subset of providers who treat a meaningful number of Invisalign cases annually, as opposed to general dentists or newer practices with limited aligner experience.
 
-Remote NotarEZ connects clients with Virginia-commissioned notaries through a secure online platform, allowing vessel buyers and sellers to complete notarization from any location without requiring an in-person appointment. Virginia is among the states with well-established remote online notarization laws, and its commissioned notaries are recognized for federal documentation purposes.
+The Silver Plus designation also comes with access to additional clinical resources, case support tools, and updated training materials from Align Technology. For patients choosing between clear aligners wichita providers, the distinction between a high-volume specialist and an occasional provider can affect both treatment efficiency and outcome quality.
 
-"We have seen a significant increase in requests specifically tied to vessel transfers, with more than 40 percent of new maritime-related sessions in the past quarter involving Coast Guard documentation," said Sarah Mitchell, Director of Client Services at Remote NotarEZ. "Our notaries are prepared to handle the specific formatting and identity verification steps that apply to these transactions."
+"We have expanded our spring 2026 availability specifically because patients kept asking to start treatment after the holidays, and we wanted to meet that demand with real capacity - not a waitlist," said Dr. Levi Hansen, Founder and Orthodontist of Hansen Orthodontics. "As a Silver Plus provider, I handle every Invisalign case myself, which means patients are not starting treatment with me and finishing with someone else. That continuity is something we protect intentionally."
 
-The platform uses audio-visual technology and credential analysis to verify the identity of all signing parties before the notarization proceeds. Session records are retained digitally, giving clients a verifiable audit trail that supports compliance with both federal documentation requirements and individual state regulations.
+Availability for Adults and Teens Starting Spring 2026
 
-Documentation Steps for Buyers and Sellers
+The expanded schedule covers Invisalign treatment for both adult patients and teenagers. Teen Invisalign cases require specific planning considerations, including compliance tracking features built into the aligners and a treatment timeline that accounts for ongoing dental development. Dr. Hansen manages these factors directly, applying the same case-by-case attention to younger patients that adult cases receive.
 
-For those navigating a vessel transfer under Coast Guard documentation, the process involves several sequential steps. First, both parties must agree on the terms of the sale and prepare a bill of sale that includes all required vessel identifiers and transaction details. Second, the document must be signed in the presence of a commissioned notary - or, through platforms like Remote NotarEZ, authenticated via remote online notarization. Third, the completed bill of sale is submitted alongside the appropriate Coast Guard documentation forms, typically through the National Vessel Documentation Center.
+For adults, the spring 2026 openings provide an opportunity to begin treatment at a point in the year when orthodontic schedules at many practices are typically full. Hansen Orthodontics is accepting new consultations now for appointments beginning in the spring semester.
 
-Vessels measuring five net tons or more used in certain commercial or legal capacities are generally required to carry federal documentation, though many recreational boat owners also choose federal documentation for financing, international travel, or resale value purposes.
+The practice is located at 881 N Tyler Rd, Wichita, KS, and serves patients across the Wichita metro area looking for a founder-led alternative to corporate orthodontic providers.
 
-Compliance Tips for Maritime Transactions
+About Hansen Orthodontics
 
-Maritime attorneys and documentation specialists consistently advise buyers to request a lien search on any federally documented vessel before closing. The Coast Guard maintains a public record of preferred ship mortgages and liens, and a clean search result should be confirmed before funds change hands.
+Hansen Orthodontics is a founder-led orthodontic practice located at 881 N Tyler Rd in Wichita, Kansas. Dr. Levi Hansen personally oversees every patient case, including Invisalign treatment for adults and teens. The practice holds Silver Plus Invisalign provider status and operates independently of corporate dental chains.
 
-Sellers are advised to retain a copy of the notarized bill of sale and all supporting documentation for a minimum of several years following the transaction. If a dispute arises regarding ownership, the notarized record serves as a primary reference.
+Learn more at Hansen Orthodontics
 
-Parties dealing with vessels registered in multiple states, or those transitioning from state registration to federal documentation, should confirm that their bill of sale meets both the Coast Guard's format requirements and any state-specific language requirements that may apply to the transaction. Remote NotarEZ notaries are briefed on the distinction between state and federal documentation pathways, allowing them to flag potential compliance issues before the session concludes.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/YrzTk3VZuTFCt4yQPK0Nd8zjpNlXV8pMiHufyarA.jpg) [](https://smilesbyhansen.com) Contact Information:
 
-About Remote NotarEZ
-
-Remote NotarEZ is an online notarization platform connecting individuals and businesses with Virginia-commissioned notaries for a range of legal and transactional documents. The company serves clients in all 50 states, with specific expertise in real estate, estate planning, financial documents, and maritime vessel transfers.
-
-Learn more at Remote NotarEZ
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/tUEP6G2SwGezs8a5Am5lvPrsksbkNdeq7AVzbjkq.jpg) [](https://remotenotarez.com) Contact Information:
-
- Remote NotarEZ
+ Hansen Orthodontics
 
  
 
-1609 North Armistead Avenue  Hampton, Virginia 23666United States
+881 N Tyler Rd  Wichita, KS 67212United States
 
- Natasha Stromley 17572713004 https://remotenotarez.com 
+ Dr. Levi Hansen +13167226717+ https://smilesbyhansen.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/uscg-bill-of-sale-requirements-for-vessel-transfers-425544)
+[Original/Source Press Release](https://mediawiretoday.com/hansen-orthodontics-expands-invisalign-availability-in-wichita-this-spring-426370)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/remote-notarez-expands-to-simplify-uscg-bill-of-sale-notarization/5130fe0edcbd1cb60fdd997877afffd1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/invisalign-care-expands-in-wichita-with-founder-led-hansen-orthodontics/178965417f5032be69b6d7beeb66f95e) 
 
  
 
@@ -65,4 +57,4 @@ Learn more at Remote NotarEZ
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/24/faceBsgp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/24/fineKoct.webp)
