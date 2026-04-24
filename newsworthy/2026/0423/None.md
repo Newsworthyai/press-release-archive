@@ -1,47 +1,70 @@
-# Discover Chismosa Comedy: NYC's Hottest New Stand-Up Show by Paula J. Leon
+# The Harvest Table Multi Collagen Granules Now Available on Amazon
 
-New York, NY (Newsworthy.ai) Thursday Apr 23, 2026 @ 3:00 PM Eastern — Rising comedian Paula J. Leon is bringing her hit show Chismosa Comedy to Comedy Village in Times Square, offering audiences a fresh and engaging take on stand-up comedy in New York City. Blending stand-up, storytelling, and lighthearted gossip, the show delivers a unique live entertainment experience featuring a rotating lineup of top comedians from NYC’s vibrant comedy scene.
+Boca Raton, Florida (Newsworthy.ai) Thursday Apr 23, 2026 @ 4:30 PM Eastern — 
 
- Looking for the best comedy shows in NYC tonight or this weekend? Rising comedian Paula J. Leon is bringing her hit show Chismosa Comedy to Comedy Village, a leading comedy club in Times Square, offering a fresh take on stand-up comedy NYC.
+ The Harvest Table, the South African wellness brand known for its clean-label, whole-food nutrition products, has announced that its Multi Collagen Granules - 12.35 oz (350 g) Pouch is now available to U.S. consumers on Amazon.
 
- Chismosa Comedy: A New Kind of NYC Comedy Show Created and hosted by Peruvian New York-based comedian, actor, and award-winning filmmaker Paula J. Leon, Chismosa Comedy blends stand-up comedy with storytelling and lighthearted gossip, creating a one-of-a-kind live entertainment experience.
+ The product is part of The Harvest Table’s recently launched Amazon lineup and reflects the brand’s approach to simple, nutrient-dense formulations designed to integrate easily into everyday routines.
 
- The show features top comedians from New York’s comedy scene, including:
+ Now Available on Amazon * Multi Collagen Granules - 12.35 oz (350 g) Pouch
 
- * Fabrizio Copano (Netflix / Comedy Central)
-* John Hedrick (TikTok)
-* Sienna Hubert Ross (Netflix)
-* Isa Medina (Don’t Tell Comedy)
+ This formulation combines multiple collagen types in a clean-label format made without added fillers, preservatives, artificial flavors, or dyes.
 
- Known for her dynamic stage presence and infectious humor, Leon has performed at major events including the New York Comedy Festival and the Knockouts Comedy Festival, and has appeared on platforms like Being Latino.
+ Designed for Everyday Wellbeing The Harvest Table’s formulations are developed to support daily nutrition and consistent use.
 
- “Prepare for an unforgettable night of laughter and gossip,” said Leon. “We have an incredible lineup of comedians ready to entertain and share unforgettable stories.” PJ Landers, owner of Comedy Village.
+ Across the range, the brand focuses on:
 
- Hosted at Comedy Village in Times Square Chismosa Comedy takes place at Comedy Village, one of the fastest-growing destinations for live comedy in NYC.
+ * Supporting overall wellbeing through nutrient-dense nutrition
+* Providing highly bioavailable ingredients for consistent use
+* Maintaining simple, transparent formulations
 
- Nestled in the bustling heart of Times Square, close to Broadway and the Theater District, Comedy Village hosts nightly comedy shows NYC, featuring nationally touring comedians, established acts, and rising talent.
+ The product is designed for everyday use, supporting wellbeing through clean, food-based nutrition.
 
- Originally founded in 2004 in Greenwich Village, the club expanded to Times Square in 2024 and has quickly become a go-to venue for those searching for stand-up comedy NYC and things to do in New York City at night.
+ A Founder-Led Approach to Clean Nutrition The Harvest Table was founded by Catherine Clark following her personal health journey, which inspired a focus on simple, trustworthy nutrition made from recognizable ingredients.
 
- Event Experience & Tickets Chismosa Comedy is more than just a show - it’s an interactive experience celebrating humor, culture, and the universal love of storytelling.
+ “Our goal has always been to create products that people can use consistently as part of their daily routine,” said Catherine Clark, Founder of The Harvest Table. “With Multi Collagen Granules now available on Amazon, we’re excited to offer U.S. consumers a formulation that reflects our commitment to clean, everyday nutrition.”
 
- Perfect for anyone who enjoys comedy with personality, this event has become a must-attend for audiences looking for unique comedy shows NYC.
+ “Consistency and simplicity are central to everything we do,” added Sam Clark, CEO of The Harvest Table. “As we expand our presence on Amazon, we remain focused on delivering products that meet our standards for quality and transparency.”
 
- About Comedy Village Comedy Village is a live comedy venue located in Times Square, New York City, featuring stand-up performances from nationally touring comedians, established acts, and emerging talent. With nightly shows and a rotating lineup, it continues to be a destination for both locals and visitors seeking comedy shows NYC tonight or this weekend.
+ Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house at the company’s custom-built facility in KwaZulu-Natal, South Africa, where the brand maintains full control over sourcing, formulation, and quality.
 
- Tickets and show details:https://comedyvillage.com 
+ The facility:
+
+ * Passes annual Food Safety Assessment (FSA) audits
+* Meets GMP manufacturing requirements
+* Is recognized as a Food Safe Facility
+
+ The company also maintains Halaal certification for applicable markets.
+
+ Product Attributes & Certifications Products are gluten-free and biodegradable, with certifications aligned to applicable international markets. Sustainability is emphasized through recyclable packaging and responsible manufacturing practices.
+
+ Explore the Full Collection on Amazon In addition to Multi Collagen Granules, The Harvest Table’s full product range is now available on Amazon, including:
+
+ * Multi Collagen Radiance
+* Bovine Collagen Granules
+* Vegan Protein
+
+ For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
+
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
+
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
+
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604232390/discover-chismosa-comedy-nycs-hottest-new-stand-up-show-by-paula-j-leon)
+[Original/Source Press Release](https://newsworthy.ai/news/202604232391/the-harvest-table-multi-collagen-granules-now-available-on-amazon)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/chismosa-comedy-brings-fresh-stand-up-to-times-square/b7c0aaff4f6b7f1288293a22c0c18f3a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-african-wellness-brand-the-harvest-table-launches-multi-collagen-granules-on-amazon/6e8bd804dcfb839e4ff6c5f0fcc4538a) 
 
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/6e8bd804dcfb839e4ff6c5f0fcc4538a)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/23/diveGJBf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/23/dualds6M.webp)

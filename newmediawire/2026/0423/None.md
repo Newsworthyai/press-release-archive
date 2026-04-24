@@ -1,54 +1,33 @@
-# Alternative Data Can Give Investors An Edge: BattleFin's Alt Data Consensus Estimates Platform Delivers It
+# Newron Announces AGM 2026 Results
 
-By Meg Flippin, Benzinga
+MILAN, ITALY - April 23, 2026 (NEWMEDIAWIRE) - Newron Pharmaceuticals S.p.A. (“Newron”) (SIX: NWRN, XETRA: NP5), a biopharmaceutical company focused on the development of novel therapies for patients with diseases of the central and peripheral nervous system (CNS), announces that its shareholders approved all motions on the agenda for the ordinary part of the AGM 2026 held today. Particularly, this included the election of George Garibaldi and Paolo Zocchi as new, independent, and non-executive Board members.The motions on the agenda for the extraordinary part of the meeting were not put to vote, due to the required quorum not being reached.
 
- Ready to trade on more than just earnings and basic fundamental research? Alt Data Consensus gives you insights beyond the status quo.
+ Chris Martin, Chairman of the Board of Directors of Newron, said: “I would like to thank all Newron shareholders for their trust. We welcome our newly elected Board members and are looking forward to their valuable inputs. We once more thank Patrick Langlois and Luca Benatti, who stepped down from the Board after their long-standing service, for their support of Newron.”
 
- DETROIT, MICHIGAN - April 23, 2026 (NEWMEDIAWIRE) - Everyone has opinions, but when it comes to stocks, investors need more than the conviction of sell-side analysts alone. They need insights and ground truth for how companies are actually performing. Whether it's consumer transaction data which can help show revenue trends or web traffic indicating customer trends, they want access to these signals. Research analysts have largely been limited to sellside analyst estimates – until now.
+ About Newron Pharmaceuticals Newron (SIX: NWRN, XETRA: NP5) is a biopharmaceutical company focused on the development of innovative therapies for patients with diseases of the central and peripheral nervous system. Headquartered in Bresso near Milan, Italy, the Company has a strong track record of advancing neuroscience-based treatments from discovery to market. Newron’s lead compound, evenamide, is a first-in-class glutamate modulator and has the potential to be the first add-on therapy for treatment-resistant schizophrenia (TRS) and for poorly responding patients with schizophrenia. Evenamide is currently developed in the global pivotal ENIGMA-TRS Phase III development program. Clinical trial results to date demonstrate the benefits of this drug candidate in the TRS as well as poorly responding patient population, with significant improvements across key efficacy measures increasing over time, as well as a favorable safety profile, which is uncommon for available antipsychotic medications. Newron has signed development and commercialization agreements for evenamide with EA Pharma (a subsidiary of Eisai) for Japan and other Asian territories, as well as Myung In Pharm for South Korea. Newron’s first marketed product, Xadago®/safinamide has received marketing authorization for the treatment of Parkinson’s disease in the European Union, Switzerland, the UK, the USA, Australia, Canada, Latin America, Israel, the United Arab Emirates, Japan and South Korea. The product is commercialized by Newron’s partner Zambon, with Supernus Pharmaceuticals holding marketing rights in the U.S., and Meiji Seika responsible for development and commercialization in Japan and other key Asian territories. For more information, please visit: www.newron.com
 
- That’s what The BattleFin Group is gearing up to do with its new Alt Data Consensus (ADC) estimates platform, launching May 14th at the BattleFin NYC event aboard the Intrepid aircraft carrier. Previously, alternative data could only be leveraged by sophisticated hedge funds with big budgets and data science teams. The launch of ADC estimates allows buy-side firms to get a sense of which alt datasets relate to which tickers, KPIs and company moving data points. The mapping, tagging, modeling and outputs have been taken care of. ADC aggregates signals from multiple vetted alternative data providers and delivers them in one standardized framework, giving investors a continuously updated consensus built from real-world data.
+ For more information, please contact:
 
- Tracking Wall Street Discrepancies While Supporting Analysts
+ NewronStefan Weber - CEO; +39 02 6103 46 26, pr@newron.com
 
- With the platform, investors see where the alternative data sources agree or disagree with Wall Street predictions. Because it updates constantly between official reports, investors can act on information as it happens. Alternative data providers spanning consumer transaction data, workforce intelligence, web traffic, app and mobile intelligence, geolocation data, survey data and more are integrated into the ADC platform.
+ UK/EuropeSimon Conway / Ciara Martin / Natalie Garland-Collins, FTI Consulting; +44 20 3727 1000, SCnewron@fticonsulting.com
 
- This growing consortium of industry-leading data providers ensures that the consensus is built on the most relevant and high-quality datasets available today, said BattleFin. Since the vendors on ADC have to follow a rigorous vetting process, the company says only datasets demonstrating measurable signal relevance for institutional use cases are included. Investors don’t have to worry about wasting time with needless information.
+ SwitzerlandValentin Handschin, IRF; +41 43 244 81 54, handschin@irf-reputation.ch
 
- Being able to easily access actionable insights is something particularly important today, with the war in Iran, global tariffs, rising oil prices and heightened market volatility making it more complex to get an edge. Traditional financial reports and analyst estimates may not give investors a clear picture of what’s really happening. Earnings reports are backward-looking, and relying on analyst opinions can prove risky if the call is wrong.
+ Germany/EuropeAnne Hennecke / Maximilian Schur, MC Services; +49 211 52925227, newron@mc-services.eu
 
- “Our new Alt Data Consensus platform is the missing aggregation layer for alternative data,” said Tim Harrington, CEO at The BattleFin Group. ADC was built from the ground up to complement fundamental research, serving as a benchmark and risk management tool designed to empower analysts and guide investment decisions, he said. The platform moves beyond broad predictions to provide insights at the key performance indicator or KPI level, allowing investors to track the specific metrics that actually drive stock prices.
+ USAPaul Sagan, LaVoieHealthScience; +1 617 865 0041, psagan@lavoiehealthscience.com
 
- Get all the Alt data you need in one place with ADC. Click here to get started on the platform today.
-
- Getting That Edge
-
- ADC acts as an early warning system too, bridging the gap between official reports and allowing investors to see exactly when the market’s expectations are off.
-
- With ADC, investors will be able to do several things, including:
-
- * See how multiple providers' views on the same company or sector align or diverge.
-* Spot divergences from Street expectations provide a signal investors can investigate.
-* Calibrate conviction between earnings.
-* Reduce vendor management overhead with one integration point. Investors don’t have to worry about maintaining separate onboarding, normalization and QA pipelines for each provider independently.
-
- ADC is slated to launch publicly on May 14th at the company’s BattleFin Discovery Day in New York. There, investors and traders can see in-person demonstrations of ADC buy-side investor use cases. Can’t wait until then? ADC has opened a waitlist for interested buy-side investors to get exclusive early access.
-
- Investors need more than financial reports and analyst calls to make a decision about a stock. They need a variety of data points they can leverage to make moves in real time. ADC offers them that. To learn more about ADC and BattleFin, click here.
-
- Featured image from Shutterstock.
-
- This content was originally published on Benzinga. Read further disclosures here.
-
- This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/alternative-data-can-give-investors-an-edge-battlefin-s-alt-data-consensus-estimates-platform-delivers-it-7086489)
+[Original/Source Press Release](https://www.newmediawire.com/news/newron-announces-agm-2026-results-7086496)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/battlefin-s-alt-data-consensus-platform-gives-investors-real-time-edge/33fa24a3af15b472689f60b2c1c2335e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newron-pharmaceuticals-elects-new-board-members-at-agm-2026/a32853c11ff5a9d443393952bff8eec2) 
 
  
 
@@ -56,4 +35,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/beanHfTn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/ruby68VZ.webp)
