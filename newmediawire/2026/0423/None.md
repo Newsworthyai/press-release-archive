@@ -1,22 +1,36 @@
-# Newron Announces AGM 2026 Results
+# CHARBONE Increases $10M Convertible Loan First Drawdown Amount to $3M
 
-MILAN, ITALY - April 23, 2026 (NEWMEDIAWIRE) - Newron Pharmaceuticals S.p.A. (“Newron”) (SIX: NWRN, XETRA: NP5), a biopharmaceutical company focused on the development of novel therapies for patients with diseases of the central and peripheral nervous system (CNS), announces that its shareholders approved all motions on the agenda for the ordinary part of the AGM 2026 held today. Particularly, this included the election of George Garibaldi and Paolo Zocchi as new, independent, and non-executive Board members.The motions on the agenda for the extraordinary part of the meeting were not put to vote, due to the required quorum not being reached.
+BROSSARD, QUEBEC - April 23, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a North American producer and distributor specializing in clean Ultra High Purity (“UHP”) hydrogen and strategic industrial gases, following its news release dated March 31, 2026, is pleased to announce that the closing process is progressing on the secured convertible loan (the “Convertible Loan”) that will provide for up to $10 million of financing from Riverfort Global Opportunities PCC Ltd (“RiverFort” or the “Lender”), and confirms that terms have been modified as follows:
 
- Chris Martin, Chairman of the Board of Directors of Newron, said: “I would like to thank all Newron shareholders for their trust. We welcome our newly elected Board members and are looking forward to their valuable inputs. We once more thank Patrick Langlois and Luca Benatti, who stepped down from the Board after their long-standing service, for their support of Newron.”
+ * The first drawdown amount has been increased from $2.15 million to $3 million;
+* Any subsequent drawdowns will be convertible, at the option of the Lender, into Common Shares at a conversion price per common share at a 25% premium to the reference price (defined as the greater of: (i) the average of the five (5) daily VWAPs of the Shares immediately preceding the applicable drawdown date, and (ii) a 5% premium to the market price of the common shares at the time of the issuance of a press release announcing such drawdown); and
+* In respect of any amount not paid when due, only if applicable, default interest shall accrue in such a manner that the total return of this instrument under each drawdown, calculated based on the outstanding principal balance, shall be capped at twenty-four percent (24%) per annum.
 
- About Newron Pharmaceuticals Newron (SIX: NWRN, XETRA: NP5) is a biopharmaceutical company focused on the development of innovative therapies for patients with diseases of the central and peripheral nervous system. Headquartered in Bresso near Milan, Italy, the Company has a strong track record of advancing neuroscience-based treatments from discovery to market. Newron’s lead compound, evenamide, is a first-in-class glutamate modulator and has the potential to be the first add-on therapy for treatment-resistant schizophrenia (TRS) and for poorly responding patients with schizophrenia. Evenamide is currently developed in the global pivotal ENIGMA-TRS Phase III development program. Clinical trial results to date demonstrate the benefits of this drug candidate in the TRS as well as poorly responding patient population, with significant improvements across key efficacy measures increasing over time, as well as a favorable safety profile, which is uncommon for available antipsychotic medications. Newron has signed development and commercialization agreements for evenamide with EA Pharma (a subsidiary of Eisai) for Japan and other Asian territories, as well as Myung In Pharm for South Korea. Newron’s first marketed product, Xadago®/safinamide has received marketing authorization for the treatment of Parkinson’s disease in the European Union, Switzerland, the UK, the USA, Australia, Canada, Latin America, Israel, the United Arab Emirates, Japan and South Korea. The product is commercialized by Newron’s partner Zambon, with Supernus Pharmaceuticals holding marketing rights in the U.S., and Meiji Seika responsible for development and commercialization in Japan and other key Asian territories. For more information, please visit: www.newron.com
+ The first drawdown will become available upon the signature of the definitive agreements with RiverFort and satisfaction of the closing conditions provided for in the Convertible Loan, including the approval by the TSX Venture Exchange. Please find unchanged terms of the first drawdown below:
 
- For more information, please contact:
+ * Convertible, at the option of the Lender, into units composed of one common share of the Company and 0.3 of a warrant, at a conversion price of $0.15 per unit.
+* Each whole warrant issued in connection with the first drawdown of $3 million will be exercisable to acquire one additional common share in the capital of CHARBONE, at a price per share of $0.195, for a period of 48 months, subject to a maximum of 5 years from the Convertible Loan closing date.
+* 12% annual interest payable in cash every 4 months.
+* If not converted before, 10% of the first drawdown shall be repaid at the end of six months, 20% at the end of 12 months and 70% on maturity date in 18 months.
+* An implementation fee of 5% of the first drawdown will be paid in cash on closing and a non-refundable $20,000 due diligence fee has already been paid.
+* Secured with a first ranking hypothec over the universality of all present and future movable property of each of Charbone Hydrogène Quebec Inc. (Sorel-Tracy project) and Charbone Hydrogen Corporation.
+* The securities issued upon any conversion of the principal amount of the Convertible Loan will be subject to the statutory four-month hold period in Canada.
 
- NewronStefan Weber - CEO; +39 02 6103 46 26, pr@newron.com
+ CHARBONE also announces the completion of the full conversion of the September 2025 Convertible Replacement Debentures, issued and announced on October 1, 2025, for an amount of $2.05M.
 
- UK/EuropeSimon Conway / Ciara Martin / Natalie Garland-Collins, FTI Consulting; +44 20 3727 1000, SCnewron@fticonsulting.com
+ About CHARBONE CORPORATION
 
- SwitzerlandValentin Handschin, IRF; +41 43 244 81 54, handschin@irf-reputation.ch
+ CHARBONE is a developer and producer of clean Ultra High Purity (UHP) hydrogen with a growing industrial gas distribution platform. Through a modular approach, CHARBONE is focused on developing a network of clean hydrogen production facilities throughout North America and select markets abroad, starting with its flagship Sorel-Tracy project in Quebec. The Company’s integrated model reduces risk, enhances scalability, and enables diversified revenue streams through partnerships in helium and other specialty gases. CHARBONE is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gas solutions while supporting underserved industrial gas customers and accelerating the shift to localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). Visit www.charbone.com.
 
- Germany/EuropeAnne Hennecke / Maximilian Schur, MC Services; +49 211 52925227, newron@mc-services.eu
+ Forward-Looking Statements
 
- USAPaul Sagan, LaVoieHealthScience; +1 617 865 0041, psagan@lavoiehealthscience.com
+ This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Management’s Discussion & Analysis for the period ended September 30, 2025, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+
+ Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+
+ Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ Contact Charbone CorporationTelephone: +1 450 678 7171Email: ir@charbone.comBenoit VeilleuxCFO and Corporate Secretary
 
  
 
@@ -24,10 +38,10 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/newron-announces-agm-2026-results-7086496)
+[Original/Source Press Release](https://www.newmediawire.com/news/charbone-increases-10m-convertible-loan-first-drawdown-amount-to-3m-7086498)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/newron-pharmaceuticals-elects-new-board-members-at-agm-2026/a32853c11ff5a9d443393952bff8eec2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-boosts-convertible-loan-first-drawdown-to-3m/72db37d289b7bc3698fda840bf763a65) 
 
  
 
@@ -35,4 +49,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/ruby68VZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/23/marksdTE.webp)
