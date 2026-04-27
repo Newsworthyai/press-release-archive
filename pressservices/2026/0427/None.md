@@ -1,64 +1,52 @@
-# Bristell Glass-Cockpit Fleet Supports Certification Training at KUGN
+# Dr. Cullen Doyle Brings Orthodontic Care to Three Pennsylvania Locations
 
-FAA-Certified Instructors at Waukegan Flight School Offer Bristell Glass-Cockpit Training
+Doyle Orthodontics Opens Across Pittsburgh, Washington, and Pleasant Hills, PA
 
- waukegan, United States - April 23, 2026 / Lumina Aviation /
+ Washington, United States - April 23, 2026 / Doyle Orthodontics /
 
- Lumina Aviation, the pilot training operation based at Waukegan National Airport (KUGN) in Illinois, has expanded its structured training programs to serve the broader Chicago metropolitan area, building its curriculum around a dedicated fleet of Bristell aircraft fitted with full glass-cockpit avionics. The move is designed to give Chicago-area residents a geographically practical path to earning a private pilot certificate without commuting to distant training facilities.
+ Doyle Orthodontics expands its reach across southwestern Pennsylvania as Dr. Cullen Doyle, DMD, MS, officially opens three fully operational practice locations serving patients in Pittsburgh, Washington, and Pleasant Hills. The multi-location launch positions Doyle Orthodontics to meet patient demand across the region with a single clinical team providing consistent, personalized orthodontic care at each site.
 
-A Modern Fleet Built for Practical Training
+Three Locations, One Clinical StandardPatients searching for an orthodontist in Washington, PA, an orthodontist in Pittsburgh, PA, or an orthodontist in Pleasant Hills, PA now have access to the same provider and treatment philosophy regardless of which office is closest to them. Dr. Doyle holds both a Doctor of Dental Medicine degree and a Master of Science in orthodontics, bringing advanced clinical training to each of the three locations. The practice accepts patients of all ages, including children undergoing early interceptive treatment, teenagers navigating alignment corrections, and adults pursuing smile improvements later in life.
 
-Central to Lumina Aviation's program is its fleet of Bristell aircraft, a Czech-manufactured light sport aircraft recognized for its aerodynamic efficiency and modern instrumentation. Each aircraft carries a glass-cockpit panel, giving student pilots direct exposure to the category of avionics common in contemporary general aviation. This configuration bridges foundational flight instruction with the instrument-based cockpit environments students are likely to encounter throughout their aviation careers.
+Each location offers the same menu of orthodontic services: Invisalign clear aligners, clear braces, and traditional metal braces, along with corrective appliances designed to address more complex bite and spacing issues. Treatment plans are built around the individual, with Dr. Doyle conducting thorough evaluations before recommending any course of care.
 
-The school offers three primary pathways for prospective pilots: discovery flights for first-time flyers, structured private pilot training for those pursuing certification, and time-building blocks for certificated pilots who need additional logged hours. Each pathway is priced on a transparent hourly basis, removing the cost ambiguity that often accompanies flight training estimates at other schools.
+Why Dr. Doyle Structured the Practice This WayThe decision to open three locations simultaneously was driven by a straightforward goal - reduce the distance patients must travel to access consistent orthodontic care in southwestern Pennsylvania. Commuting across the region for specialty dental treatment is a barrier many families face, and the multi-office model is designed to remove that obstacle without fragmenting the quality of care.
 
-Serving Chicago-Area Pilots from Waukegan National Airport
+"When we built this practice across 3 locations in southwestern Pennsylvania, the priority was making sure every patient at every office receives the same level of attention and the same treatment options - not a reduced version based on where they live," said Dr. Cullen Doyle, DMD, MS, Founder and Orthodontist of Doyle Orthodontics.
 
-Lumina Aviation's location at Waukegan National Airport (KUGN), situated at 2960 Aviation Dr, Waukegan, IL 60087, places the school within practical driving distance of Chicago's northern suburbs and the wider metro region. For residents exploring pilot training Chicago-area options that avoid the airspace complexity and operational costs associated with larger commercial airports, Waukegan National provides a quieter, training-appropriate environment with an active control tower that prepares students for real-world radio communications.
+Personalized Treatment as a Clinical PriorityDoyle Orthodontics does not apply a one-size-fits-all approach to treatment planning. Each patient receives a customized plan developed after a detailed evaluation that accounts for age, bite condition, bone structure, and personal preferences regarding treatment visibility and duration. This is particularly relevant for adult patients, who often have different priorities than younger patients and may prefer options like Invisalign or clear braces that are less visible during treatment.
 
-"Our Bristell fleet gives students direct experience with glass-cockpit technology from their very first lesson, and with 3 aircraft currently in rotation at KUGN, we are able to offer consistent scheduling that keeps training on pace," said Marcus Lane, Director of Training at Lumina Aviation. "We built this program specifically for the Chicago metro area because there is a clear gap between wanting to fly and finding a school with modern equipment, honest pricing, and a structured curriculum in one place."
+For families with multiple children needing orthodontic evaluation, having a single trusted provider across three accessible locations simplifies scheduling and coordination. The Pleasant Hills location extends the practice's reach into areas south of Pittsburgh, while the Washington location serves patients further into Washington County who previously had fewer local options for specialty orthodontic care.
 
-Safety-First Philosophy and Transparent Pricing
+What Patients Can Expect at Each OfficeWhether a patient visits the office as an orthodontist in Pleasant Hills, PA or drives to one of the other two locations, the intake process, clinical evaluation methods, and treatment monitoring protocols remain consistent. Dr. Doyle personally oversees care at each site, maintaining direct involvement throughout each patient's treatment journey rather than delegating primary oversight to associate providers.
 
-The school's training philosophy places safety protocols at the foundation of every stage of instruction, from pre-flight checklists during discovery flights to emergency procedure reviews embedded in the private pilot curriculum. Instructors at Lumina Aviation are FAA-certified flight instructors with documented experience in both light sport and general aviation aircraft categories.
+Corrective appliances available at Doyle Orthodontics go beyond standard braces and aligners to address structural bite issues that straightening alone cannot resolve. This broader treatment capability means patients with more complex orthodontic needs do not need to be referred elsewhere for appliance-based interventions.
 
-Pricing is published on an hourly basis with no bundled enrollment packages that obscure the actual cost of reaching certification. This model allows students to budget accurately and advance at a pace that fits personal schedules and financial circumstances. The school can be reached by phone at 224-935-6006 or through its website at luminaaviation.com.
+About Doyle OrthodonticsDoyle Orthodontics is a multi-location orthodontic practice founded and led by Dr. Cullen Doyle, DMD, MS, serving patients across southwestern Pennsylvania. The practice operates three offices in Pittsburgh, Washington, and Pleasant Hills, PA, offering Invisalign, clear braces, traditional metal braces, and corrective appliances to children, teens, and adults. Dr. Doyle holds advanced credentials in orthodontics and provides individualized treatment plans at each location.
 
-Discovery Flights as an Entry Point
+Learn more at Doyle Orthodontics
 
-For individuals curious about aviation but not yet committed to full certification, Lumina Aviation offers a discovery flight that provides a one-time introductory experience in the Bristell cockpit alongside a certified instructor. Participants handle the controls during the flight, gaining a realistic sense of what structured training involves before making any financial or scheduling commitment. The option has drawn interest from professionals, students, and hobbyists across the greater Chicago area who are considering aviation as a recreational pursuit or secondary skill.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/oXgtcPApRJtA3mCilDAKZDEJ4SJuEcwbCHTynHzj.jpg) [](https://goodorthodontics.com) Contact Information:
 
-The flight school Waukegan operation accepts new student enrollments on a rolling basis, with scheduling available through the school's online booking system or by calling the facility directly.
-
-About Lumina Aviation
-
-Lumina Aviation is a flight training school located at Waukegan National Airport (KUGN), 2960 Aviation Dr, Waukegan, IL 60087. The school operates a fleet of Bristell aircraft equipped with glass-cockpit avionics and provides discovery flights, private pilot certification training, and time-building programs to students across the greater Chicago metropolitan area. Lumina Aviation can be reached at 224-935-6006.
-
-Learn more at Lumina Aviation
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/7a9Aw2OXGQHJwOJkGGbCn0rMYUTG4F9mUmTrCO8V.jpg) [](https://www.luminaaviation.com) Contact Information:
-
- Lumina Aviation
+ Doyle Orthodontics
 
  
 
-2960 aviation dr  waukegan, IL 60087United States
+111 Washington Street  Washington, PA 15301United States
 
- Lumina Aviation 12249356006 https://www.luminaaviation.com 
+ Cullen Doyle +1-724-225-1114 https://goodorthodontics.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/bristell-glass-cockpit-fleet-supports-certification-training-at-kugn-425998)
+[Original/Source Press Release](https://mediawiretoday.com/dr-cullen-doyle-brings-orthodontic-care-to-three-pennsylvania-locations-425967)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lumina-aviation-expands-glass-cockpit-training-at-waukegan-airport/bc951b19ec6431ccf79bd3d3c11ab1c7) 
-
-
-Pickup - [https://burstable.news](https://burstable.news/news/lumina-aviation-expands-glass-cockpit-training-for-chicago-area-pilots)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/doyle-orthodontics-opens-three-locations-across-southwestern-pennsylvania/a866993aa5917258dec3e1fab7cec69f) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/27/ellepod7.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/27/barnjyD4.webp)
