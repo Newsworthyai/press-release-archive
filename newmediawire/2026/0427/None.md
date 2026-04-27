@@ -1,50 +1,36 @@
-# Meridian Holdings to Announce First Quarter 2026 Financial Results
+# Cardio Diagnostics Holdings (CDIO) Advancing AI Solutions for Cardiovascular Disease Detection and Management
 
-LAS VEGAS, NV - April 27, 2026 (NEWMEDIAWIRE) - Meridian Holdings Inc. (NASDAQ: MRDN) ("Meridian Holdings" or the "Company"), a leading global operator and licensor of online sports betting and gaming platforms across over 20 regulated markets, today announced the Company will report its first quarter 2026 financial results before the market opens on Tuesday, April 28, 2026.
+LOS ANGELES, CA - April 27, 2026 (NEWMEDIAWIRE) - Cardiovascular disease remains one of the most serious and costly health challenges worldwide, driving an urgent need for earlier detection and more precise, personalized treatment strategies. Cardio Diagnostics Holdings (NASDAQ: CDIO) is focused on addressing this need by developing advanced solutions that leverage artificial intelligence (“AI”) and multi-omic biomarkers to deliver actionable insights from a simple blood sample, enabling more informed and timely care cardiac care decisions.
 
- Management will host a conference call the same day at 8:00 AM ET to discuss the results. The live audio webcast and an accompanying investor presentation will be made available on Meridian Holdings’ investor relations website at https://meridian-holdings.com/investors/.
+ * The scale and impact of cardiovascular disease underscore why innovation in this area is so critical.
+* Advances in genomics and epigenetics are making it possible to better understand how genetic predisposition and environmental influences interact to drive disease progression.
+* By utilizing a simple blood test, Cardio Diagnostics is lowering barriers to advanced cardiovascular testing.
 
- About Meridian Holdings
+ The scale and impact of cardiovascular disease underscore why innovation in this area is so critical. According to the Centers for Disease Control and Prevention, heart disease remains the leading cause of death in the United States, responsible for approximately one in every three deaths. Beyond mortality…
 
- Meridian Holdings Inc. (NASDAQ: MRDN), based in Las Vegas, Nevada, is an established B2B and B2C gaming technology company operating across multiple international markets. The Company's B2C division is represented by Meridianbet Group, a leading online sports betting and gaming operator founded in 2001, licensed in multiple jurisdictions across Europe, Africa, and South America. MRDN's B2B division, comprised of game developer Expanse Studios and iGaming platform GMAG, develops, licenses and distributes proprietary gaming platforms to an extensive list of global clients. Meridian Holding’s other subsidiaries include RKings Competitions, which operates a high-volume eCommerce site enabling end users to enter paid-for competitions on its proprietary platform in authorized markets., Mexplay, a regulated online casino in Mexico, and Classics for a Cause, Australia's leading subscription-based digital memberships and trade promotion lottery. The Company's sophisticated software automatically declines any gaming or redemption requests from within the United States, in strict compliance with current U.S. law.
+ Read More
 
- For more information, visit www.meridian-holdings.com or email us at ir@meridian-holdings.com
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Contact:Investors & Pressir@meridian-holdings.com
+ The latest news and updates relating to CDIO are available in the company’s newsroom at https://ibn.fm/CDIO
+
+ Forward Looking Statements
+
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/meridian-holdings-to-announce-first-quarter-2026-financial-results-7086531)
+[Original/Source Press Release](https://www.newmediawire.com/news/cardio-diagnostics-holdings-cdio-advancing-ai-solutions-for-cardiovascular-disease-detection-and-management-7086535)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/meridian-holdings-to-report-q1-2026-financial-results-on-april-28/d368ad35d83695e8d5441dd850812035) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-blood-test-pioneer-cardio-diagnostics-targets-heart-disease/f5ba053acffca3615f1d0345bd53ed66) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/meridian-holdings-to-report-first-quarter-2026-financial-results-on-april-28)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/meridian-holdings-to-report-first-quarter-2026-financial-results-on-april-28)
-
-Pickup - [https://burstable.news](https://burstable.news/news/meridian-holdings-schedules-first-quarter-2026-financial-results-release-and-conference-call)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/meridian-holdings-kundigt-veroffentlichung-der-finanzergebnisse-fur-das-erste-quartal-2026-und-telefonkonferenz-an)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/meridian-holdings-anuncia-la-publicacion-de-resultados-financieros-del-primer-trimestre-de-2026-y-conferencia-telefonica)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/meridian-holdings-agenda-lancamento-de-resultados-financeiros-do-primeiro-trimestre-de-2026-e-teleconferencia)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/meridian-holdings-to-report-first-quarter-2026-financial-results-on-april-28)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/meridian-holdings-annonce-la-publication-de-ses-resultats-financiers-du-premier-trimestre-2026-et-une-conference-telephonique)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/meridian-holdings-to-report-first-quarter-2026-financial-results-on-april-28)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/meridian-holdings-to-report-first-quarter-2026-financial-results-on-april-28)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/27/plumCWtD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/27/jadeqRvL.webp)
