@@ -1,25 +1,29 @@
-# UGI Beginning System Upgrades in Womelsdorf Borough and Heidelberg Township
+# Tickets Now on Sale for the 58th Bell Ringer Awards Ceremony
 
-for immediate release - april 28, 2026
+BOSTON – April 28, 2026
 
-UGI Utilities is scheduled to begin a system upgrades project in Womelsdorf Borough and Heidelberg Township on Tuesday, April 28. The work is part of UGI’s commitment to provide safe and reliable service and is an opportunity for some homes and businesses along the project route to convert to natural gas.
+The PR Club of New England today announced that tickets are on sale for the 58th annual Bell Ringer Awards, one of the region’s most anticipated celebrations of excellence in public relations and communications. This year’s ceremony will take place on June 4, 2026, at the Museum of Science in Boston from 6:30 p.m. to 10:30 p.m. ET.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-beginning-system-upgrades-in-womelsdorf-borough-and-heidelberg-township)UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
+Key Takeaways:* The PR Club of New England opens ticket sales for the 58th annual Bell Ringer Awards, to be held June 4, 2026 at the Museum of Science in Boston.
+* The PR Club names finalists for the 2026 Bell Ringer Awards, including Super Bell finalists 360PR, Duffy & Shanley, John Guilfoil Public Relations, Red Lorry Yellow Lorry, and Rinck Advertising.
+* The PR Club donates all proceeds from the annual Bell Ringers 50/50 raffle to GBH in support of local journalism.
 
-Contacts:John Mason(610) 334-7135jmason@ugi.com
+[Click image above to view full announcement.](https://the-pr-club.reportablenews.com/pr/pr-club-58th-bell-ringer-awards-ceremony)About PR ClubFounded in 1948, the PR Club (formerly the Publicity Club of New England) strives to promote and encourage involvement in the communications industry and specifically the professions of public relations, promotions, and marketing. Get additional information about monthly PR Club programs, social and networking events, exclusive content and the Bell Ringer Awards Ceremony at www.PRClub.org.
 
-Source: UGI Utilities
+Contacts:Kaitlin Cooney, PR Club Presidentadmin@prclub.org
+
+Source: The PR Club
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-beginning-system-upgrades-in-womelsdorf-borough-and-heidelberg-township)
+[Original/Source Press Release](https://the-pr-club.reportablenews.com/pr/pr-club-58th-bell-ringer-awards-ceremony)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-utilities-begins-system-upgrades-in-womelsdorf-and-heidelberg/fc2e6a440b94f64831840137698021e1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pr-club-opens-tickets-for-58th-bell-ringer-awards-honors-finalists/a3fc981af450752046be179185ebc8b5) 
 
  
 
@@ -27,4 +31,4 @@ Distributed by: Reportable, Inc.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/264/28/odorNx9O.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/264/28/noonuLhh.webp)
