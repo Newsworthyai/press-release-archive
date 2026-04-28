@@ -1,40 +1,40 @@
-# MiningNewsBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) Eyes Near-Term Production in Prolific Abitibi Belt
+# 420 with CNW — Illinois Disburses $32M to Cannabis Social Equity Firms
 
-Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and may include paid advertising.
+Illinois has taken another step in its effort to promote fairness in the legal cannabis market, issuing $31.8 million in loans to businesses identified under its social equity program. State officials confirmed that 95 companies received funding in this latest round, with individual loan amounts between $50,000 and $750,000.
 
- LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF), a district-scale gold explorer and near-term producer, was featured in a recent article that discussed its efforts to restart production from its sites in the renowned Abitibi greenstone belt of eastern Canada — one of the most prolific Archean belts in the world. The company’s Preliminary Economic Assessment (“PEA”) was recently completed for its Swanson Gold Deposit in Québec, “a capital-efficient project with strong economics by leveraging the company’s 100%-owned and refurbished Beacon Gold Mill,” the article reads. “As we prepare for pre-operational tests and system checks at the Beacon Gold Mill in the coming months, we are transitioning from pure exploration and development to gold production execution,” LaFleur Chief Executive Officer Paul Ténière was quoted as saying.
+ The efforts being directed by Illinois to support social equity programs in the cannabis industry are likely to draw the applause of the wider marijuana industry, including firms like Green Thumb Industries Inc. (CSE: GTII) (OTCQX: GTBIF) operating within Illinois and other…
 
- To view the full article, visit https://ibn.fm/zIZIe
+ Read More>>
 
- About LaFleur Minerals Inc.LaFleur Minerals is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The company’s mission is to advance mining projects with a laser focus on our resource-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 18,304 hectares (183 km(2)) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has recently consolidated a large land package along a major structural break that hosts the Swanson, Bartec, and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. Lafleur Minerals’ fully permitted and refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects.
+ About CNW420
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- About MiningNewsWire
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- MNW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- For more information, please visit https://www.MiningNewsWire.com
-
- Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
-
- MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-eyes-near-term-production-in-prolific-abitibi-belt/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-illinois-disburses-32m-to-cannabis-social-equity-firms/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-advances-toward-gold-production-with-strong-pea-results/e5713c682ed811c44ebf42bd568e6177) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/illinois-dispenses-31-8m-in-loans-to-cannabis-social-equity-firms/4db2e8dcff344883b2b2312c88218453) 
 
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/4db2e8dcff344883b2b2312c88218453)
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/illinois-issues-318-million-in-loans-to-social-equity-cannabis-businesses)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/27/yogaenNY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/264/27/yawnzEn2.webp)
