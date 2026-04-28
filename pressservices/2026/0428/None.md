@@ -1,78 +1,78 @@
-# Tariffs Push Concrete Costs Up 3-7% in 2026, Indianapolis Contractor Warns
+# Oral Surgeons and Periodontist Serve St. George, UT
 
-What Rising Concrete Prices Mean for Indianapolis Homeowners Planning a Driveway Project in 2026
+Southwest Oral Surgical Arts Brings Full Surgical Team to St. George, UT
 
- Indianapolis, United States - April 25, 2026 / Mattingly Concrete, Inc. /
+ St. George, United States - April 24, 2026 / Southwest Oral Surgical Arts /
 
- INDIANAPOLIS, IN (May 1, 2026) — Residential concrete costs have climbed 3 to 7 percent from 2025 levels as tariffs on imported cement and heightened demand from federal infrastructure projects reshape the pricing landscape for homeowners, according to industry data compiled by construction cost analysts. For Indianapolis-area residents planning driveway replacements or new installations this spring and summer, the shift calls for more careful budgeting and earlier scheduling than in previous years.
+ Southwest Oral Surgical Arts (SWOSA) has officially expanded its clinical team in St. George, Utah, bringing together a multidisciplinary group of oral surgeons and a periodontist under one practice to serve patients across the region. The expansion marks a deliberate effort to consolidate specialized surgical care that residents previously had to seek from multiple separate providers.
 
-"The material costs are real, but what catches most homeowners off guard is the scheduling side," said Will Mattingly, president of Mattingly Concrete Inc., a Central Indiana concrete contractor founded in 1987. "When infrastructure projects tie up ready-mix trucks and crews during peak season, residential jobs can get pushed back unless homeowners plan ahead."
+A Full Surgical Team Now Available Locally
 
-The cost increase stems primarily from two converging forces. A 25 percent tariff on cement imports from Canada and Mexico — which together supply approximately 7 million metric tons annually to the U.S. market, according to the Portland Cement Association — has tightened supply and raised prices for ready-mix concrete in regions dependent on imported material. Simultaneously, continued spending under the Infrastructure Investment and Jobs Act has directed billions in federal funding toward highway, bridge and municipal projects, creating competition for the same concrete supply, delivery trucks and skilled labor that residential contractors rely on.
+For patients in southern Utah who have needed advanced dental care, traveling out of the region or scheduling across multiple disconnected offices has been a common reality. SWOSA's team structure addresses that directly. As a practice built around collaboration between an oral surgeon in St. George UT and a periodontist, the group is designed to handle cases that require coordinated treatment planning from diagnosis through completion.
 
-How Tariffs Affect Residential Concrete PricingThe tariff impact on a typical residential project is more nuanced than a blanket 25 percent price increase. Cement accounts for roughly 10 to 15 percent of the total cost of ready-mix concrete. When that tariff ripples through the supply chain — affecting production, transportation and energy costs — the cumulative effect on a standard driveway pour adds between $40 and $375 to the material cost, depending on project size and regional supply dynamics, according to CostFlowAI's 2026 concrete pricing analysis.
+The practice currently offers dental implants, bone grafting, tooth extractions, periodontal surgery, and a range of other oral surgical procedures - all performed by clinicians who work together within the same facility. That integration is central to how the practice approaches complex cases, particularly those involving patients who need both surgical and periodontal intervention before or after implant placement.
 
-For homeowners planning a concrete driveway Indianapolis contractors note that material costs in 2026 range from approximately $6,000 to $12,000 for a standard 600-square-foot pour, depending on thickness, finish and reinforcement choices. That range has widened from previous years, driven largely by the tariff-affected price of cement and a 5 to 10 percent increase in rebar costs due to separate steel and aluminum import duties.
+Dental Implants as a Core Offering
 
-Domestically produced cement, however, has remained relatively stable. IBISWorld projects domestic cement prices will rise just 0.6 percent in 2026, to $163.9 per metric ton, following a modest 1.8 percent increase in 2025. The distinction matters: homeowners working with contractors who source domestic cement may see smaller price impacts than those in regions more dependent on imported supply. Indiana, with its proximity to domestic cement plants in the Midwest, is generally better positioned than coastal states that rely more heavily on imports.
+Among the services drawing patients to SWOSA, dental implants in St. George UT have become one of the most requested procedures. Implant treatment often requires careful coordination between an oral surgeon and a periodontist, particularly when bone volume or gum tissue conditions need to be addressed before an implant can be placed successfully. Having both specialties available within one practice reduces delays and simplifies communication between providers involved in a patient's care.
 
-Scheduling Pressure During Peak Construction SeasonBeyond pricing, the competition between public infrastructure and residential projects creates scheduling pressure that many homeowners do not anticipate. When local ready-mix plants prioritize highway or municipal contracts — which carry larger volumes and tighter deadlines — residential pours can be delayed or pushed to less favorable time slots.
+"We built this practice around the idea that patients deserve access to a full surgical team without having to navigate multiple offices," said Dr. Chad Thompson, Lead Oral Surgeon of Southwest Oral Surgical Arts. "In our first year operating with a combined oral surgery and periodontal team, we have been able to treat more than 400 patients who required multi-specialty coordination - cases that would have been significantly more complicated without that internal collaboration."
 
-"We start getting calls in March for spring and summer work, and the homeowners who schedule early get the best options," Mattingly said. "By June, the calendar is tight. If there is a major road project running nearby, the ready-mix plants are stretched even thinner, and that affects everybody."
+Meeting Regional Demand with Specialized Care
 
-Weekend delivery premiums of $8 to $10 per cubic yard are standard at most ready-mix plants, and short-load fees of $40 to $60 per cubic yard apply when orders fall below a full 10-yard truckload. For a smaller residential pour requiring only 2 to 3 cubic yards, the short-load surcharge alone can add $100 to $150. These ancillary costs, which exist regardless of tariff conditions, become more consequential when material prices are already elevated.
+St. George has seen consistent population growth over the past decade, and with that growth has come an increased need for specialized healthcare services that were previously concentrated in larger metro areas. SWOSA's presence as both a periodontist in St. George UT and oral surgery practice reflects a broader shift in how specialty dental care is being delivered in smaller but expanding communities.
 
-What Homeowners Can Do to Manage CostsDespite the price increases, concrete remains one of the most cost-effective driveway materials when evaluated over its full lifespan. A properly installed concrete driveway can last 25 to 30 years with basic maintenance, compared to asphalt surfaces that typically require resurfacing every 10 to 15 years.
+The practice accepts referrals from general dentists throughout Washington County and the surrounding region, and also sees patients who seek care directly. Surgical consultations are structured to give patients a clear picture of their treatment timeline and what each step involves before any procedure begins.
 
-The 2026 U.S. Houzz Renovation Plans Report, based on a survey of more than 1,000 homeowners conducted in October 2025, found that 75 percent of homeowners planning renovations in 2026 expect to spend $10,000 or more on their projects. Sixty-three percent cited rising costs of products or services as their top concern — yet 91 percent said they still plan to move forward.
+About Southwest Oral Surgical Arts
 
-For homeowners looking to manage concrete project costs in the current market, industry experts recommend several practical steps. Obtaining at least three quotes from local contractors allows comparison of material sourcing, labor rates and scheduling availability. Asking about price locks — some suppliers will guarantee pricing for 30 to 60 days — can protect against mid-project cost increases. And combining multiple concrete projects into a single pour, such as a driveway and sidewalk together, can eliminate duplicate delivery fees and may push the order above the full-truckload threshold, avoiding short-load surcharges.
+Southwest Oral Surgical Arts is an oral surgery and periodontal practice located in St. George, Utah. The practice brings together oral surgeons and a periodontist to provide dental implants, periodontal surgery, bone grafting, extractions, and related surgical treatments to patients in St. George and the surrounding communities of southern Utah.
 
-Timing also plays a role. Spring and early summer remain the preferred pour season in Central Indiana because moderate temperatures between 50 and 70 degrees Fahrenheit create optimal curing conditions. Concrete poured in extreme heat requires additional moisture control to prevent surface cracking, while cold-weather pours add $5 to $7 per cubic yard in surcharges for heated materials and additives.
+Learn more at Southwest Oral Surgical Arts
 
-The Outlook for Concrete PricingIndustry analysts do not expect a dramatic spike in concrete costs beyond the current 3 to 7 percent range. The Sullivan Report, widely cited in the cement industry, projects 2026 as the trough of the current demand cycle at approximately 100 million tons of domestic cement consumption. If interest rates ease in the second half of 2026 and construction activity rebounds, a modest additional price increase is possible, but the fundamentals point to stabilization rather than runaway cost escalation.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/wqhAIkNIKMfozZFtb3N1h1hgSjnhIA1QnIzOr3Fd.jpg) [](https://swosa.com) Contact Information:
 
-"We tell homeowners that the best time to replace a failing driveway is before it becomes a safety issue," Mattingly said. "Costs may fluctuate a few percentage points year to year, but a cracked or settled driveway creates tripping hazards and can affect your home's value. Waiting for a price drop that may not come is rarely worth the risk."
-
-Homeowners seeking more information about concrete driveway costs and scheduling in the Indianapolis area can visit mattinglyconcrete.com or contact Mattingly Concrete at (317) 867-4049 for a free consultation and estimate.
-
-About Mattingly Concrete Inc.
-
-Founded in 1987, Mattingly Concrete Inc. is a second-generation, family-owned concrete contractor serving Central Indiana, Southern Ohio and Northeast Kentucky. Led by President Will Mattingly, the company employs approximately 55 team members and completes roughly 600 residential projects per year. Mattingly Concrete offers residential driveways, patios, sidewalks and steps; commercial concrete pavement, parking lots and ADA ramps; and government infrastructure projects. The company holds an A+ rating from the Better Business Bureau, has earned multiple Angie's List Super Service Awards and was recognized as an IndyStar Top Workplace. As a certified Disabled Owned Business Entity, Mattingly Concrete owns all equipment, including volumetric trucks capable of custom-mixing concrete on-site to exact project specifications. For more information, visit mattinglyconcrete.com or call (317) 867-4049.
-
-Contact:
-
-Will Mattingly
-
-Mattingly Concrete Inc.
-
-(317) 867-4049
-
-Office@mattinglyconcrete.com
-
-https://www.mattinglyconcrete.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PeFuadcUBv51iyd6NIfogF5m6OHH0Kw16luNnlNd.jpg) [](https://mattinglyconcrete.com) Contact Information:
-
- Mattingly Concrete, Inc.
+ Southwest Oral Surgical Arts
 
  
 
-10620 Bellefontaine St  Indianapolis, IN 46280United States
+368 E Riverside Dr., Ste #7  St. George, UT 84790United States
 
- Will Mattingly +1-317-867-4049 https://mattinglyconcrete.com 
+ Laralee Reber +1-435-688-1344 https://swosa.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/tariffs-push-concrete-costs-up-3-7-in-2026-indianapolis-contractor-warns-426525)
+[Original/Source Press Release](https://mediawiretoday.com/oral-surgeons-and-periodontist-serve-st-george-ut-426394)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-concrete-costs-indianapolis-driveways-in-2026/ffb62d7630ac54f08ff860e9208560f8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/southwest-oral-surgical-arts-expands-surgical-team-in-st-george/cd37f510acadf1d4ddcf9ed14fb1e9ac) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/cd37f510acadf1d4ddcf9ed14fb1e9ac)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/cd37f510acadf1d4ddcf9ed14fb1e9ac)
+
+Pickup - [https://advos.io/en](https://advos.io/en/southwest-oral-surgical-arts-expands-team-in-st-george-offering-integrated-oral-surgery-and-periodontal-care)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/southwest-oral-surgical-arts-expands-multidisciplinary-team-in-st-george-utah)
+
+Pickup - [https://burstable.news](https://burstable.news/news/southwest-oral-surgical-arts-expands-multidisciplinary-team-in-st-george-ut)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/southwest-oral-surgical-arts-erweitert-multidisziplinares-team-in-st-george-ut)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/southwest-oral-surgical-arts-amplia-su-equipo-multidisciplinario-en-st-george-ut)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/southwest-oral-surgical-arts-elargit-son-equipe-multidisciplinaire-a-st-george-utah)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/southwest-oral-surgical-arts-expande-equipe-multidisciplinar-em-st-george-ut)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/southwest-oral-surgical-arts-expands-multidisciplinary-team-in-st-george-offering-coordinated-oral-surgery-and-periodontal-care)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/southwest-oral-surgical-arts-expands-multidisciplinary-team-in-st-george-utah)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/28/poemS3_z.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/264/28/ovaldWrG.webp)
