@@ -1,68 +1,48 @@
-# The Harvest Table Bovine Collagen Granules Now Available on Amazon
+# Chinatown Las Vegas's Only Taiwanese Personal Hot Pot Debut
 
-Boca Raton, Florida (Newsworthy.ai) Wednesday Apr 29, 2026 @ 6:00 AM Eastern — 
+Las Vegas, Nevada (Newsworthy.ai) Wednesday Apr 29, 2026 @ 7:30 AM Pacific — While Las Vegas Chinatown dining corridor, home to over 40 restaurants along Spring Mountain Road, continues to grow as one of the most dynamic food destinations in the country, one concept is quietly standing apart in an increasingly crowded category. Pot on Fire is emerging as Chinatown’s only destination dedicated to authentic Taiwanese personal hot pot, a format that remains largely underrepresented in the local market.
 
- The Harvest Table, the South African wellness brand known for its clean-label, whole-food nutrition products, has announced that its Bovine Collagen Granules - 12.35 oz (350 g) Pouch is now available to U.S. consumers on Amazon.
+ Unlike the common all-you-can-eat or shared hot pot venues on Spring Mountain, Pot on Fire champions Taiwan’s traditional single-pot style. Each guest receives their own individually prepared hot pot, allowing for a more personalized and balanced dining experience rooted in Taiwanese food culture. This approach emphasizes customization, comfort, and consistency-key elements that have made personal hot pot a staple across Taiwan. Guests can explore the full menu of authentic Taiwanese hot pot offerings , featuring a range of signature broths and premium ingredients.
 
- The product is part of The Harvest Table’s growing presence on Amazon and reflects the brand’s approach to simple, nutrient-dense formulations designed for everyday use.
+ Over the past several months, Pot on Fire has steadily built momentum among locals and visitors seeking something different from the conventional hot pot format. As diners become more familiar with the concept, the appeal of individualized dining has become increasingly clear, offering not just convenience but a more intentional and controlled way to experience hot pot. This format eliminates the guesswork of shared cooking and allows each guest to fully tailor their meal from start to finish.
 
- Now Available on Amazon * Bovine Collagen Granules - 12.35 oz (350 g) Pouch
+ The menu reflects a strong commitment to Taiwanese flavors, featuring signature broths such as spicy beef, sesame oil chicken, and preserved egg, alongside premium USDA meats and traditional ingredients that are not commonly found in other hot pot concepts in Las Vegas. This focus on authenticity and detail helps distinguish the experience from more generalized or fusion-style hot pot offerings that dominate the market.
 
- This formulation offers a straightforward collagen option made without added fillers, preservatives, artificial flavors, or dyes, consistent with The Harvest Table’s clean-label standards.
+ In a corridor known for its density and diversity, standing out requires more than just quality-it requires a clear identity. Pot on Fire’s focus on Taiwanese-style personal hot pot not only sets it apart but also contributes to the broader evolution of Chinatown’s culinary landscape. As new concepts continue to enter the market, those rooted in specific regional traditions are helping shape the district’s reputation as a destination for both authenticity and innovation.
 
- Designed for Everyday Wellbeing The Harvest Table’s formulations are developed to support daily nutrition and integrate easily into everyday routines.
+ By staying true to its origins while adapting to the expectations of the Las Vegas dining scene, Pot on Fire is not simply participating in a competitive category-it is helping redefine it. For diners seeking a more personalized, culturally grounded approach to hot pot, it offers a distinct alternative that continues to gain traction in the heart of Chinatown.
 
- Across the range, the brand focuses on:
-
- * Supporting overall wellbeing through nutrient-dense nutrition
-* Providing highly bioavailable ingredients for consistent use
-* Maintaining simple, transparent formulations
-
- The product is designed for everyday use, supporting wellbeing through clean, food-based nutrition.
-
- A Founder-Led Approach to Clean Nutrition The Harvest Table was founded by Catherine Clark following her personal health journey, which inspired a focus on simple, trustworthy nutrition made from recognizable ingredients.
-
- “Our goal has always been to create products that people can use consistently as part of their daily routine,” said Catherine Clark, Founder of The Harvest Table. “With Bovine Collagen Granules now available on Amazon, we’re pleased to offer a simple formulation that reflects our commitment to clean, everyday nutrition.”
-
- “We believe simplicity matters,” added Sam Clark, CEO of The Harvest Table. “This product represents a straightforward approach to collagen that aligns with our focus on quality, transparency, and consistency.”
-
- Manufacturing Standards & Quality Controls All The Harvest Table products are manufactured in-house at the company’s custom-built facility in KwaZulu-Natal, South Africa, where the brand maintains full control over sourcing, formulation, and quality.
-
- The facility:
-
- * Passes annual Food Safety Assessment (FSA) audits
-* Meets GMP manufacturing requirements
-* Is recognized as a Food Safe Facility
-
- The company also maintains Halaal certification for applicable markets.
-
- Product Attributes & Certifications The product is gluten-free and biodegradable, with certifications aligned to applicable international markets. Sustainability is emphasized through recyclable packaging and responsible manufacturing practices.
-
- Explore the Full Collection on Amazon In addition to Bovine Collagen Granules, The Harvest Table’s full product range is now available on Amazon, including:
-
- * Multi Collagen Radiance
-* Multi Collagen Granules
-* Vegan Protein
-
- For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
-
- About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
-
- Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
-
- With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
+ Guests can visit Pot on Fire on Spring Mountain Road to experience Taiwanese personal hot pot firsthand. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202604292394/the-harvest-table-bovine-collagen-granules-now-available-on-amazon)
+[Original/Source Press Release](https://newsworthy.ai/news/202604292395/chinatown-las-vegass-only-taiwanese-personal-hot-pot-debut)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-harvest-table-brings-clean-bovine-collagen-to-us-on-amazon/f82bb50e79bdd2c8dffe010e8468e9d3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pot-on-fire-brings-taiwanese-personal-hot-pot-to-las-vegas-chinatown/dccfd804489e673369d2dc99ca82099e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/chinatown-las-vegas-welcomes-its-only-taiwanese-personal-hot-pot-concept)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/chinatowns-only-taiwanese-personal-hot-pot-spot-carves-a-niche-in-las-vegas)
+
+Pickup - [https://burstable.news](https://burstable.news/news/pot-on-fire-introduces-taiwanese-personal-hot-pot-to-las-vegas-chinatown)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/pot-on-fire-bringt-taiwanesischen-einzel-feuer-topf-nach-las-vegas-chinatown)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/pot-on-fire-presenta-el-hot-pot-personal-taiwanes-en-el-chinatown-de-las-vegas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pot-on-fire-le-hot-pot-individuel-taiwanais-debarque-dans-le-chinatown-de-las-vegas)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pot-on-fire-apresenta-fondue-individual-taiwanes-em-chinatown-las-vegas)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/chinatown-las-vegas-welcomes-its-only-taiwanese-personal-hot-pot-concept)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/pot-on-fire-brings-authentic-taiwanese-personal-hot-pot-to-las-vegas-chinatown)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/29/noradAjv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/264/29/gluewrF7.webp)
