@@ -1,81 +1,46 @@
-# Better Buildings for Humans Podcast Expands Format to Showcase Real-World Projects, Bringing Audiences Inside the Buildings Defining Human Performance
+# Invitation to the Earnings Call of ZEAL Network SE - Publication of the Quarterly Statement Q1/2026
 
-New “Project Profiles” Series Marks a Major Evolution for the Podcast, Pairing Industry-Leading Insight With In-Depth Explorations of Completed, High-Performance Buildings
+HAMBURG, GERMANY - April 29, 2026 (NEWMEDIAWIRE) - Dr Stefan Tweraser (CEO) and Andrea Behrendt (CFO) invite all interested investors, analysts and journalists to the Earnings Call on the occasion of the publication of the Quarterly Statement Q1/2026 onWednesday, 6 May 2026, at 10:00 a.m. (CEST)In order to attend the webcast, please register before the conference at the following registration link: LINKYou can download both the presentation and the Quarterly Statement on the morning of the publication from our company website at the following link:https://zealnetwork.de/investors/reports-presentations/There you will also have the opportunity to access a recording of the Earnings Call during the course of the reporting day.The conference language is English.About ZEAL Network SE: ZEAL Network SE is the leading German provider of lotteries on the internet. Through the portals LOTTO24 and Tipp24 of the subsidiary LOTTO24, the company brokers customers' tickets to the state lottery companies and to charity lottery operators. The product range includes LOTTO 6aus49, Spiel 77, Super 6, Eurojackpot, GlucksSpirale, lottery clubs, Keno, the Deutsche Fernsehlotterie, Scratch Games, the Deutsche Traumhauslotterie and freiheit+. Founded in Germany in 1999, ZEAL started out as a German lottery broker under the name Tipp24. In 2005, the company went public on the Frankfurt Stock Exchange (Prime Standard) as one of the most successful IPOs in Germany at the time. In 2019, ZEAL took over LOTTO24 AG. Contact:Frank Hoffmann, CEFAInvestor RelationsZEAL Network SEStraBenbahnring 1120251 HamburgT: +49 (0)40 809036042frank.hoffmann@zealnetwork.de
 
- SYDNEY, NOVA SCOTIA and WILMINGTON, NC - April 29, 2026 (NEWMEDIAWIRE) - Better Buildings for Humans, the leading podcast exploring the intersection of architecture, human performance, and wellness, powered by Advanced Glazings, today announced a major expansion of its format with the launch of its new Project Profiles series, a high-impact initiative designed to take audiences inside the world’s most forward-thinking buildings.
+ 
 
- Since launch, the podcast has established itself as a go-to platform for architects, engineers, and built environment leaders seeking serious, experience-driven insight into how buildings impact human outcomes.
+ 
 
- Now, the show is moving beyond conversation alone.
-
- The Project Profiles series brings the industry’s ideas into full view, featuring leading firms walking through recently completed projects in detail, from concept through execution to real-world performance.
-
- “This is the format the show has been building toward,” said Joe Menchefski, host of Better Buildings for Humans. “We’ve spent years unpacking the principles behind better buildings. Now we’re showing exactly how those principles are applied, project by project, decision by decision. You’re not just hearing what matters. You’re seeing what works.”
-
- Each episode will take listeners and viewers deep inside a finished project, guided by the architects and teams responsible. These are not surface-level case studies. They are detailed breakdowns of how high-performance buildings are actually delivered.
-
- Episodes will explore the full picture:
-
- * How design decisions directly impact human comfort, cognitive performance, and well-being
-* The integration of daylighting, materials, and systems to balance sustainability with usability
-* The tradeoffs, constraints, and breakthroughs encountered during execution
-* What the building is doing now that it’s complete, how it performs, and what it teaches
-
- At the same time, the format creates space to understand the firms behind the work - their philosophies, specialties, and what differentiates them in a market that is rapidly shifting toward measurable performance.
-
- “The conversation around buildings is changing fast,” said Dr. Doug Milburn, Chairman of Advanced Glazings. “Owners and operators are no longer satisfied with design intent alone. They want outcomes. What this series does is connect those outcomes to real projects and real decisions, which is exactly what the industry needs right now.”
-
- Production on Project Profiles episodes is already underway, with initial projects currently being filmed and prepared for release.
-
- Architecture and design firms interested in being featured are invited to submit projects for consideration at BBFH@PhillComm.Global.
-
- With this expansion, Better Buildings for Humans is positioning itself not just as a forum for ideas, but as a definitive platform for understanding how better buildings are actually conceived, built, and experienced.
-
- About Better Buildings for Humans
-
- Better Buildings for Humans is a podcast focused on how the built environment shapes human health, performance, and experience. Through in-depth conversations with leading architects, engineers, and innovators, the show explores the ideas and technologies defining the next generation of buildings.
-
- About Advanced Glazings
-
- Advanced Glazings is a leader in high-performance daylighting systems, with solutions spanning commercial, institutional, and residential applications. Its Solera® family of products is designed to optimize natural light, reduce energy consumption, and improve human comfort at scale.
-
- Contact:Jonathan PhillipsAdvancedGlazings@PhillComm.Global
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/better-buildings-for-humans-podcast-expands-format-to-showcase-real-world-projects-bringing-audiences-inside-the-buildings-defining-human-performance-7086577)
+[Original/Source Press Release](https://www.newmediawire.com/news/invitation-to-the-earnings-call-of-zeal-network-se-publication-of-the-quarterly-statement-q1-2026-7086581)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/podcast-expands-to-showcase-real-world-high-performance-buildings/d505a1e77e323d87ac23a7afbe04cbfe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zeal-network-se-to-host-q1-2026-earnings-call-on-may-6/c40114c55f2dfdcfa2a06b7e85770c73) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
+Pickup - [https://advos.io/en](https://advos.io/en/zeal-network-se-to-host-earnings-call-for-q12026-quarterly-statement)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/zeal-network-se-schedules-q12026-earnings-call-for-may-6)
 
-Pickup - [https://burstable.news](https://burstable.news/news/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
+Pickup - [https://burstable.news](https://burstable.news/news/zeal-network-se-schedules-earnings-call-for-q1-2026-results)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/podcast-better-buildings-for-humans-startet-serie-project-profiles-zur-vorstellung-realer-hochleistungsgebaude)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/zeal-network-se-ladt-zur-telefonkonferenz-fur-die-q1-2026-ergebnisse-ein)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/podcast-mejores-edificios-para-humanos-lanza-la-serie-perfiles-de-proyectos-para-mostrar-edificios-de-alto-rendimiento-del-mundo-real)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/zeal-network-se-convoca-a-conferencia-de-resultados-del-primer-trimestre-de-2026)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lancement-de-la-serie-profils-de-projets-par-le-podcast-better-buildings-for-humans-pour-mettre-en-lumiere-des-batiments-performants-concrets)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/zeal-network-se-programme-une-conference-telephonique-sur-les-resultats-du-premier-trimestre-2026)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/podcast-edificios-melhores-para-humanos-lanca-serie-de-perfis-de-projetos-para-mostrar-edificios-de-alto-desempenho-do-mundo-real)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/zeal-network-se-agenda-teleconferencia-de-resultados-do-1o-trimestre-de-2026)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/zeal-network-se-schedules-earnings-call-for-q12026-results)
 
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/better-buildings-for-humans-podcast-launches-project-profiles-series)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/zeal-network-se-schedules-earnings-call-for-q1-2026-quarterly-statement)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
-
-Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/better-buildings-for-humans-podcast-launches-project-profiles-series-to-showcase-real-world-high-performance-buildings)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/zeal-network-se-to-host-q12026-earnings-call-on-may-6)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/29/ideaMnce.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/29/milkPZua.webp)
