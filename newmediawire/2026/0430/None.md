@@ -1,68 +1,72 @@
-# FWD Group Reports Strong First Quarter New Business Update, Adding to Its Consistent Track Record of Financial Performance
+# CHARBONE Announces 2025 Annual Financial Results and Corporate Updates
 
-HONG KONG - April 30, 2026 (NEWMEDIAWIRE) - FWD Group Holdings Limited (“FWD Group” or “FWD”) today announced strong first quarter new business highlights for the three months ended 31 March 2026.
+BROSSARD, QUEBEC - April 30, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a vertically integrated industrial gases company focused on production, distribution and storage of clean ultra-high purity (“UHP”) hydrogen and other strategic industrial gases, today announces its financial and operational results for the year ending December 31, 2025.
 
- - New business sales were up four per cent to US$720 million compared to the same period in 2025 on an annualised premium equivalent (APE) basis.
+ Since Q4 2025, CHARBONE began generating revenues from industrial gases such as clean UHP hydrogen sourced from its Sorel-Tracy facility Phase 1A, UHP helium and UHP oxygen. CHARBONE is now progressing well with its Phase 1B at Sorel-Tracy to increase its hydrogen production capacity in Q3 2026 while continuing to expand its other specialty gases platform.
 
- - New business contractual service margin was US$556 million, with year-on-year growth of 18 per cent.
+ 2025 HIGHLIGHTS:
 
- - Introduced 11 new products around the region; the FWD Group consumer outlook survey released in February 2026 showed that the majority of Asia’s middle-class feel financially anxious and underprepared for retirement.
+ - Net loss decreased by 6% to $2,676,116 in 2025, down from $2,837,693 in 2024 (activities still tightening general and administrative expenses).
 
- Huynh Thanh Phong, Group Chief Executive Officer and Executive Director of FWD Group, said, “This is another strong set of results, reflecting our consistent track record of performance, growth, and the diversified pan-Asian footprint and distribution model of FWD Group. Japan and our Expansion Markets in Southeast Asia were key drivers of growth, alongside another solid performance from Hong Kong SAR, despite the high base effect from a record first quarter comparison in 2025.”
+ - Gas income generated $201,277 in 2025 ($nil in 2024).
 
- “At FWD Group, we have confidence over the long-term that the rising middle-class trend in Asia will continue, despite the near-term impacts of external shocks on economies and consumers in the region. The outlook for the high-net-worth segment, served by FWD Private, remains positive, particularly given the strength and confidence in financial hubs in the region like Hong Kong SAR where we are headquartered,” added Huynh Thanh Phong.
+ - Recognition of revenues following the advancement of activities from the Master Collaborative Agreement to support the deployment of a Malaysian green hydrogen project development.
 
- The Hong Kong SAR & Macau SAR reporting segment delivered continued growth in the first quarter of 2026 compared to the record high first quarter in 2025, reflecting both domestic and financial hub related demand.
+ - The Company closed a private placement of $1,012,980, units for debt settlement of $1,776,827, shares for the management debt settlement of $310,000, exercised warrants totalling $1,943,034 ($866,994 in 2024) and an additional $303,634 in convertible debentures.
 
- Japan reported strong growth, reflecting the boost from its strategic expansion into the retirement and savings segment in mid 2025, alongside its long-standing protection business.
+ - Following the signature of an Asset Purchase Agreement with Harnois Energies Inc., CHARBONE completed the acquisition and reinstallation of the operational hydrogen production and refueling equipment at its Sorel-Tracy site. On October 6, 2025, the Company issued 13,333,334 common shares at $0.075 per share, representing $1 million in equity consideration to Harnois Energies Inc. as a part of the payment of the acquisition transaction.
 
- The Expansion Markets segment - comprised of Indonesia, Malaysia, the Philippines, Singapore, and Vietnam - posted excellent growth, driven by the broker and independent financial advisor channel and solid bancassurance results.
+ - As of December 31, 2025, CHARBONE had a cash balance of $1,016,292. The Company then closed a private placement of $3,100,000 on January 12, 2026, and $3,000,000 as a first drawdown of its new $10 million secured convertible loan on April 29, 2026 with optional drawdowns during the term of the loan.
 
- In the Thailand & Cambodia segment, the focus on developing quality new business continued, given sustained growth headwinds from the lower rate environment in Thailand. As previously announced, Khun Knattapisit Krutkrongchai (KK) will join FWD as Chief Executive Officer, Thailand, effective 11 May 2026, subject to relevant regulatory approvals. KK is a seasoned insurance executive with almost 30 years of experience, including most recently as Chief Executive Officer of Krungthai-AXA.
+ “CHARBONE’s disciplined financial management, operational execution and successful completion of new financings, position the Company to continue its growth as a vertically integrated industrial gases producer and distributor,” said Benoit Veilleux, Chief Financial Officer and Corporate Secretary of CHARBONE. “CHARBONE is moving into execution mode to unlock its strong growth potential.
 
- About FWD Group
+ Financials
 
- FWD Group (1828.HK) is a pan-Asian life and health insurance business that serves approximately 40 million customers across 10 markets, including BRI Life in Indonesia. FWD’s customer-led and tech-enabled approach aims to deliver innovative propositions, easy-to-understand products and a simpler insurance experience. Established in 2013, the company operates in some of the fastest-growing insurance markets in the world with a vision of changing the way people feel about insurance. FWD Group is listed on the main board of the Hong Kong Stock Exchange under the stock code 1828. For more information, please visit www.fwd.com
+ Financials
 
- For media inquiries, please contact: groupcommunications@fwd.com
+ Annual General and Extraordinary Meetings of Shareholders
 
- Source: FWD Group Holdings Limited
+ The Company has reserved June 18, 2026 for its 2024 and 2025 Annual General and Extraordinary Meetings of Shareholders (the “AGSM”). Further details will be sent to the Company's shareholders as of April 29, 2026.
 
- *The unaudited results are for the three months ended 31 March 2026 and are compared to the same period in 2025. Growth rates are represented on a constant exchange rate basis. New business sales are calculated on an APE basis, based on 100 percent annualised first year premiums and 10 percent single premiums.
+ Omnibus Incentive Plan
+
+ The Company is pleased to announce that it has obtained approval from its Board of Directors for the adoption of a new omnibus equity incentive plan (the “Omnibus Plan”), subject to the TSX Venture Exchange approval. The Company will include the Omnibus Plan in the circular that will be sent to obtain shareholder’s approval at the upcoming AGSM. As of June 18, 2026, the Omnibus Plan, if approved, will replace the Company's current stock option plan that was last reconducted on March 28, 2025 (the “Previous Plan”).
+
+ The board of directors determined that it is desirable to have a wide range of incentive awards, including stock options (“Options”), restricted share units (“RSUs”), performance share units (“PSUs”), and deferred share units (“DSUs”) (collectively, the “Awards”) to attract, retain and motivate employees, directors, executive officers and consultants of the Company.
+
+ The aggregate number of common shares reserved for issuance pursuant to Awards of DSUs, RSUs, PSUs and Options granted under the Omnibus Plan (including the Predecessor Options currently outstanding under the Previous Plan) shall not exceed 10% of the Company’s total issued and outstanding common shares from time to time.
+
+ The Company has also cancelled 2,050,000 Options that had been granted on September 9, 2022 at an exercise price of $0.60 per share for a term of 5 years.
+
+ About CHARBONE CORPORATION
+
+ CHARBONE is a vertically integrated industrial gases company focused on developing and operating a network of supply hubs for the production, storage, and distribution of Ultra-High Purity (UHP) strategic industrial gases. The Company serves customers across sectors including semiconductors, artificial intelligence and data centers, advanced pharmaceuticals, and aerospace and defense technologies, where UHP gases are critical for high-precision manufacturing processes and operational performance. CHARBONE is advancing a network of clean UHP hydrogen production facilities across North America and selected international markets. The Company’s modular, decentralized, and demand-driven approach, combined with its integrated storage and distribution platform for all UHP gases, supports scalable growth, enhances operational flexibility, and enables more stable and diversified revenue generation. This model allows CHARBONE to efficiently serve mid-tier industrial gas customers with a reliable supply of UHP gases, including hydrogen, helium, oxygen, and any others that are in high-demand gases that are often difficult to source. The Company is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gases, while addressing supply gaps for underserved industrial customers and accelerating the shift towards localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). For more information, please visit: www.charbone.com.
+
+ Forward-Looking Statements
+
+ This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Filing Statement dated March 31, 2022, which is available on SEDAR at www.sedar.com; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+
+ Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+
+ Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ Contact Charbone CorporationTelephone: +1 450 678 7171Email: ir@charbone.comBenoit VeilleuxCFO and Corporate Secretary
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fwd-group-reports-strong-first-quarter-new-business-update-adding-to-its-consistent-track-record-of-financial-performance-7086585)
+[Original/Source Press Release](https://www.newmediawire.com/news/charbone-announces-2025-annual-financial-results-and-corporate-updates-7086587)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fwd-group-q1-2026-sales-up-4-contractual-service-margin-jumps-18/2a17ff4d78804098e71890129425eae4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-reports-2025-results-progress-on-hydrogen-expansion/21b8cbbff032ab50fefafe676fe00cad) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/fwd-group-reports-strong-first-quarter-results-with-new-business-sales-up-4)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/fwd-group-reports-strong-q1-2026-new-business-growth-driven-by-japan-and-expansion-markets)
-
-Pickup - [https://burstable.news](https://burstable.news/news/fwd-group-reports-strong-first-quarter-with-18-growth-in-new-business-contractual-service-margin)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fwd-group-meldet-starkes-erstes-quartal-mit-18-wachstum-bei-der-vertraglichen-servicemarge-fur-neugeschaft)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fwd-group-reporta-un-solido-primer-trimestre-con-un-crecimiento-del-18-en-el-margen-contractual-de-servicio-de-nuevos-negocios)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fwd-group-annonce-un-premier-trimestre-solide-avec-une-croissance-de-18-de-la-marge-sur-services-contractuels-des-nouvelles-affaires)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/grupo-fwd-reporta-forte-primeiro-trimestre-com-crescimento-de-18-na-margem-de-servico-contratual-de-novos-negocios)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/fwd-group-reports-strong-first-quarter-new-business-growth)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/fwd-group-reports-strong-first-quarter-results-driven-by-japan-and-southeast-asia-expansion)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/fwd-group-reports-strong-first-quarter-results-new-business-sales-up-4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/30/herbPVkq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/264/30/joltKCWa.webp)
