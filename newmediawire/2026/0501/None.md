@@ -1,67 +1,88 @@
-# Aquinas Senior Living Scales Tetons AI Monitoring Platform Across Pennsylvania Portfolio, Achieves 99.8% Resident Adoption
+# Wintermar Offshore (WINS:JK) Reports 1Q2026 Results
 
-STATE COLLEGE, PA - April 30, 2026 (NEWMEDIAWIRE) - Aquinas Senior Living, Inc., a pioneer in tech-enabled, empathetic senior care, today announced the expansion of its integrated resident safety ecosystem powered by Teton, the proactive care platform for senior living communities.
+JAKARTA, INDONESIA - May 1, 2026 (NEWMEDIAWIRE) - Wintermar (WINS:JK) records attributable net profit growth of 194% YOY to US$4.8 million for 1Q2026 on 47.8% YOY revenue growth.
 
- Following a benchmark-setting deployment of Teton’s monitoring platform at Heritage Springs Memory Care in Montoursville, ASL has successfully launched the system at its Wynwood House communities in State College and Centre County, achieving near-universal resident and family adoption. Building on this momentum, Aquinas activated the Teton system at the Wynwood House State College location on April 1, 2026. On April 8, 2026, the Wynwood House Nittany Valley site in Centre County also went live. Across these Wynwood House communities, resident and family adoption has reached 99.8%, with only a single family across the entire rollout opting out.
+ Owned Vessel Division
 
- How the Technology Works
+ With more High Tier vessels in operation since December 2025, 1Q 2026 recorded a 53.9% YOY increase in Owned Vessel Revenue amounting to US$22.8 million, resulting in Owned Vessel gross profit doubling to US$12.7 million for 1Q2026 on gross margins of 55.7% compared to 41.1% in 1Q2025.
 
- Teton’s AI technology and monitoring system does four things: creates clarity across communities, detects changes in residents’ health early, alerts care staff to act early, and enables more tailored and person-to-person care.
+ Chartering Division and Other Services
 
- Teton is a passive optical sensor installed in resident rooms with a minimal footprint that requires no resident interaction, no wearables, no manual calibration, and no charging. Privacy is engineered into how the system works, not added as an afterthought - no video is streamed live, and no audio is captured, and the system processes movement data locally on-site. Care teams receive safety signals and, when needed, brief anonymized clips, not a live video feed. The platform is HIPAA compliant and SOC 2 certified.
+ Management continued to focus on marketing Owned Vessels and grow the Other services division where margins higher, resulting in a fall in Gross profit from chartering to US$0.03 million (-15% YOY) while Other Services contributed gross profit of US$0.5 million (+17% YOY) with gross margins of 34.1%.
 
- This approach is grounded in Teton’s own research: an analysis of more than 2,000 falls across four countries found that measurable signals, including night-time movement patterns, sleep disruption, and changes in respiration, consistently precede falls by hours or days, giving care teams the opportunity to intervene before an incident occurs.
+ Direct Expenses and Gross Profit
 
- The technology integrates directly into clinical workflows, enabling care teams to act on insights within the systems they already use, without adding administrative burden or requiring staff to monitor separate dashboards.
+ In line with the larger fleet of High Tier Vessels in operation, depreciation rose by 20.0% YOY to US$4.0 million while Crewing rose by 24.2% YOY to US$2.9 million and Operational costs grew 38.5% to US$1.1 million for 1Q 2026.
 
- The E-call Integration Beta
+ As more vessels were in operation compared to 1Q2025, maintenance costs were lower by 1.8% YOY at US$1.7 million. Fuel bunker was also lower at US$0.4 million as there were fewer idle vessels, and no significant mobilization costs as compared to 1Q2025 where the Company mobilised vessels for international contracts.
 
- As part of this expansion, one of Aquinas’s Pennsylvania facilities is currently serving as the official Beta test site for the integrated E-call resident call system. This technology folds traditional resident assistance requests directly into the Teton.ai dashboard. By unifying fall detection and manual assistance requests into a single interface, Aquinas is eliminating “alarm fatigue” and allowing staff to prioritize the most critical resident needs in real time.
+ Total Gross Profit rose by 101.6% YOY to US$13.3 million largely from a strong performance in the Owned Vessel Division, which enjoyed a utilization rate of 62% compared to 55% in 1Q 2025.
 
- A Growing Footprint of Care
+ Indirect Expenses and Operating Profit
 
- The Aquinas roadmap continues to accelerate through the spring:
+ Total Indirect Expenses rose by 14.6% YOY to US$2.8 million, largely due to staff expenses which increased by 16.7% YOY to US$2.1 million. This was because the timing of Hari Raya bonuses and annual bonuses falling in the same quarter this year. Marketing costs rose by 33.2% YOY to US$0.2 million, reflecting more tendering activity, while professional fees rose by 46.3% YOY to US$0.08 million due to the upgrading of payroll software. Office utilities fell by 13.0% YOY.
 
- * November 2025: Heritage Springs (Montoursville) achieved 100% adoption.
-* April 1, 2026: Wynwood House (State College) went live.
-* April 8, 2026: Wynwood House (Nittany Valley/Centre County) went live.
-* May 2026: Teton platform is scheduled for adoption at the Lewisburg community.
+ Operating Profit rose by 153.0% YOY to US$10.5 million for the first quarter.
 
- About the Partnership
+ Other Income, Expenses and Net Attributable Profit
 
- “What we saw in Montoursville was the proof of concept; what we are seeing today in State College and Centre County is proof of scale with near universal adoption,” said Stephen J. Schmid, President and CEO of Aquinas Senior Living. “Our residents and their families aren’t just accepting this technology - they are embracing it. They recognize that a ‘proven and fully adopted’ system is the best path to ensure the highest standard of safety in modern senior living communities.”
+ Interest expenses fell slightly by 1.2% to US$0.5 million due to refinancing at lower interest rates while interest income fell by 14% YOY to US$0.2 million due to decrease in time deposit interest rates. There were no vessel sales this quarter, but associated companies recorded a net loss of US$0.5 million due to lower utilization of fleet. The Company recorded a lower loss of Forex at US$0.15 million compared to US$0.36 million in 1Q2025, as earnings are in US$.
 
- “By integrating Teton’s computer-vision AI with our new E-call resident response system, we are moving away from disparate ‘point solutions’ toward a truly unified ecosystem,” added Jim Burnham, Chief Operating Officer. “This ensures that whether a resident pushes a button or the AI detects a potential risk, our team is there exactly when they are needed.”
+ Total attributable Net Profit amounted to US$4.8 million (+194% YOY) for 1Q2026, yielding an Earnings per share of Rp18.4 in 1Q2026 compared to Rp6.3 in 1Q2025.
 
- “The reality of moving care from reactive to proactive is that it goes beyond operational gains, it changes the quality of life for residents. A fall that doesn’t happen, a hospitalization avoided, a family member who sleeps better at night knowing their loved one is safe,” said Katie Grant, President, U.S., Teton. “Memory care is one of the most demanding care environments there is, and it is exactly where having the right information at the right moment makes the greatest difference.”
+ As a result of these better operational conditions, EBITDA rose by 92.2% YOY to US$14.6 million in 1Q2026 compared to US$7.6 million in 1Q2025.
 
- About Teton
+ Industry Outlook
 
- Teton is leading a fundamental shift in care, moving care and the way it is delivered from reactive to proactive. Our advanced AI and computer vision technology is custom-built for care settings, providing clarity, delivering foresight, enabling action, and driving outcomes. The result is higher-quality care and better-run operations. We are starting with senior care communities and hospitals, and believe our technology can generate significant benefits in any care environment, anywhere in the world. Founded in Denmark and with a presence across the United States and Europe, Teton exists to make amazing care affordable and accessible for all. www.teton.ai
+ The Iran war has continued into the second quarter of this year, with an uncertain ceasefire providing some relief at the time of writing this newsletter. Oil prices have eased but continue to be volatile and supply of Oil remains restricted with the closure of the Strait of Hormuz. The high risks of relying on Middle Eastern oil has strengthened the resolve of governments across the world towards energy security. Globally, there are up to US$40 billion worth of upstream projects slated for acceleration, including some in Indonesia.
 
- About Aquinas Senior Living
+ Business Prospects
 
- Aquinas Senior Living, Inc. is a senior housing acquisition and management company serving the Mid-Atlantic region. Guided by a mission to enhance resident well-being through compassionate care and innovative technology, Aquinas is redefining safety and quality standards in senior living. The company’s resident-first approach combines operational excellence with empathy, creating communities where seniors thrive and families have peace of mind.
+ With a strong market outlook for OSV demand, the Company is making plans to grow the fleet through investing in new building as well as acquisitions. The Group’s eighth Platform Supply Vessel that was purchased in end 2025 is currently undergoing repair and upgrading, and should be operational in mid 2H2026. At the present time, Wintermar’s vessels are still largely chartered on spot contracts but there are some longer term contracts in the bidding process for 2027. However, Associate Company Fast Offshore Supply Pte Ltd in Singapore has won a long-term contract to build a fleet of Crew Transfer Vessel (CTV) in Singapore and Batam for delivery in 2027, which should start contributing earnings when the vessels commence operations next year.
 
- Learn more about Aquinas Senior Living at aquinasseniorliving.com.
+ Total contracts on hand as at end March 2026 amount to US$47.8 million.
 
- info@aquinasseniorliving.com
+ About Wintermar Offshore Marine Group
 
- ContactPresident & CEOStephen SchmidAquinas Senior Living, Inc.info@aquinasseniorliving.com610-420-7657
+ Wintermar Offshore Marine Group (WINS.JK), developed over nearly 50 years with a track record of quality that is both a source of pride and responsibility that we are dedicated to upholding, and sails a fleet of more than 44 Offshore Support Vessels ready for long term as well as spot charters. All vessels are operated by experienced Indonesian crew, tracked by satellite systems and monitored in real-time by shore-based Vessel Teams.
 
-View the original release on www.newmediawire.com 
+ Wintermar is the first shipping company in Indonesia to be certified with an Integrated Management System by Lloyd's Register Quality Assurance, and is currently certified with ISO 9001:2015 (Quality), ISO14001:2015 (Environment) and OHSAS 18001:2007 (Occupational Health and Safety). For more information, please visit www.wintermar.com.
+
+ For further information, please contact:Ms. Pek Swan Layanto, CFAInvestor RelationsPT Wintermar Offshore Marine TbkTel +62-21 530 5201 Ext 401Email: investor_relations@wintermar.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aquinas-senior-living-scales-tetons-ai-monitoring-platform-across-pennsylvania-portfolio-achieves-99-8-resident-adoption-7086605)
+[Original/Source Press Release](https://www.newmediawire.com/news/wintermar-offshore-wins-jk-reports-1q2026-results-7086608)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aquinas-senior-living-scales-tetons-ai-monitoring-to-99-8-adoption/51e6ab258af3b3e0c4151c4533ede8b0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wintermar-s-net-profit-soars-194-in-1q2026-on-strong-vessel-demand/926c667f4ab7c753bfa1936ee1319ea1) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/wintermar-offshore-reports-194-jump-in-net-profit-for-1q2026-amid-higher-vessel-utilization)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/wintermar-offshore-reports-194-profit-surge-in-1q2026-amid-strong-vessel-utilization-and-geopolitical-tailwinds)
+
+Pickup - [https://burstable.news](https://burstable.news/news/wintermar-offshore-reports-194-net-profit-surge-in-1q2026-amid-strong-vessel-utilization)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/wintermar-offshore-meldet-194-nettogewinnsprung-im-1-quartal-2026-dank-hoher-schiffsauslastung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/wintermar-offshore-reporta-un-aumento-del-194-en-la-ganancia-neta-en-el-1t2026-ante-una-fuerte-utilizacion-de-la-flota)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/wintermar-offshore-fait-etat-dune-hausse-de-194-de-son-benefice-net-au-1er-trimestre-2026-grace-a-une-forte-utilisation-des-navires)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/wintermar-offshore-relata-aumento-de-194-no-lucro-liquido-no-1t2026-com-forte-utilizacao-de-embarcacoes)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/wintermar-offshore-marine-q1-net-profit-surges-194-on-strong-vessel-utilization)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/wintermar-offshore-net-profit-surges-194-in-1q2026-on-strong-vessel-demand)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/wintermar-offshore-reports-194-net-profit-surge-in-1q2026-amid-strong-vessel-utilization-and-industry-tailwinds)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/926c667f4ab7c753bfa1936ee1319ea1)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/1/lambkhEI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/1/yarnUw2H.webp)
