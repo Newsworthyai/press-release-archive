@@ -1,30 +1,46 @@
-# Datavault AI (DVLT) Enters LOI to Acquire CyberCatch
+# Celebrate AAPI Heritage Month With an Immersive Cultural Journey at the Martial Arts History Museum
 
-LOS ANGELES, CA - May 1, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), a provider of data monetization, credentialing, digital engagement and real-world asset (“RWA”) tokenization technologies, and CyberCatch, a cybersecurity company offering a patented, AI-enabled platform for continuous compliance and cyber risk mitigation, announced they have entered into a binding letter of intent under which Datavault AI will acquire 100% of CyberCatch in an all-stock transaction valued at about CAD $136.8 million. CyberCatch is expected to operate as a Datavault AI subsidiary, with founder, Chairman and CEO Sai Huda serving as president of the subsidiary.
+GLENDALE, CA - May 1, 2026 (NEWMEDIAWIRE) - This May, as the nation honors Asian American and Pacific Islander (AAPI) Heritage Month, the Martial Arts History Museum invites the public to experience the living legacy of Asian contributions at its brand-new facility in the heart of Glendale. While the month is a time for reflection on the positive impact of the AAPI community, the museum offers a unique destination for those looking to do something different with their celebration by exploring the deep artistic and historical roots of the East.
 
- To view the full press release, visit https://ibn.fm/lktOf
+ Now centrally located on Brand Boulevard, the Martial Arts History Museum serves as a vital educational gateway into the heart of Asian art, music, and tradition. Visitors this month will discover how the deep-rooted customs of countries like Japan, China, Korea, Thailand, and the Philippines fueled the development of historical practices and shaped global history. It is a place specifically designed to celebrate the profound connection between cultural identity and ancient traditions.
 
- About Datavault AI Inc.
+ Museum President Michael Matsuda notes that while Glendale is a city with deep ties to Japan and South Korea - even boasting its own private Japanese Garden - it also houses a premier facility dedicated entirely to Asian culture. Matsuda expresses his hope that the community considers the museum a primary destination in their celebration of AAPI heritage, noting that the facility provides a significant cultural service to the city of Glendale and its surrounding neighbors.
 
- Datavault AI is leading the way in AI experience, valuation, and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Science and Data Science Divisions. Datavault AI’s Acoustic Science Division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry first foundational spatial and multichannel wireless HD sound transmission technologies with IP covering audio timing, synchronization and multi-channel interference cancellation. The Data Science Division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization. Datavault AI’s cloud-based platform provides comprehensive solutions serving multiple industries, including HPC software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) (IDE) enables Digital Twins, licensing of name, image, and likeness (NIL) by securely attaching physical real-world objects to immutable metadata objects, fostering responsible AI with integrity. Datavault AI’s technology suite is completely customizable and offers AI and Machine Learning (ML) automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring. The Company is headquartered in Philadelphia, PA.
+ While the museum champions Asian culture throughout the year, May serves as a special focal point for local residents and families. Nearly every week, the museum hosts events that promote Asian tradition, providing fresh experiences for returning visitors and newcomers alike. These programs ensure that the museum remains a vibrant center for community engagement and cultural preservation.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Education remains at the forefront of the museum’s mission, and schools in the Glendale and Burbank areas are strongly encouraged to book field trips during the month of May. These visits offer a curated environment where students can learn about diversity and history in an engaging setting. By welcoming the next generation to its new Glendale home, the museum helps ensure that AAPI contributions are recognized as a fundamental part of the American story.
 
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ The Martial Arts History Museum is now located at 201 N. Brand Blvd., B100, Glendale, CA 91203. For more information on upcoming May events, to schedule a school tour, or to inquire about hours of operation, please call (818) 245-6051 or visit the museum’s official website at MAmuseum.com. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-enters-loi-to-acquire-cybercatch-7086618)
+[Original/Source Press Release](https://www.newmediawire.com/news/celebrate-aapi-heritage-month-with-an-immersive-cultural-journey-at-the-martial-arts-history-museum-7086619)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-acquires-cybercatch-in-136-8m-all-stock-deal/435bc3870e8cd07be896973046c43ce5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martial-arts-history-museum-celebrates-aapi-heritage-in-glendale/86d3329b0d2a70353854207797253cff) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/martial-arts-history-museum-offers-cultural-journey-for-aapi-heritage-month-in-glendale)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/martial-arts-history-museum-offers-immersive-aapi-heritage-month-experience-in-glendale)
+
+Pickup - [https://burstable.news](https://burstable.news/news/martial-arts-history-museum-invites-public-to-celebrate-aapi-heritage-month)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/museum-fur-kampfkunstgeschichte-ladt-zur-feier-des-aapi-heritage-month-ein)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-museo-de-historia-de-las-artes-marciales-invita-al-publico-a-celebrar-el-mes-del-patrimonio-aapi)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-musee-dhistoire-des-arts-martiaux-invite-le-public-a-celebrer-le-mois-du-patrimoine-aapi)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/museu-de-historia-das-artes-marciais-convida-o-publico-a-celebrar-o-mes-da-heranca-aapi)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/martial-arts-history-museum-invites-public-to-celebrate-aapi-heritage-month-with-cultural-immersion-in-glendale)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/martial-arts-history-museum-offers-immersive-aapi-heritage-month-experience-in-new-glendale-facility)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/1/isleKWFZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/1/odor8bL2.webp)
