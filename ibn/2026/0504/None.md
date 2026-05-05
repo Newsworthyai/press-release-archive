@@ -1,36 +1,40 @@
-# Study Finds That Vitamin D Supercharges Chemotherapy Against Breast Cancer
+# 420 with CNW — GOP Congressmen Advance Legislation to Block Marijuana Rescheduling
 
-A clinical trial in Brazil has found that adding a daily vitamin D supplement to standard chemotherapy improved outcomes for women with breast cancer. The finding contributes to growing interest in low-cost nutritional approaches that could enhance cancer treatment. Unlike many pharmaceutical agents designed to boost chemotherapy response, such an intervention would be widely accessible and inexpensive. The implications extend to any clinical setting seeking affordable ways to improve treatment response in breast cancer.
+Republican lawmakers on a key House committee are pushing forward a spending proposal that could halt federal efforts to reschedule cannabis. The move comes shortly after the Trump administration signaled plans to proceed with reclassifying the drug.
 
- As next-generation treatments for breast cancer and other cancers are developed by companies like Calidi Biotherapeutics Inc. (NYSE American: CLDI), nutritional supplements like…
+ As this spending bill makes its way through Congress, marijuana companies like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) will be following the…
 
  Read More>>
 
- About TinyGems
+ About CNW420
 
- TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TinyGems.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TinyGems is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/study-finds-that-vitamin-d-supercharges-chemotherapy-against-breast-cancer/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-gop-congressmen-advance-legislation-to-block-marijuana-rescheduling/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vitamin-d-supplement-boosts-chemotherapy-in-breast-cancer-trial/ee59c00737b68f25165478b0f444aeea) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gop-lawmakers-move-to-block-cannabis-rescheduling-despite-trump-s-signals/b57e8ff10ff74dd3a9e3f2abbd8a4f63) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/house-gop-spending-bill-could-block-federal-cannabis-rescheduling-efforts)
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/b57e8ff10ff74dd3a9e3f2abbd8a4f63)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/4/harpp6oV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/4/noonTRt_.webp)
