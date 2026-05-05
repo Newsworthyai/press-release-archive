@@ -1,35 +1,37 @@
-# TechMediaBreaks – SKYX Platforms Corp. (NASDAQ: SKYX) To Deploy Smart Technologies in French Hotel Renovation
+# HeartBeam Inc. (NASDAQ: BEAT) Tackles Heart Disease with Next-Generation ECG Solutions
 
-SKYX Platforms (NASDAQ: SKYX) announced it will deploy its smart home and building technologies in the renovation and expansion of The Grand Hotel du Parc in La Bourboule, France, supplying thousands of lighting and safety units as part of a three-phase project with Group OTT.
+* Cardiovascular disease remains the leading cause of death in the United States.
+* One of the most persistent challenges in cardiac care is patient delay in seeking care.
+* HeartBeam is working to address this gap by transforming how ECG data are collected and used through its HeartBeam System.
 
- To view the full press release, visit https://ibn.fm/eizM0
+ Cardiovascular disease continues to be a major global health challenge, driven by aging populations, lifestyle factors and persistent gaps in early detection that continue to challenge healthcare systems. In response to these trends, HeartBeam (NASDAQ: BEAT) is developing technology aimed at improving how cardiac conditions are identified and monitored, positioning its solutions at the intersection of rising clinical need and evolving innovation.
 
- About SKYX Platforms Corp.
+ The scale and severity of cardiac disease underscore the urgency of new approaches. According to the Centers for Disease Control and Prevention, cardiovascular disease remains the leading cause of death in the United States, accounting for more than 919,000 deaths in 2023, or roughly one in every…
 
- As electricity is a standard in every home and building, our mission is to make homes and buildings become safe-advanced and smart as the new standard. SKYX has a series of highly disruptive advanced-safe-smart platform technologies, with over 100 U.S. and global patents and patent pending applications. Additionally, the Company owns 60 lighting and home decor websites for both retail and commercial segments. Our technologies place an emphasis on high quality and ease of use, while significantly enhancing both safety and lifestyle in homes and buildings. We believe that our products are a necessity in every room in both homes and other buildings in the U.S. and globally. For more information, please visit our website at https://skyplug.com/ or follow us on LinkedIn.
+ Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to SKYX are available in the company’s newsroom at https://ibn.fm/SKYX
+ NOTE TO INVESTORS: The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
- About TechMediaWire
+ About MissionIR
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ MIR is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit www.MissionIR.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
 
- TechMediaWire is powered by IBN 
+ MissionIR is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-skyx-platforms-corp-nasdaq-skyx-to-deploy-smart-technologies-in-french-hotel-renovation/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/heartbeam-inc-nasdaq-beat-tackles-heart-disease-with-next-generation-ecg-solutions/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/skyx-platforms-to-deploy-smart-tech-in-french-hotel-renovation/4978c80ea2fa208a503ac538a66bfc19) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-takes-on-heart-disease-with-next-gen-ecg-tech/2f895bad6bc86285a2c227f420233383) 
 
  
 
@@ -37,4 +39,4 @@ SKYX Platforms (NASDAQ: SKYX) announced it will deploy its smart home and buildi
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/5/jinxqKhO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/5/yoga0Gh8.webp)
