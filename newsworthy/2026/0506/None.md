@@ -1,88 +1,102 @@
-# NPI and Founder Mitch Gould Celebrate 20 Years Building Brands
+# Be Water: Naturally Filtered Artesian Water as Microplastics Concerns Reshape Bottled Water
 
-Boca Raton, Florida (Newsworthy.ai) Wednesday May 6, 2026 @ 6:00 AM Eastern — 
+Marion, N.C. (Newsworthy.ai) Wednesday May 6, 2026 @ 8:30 AM Eastern — 
 
- Nutritional Products International (NPI), a leading U.S.-based brand management and distribution company, today announced its 20-year milestone, marking two decades of supporting international brands entering the United States through its proven Evolution of Distribution® platform.
+ Growing scientific attention around microplastics is prompting consumers to re-evaluate how their water is sourced, processed, and packaged. Recent studies have identified microplastic presence across a wide range of beverages, with research indicating that particles can originate not only from water sources, but also from packaging components such as bottles, caps, liners, and processing environments.
 
- Over the past 20 years, NPI has worked with brands across the nutrition and consumer goods industries, helping them navigate the complexities of U.S. market entry, retail expansion, and long-term growth. The company’s success reflects both the scale of opportunity within the U.S. market and the importance of having the right strategy and execution partner.
+ This emerging body of research points to microplastics as a complex, industry-wide issue, not limited to any single packaging material. Factors such as material composition, coatings, sealing components, and handling all play a role in potential particle presence.
 
- “Reaching 20 years in this industry is a reflection of the relationships we’ve built and the results we’ve delivered,” said Mitch Gould, Founder and CEO of Nutritional Products International. “The U.S. market offers incredible opportunity, but it requires experience, discipline, and a system that can consistently execute.”
+ As awareness increases, consumers are shifting toward more natural, transparent hydration options. Be Water stands apart by delivering naturally mineralized spring water created by geology rather than processing, while also emphasizing quality and consistency in how the product is packaged.
 
- The United States remains the largest and most competitive consumer market in the world, particularly across health, wellness, and nutrition categories. However, entering the market presents significant challenges, including regulatory compliance, complex logistics, and establishing relationships with major retailers.
+ “Consumers are asking better questions about what they’re drinking,” said a spokesperson for Greene Concepts Inc. (OTCID: INKW). “Be Water is rooted in simplicity and transparency. It is naturally filtered through ancient geology and thoughtfully packaged in the United States, reflecting a commitment to quality from source to bottle.”
 
- Gould’s experience spans more than 35 years building brands across nutrition and distribution, including work with companies during the early development of Amazon’s nutrition category. During that time, he helped navigate one of the first major shifts toward digital-first distribution. The lessons from that period continue to shape how brands approach visibility, trust, and scale in today’s increasingly competitive e-commerce marketplace.
+ A Category Being Reconsidered Much of the bottled water category relies on purification processes, where water is treated and then enhanced with added minerals. At the same time, emerging research has linked packaging materials and handling processes to microplastic presence, raising broader questions about how bottled water is produced and delivered.
 
- The Evolution of Distribution Platform To address these challenges, Gould developed his proprietary Evolution of Distribution, a turnkey system designed to streamline how brands enter and scale within the U.S. market.
+ This shift is driving increased interest in water that is naturally sourced and minimally processed, alongside greater scrutiny of packaging quality and material integrity.
 
- The Evolution of Distribution model operates through several core pillars designed to support successful product launches and long-term brand growth.
+ Packaging Quality and Material Integrity Matter Research suggests that microplastic presence can be influenced not only by the type of packaging used, but also by the quality, structure, and durability of that packaging. Factors such as friction, handling, and material breakdown across bottles, caps, and liners can contribute to particle release.
 
- * Global Logistics & U.S. Market Entry: NPI manages international transportation, port coordination, customs handling, and warehouse intake, allowing brands to move products seamlessly from overseas manufacturing facilities into the U.S. distribution system.
-* Product Readiness & Regulatory Alignment: Before products are introduced to buyers, NPI evaluates formulation, labeling, pricing, and marketing claims to ensure alignment with FDA, OTC, and retail standards, helping brands meet U.S. regulatory expectations.
-* Market Positioning & Brand Strategy: NPI works with brands to refine category positioning, packaging, and messaging so products resonate with U.S. consumers and retail buyers.
-* Retail & eCommerce Placement: Leveraging decades of relationships across the retail ecosystem, NPI introduces brands directly to buyers at major retailers, specialty chains, pharmacies, and leading e-commerce platforms including Amazon and direct-to-consumer channels.
-* Post-Placement Marketing & Demand Generation: Once products reach store shelves or online marketplaces, NPI activates coordinated marketing initiatives to build consumer awareness, drive sales velocity, and support long-term brand growth.
+ Be Water is packaged in premium BPA-free bottles designed with a thicker, more durable 22-gram structure, compared to lower-weight bottles commonly used in the category.
 
- By consolidating these functions, brands can reduce complexity, avoid costly missteps, and accelerate time to market.
+ Be Water is intentionally packaged in a more durable, higher-quality bottle designed to minimize the types of degradation and material breakdown associated with lower-weight bottled water formats. As a result, Be Water is positioned differently from many conventional bottled water products, with a focus on both source purity and packaging integrity in response to emerging consumer concerns around microplastics.
 
- “Our goal has always been to simplify what is often a very complicated process,” Gould said. “With Evolution of Distribution®, we’ve created a system that allows brands to enter the U.S. market with confidence and scale efficiently.”
+ While no packaging material is entirely without consideration, Be Water’s approach emphasizes quality, durability, and simplicity to support a more controlled and reliable hydration experience.
 
- Gould’s experience spans nutrition, distribution infrastructure, and brand building, helping companies navigate the intersection of product innovation, compliance, and market execution over more than three decades.
+ Naturally Filtered Through Ancient Geology Be Water is sourced from certified spring water drawn from a responsibly managed artesian aquifer in the Blue Ridge Mountains. As the water moves through billion-year-old Blue Ridge Mountain’s bedrock, it undergoes natural filtration, resulting in a smooth, low total dissolved solids profile with balanced minerals including calcium, magnesium, silica, and naturally occurring electrolytes.
 
- “As an expert in nutrition, distribution, and brand building, I’ve seen how the market has evolved over the last 35 years,” Gould added. “While the landscape continues to change, the fundamentals remain the same. Brands that succeed are the ones that combine strong products with the right strategy and the ability to execute.”
+ This geological filtration process eliminates the need for heavy processing or artificial enhancement, preserving the integrity of the water as it exists in nature.
 
- By combining regulatory expertise, logistics, sales, and marketing under one integrated platform, NPI continues to serve as a gateway for global brands seeking to establish a strong presence in the United States.
+ What Defines Be Water * Certified spring water sourced from artesian springs and a responsibly managed artesian aquifer
+* Naturally filtered through billion-year-old Blue Ridge Mountain’s bedrock
+* Balanced natural minerals, including calcium, magnesium, silica, and electrolytes
+* Responsible aquifer stewardship, withdrawing only replenishable volumes
+* Bottled in Marion, North Carolina, supporting USA jobs and production
+* Premium BPA-free 22-gram bottle designed for durability and quality feel
+* Accessible everyday pricing for premium artesian water
 
- As NPI enters its next chapter, the company remains focused on helping brands capitalize on opportunities in the U.S. market through its proven Evolution of Distribution® model.
+ Made in the USA, Built on Natural Integrity Unlike luxury imported waters and commodity bottled tap water, Be Water is proudly American-made, combining natural sourcing with domestic production. The result is a premium artesian bottled spring water designed with both source purity and packaging integrity in mind.
 
- 
+ As bottled water continues to evolve under increased scrutiny, Be Water reflects a return to fundamentals: clean water shaped by nature, responsibly sourced, and thoughtfully delivered.
 
- About Nutritional Products International (NPI) Nutritional Products International (NPI) is a U.S.-based retail consulting and distribution firm founded by retail distribution expert Mitch Gould. With more than three decades of experience, Gould has helped domestic and international brands successfully enter and expand within the U.S. market, representing high-profile brands and celebrities including Steven Seagal, Hulk Hogan, Ronnie Coleman, and Wayne Gretzky.
+ Where to Purchase Be Water In addition to being available on Amazon, Be Water™ is currently available through select national retailers, including select Walmart locations, Walmart.com, and Camping World, with continued national expansion underway across additional retail and e-commerce channels.
 
- NPI works closely with manufacturers and major retailers to guide products from concept to shelf, providing strategic support across retail introductions, regulatory readiness, operations planning, and market visibility through its proprietary Evolution of Distribution® platform. The company is known for helping brands navigate the complexities of U.S. retail efficiently while building long-term, scalable growth. 
+ About Be Water™ Be Water™ is an American artesian spring water brand sourced from certified artesian wells and a naturally replenished aquifer formed nearly one billion years ago beneath the Blue Ridge Mountains and bottled at the source in Marion, North Carolina by Greene Concepts Inc. (OTCID: INKW).
+
+ Naturally filtered through layers of ancient bedrock, Be Water™ absorbs naturally occurring minerals and electrolytes-including calcium, magnesium, and silica-that create its smooth taste and natural alkalinity. The water is gently filtered and ozone-treated to ensure purity while preserving its inherent character, with nothing added and nothing stripped away. Nature-not machines-defines its purity and balance.
+
+ Be Water™ is bottled in premium BPA-free bottles designed with a durable 22-gram construction and priced for everyday hydration, bridging the gap between luxury imported waters and commodity bottled tap water. Bottled in Marion, North Carolina, Be Water™ reflects American craftsmanship, transparency, and responsible aquifer stewardship.
+
+ In addition to its flagship brand, Greene Concepts operates a 60,000-square-foot bottling facility providing private-label and co-packing services for select beverage partners.
+
+ About Greene Concepts, Inc. Greene Concepts, Inc. (https://www.greeneconcepts.com) is a publicly traded company whose purpose is to provide the world with high-quality, healthy and enhanced beverage choices that meet the nutritional needs of its consumers while refreshing their mind, body and spirit. The Company's flagship product, Be Water™, is a premium artesian bottled water that supports total body health and wellness. Greene Concepts' beverage and bottling plant is located in Marion, North Carolina, and the water is ethically sourced from spring and artesian wells that are fed from a natural aquifer located deep beneath the Blue Ridge Mountains. Greene Concepts continues to develop and market premium beverage brands designed to enhance the daily lives of consumers.
+
+ Safe Harbor: This Press Release contains forward-looking statements within the meaning of Section 27A of the Securities Act of 1933 and Section 21E of the Securities Exchange Act of 1934. These forward-looking statements are based on the current plans and expectations of management and are subject to a few uncertainties and risks that could significantly affect the company's current plans and expectations, as well as future results of operations and financial condition. A more extensive listing of risks and factors that may affect the company's business prospects and cause actual results to differ materially from those described in the forward-looking statements can be found in the reports and other documents filed by the company with the Securities and Exchange Commission and OTC Markets, Inc. OTC Disclosure and News Service. The company undertakes no obligation to publicly update or revise any forward-looking statements, because of new information, future events or otherwise. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605062416/npi-and-founder-mitch-gould-celebrate-20-years-building-brands)
+[Original/Source Press Release](https://newsworthy.ai/news/202605062415/be-water-naturally-filtered-artesian-water-as-microplastics-concerns-reshape-bottled-water)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/npi-celebrates-20-years-of-u-s-market-entry-expertise/78d2eb6435c0126734ffabc82617f855) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/be-water-targets-microplastic-concerns-with-natural-spring-water-and-durable-packaging/bcc4f7eefdd70aa6da305820dfc455de) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/06/npi-marks-20-years-of-guiding-international-brands-into-the-us-market/)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/bcc4f7eefdd70aa6da305820dfc455de)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nutritional-products-international-celebrates-20-years-of-brand/202631837)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/06/as-microplastics-concerns-grow-be-water-positions-naturally-filtered-artesian-water-as-a-transparent-alternative/)
 
-Pickup - [https://advos.io/en](https://advos.io/en/npi-and-founder-mitch-gould-celebrate-20-years-of-building-brands-in-the-us-market)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/microplastics-concerns-reshape-bottled-water-market-highlighting/202631840)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/nutritional-products-international-celebrates-20-years-of-market-entry-expertise-for-international-brands)
+Pickup - [https://advos.io/en](https://advos.io/en/be-water-positions-itself-as-premium-artesian-alternative-amid-rising-microplastics-concerns)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/npi-and-founder-mitch-gould-celebrate-20-years-of-building-brands-in-the-us-market)
+Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/growing-microplastic-concerns-drive-consumer-shift-toward-naturally-sourced-bottled-water)
 
-Pickup - [https://burstable.news](https://burstable.news/news/npi-and-founder-mitch-gould-celebrate-20-years-building-brands)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/microplastics-concerns-drive-shift-toward-naturally-filtered-artesian-water)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/npi-und-grunder-mitch-gould-feiern-20-jahre-markenaufbau)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/be-water-addresses-microplastic-concerns-with-naturally-sourced-spring-water-and-premium-packaging)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/npi-y-su-fundador-mitch-gould-celebran-20-anos-construyendo-marcas)
+Pickup - [https://burstable.news](https://burstable.news/news/be-water-positions-itself-as-a-natural-durable-alternative-amid-microplastics-concerns-in-bottled-water)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/npi-et-son-fondateur-mitch-gould-celebrent-20-ans-de-developpement-de-marques)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/be-water-positioniert-sich-als-naturliche-haltbare-alternative-angesichts-von-mikroplastik-bedenken-bei-flaschenwasser)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/npi-e-fundador-mitch-gould-celebram-20-anos-construindo-marcas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/be-water-se-posiciona-como-una-alternativa-natural-y-duradera-ante-las-preocupaciones-por-los-microplasticos-en-el-agua-embotellada)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/nutritional-products-international-marks-20-years-of-us-market-entry-expertise)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/be-water-se-positionne-comme-une-alternative-naturelle-et-durable-face-aux-preoccupations-liees-aux-microplastiques-dans-leau-en-bouteille)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/nutritional-products-international-marks-20-years-of-guiding-international-brands-to-us-market-success)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/be-water-se-posiciona-como-alternativa-natural-e-duravel-em-meio-a-preocupacoes-com-microplasticos-em-agua-engarrafada)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/npi-and-founder-mitch-gould-mark-20-years-of-brand-building-in-us-market)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/as-microplastics-concerns-grow-be-water-markets-naturally-filtered-artesian-water-as-a-premium-alternative)
 
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/nutritional-products-international-marks-20-years-of-guiding-international-brands-to-us-market-success)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/be-water-brand-positions-natural-sourcing-and-packaging-integrity-amid-rising-microplastic-concerns)
 
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/nutritional-products-international-marks-20-years-of-guiding-international-brands-into-us-market)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/be-water-positions-itself-as-microplastics-concerns-reshape-bottled-water-industry)
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/JQp4QMannZU)
+Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/microplastic-concerns-drive-consumer-shift-toward-naturally-sourced-bottled-water)
+
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/microplastic-concerns-drive-shift-toward-naturally-sourced-bottled-water-be-water-brand-gains-attention)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/6/meanyuEk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/6/lilyCVSu.webp)

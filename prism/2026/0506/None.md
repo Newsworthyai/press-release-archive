@@ -1,82 +1,127 @@
-# REalloys (NASDAQ: ALOY) Receives Department of War Memorandum on Securing Domestic Heavy Rare Earth Supply Ahead of 2027 Deadline
+# EdgeMode Appoints Capital Markets Specialist Simon Kiero-Watson to Board of Directors
 
-* A Department of War memorandum delivered to REalloys’ leadership team underscores the urgency to secure domestic heavy rare earth elements (HREE) in advance of the January 2027 prohibition on Chinese-origin rare earth materials.
-* The memorandum designates Dysprosium (Dy) and Terbium (Tb) as two of the most critical and highest-value HREEs, aligning with REalloys’ strategic intent and purpose to build HREE processing facilities within North America.
-* The Company believes that this memorandum aligns with REalloys’ intent to develop and secure a sovereign HREE supply with zero China nexus in accordance with the Department of War’s published defense strategy.
+FORT LAUDERDALE, Fla., May 6, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – EdgeMode, Inc. (OTC: EDGM), a global energy and AI data center infrastructure company, today announced the appointment of Simon Kiero-Watson to its Board of Directors, further strengthening the Company’s capital markets expertise and corporate governance as EdgeMode continues its rapid growth.
+
+ The appointment comes at a pivotal time for EdgeMode as the Company expands what it believes is now the largest AI infrastructure development pipeline in Europe, currently totaling approximately 4.35GW under development in Spain.
+
+ Deep Public Markets and Small-Cap Expertise
+
+ Simon Kiero-Watson is a highly experienced securities and capital markets specialist with a strong track record across small-cap public markets, exchange platforms, corporate finance, and growth company advisory.
+
+ He currently serves as:
+
+ * Head of Markets at Tokenise Stock Exchange Group
+* A corporate finance advisor and listing sponsor
+* An advisor on numerous public market listings and growth company financings
+
+ Previously, Simon held senior positions at:
+
+ * ICAP Securities and Derivatives Exchange (ISDX)
+* GXG Markets AB, where he served as Head of Markets
+
+ He was also responsible for launching the first UK-approved Enterprise Investment Scheme (EIS) investment fund offered to the public — a significant milestone within the UK growth capital market.
+
+ Before moving into capital markets, Simon was a highly successful commercial banking manager at Lloyds Bank.
+
+ Strengthening EdgeMode’s Capital Markets Position
+
+ EdgeMode believes Simon’s appointment significantly strengthens the Company’s:
+
+ * Capital markets expertise
+* Public company governance
+* Investor engagement capabilities
+* Strategic positioning within the small-cap and growth company ecosystem
+
+ His experience across exchange markets, listings, investor networks, and corporate finance is expected to play an important role as EdgeMode continues scaling its AI infrastructure platform and broadening market participation in the Company.
+
+ Positioned for Rapid Growth
+
+ EdgeMode is currently developing approximately 4.35GW of AI-ready data center capacity across Spain through its strategic partnerships and development platform.
+
+ The Company’s model focuses on:
+
+ * Power-secured AI infrastructure
+* Rapid progression to Ready-to-Build (RTB)
+* Capital-efficient monetisation strategies
+* Strategic partnerships with hyperscalers, operators, and infrastructure investors
+
+ As demand for AI infrastructure accelerates globally, EdgeMode continues to position itself at the intersection of:
+
+ * AI compute demand
+* Energy infrastructure
+* Capital markets growth
+
+ “We are delighted to welcome Simon to the Board. His experience across capital markets, public company advisory, exchange platforms, and growth company financing will be extremely valuable as EdgeMode continues to scale. Simon’s appointment further strengthens our governance and reinforces our commitment to building a world-class AI infrastructure platform with strong public market alignment.”
+
+ Charlie Faulkner, CEO of EdgeMode
+
+“EdgeMode is building a highly compelling platform at the convergence of AI, energy, and digital infrastructure. I’m excited to join the Board and support the Company as it continues executing on its growth strategy and expanding its presence within the capital markets.”
+
+ Simon Kiero-Watson
+
+ About EdgeMode:
+
+ EdgeMode develops scalable AI-ready data center campuses and integrated energy infrastructure across strategic global markets. The company focuses on power-secured developments aligned to accelerating AI and high-performance compute demand.
+
+ Forward-Looking Statements:
+
+ This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. Forward-looking statements include, but are not limited to, statements regarding EdgeMode’s plans, objectives, goals, strategies, future events, future financial performance, expected market growth, construction timelines, and expansion potential. These statements are based on current expectations and assumptions and are subject to a number of risks and uncertainties that could cause actual results to differ materially from those expressed or implied in the forward-looking statements. Factors that may cause such differences include, but are not limited to, risks related to integration of acquired assets, construction delays or cost overruns, challenges in client acquisition, changes in demand for AI and HPC infrastructure, regulatory changes, availability and cost of power, and general economic and market conditions. EdgeMode undertakes no obligation to update or revise any forward-looking statements to reflect events or circumstances after the date of this press release, except as required by law.
+
+ Company Contact:Charlie FaulknerChief Executive OfficerEdgeMode Inc.hello@edgemode.io
+
+ Source: EdgeMode, Inc.
+
+ The latest news and updates relating to $EDGM are available in the company’s newsroom at: https://tinyurl.com/edgmnewsroom
 
  
 
- EUCLID, Ohio, May 6, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – REalloys Inc. (NASDAQ: ALOY) (“REalloys” or the “Company”), a U.S.-based midstream rare earth processing innovator and developer of North America’s first commercial-scale heavy rare earth metallization solution, today announced that its leadership has received a formal memorandum from the Department of War, following more recent Company engagements to enable HREE processing. The memorandum is not a technical endorsement of REalloys or its commercial partners.
+ $EDGM EdgeMode appoints capital markets expert Simon Kiero-Watson to its Board as it expands a 4.35GW AI data center pipeline in Spain https://t.co/lFoLj9kWJC The latest news and updates relating to $EDGM are available in the company’s newsroom at: https://t.co/Ke7Jc6WQnv pic.twitter.com/utcr83EKLZ
 
- The memorandum recognizes the Department’s comprehensive, whole-of-government approach to fortifying America’s HREE supply chain and a renewal of support through financial investment, strategic policy, and expanded public-private partnerships. The Department of War further signals that heavy rare earth elements HREEs, specifically Dysprosium (Dy) and Terbium (Tb), remain a national security priority.
-
- REalloys operates the only heavy rare earth metallization platform in North America and is scaling its market leading platform by building the largest heavy rare earth metallization facility outside of China, purpose-engineered to produce defense-grade dysprosium and terbium metal at commercial scale with a zero-adversary-nexus supply chain designed to comply with 10 U.S.C. §4872 and DFARS 252.225-7052.
-
- The Company’s integrated platform is anchored by a long-term offtake securing 80% of the output from the Saskatchewan Research Council’s commercial rare earth processing facility, a patent-pending hydrofluoric-acid-free fluorination process that eliminates one of the most hazardous chemicals in conventional rare earth metallization, and upstream domestic feedstock from the highest-grade rare earth deposits across allied nations.
-
- In a sector still dominated by projects facing permitting, financing, and technology-scaling risk, REalloys is actively advancing through the Defense Industrial Base Consortium’s rigorous qualification pathway to deliver compliant, defense-grade heavy rare earth metals to the Department of Defense, the Defense Logistics Agency, and the Defense Industrial Base on an accelerated timeline, as Chinese-origin sourcing prohibitions take full effect in January 2027.
-
- “We believe that the memorandum is a direct reflection of how seriously the Department of War is treating the HREE supply chain challenge and how well REalloys is positioned to align with what the defense industrial base urgently needs. It’s also indicative that REalloys has envisioned and is scaling the only North American resource with the full technical capability to guarantee a zero-adversary-nexus supply chain to meet the impending 2027 deadline. This memorandum affirms the path we’re on, and we’re committed to supporting the resilience of U.S. supply chain sovereignty at every step to help meet this goal.”
-
- Joe Kasper, Head of Government Relations, and Chair of REalloys’ Advisory Board
-
-“For decades, critical material dependencies have represented one of America’s most consequential strategic vulnerabilities, and it’s one our adversaries have been all too willing to exploit. The Department of War is correctly prioritizing the development of domestic HREE processing capacity; building a sovereign, zero-adversary-nexus supply chain is a fundamental national security imperative that must be met to ensure our long-term defense readiness.”
-
- General Jack Keane (Ret.), Board Director of REalloys and former Vice Chief of Staff of the U.S. Army
-
- “The Department of War’s focus on expanding domestic processing capacity is precisely the mission REalloys has been focused on,” said Stephen duMont, Chairman of REalloys. “The solution we’re building, from commercial-scale processing to innovative metallization and downstream manufacturing operations, is purpose-engineered to lead the industry in answering the call to resolve defense-grade sourcing and supply challenges on the horizon.”
-
- About REalloys Inc.
-
- REalloys Inc. is advancing a fully integrated North American mine-to-magnet supply chain encompassing upstream resource development, midstream processing, and downstream manufacturing. REalloys’ upstream foundation includes its Hoidas Lake rare-earth asset in Saskatchewan and a diversified network of allied feedstock and recycling partners. Together with the Saskatchewan Research Council, REalloys is building a solution to scale North American heavy rare earth midstream separation, refining, and metallization capabilities—creating a coordinated system that processes and converts heavy rare-earth materials from allied and domestic sources into high-purity products. Those refined materials feed directly into REalloys’ downstream manufacturing operations in Euclid, Ohio, where the company produces advanced heavy rare earth metals, alloys and magnet components for defense, energy, and high-performance industrial applications. REalloys’ Ohio facility serves federal logistics and procurement agencies supporting the Department of Defense, the Department of Energy, and National Aeronautics and Space Administration, in addition to the broader Defense Industrial Base and Organic Industrial Base.
-
- Safe Harbor Clause and Forward-Looking Statements
-
- This press release contains “forward-looking statements” within the meaning of applicable securities laws, including the Private Securities Litigation Reform Act of 1995. All statements other than statements of historical fact are forward-looking statements, including, without limitation, statements regarding the significance, strategic implications, or anticipated benefits of the Department of War memorandum; the Company’s belief that it is positioned to align with the Department of War’s published defense strategy; the Company’s intent to develop and secure a sovereign HREE supply with zero-adversary nexus; the construction, commissioning, scale, and anticipated operation of the Company’s heavy rare earth metallization facility as the largest such facility outside of China; the Company’s ability to produce defense-grade dysprosium and terbium metal at commercial scale; the design and compliance of the Company’s supply chain with 10 U.S.C. §4872 and DFARS 252.225-7052; the anticipated benefits of the Company’s long-term offtake arrangement with the Saskatchewan Research Council, including securing 80% of the facility’s output; the anticipated benefits, scalability, and commercial viability of the Company’s patent-pending hydrofluoric-acid-free fluorination process; the availability, quality, and strategic value of upstream domestic and allied feedstock sources; the Company’s advancement through the Defense Industrial Base Consortium’s qualification pathway; the Company’s ability to deliver compliant, defense-grade heavy rare earth metals to the Department of Defense, the Defense Logistics Agency, and the Defense Industrial Base on an accelerated timeline; the Company’s ability to meet supply chain requirements ahead of the January 2027 prohibition on Chinese-origin rare earth materials; the anticipated benefits of REalloys’ integrated upstream, midstream, and downstream supply chain strategy; and REalloys’ broader strategic, operational, and financial plans. Words such as “anticipate,” “believe,” “could,” “expect,” “intend,” “may,” “plan,” “potential,” “project,” “should,” “target,” “will,” and similar expressions are intended to identify forward-looking statements, though not all forward-looking statements contain such words.
-
- The Department of War memorandum referenced in this press release is not a technical endorsement of REalloys or its commercial partners. The Company makes no representations with respect to any commercial, procurement, or contractual outcomes arising from the memorandum. No assurance can be given that the memorandum will result in any contract, procurement award, qualification, or commercial relationship with the U.S. government or any agency thereof. Investors should not interpret the receipt of the memorandum as an indication of any pending or future government action favorable to the Company.
-
- Forward-looking statements are based on current expectations, assumptions, and estimates and involve known and unknown risks, uncertainties, and other factors that could cause actual results to differ materially from those anticipated. These statements are not guarantees of future performance. Factors that could cause actual results to differ materially include, but are not limited to: the inability to complete, commission, or operate the Company’s heavy rare earth metallization facility on expected timelines, at anticipated scale, or at anticipated cost; challenges in scaling metallization, fluorination, and processing technologies to sustained commercial production; the inability to realize the anticipated benefits of the HF-free fluorination process at commercial scale; feedstock availability, quality, or disruption from allied or domestic sources, including under the Saskatchewan Research Council offtake arrangement; changes in U.S. government policy, defense procurement requirements, critical minerals strategy, or the implementation, timing, or enforcement of sourcing prohibitions under 10 U.S.C. §4872 and DFARS 252.225-7052, including potential waiver extensions or policy modifications; the outcome or timing of the Defense Industrial Base Consortium qualification process; changes in rare earth pricing, demand, or market conditions; competitive developments; capital availability and terms of financing; geopolitical developments and trade policies affecting critical minerals; permitting, environmental, and regulatory approvals; compliance with ITAR, EAR, Title 50, and applicable defense procurement standards; qualification of materials for defense applications; workforce availability and retention; and general macroeconomic or capital market conditions.
-
- All forward-looking statements speak only as of the date of this press release. REalloys undertakes no obligation to update or revise any forward-looking statements except as required by applicable law. Readers are cautioned not to place undue reliance on forward-looking statements. For a discussion of additional risks and uncertainties that could affect REalloys’ business, financial condition, and results of operations, please refer to REalloys’ filings with the Securities and Exchange Commission, including its most recent Annual Report on Form 10-K, Quarterly Reports on Form 10-Q, and other periodic and current reports available at www.sec.gov.
-
- Disclosure Information
-
- REalloys uses and intends to continue using its investor website at www.realloys.com as a means of disclosing material non-public information and for complying with Regulation FD. Investors should monitor this site, along with the Company’s press releases, SEC filings, public conference calls, and webcasts.
-
- REalloys Inc.
-
- Sarah Riley
-
- IR and Communications, REalloys
-
- sarah.riley@realloys.comwww.realloys.com
-
- Source: REalloys Inc.
-
- The latest news and updates relating to $ALOY are available in the company’s newsroom at: https://tinyurl.com/aloynewsroom
+— PRISM MediaWire (@prism_mediawire) [May 6, 2026](https://twitter.com/prism_mediawire/status/2052030786639917300?ref_src=twsrc%5Etfw) 
 
  
 
- $ALOY REalloys receives Department of War memorandum supporting U.S. heavy rare earth supply chain expansion ahead of 2027 sourcing restrictions https://t.co/YAlYufc0U6 The latest news and updates relating to $ALOY are available in the company’s newsroom at:… pic.twitter.com/t0heeV5AVx
-
-— PRISM MediaWire (@prism_mediawire) [May 6, 2026](https://twitter.com/prism_mediawire/status/2051990238130503778?ref_src=twsrc%5Etfw) 
-
- 
-
- The post REalloys (NASDAQ: ALOY) Receives Department of War Memorandum on Securing Domestic Heavy Rare Earth Supply Ahead of 2027 Deadline first appeared on Prism Media Wire. 
+ The post EdgeMode Appoints Capital Markets Specialist Simon Kiero-Watson to Board of Directors first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/realloys-nasdaq-aloy-receives-department-of-war-memorandum-on-securing-domestic-heavy-rare-earth-supply-ahead-of-2027-deadline/)
+[Original/Source Press Release](https://prismmediawire.com/edgemode-appoints-capital-markets-specialist-simon-kiero-watson-to-board-of-directors/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/realloys-gets-dept-of-war-memo-to-secure-rare-earth-supply-by-2027/a395e3bc11bec4fd0b15109000caf94c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edgemode-appoints-capital-markets-expert-to-board-amid-4-35gw-ai-pipeline/14f2f0869328cec05eaed00e08641ac4) 
 
+
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/06/edgemode-appoints-capital-markets-specialist-simon-kiero-watson-to-board-as-ai-infrastructure-pipeline-grows/)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/edgemode-appoints-capital-markets-specialist-simon-kiero-watson/202631851)
+
+Pickup - [https://advos.io/en](https://advos.io/en/edgemode-appoints-capital-markets-specialist-simon-kiero-watson-to-board)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/edgemode-adds-capital-markets-veteran-simon-kiero-watson-to-board-as-ai-data-center-pipeline-grows)
+
+Pickup - [https://burstable.news](https://burstable.news/news/edgemode-appoints-capital-markets-specialist-simon-kiero-watson-to-board-of-directors)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/edgemode-beruft-kapitalmarktexperten-simon-kiero-watson-in-den-vorstand)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/edgemode-nombra-al-especialista-en-mercados-de-capitales-simon-kiero-watson-como-miembro-de-su-consejo-directivo)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/edgemode-nomme-simon-kiero-watson-specialiste-des-marches-financiers-a-son-conseil-dadministration)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/edgemode-nomeia-especialista-em-mercados-de-capitais-simon-kiero-watson-para-o-conselho-de-administracao)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/edgemode-appoints-capital-markets-specialist-simon-kiero-watson-to-board-as-ai-data-center-pipeline-grows)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/edgemode-appoints-capital-markets-veteran-simon-kiero-watson-to-board-as-ai-infrastructure-pipeline-grows)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/edgemode-appoints-capital-markets-expert-simon-kiero-watson-to-board-as-ai-infrastructure-pipeline-expands)
+
+Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/edgemode-appoints-capital-markets-veteran-simon-kiero-watson-to-board-of-directors)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/BNnOWg-8EkE)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/6/ninoKW98.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/6/jinxiQ7L.webp)
