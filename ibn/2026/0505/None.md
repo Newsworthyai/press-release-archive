@@ -1,42 +1,40 @@
-# HeartBeam Inc. (NASDAQ: BEAT) Tackles Heart Disease with Next-Generation ECG Solutions
+# 420 with CNW — Experts Say Partial Marijuana Rescheduling is Causing Confusion
 
-* Cardiovascular disease remains the leading cause of death in the United States.
-* One of the most persistent challenges in cardiac care is patient delay in seeking care.
-* HeartBeam is working to address this gap by transforming how ECG data are collected and used through its HeartBeam System.
+While the Trump administration has taken a partial step toward rescheduling marijuana, the move has left many in the industry uncertain about what comes next.
 
- Cardiovascular disease continues to be a major global health challenge, driven by aging populations, lifestyle factors and persistent gaps in early detection that continue to challenge healthcare systems. In response to these trends, HeartBeam (NASDAQ: BEAT) is developing technology aimed at improving how cardiac conditions are identified and monitored, positioning its solutions at the intersection of rising clinical need and evolving innovation.
-
- The scale and severity of cardiac disease underscore the urgency of new approaches. According to the Centers for Disease Control and Prevention, cardiovascular disease remains the leading cause of death in the United States, accounting for more than 919,000 deaths in 2023, or roughly one in every…
+ Marijuana firms like Aurora Cannabis Corp. (NASDAQ: ACB) (TSX: ACB) and their U.S. partners will continue to monitor developments on the…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
+ About CNW420
 
- About MissionIR
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- MIR is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit www.MissionIR.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
-
- MissionIR is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/heartbeam-inc-nasdaq-beat-tackles-heart-disease-with-next-generation-ecg-solutions/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-experts-say-partial-marijuana-rescheduling-is-causing-confusion/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-takes-on-heart-disease-with-next-gen-ecg-tech/2f895bad6bc86285a2c227f420233383) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/partial-marijuana-rescheduling-sparks-industry-confusion/91c44f44298fe5000935168b6ae14800) 
 
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/91c44f44298fe5000935168b6ae14800)
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/trump-administrations-partial-marijuana-rescheduling-leaves-industry-in-limbo)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/5/yoga0Gh8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/5/tintrEOm.webp)
