@@ -1,63 +1,78 @@
-# A Shift From “Summer Ready” to System-Level Health via the Superhuman Protocol Challenge
+# The Gillian Ragan Foundation Hosts Inaugural Community Fundraiser at Pinnacle Brewing Company
 
-New York (Newsworthy.ai) Thursday May 7, 2026 @ 7:00 AM Eastern — The April 2026 Wellness Index Report has identified three top-rated U.S. wellness providers leading the nationwide Superhuman Protocol Challenge, signaling a shift away from seasonal weight-loss trends toward cellular-level health optimization.
+Scottsdale, AZ (Newsworthy.ai) Thursday May 7, 2026 @ 1:25 PM Central — The Gillian Ragan Foundation, a registered 501(c)(3) nonprofit dedicated to supporting families who have suffered the loss of a child, today announced its inaugural Community Fundraiser in partnership with Pinnacle Brewing Company. The event will take place Saturday, May 17, 2026, from 12:00 p.m. to 6:00 p.m. at Pinnacle Brewing Company, 15111 N. Hayden Rd., Unit 100, Scottsdale, AZ 85260.
 
- The report highlights growing consumer fatigue with short-term wellness strategies. According to the National Institutes of Health, most individuals regain weight lost through restrictive dieting, particularly when approaches are not biologically sustainable.
+ The open house is free to attend, family-friendly, and open to all ages. Guests are invited to come and go throughout the afternoon while enjoying a silent auction, music bingo, raffles, craft beer, and food from Pinnacle Brewing's on-site kitchen. All proceeds will go directly toward providing mental health therapy, grief counseling, and emotional healing resources to families navigating the loss of a child.
 
- In response, the latest Wellness Index Report focuses on providers implementing multi-modality, practitioner-led protocols designed to support long-term physiological function rather than short-term aesthetic outcomes.
+ "When you lose a child, your whole world changes in an instant," said Jenifer Mattioli, founder of The Gillian Ragan Foundation and mother of Gillian Grace Ragan, who passed away at age 14. "This fundraiser is about bringing our community together to ensure that no family has to face that darkness alone. Every dollar raised will fund therapy and healing resources for families who desperately need support but can't always afford it."
 
- AtCentral to the report is the Superhuman Protocol Challenge, powered by Da Vinci Medical and promoted by Shark Tank's Daymond John.e challenge invites participants to complete sessions at certified wellness centers for a chance to win an at-home system valued at approximately $18,000 (pricing varies by configuration). Entries close June 30, 2026, with a winner announced July 1, 2026.
+ Hybrid Silent Auction Opens Online and at the Venue
 
- “This is not about quick fixes,” the report notes. “It reflects a broader movement toward optimizing how the body functions at a cellular level.”
+ The foundation's silent auction features a curated collection of items donated by local businesses and supporters, including original artwork, one-of-a-kind sports memorabilia, dining experiences, wellness packages, gift baskets, Diamondbacks Advantage baseball tickets, jewelry, and more. In a first for the foundation, the auction operates as a hybrid system. Bidding opens online prior to the event and remains live throughout the afternoon at Pinnacle Brewing Company.
 
- The Technology Behind the Trend The Superhuman Protocol combines three wellness modalities:
+ Guests at the venue can scan QR codes placed alongside each item to bid instantly from their phones. Remote supporters from anywhere in the country can participate through the foundation's website at www.gillianraganfoundation.org. The auction includes real-time bidding, outbid notifications, proxy bidding, Buy It Now options, and anti-sniping protection to ensure fair competition.
 
- * Pulsed Electromagnetic Field Therapy (PEMF)
-* Exercise With Oxygen Therapy (EWOT)
-* Red Light Therapy (Photobiomodulation)
+ Event Details
 
- These approaches are used together to support:
+ What: The Gillian Ragan Foundation Community Fundraiser When: Saturday, May 17, 2026, 12:00 p.m. to 6:00 p.m. Where: Pinnacle Brewing Company, 15111 N. Hayden Rd., Unit 100, Scottsdale, AZ 85260 Format: Open house, come and go as you please Admission: Free and open to the public. All ages welcome. Activities: Silent auction, music bingo, raffles, craft beer, food
 
- * Cellular energy production
-* Circulation and oxygen utilization
-* Recovery and systemic function
+ About the Venue
 
- While each modality has been studied independently, the report notes that clinical validation of the combined protocol remains an emerging area.
+ Pinnacle Brewing Company is an award-winning, family-owned craft brewery in North Scottsdale led by brewmaster Wyatt Wilson. Named 2025 Brewery of the Year at the Arizona Craft Beer Awards, 2025 Best Brewery in the Valley by Phoenix Magazine, and 2025 Best New Brewery by Phoenix New Times, Pinnacle has become one of the most celebrated breweries in the Valley. The brewery's spacious taproom and dog-friendly biergarten patio provide the setting for the community gathering.
 
- Top 3 Wellness Providers Leading the Challenge The April report spotlights three Biohacking Index-rated providers selected for their clinical approach and implementation quality:
+ About Gillian Grace Ragan
 
- [Physical Evidence Chiropractic](https://www.biohackingcompanies.com/united-states/boca-raton/wellness-solutions/physical-evidence-chiropractic) A leader in structural and performance optimization, integrating chiropractic care with advanced recovery technologies to support musculoskeletal and neurological function.
+ Gillian Grace Ragan, known lovingly as "Gigi," was born on December 19, 2008, in Scottsdale, Arizona. Born with congenital orthopedic challenges, she spent her early years navigating surgeries and therapies with courage and grace. Despite her physical challenges, Gigi radiated joy, compassion, and an extraordinary ability to make everyone around her feel seen and loved. She was known for seeking out the lonely child on the playground, for her room-filling laughter, and for a spirit that made her the tallest person in any room. Gigi passed away at age 14, but her legacy of kindness, courage, and unconditional love lives on through the foundation that bears her name.
 
- [Boro Holistic Health](https://www.biohackingcompanies.com/pro/20260506143427) A systems-based wellness center focused on functional and preventative care, embedding advanced technologies within a broader holistic treatment model.
+ About The Gillian Ragan Foundation
 
- [April Berkowitz (Private Practice)](https://www.biohackingcompanies.com/pro/20260506144822) A personalized wellness provider specializing in customized protocols tailored to individual recovery and performance goals.
+ The Gillian Ragan Foundation is a registered 501(c)(3) nonprofit organization dedicated to supporting families navigating the loss of a child by providing access to mental health therapy and emotional healing resources. The foundation believes that every parent, caregiver, and sibling deserves compassionate care during their grief journey, without the added burden of financial barriers. Through its Healing Assistance Program, the foundation provides financial assistance for individual and family therapy, grief counseling, trauma-informed care, EMDR, psychiatry, and support groups.
 
- All three providers were selected through the Biohacking Index’s multi-step evaluation process, including expert verification, client feedback, and ongoing performance assessment.
+ The foundation was established by Jenifer Mattioli, Gillian's mother, and co-founded by Triston Ragan, Gillian's brother. It is governed by a dedicated board of directors committed to carrying forward Gillian's legacy of kindness and compassion.
 
- Industry Context: A Growing Wellness Economy The report aligns with broader industry data from the Global Wellness Institute, which estimates the global wellness economy has surpassed $5 trillion, driven by increasing demand for preventative and performance-based health solutions.
+ How to Participate
 
- Key Takeaways From the April Report * Seasonal wellness trends are shifting from aesthetics to biology
-* Multi-modality protocols are gaining traction among providers
-* Practitioner-led implementation is emerging as a differentiator
-* Consumer demand is moving toward measurable, long-term outcomes
+ The community is invited to attend the event in person at Pinnacle Brewing Company on May 17, bid in the silent auction online at www.gillianraganfoundation.org, make a direct donation via the foundation's website, or volunteer to support the event. Businesses and individuals interested in donating items for the silent auction or becoming a sponsor are encouraged to contact the foundation directly.
 
- Conclusion The April 2026 Wellness Index Report positions the Superhuman Protocol Challenge as part of a broader evolution in health optimization.
+ Follow the Foundation
 
- Rather than focusing on short-term transformation, leading providers are adopting approaches centered on cellular performance, recovery, and long-term resilience.
-
- About the Wellness Index Report The Wellness Index Report is a practitioner-led evaluation platform that assesses wellness providers and technologies through a four-step process including expert nomination, customer feedback, clinical review, and ongoing rating analysis. It is designed to provide transparent, third-party validation in the rapidly growing wellness and biohacking industry. 
+ Website: www.gillianraganfoundation.org Instagram: @life_of_gillian_ragan YouTube: @JeniferMattioli Gillian Ragan Foundation TikTok: @jenifer_dawn_az 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605072419/a-shift-from-summer-ready-to-system-level-health-via-the-superhuman-protocol-challenge)
+[Original/Source Press Release](https://newsworthy.ai/news/202605072414/the-gillian-ragan-foundation-hosts-inaugural-community-fundraiser-at-pinnacle-brewing-company)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-index-report-reveals-top-providers-in-superhuman-challenge/00d891cb571dca7c14e57fb9555c980a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gillian-ragan-foundation-teams-with-pinnacle-brewing-for-fundraiser/f6fa035262b8dd8c81a1e360ee7b482d) 
 
+
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/07/gillian-ragan-foundation-hosts-inaugural-fundraiser-to-support-grieving-families/)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gillian-ragan-foundation-to-host-inaugural-community-fundraiser/202631897)
+
+Pickup - [https://advos.io/en](https://advos.io/en/gillian-ragan-foundation-hosts-first-community-fundraiser-at-pinnacle-brewing-company)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/gillian-ragan-foundation-to-host-first-community-fundraiser-at-pinnacle-brewing-company)
+
+Pickup - [https://burstable.news](https://burstable.news/news/gillian-ragan-foundation-to-host-community-fundraiser-at-pinnacle-brewing-company)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gillian-ragan-foundation-veranstaltet-gemeinschaftliches-fundraising-bei-der-pinnacle-brewing-company)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-fundacion-gillian-ragan-organizara-una-recaudacion-de-fondos-comunitaria-en-pinnacle-brewing-company)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-fondation-gillian-ragan-organise-une-collecte-de-fonds-communautaire-a-la-pinnacle-brewing-company)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fundacao-gillian-ragan-realizara-arrecadacao-comunitaria-na-pinnacle-brewing-company)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gillian-ragan-foundation-to-host-first-community-fundraiser-at-pinnacle-brewing-company)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/gillian-ragan-foundation-hosts-inaugural-community-fundraiser-to-support-grieving-families)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/QDyGVW8BdjA)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/7/loss6bhu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/7/lilyfHKd.webp)
