@@ -1,42 +1,40 @@
-# Pipeline Maturity is Redefining Valuations in Biotech
+# 420 with CNW — Marijuana Reclassification Eases Some Industry Hurdles
 
-* The biotechnology industry is going through a transformation that is redefining how a company’s value is interpreted.
-* While revenue has traditionally been highly associated with a company’s valuation, clinical-stage progression and a company’s probability of success are being increasingly factored into its valuation.
-* Companies on the front lines of this shift, such as Oncotelic Therapeutics, are leveraging their expertise in the space, and showing how scientific advancement can influence financial positioning.
+Cannabis rescheduling in the U.S. could reshape scientific research and parts of the industry, though key questions remain about how the change will be carried out.
 
- The biotechnology sector is undergoing a meaningful shift in how companies are evaluated, challenging long-standing assumptions about value creation. Traditionally, valuation has been closely tied to revenue generation and near-term financial performance. However, this framework has never fully captured the realities of biotech, where long development timelines, regulatory complexity, and scientific uncertainty often delay commercialization for years.
-
- One company operating within this evolving framework is Oncotelic Therapeutics Inc. (OTCQB: OTLC), a clinical-stage biopharmaceutical firm focused on developing targeted therapies for cancer and other serious diseases. The company’s strategy reflects a broader recognition that scientific execution and…
+ For now, the pace of change appears steady but slow, with further developments likely to depend on regulatory decisions in the months ahead. Those anticipated changes will not only be important to marijuana firms but also to ancillary entities like Innovative Industrial Properties Inc. (NYSE: IIPR)…
 
  Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to OTLC are available in the company’s newsroom at https://nnw.fm/OTLC
+ About CNW420
 
- About NetworkNewsWire
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.NetworkNewsWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/pipeline-maturity-is-redefining-valuations-in-biotech/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-marijuana-reclassification-eases-some-industry-hurdles/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pipeline-maturity-reshapes-biotech-valuations/368ccd7836097b0d21354aae8e4db813) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannabis-rescheduling-to-reshape-research-and-industry/ae5726aeeca4e626f22b90668f58329b) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/cannabis-rescheduling-poised-to-reshape-research-and-industry-but-slow-pace-and-regulatory-hurdles-remain)
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/ae5726aeeca4e626f22b90668f58329b)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/7/waitxH0f.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/7/sagevTmZ.webp)

@@ -1,78 +1,80 @@
-# The Gillian Ragan Foundation Hosts Inaugural Community Fundraiser at Pinnacle Brewing Company
+# Nathan Macintosh Headlines Levity Comedy Club in Hamilton, Ontario May 15–16
 
-Scottsdale, AZ (Newsworthy.ai) Thursday May 7, 2026 @ 1:25 PM Central — The Gillian Ragan Foundation, a registered 501(c)(3) nonprofit dedicated to supporting families who have suffered the loss of a child, today announced its inaugural Community Fundraiser in partnership with Pinnacle Brewing Company. The event will take place Saturday, May 17, 2026, from 12:00 p.m. to 6:00 p.m. at Pinnacle Brewing Company, 15111 N. Hayden Rd., Unit 100, Scottsdale, AZ 85260.
+Hamilton, Ontario (Newsworthy.ai) Thursday May 7, 2026 @ 3:40 PM Central — Nathan Macintosh Brings His Latest Stand-Up Tour to Levity Comedy Club in Hamilton May 15-16
 
- The open house is free to attend, family-friendly, and open to all ages. Guests are invited to come and go throughout the afternoon while enjoying a silent auction, music bingo, raffles, craft beer, and food from Pinnacle Brewing's on-site kitchen. All proceeds will go directly toward providing mental health therapy, grief counseling, and emotional healing resources to families navigating the loss of a child.
+ Hamilton comedy fans will have two chances to see Nathan Macintosh live at Levity Comedy Club this May.
 
- "When you lose a child, your whole world changes in an instant," said Jenifer Mattioli, founder of The Gillian Ragan Foundation and mother of Gillian Grace Ragan, who passed away at age 14. "This fundraiser is about bringing our community together to ensure that no family has to face that darkness alone. Every dollar raised will fund therapy and healing resources for families who desperately need support but can't always afford it."
+ Hamilton, ON, Canada, May 2026, Nathan Macintosh will perform two headline stand-up comedy shows at Levity Comedy Club on May 15 and May 16 as the comedian continues touring across North America following growing recognition for his live performances and online comedy specials.
 
- Hybrid Silent Auction Opens Online and at the Venue
+ Energetic, loud, and funny, Nathan Macintosh is a comedian and writer originally from Halifax, Nova Scotia, now living in New York City. Nathan Macintosh’s 2023 comedy special, “Money Never Wakes,” was named one of the Best YouTube Specials of the Year by The New York Times and helped introduce the comedian to a wider international audience.
 
- The foundation's silent auction features a curated collection of items donated by local businesses and supporters, including original artwork, one-of-a-kind sports memorabilia, dining experiences, wellness packages, gift baskets, Diamondbacks Advantage baseball tickets, jewelry, and more. In a first for the foundation, the auction operates as a hybrid system. Bidding opens online prior to the event and remains live throughout the afternoon at Pinnacle Brewing Company.
+ Nathan Macintosh has built a loyal following through stand-up clips, podcast appearances, touring, and observational comedy focused on modern life, technology, anxiety, relationships, and everyday frustrations audiences instantly recognize.
 
- Guests at the venue can scan QR codes placed alongside each item to bid instantly from their phones. Remote supporters from anywhere in the country can participate through the foundation's website at www.gillianraganfoundation.org. The auction includes real-time bidding, outbid notifications, proxy bidding, Buy It Now options, and anti-sniping protection to ensure fair competition.
+ The upcoming Hamilton shows are set to draw audiences from across Ontario, highlighting the soaring demand for live stand-up comedy in both Canada and the U.S.
 
- Event Details
+ “Live comedy works best when the audience feels like they’re part of the conversation. Every city becomes its own version of the show,” said Nathan Macintosh.
 
- What: The Gillian Ragan Foundation Community Fundraiser When: Saturday, May 17, 2026, 12:00 p.m. to 6:00 p.m. Where: Pinnacle Brewing Company, 15111 N. Hayden Rd., Unit 100, Scottsdale, AZ 85260 Format: Open house, come and go as you please Admission: Free and open to the public. All ages welcome. Activities: Silent auction, music bingo, raffles, craft beer, food
+ Fans searching for Nathan Macintosh tickets, Hamilton comedy shows, or live stand-up comedy in Ontario can purchase tickets through Levity Comedy Club’s official event listings.
 
- About the Venue
+ Nathan Macintosh is growing his fan base through live tours, viral clips, popular podcasts, and media coverage. Industry analysts continue tracking how comedians with strong digital discovery and direct audience engagement are increasingly building momentum across both ticket sales and online visibility.
 
- Pinnacle Brewing Company is an award-winning, family-owned craft brewery in North Scottsdale led by brewmaster Wyatt Wilson. Named 2025 Brewery of the Year at the Arizona Craft Beer Awards, 2025 Best Brewery in the Valley by Phoenix Magazine, and 2025 Best New Brewery by Phoenix New Times, Pinnacle has become one of the most celebrated breweries in the Valley. The brewery's spacious taproom and dog-friendly biergarten patio provide the setting for the community gathering.
+ 
 
- About Gillian Grace Ragan
+ 
 
- Gillian Grace Ragan, known lovingly as "Gigi," was born on December 19, 2008, in Scottsdale, Arizona. Born with congenital orthopedic challenges, she spent her early years navigating surgeries and therapies with courage and grace. Despite her physical challenges, Gigi radiated joy, compassion, and an extraordinary ability to make everyone around her feel seen and loved. She was known for seeking out the lonely child on the playground, for her room-filling laughter, and for a spirit that made her the tallest person in any room. Gigi passed away at age 14, but her legacy of kindness, courage, and unconditional love lives on through the foundation that bears her name.
+ SHOW SCHEDULE
 
- About The Gillian Ragan Foundation
+ Friday, May 158:00 PM
 
- The Gillian Ragan Foundation is a registered 501(c)(3) nonprofit organization dedicated to supporting families navigating the loss of a child by providing access to mental health therapy and emotional healing resources. The foundation believes that every parent, caregiver, and sibling deserves compassionate care during their grief journey, without the added burden of financial barriers. Through its Healing Assistance Program, the foundation provides financial assistance for individual and family therapy, grief counseling, trauma-informed care, EMDR, psychiatry, and support groups.
+ Saturday, May 168:00 PM
 
- The foundation was established by Jenifer Mattioli, Gillian's mother, and co-founded by Triston Ragan, Gillian's brother. It is governed by a dedicated board of directors committed to carrying forward Gillian's legacy of kindness and compassion.
+ 120 King St. W, Hamilton, Ontario, Canada
 
- How to Participate
+ ABOUT NATHAN MACINTOSH
 
- The community is invited to attend the event in person at Pinnacle Brewing Company on May 17, bid in the silent auction online at www.gillianraganfoundation.org, make a direct donation via the foundation's website, or volunteer to support the event. Businesses and individuals interested in donating items for the silent auction or becoming a sponsor are encouraged to contact the foundation directly.
-
- Follow the Foundation
-
- Website: www.gillianraganfoundation.org Instagram: @life_of_gillian_ragan YouTube: @JeniferMattioli Gillian Ragan Foundation TikTok: @jenifer_dawn_az 
+ Nathan Macintosh is a Canadian stand-up comedian, writer, and touring performer known for observational comedy, storytelling, and high-energy live performances. Nathan Macintosh has built a growing audience through stand-up clips, streaming content, podcasts, and live comedy tours throughout North America. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605072414/the-gillian-ragan-foundation-hosts-inaugural-community-fundraiser-at-pinnacle-brewing-company)
+[Original/Source Press Release](https://newsworthy.ai/news/202605072421/nathan-macintosh-headlines-levity-comedy-club-in-hamilton-ontario-may-15-16)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gillian-ragan-foundation-teams-with-pinnacle-brewing-for-fundraiser/f6fa035262b8dd8c81a1e360ee7b482d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-macintosh-brings-stand-up-tour-to-hamilton-may-15-16/85dfd7850ffd636403f68d79460f0ae0) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/07/gillian-ragan-foundation-hosts-inaugural-fundraiser-to-support-grieving-families/)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/07/nathan-macintosh-brings-stand-up-tour-to-hamiltons-levity-comedy-club-may-15-16/)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gillian-ragan-foundation-to-host-inaugural-community-fundraiser/202631897)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nathan-macintosh-brings-his-latest-stand-up-tour-to-levity-comed/202631905)
 
-Pickup - [https://advos.io/en](https://advos.io/en/gillian-ragan-foundation-hosts-first-community-fundraiser-at-pinnacle-brewing-company)
+Pickup - [https://advos.io/en](https://advos.io/en/nathan-macintosh-to-headline-levity-comedy-club-in-hamilton-may-15-16)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/gillian-ragan-foundation-to-host-first-community-fundraiser-at-pinnacle-brewing-company)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/nathan-macintosh-brings-stand-up-tour-to-hamiltons-levity-comedy-club)
 
-Pickup - [https://burstable.news](https://burstable.news/news/gillian-ragan-foundation-to-host-community-fundraiser-at-pinnacle-brewing-company)
+Pickup - [https://burstable.news](https://burstable.news/news/nathan-macintosh-to-perform-headline-shows-at-levity-comedy-club-in-hamilton-ontario-may-15-16)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gillian-ragan-foundation-veranstaltet-gemeinschaftliches-fundraising-bei-der-pinnacle-brewing-company)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/nathan-macintosh-gibt-am-15-und-16-mai-headline-shows-im-levity-comedy-club-in-hamilton-ontario)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-fundacion-gillian-ragan-organizara-una-recaudacion-de-fondos-comunitaria-en-pinnacle-brewing-company)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/nathan-macintosh-se-presentara-en-el-levity-comedy-club-de-hamilton-ontario-el-15-y-16-de-mayo)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-fondation-gillian-ragan-organise-une-collecte-de-fonds-communautaire-a-la-pinnacle-brewing-company)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/nathan-macintosh-en-tete-daffiche-au-levity-comedy-club-a-hamilton-ontario-les-15-et-16-mai)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fundacao-gillian-ragan-realizara-arrecadacao-comunitaria-na-pinnacle-brewing-company)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/nathan-macintosh-fara-shows-principais-no-levity-comedy-club-em-hamilton-ontario-dias-15-e-16-de-maio)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/gillian-ragan-foundation-to-host-first-community-fundraiser-at-pinnacle-brewing-company)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/nathan-macintosh-to-headline-levity-comedy-club-in-hamilton-ontario-may-15-16)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/gillian-ragan-foundation-hosts-inaugural-community-fundraiser-to-support-grieving-families)
+Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/canadian-comedian-nathan-macintosh-brings-high-energy-stand-up-to-hamilton)
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/QDyGVW8BdjA)
+Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/le-comedien-canadien-nathan-macintosh-apporte-son-stand-up-energique-a-hamilton)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/nathan-macintosh-to-headline-levity-comedy-club-in-hamilton-ontario-may-15-16)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/09lNWf2KPXk)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/85dfd7850ffd636403f68d79460f0ae0)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/7/lilyfHKd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/7/lendeoQ6.webp)
