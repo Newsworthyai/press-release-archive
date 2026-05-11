@@ -1,16 +1,16 @@
-# NetworkNewsBreaks – MindBio Therapeutics Corp. (CSE: MBIO; Frankfurt: WF6; OTCQB: MBQIF) Expands AI Voice Diagnostics Platform With Fatigue Detection Technology
+# NetworkNewsBreaks – Oregen Energy Corp. (CSE: ORNG) (OTCQB: ORGEF) (FSE: A1S0) Appoints Former Impact Oil &amp; Gas Executive Philip Birch as Strategic Advisor
 
-This article has been disseminated on behalf of MindBio Therapeutics Corp. and may include paid advertising.
+This article has been disseminated on behalf of Oregen Energy Corp. and may include paid advertising.
 
- MindBio Therapeutics (CSE: MBIO; Frankfurt: WF6; OTCQB: MBQIF) announced the development of AI-powered fatigue recognition technology that analyzes voice patterns and is intended to be added as a commercial feature to the company’s Edge AI Intoxication Detection Kiosks. Designed for high-risk industries including aviation, road transport and mining, the fatigue detection module complements MindBio’s broader voice-based diagnostics platform aimed at identifying intoxication and neurological impairment, with initial commercial testing of the kiosk platform expected in late second quarter 2026.
+ Oregen Energy (CSE: ORNG) (OTCQB: ORGEF) (FSE: A1S0) announced the appointment of petroleum geoscientist and former Impact Oil & Gas Exploration Director Philip Birch as strategic advisor as the company evaluates a potential investment in Namibia’s offshore Block 2812Ab in the Orange Basin. Birch played a key role in identifying and advancing the Venus prospect prior to its successful drilling by TotalEnergies, and Oregen said his expertise will support exploration strategy, subsurface evaluation and technical positioning related to the block, which sits adjacent to the Venus discovery within the same proven petroleum fairway.
 
- To view the full press release, visit https://nnw.fm/WWgcb
+ To view the full press release, visit https://nnw.fm/l5Pz4
 
- About MindBio Therapeutics Corp.
+ About Oregen Energy Corp.
 
- MindBio is a biotechnology company that is commercialising AI prediction technologies for drug and alcohol intoxication detection via voice analysis. The AI prediction model uses over 50 million data points to predict alcohol intoxication with remarkable accuracy, just by using the human voice. The Company is developing an enterprise platform including Edge-AI kiosks integrating bespoke hardware and software for the detection of drug and alcohol intoxication using the human voice and AI in a range of enterprise environments including the mining industry, aviation, construction and law enforcement.
+ Oregen is an investment company primarily focused on oil and gas assets in Africa. The Company is actively exploring other investment opportunities in the Orange and surrounding basins. Its current flagship investment is 33.95% net interest in Block 2712A in the Orange Basin offshore Namibia, an emerging world-class petroleum province with multiple recent discoveries by major operators.
 
- NOTE TO INVESTORS: The latest news and updates relating to MBQIF are available in the company’s newsroom at https://nnw.fm/MBQIF
+ For more information, visit: https://oregen.com/
 
  About NetworkNewsWire
 
@@ -28,10 +28,10 @@ This article has been disseminated on behalf of MindBio Therapeutics Corp. and m
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-mindbio-therapeutics-corp-cse-mbio-frankfurt-wf6-otcqb-mbqif-expands-ai-voice-diagnostics-platform-with-fatigue-detection-technology/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-oregen-energy-corp-cse-orng-otcqb-orgef-fse-a1s0-appoints-former-impact-oil-gas-executive-philip-birch-as-strategic-advisor/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mindbio-unveils-ai-fatigue-detection-for-workplace-safety/748bba28b576e445bb5307fde0c6744c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oregen-energy-hires-former-impact-director-for-namibia-block/74e21ce104aa9c34c61e78827502311b) 
 
  
 
@@ -39,4 +39,4 @@ This article has been disseminated on behalf of MindBio Therapeutics Corp. and m
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/11/bossOxS3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/11/seekxRNx.webp)
