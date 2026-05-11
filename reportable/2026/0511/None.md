@@ -1,62 +1,68 @@
-# eyeo raises €40 million to fix the flaw that has kept every camera 70% blind
+# iOrganBio Appoints AI and Life Sciences Investor Jessica Owens to its Board of Directors
 
-EINDHOVEN (NETHERLANDS), MAY 11, 2026
+CHAPEL HILL, N.C. - MAY 11, 2026
 
-Eindhoven (Netherlands), May 11, 2026 – eyeo today announced it has raised €40 million in Series A funding, bringing eyeo’s total funding to €55 million. The round is led by Innovation Industries, with participation from existing investors imec.xpand, Invest-NL Deep Tech Fund, QBIC fund, High-Tech Gründerfonds (HTGF) and Brabant Development Agency (BOM).
+iOrganBio, an innovator in intelligent cell manufacturing that is redefining how human cells are engineered and reliably produced at scale for research and therapeutic applications, including FDA-aligned New Approach Methodologies (NAMs), today announced the appointment of Jessica Owens to its Board of Directors. Jessica is a seasoned venture investor and serial founder with extensive experience building and scaling companies at the intersection of life sciences, health technology and AI.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Series A funds eyeo's drive to bring seven years of proven nanophotonic science to market as production-ready color-splitting sensors
-* eyeo sensors capture three times more light for smartphones, XR devices, smart cities and more across a $30 billion imaging market
-* Funding round is led by Innovation Industries, with participation from existing investors imec.xpand, Invest-NL Deep Tech Fund, QBIC fund, High-Tech Gründerfonds (HTGF) and Brabant Development Agency (BOM).
+Key Takeaways:* iOrganBio appoints Jessica Owens to its Board of Directors.
+* Owens brings over 20 years of company-building and investing experience, including co-founding GRAIL, which raised over $1B and formed partnerships with Bristol Myers Squibb, Merck, and Johnson & Johnson, and serving as co-founder and General Partner at Initiate Ventures.
+* iOrganBio says her counsel will be invaluable as it scales CellForge, expands partnerships, and advances AI-driven cell manufacturing to improve predictability and scalability from model development to cell therapies.
 
-[Click image above to view full announcement.](https://eyeo-tech.reportablenews.com/pr/eyeo-raises-40-million-to-fix-the-flaw-that-has-kept-every-camera-70-blind)
+[Click image above to view full announcement.](https://iorganbio.reportablenews.com/pr/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-its-board-of-directors)
 
-About eyeo
+About iOrganBio
 
-eyeo is redefining imaging with the world’s most advanced nanophotonic color-splitting technology. For the first time, image sensors can capture all incoming light, overcoming the 70% light loss imposed by decades-old color filter technology. Instead of filtering photons, eyeo’s technology guides them directly to individual pixels, unlocking full light sensitivity and native color fidelity in any condition. Compatible with any CMOS sensor platform, eyeo enables sub-0.5-micron pixels for ultra-compact, high-performance imaging where image quality is critical. eyeo is headquartered at High Tech Campus Eindhoven (NL), with a sensor design center in Antwerp (BE).
+iOrganBio is transforming human cell production with CellForge™, its AI-powered platform for consistent, scalable, and intelligent manufacturing of cells and organoids for in vitro modeling and cell therapies. By applying engineering precision to biology, CellForge uses AI and automation to guide cell development and make real-time adjustments aligned with defined biological profiles. At the core of the platform is iOrganBio’s functional human CellAtlas™, a comprehensive reference built from single-cell and multi-omics data that provides the digital blueprints for each cell type. This smart, closed-loop process delivers the accuracy, efficiency, and quality partners need to turn scientific ideas into breakthroughs, accelerating disease modeling, regenerative medicine, and drug development. iOrganBio is based at BioLabs in Chapel Hill, NC.
 
-Contacts:Mike Sottak+1 650 248-9597mike@wiredislandpr.com
+For more information, visit iOrgan.Bio or follow us on LinkedIn.
 
-Guillaume Butinpress@eyeo-imaging.com
+Contacts:Michelle Linnmichelle@linndencom.com
 
-Source: eyeo.tech
+Source: iOrganBio
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://eyeo-tech.reportablenews.com/pr/eyeo-raises-40-million-to-fix-the-flaw-that-has-kept-every-camera-70-blind)
+[Original/Source Press Release](https://iorganbio.reportablenews.com/pr/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-its-board-of-directors)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/eyeo-raises-eur40m-to-fix-camera-s-70-light-loss-flaw/b9a25e422ba96f7572089a00b838c3f8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iorganbio-appoints-ai-and-life-sciences-veteran-jessica-owens-to-board/9379c23ac12dc94053207373040bc791) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/11/eyeo-raises-eur40-million-to-revolutionize-imaging-with-color-splitting-technology/)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/11/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors/)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/eyeo-raises-eur40-million-to-bring-nanophotonic-color-splitting/202631940)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-t/202631943)
 
-Pickup - [https://advos.io/en](https://advos.io/en/eyeo-raises-eur40-million-to-bring-color-splitting-sensor-technology-to-market)
+Pickup - [https://advos.io/en](https://advos.io/en/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/eyeo-raises-eur40-million-to-commercialize-color-splitting-sensor-technology-that-eliminates-70-light-loss)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors)
 
-Pickup - [https://burstable.news](https://burstable.news/news/eyeo-raises-eur40-million-to-commercialize-nanophotonic-color-splitting-sensors)
+Pickup - [https://burstable.news](https://burstable.news/news/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/eyeo-sammelt-40-millionen-euro-ein-um-nanophotonische-farbsplittersensoren-zu-kommerzialisieren)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/iorganbio-beruft-ki-und-life-sciences-investorin-jessica-owens-in-den-vorstand)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/eyeo-recauda-40-millones-de-euros-para-comercializar-sensores-nanofotonicos-de-separacion-de-colores)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/iorganbio-nombra-a-jessica-owens-inversora-en-ia-y-ciencias-de-la-vida-en-su-consejo-directivo)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/eyeo-leve-40-millions-deuros-pour-commercialiser-des-capteurs-nanophotoniques-a-separation-chromatique)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/iorganbio-nomme-jessica-owens-investisseuse-en-ia-et-sciences-de-la-vie-a-son-conseil-dadministration)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/eyeo-capta-eur40-milhoes-para-comercializar-sensores-nanofotonicos-de-divisao-de-cores)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/iorganbio-nomeia-jessica-owens-investidora-em-ia-e-ciencias-da-vida-para-o-conselho-de-administracao)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/eyeo-raises-eur40-million-to-overcome-70-light-loss-in-camera-sensors)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/eyeo-raises-eur40-million-to-revolutionize-imaging-with-color-splitting-sensors)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/iorganbio-appoints-ai-and-life-sciences-investor-jessica-owens-to-board-of-directors)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/iorganbio-appoints-jessica-owens-to-board-of-directors-to-accelerate-ai-driven-cell-manufacturing)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/9379c23ac12dc94053207373040bc791)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/9379c23ac12dc94053207373040bc791)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/265/11/smogTgVQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/265/11/bossOgJ8.webp)
