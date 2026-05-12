@@ -1,42 +1,40 @@
-# NetworkNewsBreaks – Oregen Energy Corp. (CSE: ORNG) (OTCQB: ORGEF) (FSE: A1S0) Appoints Former Impact Oil &amp; Gas Executive Philip Birch as Strategic Advisor
+# 420 with CNW — Congressional Researchers Explain Limitations, Implications of Marijuana Reclassification
 
-This article has been disseminated on behalf of Oregen Energy Corp. and may include paid advertising.
+A new report from congressional researchers is shedding light on what the Trump administration’s move to reclassify cannabis could mean for the industry, while also outlining the limits of the policy shift under federal law.
 
- Oregen Energy (CSE: ORNG) (OTCQB: ORGEF) (FSE: A1S0) announced the appointment of petroleum geoscientist and former Impact Oil & Gas Exploration Director Philip Birch as strategic advisor as the company evaluates a potential investment in Namibia’s offshore Block 2812Ab in the Orange Basin. Birch played a key role in identifying and advancing the Venus prospect prior to its successful drilling by TotalEnergies, and Oregen said his expertise will support exploration strategy, subsurface evaluation and technical positioning related to the block, which sits adjacent to the Venus discovery within the same proven petroleum fairway.
+ As the ramifications of the recent decision to reclassify some marijuana products continue to become clearer, marijuana companies like Tilray Brands Inc. (NASDAQ: TLRY) (TSX: TLRY) will be able to ascertain how…
 
- To view the full press release, visit https://nnw.fm/l5Pz4
+ Read More>>
 
- About Oregen Energy Corp.
+ About CNW420
 
- Oregen is an investment company primarily focused on oil and gas assets in Africa. The Company is actively exploring other investment opportunities in the Orange and surrounding basins. Its current flagship investment is 33.95% net interest in Block 2712A in the Orange Basin offshore Namibia, an emerging world-class petroleum province with multiple recent discoveries by major operators.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- For more information, visit: https://oregen.com/
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- About NetworkNewsWire
+ For more information, please visit https://www.CannabisNewsWire.com
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- For more information, please visit https://www.NetworkNewsWire.com
-
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-oregen-energy-corp-cse-orng-otcqb-orgef-fse-a1s0-appoints-former-impact-oil-gas-executive-philip-birch-as-strategic-advisor/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-congressional-researchers-explain-limitations-implications-of-marijuana-reclassification/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/oregen-energy-hires-former-impact-director-for-namibia-block/74e21ce104aa9c34c61e78827502311b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/congressional-report-reveals-limits-of-trump-s-cannabis-rescheduling/0e8c60726e113791955d6cade6bd51d2) 
 
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/0e8c60726e113791955d6cade6bd51d2)
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/congressional-report-highlights-implications-and-limits-of-cannabis-rescheduling-for-industry)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/11/seekxRNx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/11/cakeihWq.webp)
