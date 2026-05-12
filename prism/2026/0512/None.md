@@ -1,94 +1,122 @@
-# American Shared Hospital Services Announces First Quarter 2026 Financial Results Conference Call
+# Premier Graphene Successfully Completes Initial Military Order
 
-Call Scheduled for May 14th at 12:00 PM ET
-
- 
+Order Positions Premier for Expanded Defense Supply Opportunities Across Latin America for Multiple Products
 
  
 
- SAN FRANCISCO, May 12, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – American Shared Hospital Services (NYSE American: AMS) (the “Company”), a leading provider of stereotactic radiosurgery equipment and advanced radiation therapy cancer treatment services through its equipment leasing and direct patient care services segments, today announced that the Company will hold a conference call to discuss its first quarter 2026 financial results on May 14th at 12:00 pm ET.
+ 
 
- The first quarter 2026 financial results press release will be issued before the market opens on May 14th, 2026.
+ MEXICO CITY, May 12, 2026 PRISM MediaWire (Press Release Service – Press Release Distribution) – Premier Graphene, Inc. (OTC: BIEI), together with its joint venture partners, including HGI Industrial Technologies SAPI, today announced the successful completion and delivery of its first military-related order. Mexico’s Secretaría de la Defensa Nacional (SEDENA)’s order marks a major operational milestone, positioning the Company for ongoing defense-related supply opportunities within Mexico and potentially broader Latin American markets.
 
- Teleconference and Webcast Information
+ The order, issued through Dirección General de Fábrica de Vestuario y Equipo (FAVE), was successfully completed and delivered. The delivered products passed preliminary inspection and was officially registered as delivered at 4:50 PM Central Time on May 8, 2026. This was only the first tranche of goods.
 
- To participate, domestic callers may dial 1-844-413-3972 and international callers may dial 1-412-317-5776 at least 10 minutes prior to the start of the call and ask to join the American Shared Hospital Services call.
+ Premier Graphene believes successful fulfillment under the SEDENA-linked procurement framework will lead to follow-on supply discussions involving military-grade protective plates, graphene-enhanced tactical equipment, advanced materials for personnel and vehicle protection systems, and broader graphene-related defense applications.
 
- A simultaneous webcast of the call may be accessed through the Company’s website, www.ashs.com or directly:
+ Mexico represents one of the largest and most strategically important defense and infrastructure markets in Latin America, supported by a national economy exceeding $1.4 trillion in GDP and growing investment in modernization, security, and domestic manufacturing initiatives. Management believes increasing global demand for lightweight, high-strength advanced materials may create substantial long-term opportunities for our graphene-enhanced products. More broadly, and our graphene enhanced technologies, across military and industrial sectors.
 
- https://event.choruscall.com/mediaframe/webcast.html?webcastid=NAuZg0I8
+ “This first completed delivery represents an important operational and strategic milestone for Premier Graphene. Successfully meeting delivery timelines and passing inspection standards demonstrates our production capability, execution readiness, and ability to operate within highly demanding government procurement contracts and timelines. More importantly, we believe this delivery helps establish a foundation for potential long-term participation within Mexico’s military supply chain and future graphene-enhanced defense opportunities.”
 
- A replay of the call will be available at 1-855-669-9658 or 1-412-317-0088, access code 6753554, through May 21, 2026. The call will also be available for replay on the Company’s website at www.ashs.com.
+ Pedro Mendez, President of Premier Graphene and HGI
 
- About American Shared Hospital Services (NYSE American: AMS)
+“Mexico’s defense modernization efforts and increasing focus on advanced materials create what we believe may be a substantial long-term market opportunity. Completing and delivering the initial order is a critical first step toward potentially expanding our role as a supplier of graphene-enhanced products and advanced defense materials within Mexico and potentially throughout Latin America.”
 
- American Shared Hospital Services (AMS) is a leading provider of turnkey solutions to cancer treatment centers, health systems, and cancer networks in North and South America. The company works closely with its partners to develop and grow their cancer service lines and provide integrated cancer care to patients in a convenient local setting close to home. For centers under health system partnerships, the Company and its health system partners share in the capital investment cost and profitability of the operations based on their respective ownership interests. For more information, please visit: www.ashs.com
+ Lic. Emmanuel Hernández Rico
 
- Safe Harbor Statement
+ Management stated that the Company remains engaged in ongoing discussions surrounding future procurement opportunities and broader graphene-enhanced defense applications tied to military and government-related initiatives.
 
- This press release may be deemed to contain certain forward-looking statements with respect to the financial condition, results of operations and future plans of American Shared Hospital Services including statements regarding the expected continued growth of the Company and the expansion of the Company’s Gamma Knife, proton therapy and advanced radiation therapy cancer treatment services businesses, which involve risks and uncertainties including, but not limited to, the risks of economic and market conditions, the risk of compliance with debt covenants, the risks of variability of financial results between quarters, the risks of the Gamma Knife, proton therapy and advanced radiation therapy cancer treatment services businesses, the risks of changes to CMS reimbursement rates or reimbursement methodology, the risks of the timing, financing, and operations of the Company’s Gamma Knife, proton therapy, and advanced radiation therapy cancer treatment services businesses, the risk of expanding within or into new markets, the risk that the integration or continued operation of acquired businesses could adversely affect financial results and the risk that current and future acquisitions may negatively affect the Company’s financial position. Further information on potential factors that could affect the financial condition, results of operations and future plans of American Shared Hospital Services is included in the filings of the Company with the Securities and Exchange Commission, including the Company’s Annual Report on Form 10-K for the year ended December 31, 2025.
+ The Company believes graphene’s growing importance across defense, infrastructure, aerospace, and industrial sectors positions Premier Graphene to participate in what management views as a potentially significant multi-billion-dollar global advanced materials market opportunity.
 
- Contacts:
+ We will provide further updates as additional developments occur.
 
- American Shared Hospital ServicesRay Stachowiak, Executive Chairmanrstachowiak@ashs.com
+ About HGI Industrial Technologies SAPI
 
- Investor Relations
+ HGI Industrial Technologies SAPI is a Mexico-based company specializing in advanced carbon material production, supported by its proprietary bio-based graphene technology. The company focuses on industrial innovation and strategic market development, leveraging strong domestic partnerships to bridge international technologies into high-value sectors, including defense, infrastructure, and energy. HGI also maintains access to graphite mining resources and is actively pursuing rare earth mineral contracts to further strengthen its vertically integrated materials platform.
 
- Kirin Smith, PresidentPCG Advisory, Inc.ksmith@pcgadvisory.com
+ Website: www.hgiindustrialtechnologies.com
 
- Source: American Shared Hospital Services
+ About Premier Graphene Inc.
+
+ Premier Graphene Inc., a leader in the graphene industry, focuses on developing innovative and high-performance graphene materials from sustainable sources like industrial hemp. With cutting-edge technology and research capabilities, the company is dedicated to propelling the industry forward, promoting sustainable practices, and delivering high-quality products across multiple industries, with a current focus on delivering innovative, high-performance solutions that enhance protection, efficiency, and sustainability.
+
+ Media Contact:
+
+ President of HGI Industrial Technologies SAPI / Premier Graphene Inc.
+
+ Pedro Alberto Méndez
+
+ p.mendez@premiergrapheneinc.comwww.premiergrapheneinc.comwww.hgiindustrialtechnologies.com
+
+ To get the latest news on the exciting developments from Premier Biomedical Inc. (OTC: BIEI), now known as Premier Graphene, Inc., subscribe by submitting to:
+
+ https://premiergrapheneinc.com/contact
+
+ https://www.linkedin.com/in/pedro-mendez-a504741ba
+
+ For more information, please contact us at: info@premiergrapheneinc.com
+
+ Website (upgrading in process): https://premiergrapheneinc.com/
+
+ X: @PREMIERGRAPHENE
+
+ Forward-Looking Statements
+
+ This press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995. These statements are based on current expectations and assumptions and involve risks and uncertainties that could cause actual results to differ materially. Words such as “anticipate,” “expect,” “believe,” “intend,” and similar expressions are intended to identify such forward-looking statements. Premier Graphene Inc. undertakes no obligation to update or revise these statements except as required by law.
+
+ Contact:
+
+ Premier Graphene Inc.Investor RelationsEl Centro, Californiap.mendez@premiergrapheneinc.comwww.premiergrapheneinc.com
+
+ Source: Premier Graphene, Inc.
 
  
 
- $AMS American Shared Hospital Services (NYSE American: AMS) will host its Q1 2026 earnings conference call on May 14, with webcast and replay access available https://t.co/rAptFJDLNR pic.twitter.com/HQAgtssKjR
+ $BIEI Premier Graphene (OTC: BIEI) completed its first SEDENA-linked military order, advancing graphene defense supply opportunities across Mexico and Latin America https://t.co/9KN0Xs3kru pic.twitter.com/LMn5L9aEbb
 
-— PRISM MediaWire (@prism_mediawire) [May 12, 2026](https://twitter.com/prism_mediawire/status/2054155840450433406?ref_src=twsrc%5Etfw) 
-
- 
-
- PRISM MediaWire GPT
+— PRISM MediaWire (@prism_mediawire) [May 12, 2026](https://twitter.com/prism_mediawire/status/2054185215250100326?ref_src=twsrc%5Etfw) 
 
  
 
- The post American Shared Hospital Services Announces First Quarter 2026 Financial Results Conference Call first appeared on Prism Media Wire. 
+ The post Premier Graphene Successfully Completes Initial Military Order first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/american-shared-hospital-services-announces-first-quarter-2026-financial-results-conference-call/)
+[Original/Source Press Release](https://prismmediawire.com/premier-graphene-successfully-completes-initial-military-order/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-shared-hospital-services-schedules-q1-2026-earnings-call/ec929b67941f9d6bfd1e5beba1ec2c1e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-graphene-delivers-first-military-order-targets-latin-america-defense-market/ca186b8ebb68abc0937a61a7a999322a) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/12/american-shared-hospital-services-schedules-q1-2026-earnings-call-for-may-14/)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/ca186b8ebb68abc0937a61a7a999322a)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/american-shared-hospital-services-schedules-first-quarter-2026-e/202631989)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/12/premier-graphene-completes-first-military-order-eyes-expanded-defense-supply-in-latin-america/)
 
-Pickup - [https://advos.io/en](https://advos.io/en/american-shared-hospital-services-schedules-q1-2026-earnings-call-for-may-14)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/premier-graphene-completes-first-military-order-eyes-expanded-de/202631992)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/american-shared-hospital-services-to-discuss-q1-2026-financial-results-on-may-14)
+Pickup - [https://advos.io/en](https://advos.io/en/premier-graphene-completes-first-military-order-opens-door-for-expanded-defense-contracts-in-latin-america)
 
-Pickup - [https://burstable.news](https://burstable.news/news/american-shared-hospital-services-schedules-first-quarter-2026-financial-results-conference-call)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/premier-graphene-completes-first-military-order-opens-door-to-latin-american-defense-contracts)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/american-shared-hospital-services-terminiert-telefonkonferenz-zu-den-finanzergebnissen-des-ersten-quartals-2026)
+Pickup - [https://burstable.news](https://burstable.news/news/premier-graphene-completes-first-military-order-poised-for-expanded-defense-contracts-in-latin-america)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/american-shared-hospital-services-programa-conferencia-telefonica-sobre-resultados-financieros-del-primer-trimestre-de-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/premier-graphene-schliesst-ersten-militarauftrag-ab-und-bereitet-sich-auf-erweiterte-verteidigungsauftrage-in-lateinamerika-vor)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/american-shared-hospital-services-programme-une-conference-telephonique-sur-les-resultats-financiers-du-premier-trimestre-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/premier-graphene-completa-su-primer-pedido-militar-y-se-prepara-para-ampliar-contratos-de-defensa-en-america-latina)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/american-shared-hospital-services-agenda-teleconferencia-de-resultados-do-primeiro-trimestre-de-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/premier-graphene-realise-sa-premiere-commande-militaire-et-se-prepare-a-etendre-ses-contrats-de-defense-en-amerique-latine)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/american-shared-hospital-services-to-report-first-quarter-2026-results-on-may-14)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/premier-graphene-conclui-primeira-encomenda-militar-e-se-prepara-para-expandir-contratos-de-defesa-na-america-latina)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/american-shared-hospital-services-to-report-first-quarter-2026-earnings-on-may-14)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/premier-graphene-completes-first-military-order-opening-defense-supply-opportunities-in-latin-america)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/american-shared-hospital-services-schedules-q1-2026-earnings-call-amid-growth-in-cancer-treatment-services)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/premier-graphene-completes-first-military-order-for-mexicos-sedena-opening-door-to-defense-supply-opportunities)
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/79wHS2Lh1gg)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/premier-graphene-completes-first-military-order-opens-door-to-defense-contracts-in-latin-america)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/cXaeyhJ3hqg)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/12/zestWfNV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/12/ulnalTrG.webp)
