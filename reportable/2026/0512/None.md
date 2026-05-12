@@ -1,20 +1,18 @@
-# Stonegate Capital Partners Updates Coverage on Viemed Healthcare, Inc. (NASDAQ: VMD) 1Q26
+# Stonegate Capital Partners Updates Coverage on OS Therapies Inc. (NYSE: OSTX)
 
-DALLAS, TX -- MAY 8, 2026
+DALLAS, TX -- MAY 12, 2026
 
-DALLAS, TX -- May 8, 2026 -- Viemed Healthcare, Inc. (NASDAQ: VMD). Stonegate Capital Partners Updates Coverage on Viemed Healthcare, Inc. (NASDAQ: VMD). Viemed’s 1Q26 results showed improving growth quality, not just reported scale. Sleep, resupply, and maternal health are becoming larger contributors, reducing reliance on legacy ventilation and improving capital efficiency. At the same time, ventilation appears to be moving through the NCD transition, with better new-start activity and improving compliance, though turnover continues to pressure census. In our view, the broader mix is driving stronger FCF conversion as sleep, resupply, and maternal health scale.
+DALLAS, TX -- May 12, 2026 -- OS Therapies Inc. (NYSE: OSTX): Stonegate Capital Partners updates their coverage on OS Therapies Inc. (NYSE: OSTX). OS Therapies advanced materially through late-stage regulatory and commercialization preparation as OST-HER2 moved from Phase 2bsupported planning toward a more defined global approval pathway in recurrent, fully resected, pulmonary metastatic osteosarcoma. The key change is greater regulatory clarity: EMA initiated rolling review of the OSTHER2 Conditional Marketing Authorization dossier, while EMA and Australia’s TGA aligned on 3-year overall survival as the approvable efficacy endpoint. Management also positioned seroconversion biomarker data as supportive surrogate efficacy evidence, shifting the investment debate from early proof-of-concept toward execution across a dense 2026 catalyst calendar. Key milestones include 2.5-year OS data in mid-2Q26, FDA/MHRA meetings in 2Q26, Phase 3 initiation in Australia in 3Q26, 3-year OS data in early 4Q26, and a potential EMA CMA decision in 4Q26.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* FCF conversion improved meaningfully. CFFO increased to $8.1M from $2.9M last year, while TTM FCF rose to $36.3M from $23.3M at YE25.
-* Revenue mix continues to improve. Ventilator rentals declined to 46.9% of revenue from 54.4%, while Commercial payors increased to 23% from 17%.
-* Sleep/resupply remain the clearest growth drivers. PAP patients increased 57% y/y to 35,938, new patient starts grew 42%, and resupply patients increased 47% y/y.
+Key Takeaways:* Regulatory clarity is the core value inflection. EMA rolling review, TGA endpoint alignment, MHRA ATMP designation, and 2026 FDA/MHRA meetings shift OST-HER2 from Phase 2b validation toward an executable global approval pathway.
+* Survival data remain the key catalyst stack. Mid-2Q26 2.5-year OS data and early-4Q26 3-year OS data should determine whether OSTX can complete EMA CMA submission and sustain accelerated-access momentum.
+* Financing/PRV optionality bridges the regulatory window. The $5.25M raise plus expected $4.0M non-dilutive funding supports 2026 catalysts, while a potential PRV remains a meaningful approval-contingent valuation lever, with the latest public transaction at $205M.
 
-[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-viemed-healthcare-inc-nasdaq-vmd-1q26)
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-os-therapies-inc-nyse-ostx)
 
-About Stonegate
-
-Stonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking, equity research and capital raising for public and private companies.
+About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
 Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
@@ -24,41 +22,15 @@ Distributed by: Reportable, Inc.
 
 ---
 
-[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-viemed-healthcare-inc-nasdaq-vmd-1q26)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-os-therapies-inc-nyse-ostx)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/viemed-healthcare-q1-2026-growth-quality-improves-as-mix-shifts/ac10ec1ace51b2d973cd87973a98d3ab) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/os-therapies-advances-toward-global-approval-for-osteosarcoma-treatment/f56d8183992b6c54c92c16a8519a6e2b) 
 
-
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/12/viemed-healthcare-shows-improved-revenue-mix-and-free-cash-flow-in-q1-2026/)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/viemed-healthcare-shows-improved-growth-quality-in-q1-says-stone/202632002)
-
-Pickup - [https://advos.io/en](https://advos.io/en/viemed-healthcare-shows-improving-growth-quality-in-q1-2026-stonegate-reports)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/viemed-healthcares-revenue-mix-shift-drives-strong-cash-flow-growth-stonegate-says)
-
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/viemed-healthcare-reports-strong-q1-2026-results-as-revenue-mix-shifts-to-higher-growth-areas)
-
-Pickup - [https://burstable.news](https://burstable.news/news/viemed-healthcare-shows-improved-growth-quality-in-q1-2026-stonegate-capital-reports)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/viemed-healthcare-zeigt-im-1-quartal-2026-verbesserte-wachstumsqualitat-berichtet-stonegate-capital)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/viemed-healthcare-muestra-una-mejora-en-la-calidad-del-crecimiento-en-el-primer-trimestre-de-2026-informa-stonegate-capital)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/viemed-healthcare-montre-une-amelioration-de-la-qualite-de-croissance-au-t1-2026-selon-stonegate-capital)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/viemed-healthcare-mostra-melhora-na-qualidade-do-crescimento-no-1o-trimestre-de-2026-relata-stonegate-capital)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/viemed-healthcare-reports-improved-growth-quality-as-revenue-mix-shifts-away-from-ventilator-rentals)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/viemed-healthcare-shows-improved-growth-quality-in-first-quarter-2026-stonegate-capital-reports)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/viemed-healthcare-reports-strong-1q26-results-with-improved-revenue-mix-and-fcf-conversion)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/265/12/glow0kFs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/265/12/riftja5I.webp)
