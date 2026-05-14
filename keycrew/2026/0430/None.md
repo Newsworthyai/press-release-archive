@@ -1,46 +1,50 @@
-# The Data That’s Already There – and the Money Asset Managers Are Missing Because of It
+# So You Want to Buy a Horse Farm in Ocala? Here’s What Nobody Tells You First.
 
-There is a structural problem hiding in plain sight across commercial real estate portfolios. Asset managers are held accountable for NOI performance, insurance renewals, utility spend, and occupancy trends – yet they are routinely making those decisions with incomplete, delayed, or vendor-controlled data. The operational data that actually drives those outcomes sits locked inside building systems, siloed within vendor platforms, and inaccessible to the people responsible for portfolio performance.
+Ocala has been the horse capital of the world for decades. The title is well earned. The region is home to professional breeding operations, elite training facilities, and some of the most productive equestrian land in the country. But the reputation can mislead. Every year, buyers arrive in Marion County with a dream of horse property ownership and a set of assumptions that do not survive contact with the reality of what owning and operating that land actually requires.
 
- Bill Douglas, CEO of OpticWise, a commercial real estate digital infrastructure firm, has spent more than a decade auditing properties and identifying where this data problem originates. His observations point to the same uncomfortable pattern: property owners invest in systems, collect the data, then never use it.
+ Donna Knox has been helping people navigate that gap since 2003. A Realtor with RE/MAX Foxfire and one of the brokerage’s top producers, Knox grew up around standardbred racehorses, spent her formative years at the track, and brought that hands-on foundation directly into her real estate practice. In over two decades of working in the Ocala market, she has handled everything from mobile homes to working equestrian farms, and the through-line across all of it is the same: understanding what a buyer actually needs versus what they think they want.
 
- The Report That Hides More Than It Shows The standard workflow for most portfolio owners involves a monthly or quarterly summary report generated from the property management system. That report shows leasing data, rent rolls, and basic financial KPIs. What it does not show is the operational data behind the numbers.
+ “My job is helping buyers understand not just what it looks like on paper, but what actually works for them and their goals,” she says.
 
- Douglas argues the problem goes deeper than missing data. Properties send management what they are asked for – nothing more. Asset managers receive what they requested, but they often do not know what else to ask for. They are measuring outcomes without seeing the inputs that drive them.
+ For anyone seriously considering equestrian property in Central Florida, Knox’s perspective is worth sitting with before a single listing is toured.
 
- The property management system tracks leasing and tenant-facing activity. It does not track how the lighting control system is operating, how air conditioning demand is trending, or what access control logs reveal about space utilization. All of those systems generate data. Virtually none of it reaches the asset manager in a form they can use.
+ The Difference Between a Hobby Farm and a Working Operation It sounds like a simple distinction, but in practice it catches buyers off guard more often than almost anything else in this market. A hobby farm is built for lifestyle. A few horses, manageable acreage, a comfortable home nearby, a small barn. The priorities are personal enjoyment and ease of daily care. The scale is human-sized.
 
- The Three Levers Nobody Is Pulling Douglas identifies three major expense and revenue drivers that asset managers consistently lack visibility into: utilities, insurance, and occupancy. Each is data-dependent, and each is largely being managed reactively.
+ A working equestrian facility is a business operation, and it needs to function like one. That means proper barn infrastructure, multiple paddocks, durable and appropriate fencing, trailer and equipment access, staff or guest accommodations, feed and hay storage, a riding arena, drainage systems, and zoning that supports the intended use.
 
- On utilities, the challenge is not simply reducing consumption – it is understanding the demand curve in the first place. If a property manager does not know when large motors are drawing peak power, or what the utility rate structure looks like for surge demand in that market, reducing the utility bill becomes guesswork. The levers exist. The data to find them does not.
+ “Many buyers don’t realize the difference until they’re deep into the process,” Knox says. The expectation mismatch tends to surface around the time they are trying to figure out where the horse trailer parks, how water flows across the property after a Florida rainstorm, or whether the zoning allows the animals they actually plan to bring.
 
- On insurance, most owners walk into an annual renewal review without a coherent data package. A property that can demonstrate standard operating procedures around water leak detection, alarm response, and occupancy management – backed by actual system logs – presents a meaningfully different risk profile than one that cannot. Underwriters respond to documentation. Most properties cannot produce it.
+ And she is careful to note that the complexity does not stop at horses. Some properties are zoned for horses only, which rules out cattle and other livestock. Buyers planning a mixed agricultural operation need to know that before they fall in love with a particular parcel.
 
- On occupancy, the property management system can show lease rates and scheduled showings. It cannot show which areas of the building are underutilized, what gym usage patterns look like, or how parking availability compares to demand at different times of day. Those are revenue and experience drivers, and they are invisible to the people making portfolio decisions.
+ What Knox Checks Before Anything Else When she is working with a buyer on equestrian or farm property, Knox has a specific set of questions she moves through before recommending a single showing. The size and layout of the barn matters, but so does the size of the house, because these priorities vary considerably between buyers. Some will put every dollar into the agricultural infrastructure and are happy with a modest home. Others need both.
 
- Who Gets Asked to Solve This Problem – and Why That Fails When ownership groups recognize there is a data gap, the response is typically to hand the problem to one of three people: the IT manager, the property manager, or the asset manager.
+ From there, the conversation turns to animals: how many, what kind, and what purpose. Then zoning. Then the land itself.
 
- None of these is a workable solution. IT managers focus on information technology – firewalls, directory services, corporate access policies. Operational technology, meaning the systems that actually run a building, is a different domain. Property managers are hired to lease space and serve tenants, not to manage network architecture or operational data. Asset managers are financial analysts; running analysis across a data lake is not their skill set and should not need to be.
+ Soil condition is a point Knox returns to with particular emphasis, and it reflects exactly the kind of knowledge that only comes from years of working in this market. Florida has a lot of wet areas, and certain soil compositions are not suitable for horses standing in pasture. Poor drainage and the wrong soil chemistry can lead to serious hoof problems over time.
 
- Douglas is direct on this point: the wrong people are being asked to do the right tasks. The result is that audits never happen, data continues to sit inside vendor systems, and recoverable income keeps flowing away from the owners who are entitled to it.
+ “There’s some areas where the soil isn’t really good for the horse’s feet,” she explains. “If they’re pasture standing, you want to make sure that soil is good and it’s not going to rot their feet out.”
 
- What a Practical Data Strategy Actually Looks Like The starting point is not a technology purchase. It is an honest inventory of what data currently exists at a property, where it lives, and who has access to it – what Douglas calls a data and digital infrastructure audit.
+ She has guided buyers away from properties they were otherwise enthusiastic about because of this single factor. The land looked right. The price was good. But the soil told a different story.
 
- From there, the process is sequential rather than simultaneous. Which systems are generating data that nobody is collecting? Which represent the highest-value targets for improved visibility? What would a 90-day implementation look like that produces quick wins without requiring a full infrastructure overhaul?
+ Details That Show Up in the Showing, Not the Listing There is a category of farm property knowledge that does not appear anywhere in a listing description and can only be caught by someone who knows what to look for in person. Knox has sold farms that looked functional on paper but had serious operational flaws once you walked the land.
 
- A concrete example: one client already had a lighting control system installed that had never been activated. When OpticWise completed the audit and turned the system on, that property saved $70,000 in the following 12 months on electricity alone – no new hardware, no significant capital outlay, one system turned on and programmed properly.
+ She recalls one property where the only gate opened directly into a front pasture, with the barn situated at the back. Every time someone opened the gate, the horses at the front had a clear path out. The design was not just inconvenient; it was a containment problem waiting to happen.
 
- The same logic applies to dynamic parking pricing, sub-metering by tenant, leak detection, and HVAC demand management. None of these are exotic solutions. All require data. And in most portfolios, that data is being generated right now – it is just not in anyone’s hands.
+ Ventilation in the barn layout is another one. Florida’s heat and humidity make airflow in a horse barn a genuine welfare issue, not an aesthetic preference. Trailer access and turning radius matter more than most buyers anticipate until they are trying to load a horse in a tight space. The list goes on, and Knox moves through it systematically because buyers who discover these issues after closing are buyers who feel misled, even when the problems were hiding in plain sight.
 
- The Real Cost of Doing Nothing The argument for maintaining the status quo is straightforward: the buildings are making money, the systems are running, and change is expensive. But the math shifts significantly when accounting for what is being left on the table.
+ Who Actually Buys Equestrian Property in Ocala Now The buyer mix has changed considerably since Knox entered the market in 2003. When she started, the transactions were largely driven by repeat local buyers, established trainers, and families who had been in the horse industry for generations. They already understood the land and what they were buying.
 
- A 400-unit apartment portfolio that could generate an additional $500 per door per year in net operating income is passing on $200,000 annually. An office building with 250,000 rentable square feet that could recover 50 cents per square foot is forgoing $125,000 in income. In both cases, the money exists – it is flowing somewhere else.
+ Today the pool is considerably broader. Serious equestrian professionals remain, but Knox is also regularly working with out-of-state relocation buyers from the Northeast and Midwest, remote professionals, and retirees who want space, privacy, and lifestyle. For some of them, a few horses are part of the picture but not the primary point. The land, the quiet, and the sense of room to breathe are what they are actually after.
 
- Commercial real estate owners in 2026 cannot rely on rent increases to drive returns. Most are realistically looking at 1 percent rent growth, not four or five. The path to value creation runs through optimization, and optimization requires data most portfolios still do not have.
+ “Some of them, it’s just a fun thing to have a few horses when they’re retiring down here,” she says. That is not a criticism; it is an observation about what buyers need. A retiree with two horses and no interest in operating a business needs a fundamentally different property than a professional trainer setting up a competition facility. Knox’s first job in any new client relationship is figuring out which situation she is actually in.
 
- Owners who address the data gap now are better positioned to act on cost recovery, renegotiate insurance terms, and improve NOI without waiting on market conditions. Those who do not are, in effect, choosing to leave income on the table year after year. That gap is not inevitable – it is a choice, most often made by inertia rather than strategy.
+ The Question She Always Asks First Before Knox shows a single property, she asks buyers how they want to feel when they walk through the right one. It is a question that tends to cut through the checklist and reveal what is actually driving the decision.
 
- Bill Douglas is the CEO of OpticWise, a commercial real estate data & digital infrastructure firm helping CRE property owners own, manage, and monetize their building data and digital assets. OpticWise serves middle-market commercial real estate owners across multifamily and office sectors in the United States He is also co-author of Peak Property Performance, published by Fast Company Press.
+ “Some people think they want one thing, but after a deep conversation, we uncover that that’s not what really matters most,” she says. Sometimes a couple comes in with different visions entirely. Part of Knox’s role is helping them figure out where those visions actually overlap, before they tour twenty properties that satisfy one partner and frustrate the other.
+
+ With 23 years at RE/MAX Foxfire and no interest in going anywhere else, Knox has earned the kind of fluency in this market that cannot be taught in a course or replicated by a tool. In a segment as specialized as equestrian real estate, that depth is exactly what a buyer needs on their side of the table.
+
+ About RE/MAX Foxfire: RE/MAX Foxfire is a full-service real estate brokerage with over 50 years of history serving Ocala, The Villages, Summerfield, and the greater Central Florida region. The brokerage specializes in residential, 55-plus communities, equestrian and farm properties, and luxury acreage.
 
  This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
@@ -48,19 +52,17 @@ There is a structural problem hiding in plain sight across commercial real estat
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/the-data-thats-already-there-and-the-money-asset-managers-are-missing-because-of-it/)
+[Original/Source Press Release](https://keycrew.co/journal/so-you-want-to-buy-a-horse-farm-in-ocala-heres-what-nobody-tells-you-first/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hidden-data-goldmine-could-boost-cre-noi-by-thousands/25f18456f924fc8e65492e7a4490fb1e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navigating-ocala-s-equestrian-real-estate-expert-tips-from-donna-knox/2d9b3c5dfa6dd32f35b3ad53ae5e74c4) 
 
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/asset-managers-miss-millions-by-ignoring-operational-data-in-com/202631660)
-
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/04/asset-managers-missing-millions-by-ignoring-operational-data-says-opticwise-ceo/)
+Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/2d9b3c5dfa6dd32f35b3ad53ae5e74c4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/4/gulfmkkt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/13/hushtU74.webp)
