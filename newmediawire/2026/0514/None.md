@@ -1,33 +1,35 @@
-# Western Star Resources Announces it Will be Attending Key Meetings in Washington and Will be Presenting at the Commodities Global Expo in Washington DC
+# LIG Assets, Inc. (OTCQB: LIGA) Provides Update on Marianna, Florida Calcium Mine and SK-1300 Valuation Initiative
 
-VANCOUVER, BRITISH COLUMBIA - May 14, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE: WSR) (OTC: WSRIF) (FRA:4K2) (the “Company” or “Western Star”) announces that President & CEO Blake Morgan will attend and present at the Commodities Global Expo Washington 2026, held May 17-19, at the Hyatt Hotel in Washington DC. Mr. Morgan will also be attending key meetings with agencies in Washington DC discussing future development of its critical metal’s assets across North America
+MARIANNA, FLORIDA - May 14, 2026 (NEWMEDIAWIRE) - LIG Assets, Inc. (OTCQB: LIGA) (“LIG Assets” or the “Company”) is pleased to provide shareholders with an operational update regarding its calcium mining interests located in the Marianna, Florida region and the Company’s ongoing efforts to further validate and enhance the value of its mining assets.
 
- Commodities Global Expo, presented by Top Shelf Partners, is an exclusive investment conference focused on the commodities, mining, and energy sectors. The conference brings together accredited investors, fund managers and company executives for one-on-one meetings, CEO presentations, and high-level networking opportunities.
+ Management is currently working with industry professionals and consultants regarding the preparation and evaluation process associated with a potential SEC Regulation S-K Subpart 1300 technical report summary (“SK-1300”). The purpose of the report is to further define and validate the mineral resources, reserves, operational potential, and overall economic value associated with the Company’s calcium carbonate mining assets.
 
- “This is a high-level event that we thrilled to participate in, which lines up perfectly with our formal meetings in Washington DC,” said Mr. Morgan. “With a large cash position and drill programs set for 2026, the team is excited to get out on the road and show people what Western Star is all about.”
+ The Company notes that a prior appraisal and valuation report completed in 2009 estimated the value of the calcium reserves at approximately $400 million at a time when calcium products were reportedly valued at approximately $8.50 per ton. Since that time, the market prices, industrial demand, infrastructure needs, agricultural applications, and specialty calcium product opportunities have significantly increased and therefore management knows that the valuation of the mine should have greatley increased.
 
- About Western Star Resources
+ Management believes that the preparation of a modern SK-1300 technical report may provide updated reserve validation, operational analysis, and enhanced transparency regarding the underlying value of the mining asset. However, no assurance can be given regarding the conclusions, valuation ranges, reserve classifications, or economic outcomes that may ultimately result from any completed report or third-party analysis.
 
- Western Star Resources is a mineral exploration and development company. The company’s objective is to increase shareholder value through the development of exploration properties using cost-effective exploration practices, acquiring further exploration properties and seeking partnerships by either joint venture or sale with industry leaders. The Company is currently advancing the Rowland Tungsten Property in Elko County, Nevada, USA. The company also owns nine non-surveyed contiguous mineral claims totaling 4,740 hectares, located within the Revelstoke mining division of British Columbia, approximately 50 kilometers southeast of Revelstoke, B.C., and roughly 10 kilometers north of the abandoned community of Camborne.
+ In addition to the ongoing technical and valuation work, the Company continues to evaluate additional strategic transactions and operational opportunities that management believes may strengthen the Company’s revenue base and long-term financial position. Several potential transactions and business initiatives are currently under review, and management anticipates providing additional updates as developments progress and agreements are finalized.
 
- Contact Information:
+ “Our focus remains on building long-term shareholder value through strategic asset development, operational improvements, and disciplined growth initiatives,” stated management. “The Company believes that obtaining updated technical analysis and reserve validation through the SK-1300 process represents an important step in communicating the potential significance of our calcium mining assets.”
 
- Blake Morgan,CEO and Directorblake@acvc.vc
+ LIG Assets continues to focus on opportunities involving mining, land reclamation, environmental technologies, and resource-related operations where management believes undervalued assets and operational improvements may create future value opportunities.
 
- Neither the Canadian Securities Exchange nor its Regulation Services Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this press release.
+ The Company intends to continue updating shareholders regarding operational milestones, acquisitions, technical reports, revenue initiatives, and material developments as information becomes available.
 
- Certain of the statements made and information contained herein may constitute “forward-looking information”. In particular references to the private placement and future work programs or expectations on the quality or results of such work programs are subject to risks associated with operations on the property, exploration activity generally, equipment limitations and availability, as well as other risks that we may not be currently aware of. Accordingly, readers are advised not to place undue reliance on forward-looking information. Except as required under applicable securities legislation, the Company undertakes no obligation to publicly update or revise forward-looking information, whether as a result of new information, future events or otherwise.
+ Forward-Looking Statements
 
- 
+ This press release contains forward-looking statements within the meaning of the federal securities laws. Statements regarding future valuations, reserve estimates, projected revenues, operational opportunities, market conditions, transaction closings, strategic initiatives, SK-1300 reports, and future business prospects are forward-looking statements subject to risks and uncertainties. Actual results may differ materially from those projected or implied due to numerous factors, including market conditions, regulatory approvals, commodity pricing, operational risks, financing conditions, due diligence findings, and other risks beyond the Company’s control. The Company undertakes no obligation to update forward-looking statements except as required by applicable law.
+
+ Contact:LIG Assets, Inc.OTCQB: LIGAOTC Markets ProfileURL: www.LIGAssets.net Social Media: www.X.com/LIGAssets
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/western-star-resources-announces-it-will-be-attending-key-meetings-in-washington-and-will-be-presenting-at-the-commodities-global-expo-in-washington-dc-7086768)
+[Original/Source Press Release](https://www.newmediawire.com/news/lig-assets-inc-otcqb-liga-provides-update-on-marianna-florida-calcium-mine-and-sk-1300-valuation-initiative-7086776)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/western-star-resources-to-present-at-commodities-global-expo-in-washington-dc/b276347d93eeb10b3d19165258bc0277) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lig-assets-updates-on-florida-calcium-mine-valuation-via-sk-1300/e86f694257159c20e603befad0443e17) 
 
  
 
@@ -35,4 +37,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/14/cornY81e.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/14/coolBzkm.webp)

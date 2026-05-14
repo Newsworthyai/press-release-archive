@@ -1,61 +1,39 @@
-# Beyond the Screen: Why Faith-Based Investing Needs a New Definition
+# Best Restaurants Near Duck Key: A Guide for Luxury Homeowners and Buyers
 
-For decades, the phrase “faith-based investing” has functioned mostly as a filter. Avoid tobacco. Avoid adult entertainment. Avoid alcohol. Put a Christian label on a mutual fund that holds the same 200 large-cap companies as every other ESG product, and call it values-aligned. That, according to Steven Libman, founder of Investing With Purpose™, is the industry’s defining failure.
+Salt Air, Fresh Catch, and a Tiki Bar at Sunset: Welcome to the Middle Keys
 
- “The definition that the industry has been operating under for the last 30 years is a lazy one,” says Libman, who, after 15 years in the industry, has recently built the multifamily real estate investment platform explicitly structured around faith-driven principles. “Screening is the floor. Building intentionally would be the ceiling.”
+ For serious buyers evaluating private waterfront estates in the Florida Keys, the conversation begins where it should: deepwater dockage, sunset exposure, privacy. But the buyers who return, the ones who close and keep coming back, tend to cite something less quantifiable. They talk about the rhythm of the place. The ease of an evening out. The feeling of being somewhere that rewards you long after the boat is tied up and the sun has gone down.
 
- The distinction matters more than it might appear. In an investment landscape where capital allocation increasingly reflects values, the gap between genuine alignment and surface-level compliance is widening. And investors who cannot tell the difference are, Libman argues, outsourcing their conscience to people who may not share their priorities.
+ The Brenner Scheel & Casey Team, the number one selling team on Duck Key, hears it consistently from their most discerning clients: the dining scene is part of the decision. And in the middle Keys, it is a scene worth deciding for.
 
- Every Dollar Is a Vote The core premise behind intentional faith-based investing is straightforward: capital goes somewhere, and where it goes signals something. Whether you are invested in a multifamily property, a bond fund, or a private equity vehicle, those dollars are funding something. The question Libman puts to prospective investors is simple but disorienting for many: if your grandchildren inherited your portfolio tomorrow, what would they know about what you believed in?
+ A Location That Opens Everything Up Duck Key sits at mile marker 61, precisely in the heart of the island chain. Islamorada is approximately 20 minutes north. Marathon is 15 to 20 minutes south. That corridor, intimate enough to feel like a single extended neighborhood, holds a culinary range that most second-home markets cannot approach.
 
- “A question I asked at an event recently was, if you turned your portfolio over to your pastor, is there anything in there you might feel embarrassed about?” he says. “It is not to convict anyone. It is to get people thinking in a different way, because we have not been taught to think this way.”
+ For owners of Duck Key estates, the entire stretch is essentially on the doorstep.
 
- The conventional wisdom in personal finance is to separate investment returns from values, then deploy the returns philanthropically. Libman’s counterargument is that this creates an unnecessary bifurcation. Why fund something misaligned with your values in order to generate returns you then donate to causes that reflect them? The premise, he says, is inherited from a financial services industry built on product sales, not values architecture.
+ Restaurants With a View The water defines the Keys, and the best dining rooms here know better than to ignore it. In Islamorada, Square Grouper, Papa Joe’s, and Lazy Days each offer open-air, waterfront dining where the light changes slowly and no one is in a hurry. In Marathon, Island Fish Company delivers whole fish and sweeping views in equal measure. At Isla Bella Resort, Mahani brings a level of refinement to its poolside setting that holds its own against the finest hotel restaurants in South Florida.
 
- The ESG Warning The cautionary tale here is the ESG sector. Environmental, social, and governance funds marketed themselves through the 2010s on the promise of impact investing. They attracted significant capital and generated considerable coverage. They also, in aggregate, delivered weak returns.
+ Where the Kitchens Are Serious Indoors, the range deepens. The Green Turtle has anchored the local dining scene for decades, built on a simple promise: the freshest fish available, prepared with care and served without pretension. Salt + Ash at Duck Key brings a Michelin-pedigree chef to the middle of the island chain, placing a genuinely elite kitchen within minutes of some of the region’s most coveted estates. Kaiyo in Islamorada delivers refined sushi in a room that feels considered and curated. Habanos offers authentic Cuban in a setting that reminds you exactly where you are, and the Italian Food Company rounds out the evenings when comfort and simplicity win.
 
- “ESG put a dagger in the heart of values-aligned investing,” says Libman. “They were saying, you are going to get lower returns, but we will make an impact. In fact, they were not making an impact, and they were not making a return either.”
+ The Art of the Happy Hour In the Keys, the late afternoon ritual of gathering at the water with a cold drink and a view is not optional. It is the point. Keys Fisheries in Marathon has an upper-level tiki bar where locals and visitors arrive early for the sunset and stay well past it. Sparky’s, also in Marathon, runs one of the largest outdoor tiki venues in the Keys, with live entertainment and the kind of crowd that keeps the energy easy and unhurried. Angler and Ale at Duck Key is the effortless local stop after a day on the water. Out on Grassy Key, the Palm Deck and Rhum House at Grassy Flats and SS Wreck both deliver live music, open air, and the kind of key lime pie that quietly ends the debate about where to find the best one.
 
- A recent study tracking ESG fund performance put total average returns well behind conventional benchmarks. For Libman, the lesson is not that values and returns are incompatible. It is that funds using impact as a marketing hook rather than an operational framework tend to deliver on neither.
+ Fresh Off the Boat For owners who cook, or who simply expect the best available product, the middle Keys delivers. Fish Tales and Keys Fisheries in Marathon, Grassy Key Outpost, HAM Seafood Express in Islamorada, and the Crooked Cock Seafood Market together form a supply chain that any serious buyer would find genuinely impressive. What arrives on the table here was in the water that morning. That distinction is not incidental. It is the difference between a house and a place where life is actually lived well.
 
- Operators who have built genuine values alignment into their structure – not as a label but as an operating philosophy – have found that the premise of the question is simply wrong. Strong performance and principled investing are not in conflict. The data, Libman argues, is increasingly making that case.
+ The Answer Is Yes Ultra-luxury buyers in the Florida Keys are not choosing between a property and a lifestyle. They are choosing both at once. The clients the Brenner Scheel & Casey Team works with have owned homes across the world’s most coveted coastal destinations. They recognize the difference between a location that photographs beautifully and one that sustains a full, rich life on the ground.
 
- Ministry as a Moat, Not a Margin Cost The specific mechanism through which Investing With Purpose generates community outcomes is an on-site asset ministry program embedded in the multifamily properties the firm operates. Free apartments are provided to on-site ministry staff, who run tenant engagement programming – movie nights, farmers markets, food truck events, and more frequent personal touchpoints including hospital visits for residents in need.
+ The middle Keys does both. The water is extraordinary. The privacy is real. And the table, from the waterfront restaurants to the fish markets to the tiki bars lit gold at sunset, is set in a way that makes the decision easy.
 
- The business logic is not incidental. Tenants who have six or seven friends within the same complex are 45 percent less likely to move out, according to Libman. Lower turnover means lower vacancy, lower unit-refresh costs, and more stable cash flow. The ministry program functions as a retention and community-building mechanism with compounding economic effects.
+ The foodie scene matters. In the Florida Keys, it helps seal the deal.
 
- “Ministry is the moat around the investment,” he says. “When people say impact is going to decrease returns, we think the opposite is true. Caring is a durable business advantage, not a disadvantage.”
-
- The faith dimension of the work is present but not imposed. Tenant engagement is service-first. Residents are not required to participate in religious programming or share the values of the operators. The mission is expressed through behavior rather than doctrine.
-
- What Genuine Transparency Looks Like One practical measure of whether a faith-based investment firm is operating with real alignment or surface-level branding is the quality and nature of its reporting. Libman’s firm sends investors not only the standard financial KPIs – net operating income, expense ratios, occupancy rates – but also a ministry impact report tracking how many residents were connected with community programming, how many received pastoral support, and how many on-site acts of care and service were recorded in a given month.
-
- Investors are also invited on-site quarterly for serve days, a tangible mechanism for direct engagement with both the asset and the community it houses.
-
- “Unlike your Wall Street investments, you can drive by it, touch it, feel it, actually see the impact that we are making, and actually be a part of that impact as well,” says Libman.
-
- The transparency standard he describes stands in contrast to the opacity that characterizes much of the ESG sector, where fund methodologies are often difficult to evaluate and impact claims difficult to verify.
-
- The Broader Investment Thesis For investors who have not considered aligning their portfolios with their values, Libman’s framing is deliberately non-threatening. The entry point is often a straightforward appreciation of real estate as an asset class. Most people understand rental property. Most people understand that housing is a fundamental need. From there, the question becomes not whether to invest in real estate, but what kind of operator and structure best reflects your principles.
-
- The faith-based label, in this framing, is not a constraint on returns. It is a signal about operational philosophy, community orientation, and the long-term nature of the relationships being built within the portfolio.
-
- “We want to define it as, what are we building?” Libman says. “Every dollar that you invest is a vote for something. So when you deploy your capital, it is either going to build something you are aligned with or something that might be in conflict with your own values.”
-
- In an era where investors are increasingly asking harder questions about where their money goes, that framing is less niche than it might have seemed a decade ago.
-
- About Steven Libman: Steven Libman is the founder of Investing With Purpose, a faith-driven multifamily real estate firm. He has a 15-year history operating in the industry.
-
- This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ To explore luxury waterfront estates on Duck Key and throughout the Florida Keys, contact the Brenner Scheel & Casey Team at floridakeysrealestategroup.com. Kristen Brenner, Tierce Scheel, and Margie Casey are Certified Luxury Home Marketing Specialists with a combined track record exceeding $600 million in closed sales.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/beyond-the-screen-why-faith-based-investing-needs-a-new-definition-2/)
+[Original/Source Press Release](https://keycrew.co/journal/best-restaurants-near-duck-key-a-guide-for-luxury-homeowners-and-buyers/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-screening-faith-based-investing-gets-intentional/0715525bea6b83cc59c8d3f8ab534809) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/middle-keys-dining-scene-seals-the-deal-for-luxury-home-buyers/32a482c8f2278b646098e51f06ca9445) 
 
  
 
@@ -63,4 +41,4 @@ For decades, the phrase “faith-based investing” has functioned mostly as a f
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/14/lossyJfX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/14/yogaCjUw.webp)

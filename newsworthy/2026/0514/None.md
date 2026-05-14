@@ -1,67 +1,32 @@
-# HRO Today Announces 2026 CHRO Of The Year Award Winners
+# HR.com Announces 2026 Award Winners for Excellence in HR Technology and Automation
 
-Philadelphia, PA (Newsworthy.ai) Thursday May 14, 2026 @ 12:00 AM Pacific — SharedXpertise Media, publishers of HRO Today magazine and HRO Today Global, producers of the Baker’s Dozen Customer Satisfaction Ratings, and organizers of the HRO Today Forums and Educational Events, announced the winners of the annual CHRO of the Year Awards at a well-attended Gala celebration at the 2026 HRO Today Forum North America in Philadelphia, PA.
+Jacksons Point, Ontario, Canada (Newsworthy.ai) Thursday May 14, 2026 @ 11:00 AM Eastern — 
 
- At the 13th annual Awards Gala held at The Hilton Philadelphia at Penn's Landing, leading HR executives in North America were nominated in categories that include Small-Market, Mid-Market, Large-Market, Sustainable Workforce, Innovation, Non-Profit, and Lifetime Achievement. Winners in each category were bestowed and accepted their awards, while all Finalists were honored as Leaders of Distinction.
+ HR.com is thrilled to announce the winners of the 2026 HR Tech Innovation & Implementation Awards, recognizing organizations that are transforming how companies manage, engage, and support their workforces through cutting-edge HR technology and AI. These award-winning solutions and implementations demonstrate innovation in functionality, user experience, and measurable impact on workforce and business outcomes.
 
- The awards are open to HR leaders across industries and regions, including North America and EMEA. Nominees are evaluated on areas such as:
+ HR Tech & AI Innovation: Harbinger Group Harbinger’s POLESTAR helps organizations transform performance management into a more human, continuous, transparent, and AI-enabled process. It improves manager-employee conversations, addresses real workplace challenges, and drives clarity, fairness, and engagement. The tool integrates with existing HRMS and LMS platforms and supports sustained adoption through a proven change-management approach, delivering measurable business outcomes through AI, trust, and empathy.
 
- * Organizational culture and engagement
-* Talent acquisition and retention
-* Workforce transformation
-* Leadership during change
-* DEI and employee experience initiatives
-* Measurable business outcomes tied to people strategy
+ Best HR Tech Implementation: Willow Bridge Property Company Willow Bridge Property Company is transforming employee experience through a large-scale HRIS modernization that unified five regional businesses into a single HR ecosystem. The HRIS team drives operational efficiency, accelerates strategic initiatives, and delivers measurable improvements in talent outcomes, leadership capability, and business performance - creating a more connected, effective workplace.
 
- The 2026 CHRO of the Year Award winners are: * Small Market: Tina Campbell, Citizens First Bank
-* Mid-Market: Paul Gregory, Securonix, Inc.
-* Large Market: Jill Larsen, Synopsys
-* Sustainable Workforce: Rosemary Sheehan, Hartford HealthCare
-* Non-Profit: Logan Carmichael, Pittsburgh Water
+ View All HR.com Awards: www.hr.com/awards
 
- For more on the 2026 CHRO of the Year Awards, visit https://www.hrotoday.com/hro-today-north-america-forum/
+ “Technology and AI are reshaping the future of work, and these award-winning solution providers and teams are leading the way through both innovation and successful implementation of HR technology within workplaces,” said Debbie McGrath, CEO of HR.com. “We’re proud to recognize their impact in delivering better employee experiences and stronger business outcomes.”
 
- About HRO Today HRO Today and HRO Today Global are the properties of SharedXpertise Media and offer the broadest and deepest reach available anywhere in the HR industry. Our magazines, web portals, research, e-newsletters, events, and social networks reach senior-level HR decision-makers with rich, objective, game-changing content. Our No. 1 strength is our reach. HR leaders rely heavily on the HRO Today’s Baker’s Dozen rankings across six different categories when selecting an HR service provider. 
+ About HR.com  HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
+
+ HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605142441/hro-today-announces-2026-chro-of-the-year-award-winners)
+[Original/Source Press Release](https://newsworthy.ai/news/202605142442/hrcom-announces-2026-award-winners-for-excellence-in-hr-technology-and-automation)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/chro-of-the-year-awards-2026-winners-announced-at-hro-today-forum/e2457218aad9d2232e539cbe48e6abf5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-honors-2026-hr-tech-innovation-award-winners/d8d36d9bcd539762c3e080755c660ffd) 
 
-
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/14/sharedxpertise-media-honors-chros-for-transformative-hr-leadership-at-2026-awards-gala/)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hro-today-honors-2026-chro-of-the-year-award-winners-at-philadel/202632145)
-
-Pickup - [https://advos.io/en](https://advos.io/en/hro-today-announces-2026-chro-of-the-year-award-winners)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/hro-today-honors-2026-chro-of-the-year-award-winners-at-philadelphia-gala)
-
-Pickup - [https://burstable.news](https://burstable.news/news/hro-today-honors-2026-chro-of-the-year-award-winners-at-north-america-forum)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hro-today-zeichnet-gewinner-der-chro-of-the-year-awards-2026-auf-dem-nordamerika-forum-aus)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hro-today-honra-a-los-ganadores-del-premio-chro-del-ano-2026-en-el-foro-de-america-del-norte)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hro-today-celebre-les-laureats-du-prix-chro-de-lannee-2026-lors-du-forum-nord-americain)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/hro-today-homenageia-vencedores-do-premio-chro-do-ano-de-2026-no-forum-da-america-do-norte)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/hro-today-honors-top-hr-leaders-at-2026-chro-of-the-year-awards)
-
-Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/sharedxpertise-media-announces-2026-chro-of-the-year-award-winners-at-hro-today-forum)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/hro-today-announces-2026-chro-of-the-year-award-winners-honoring-top-hr-leaders-across-north-america)
-
-Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/2026-chro-of-the-year-awards-recognize-hr-leaders-driving-business-impact)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/sharedxpertise-media-announces-2026-chro-of-the-year-award-winners)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/14/swimwu_3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/14/bendqfpV.webp)
