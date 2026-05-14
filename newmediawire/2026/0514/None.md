@@ -1,35 +1,31 @@
-# LIG Assets, Inc. (OTCQB: LIGA) Provides Update on Marianna, Florida Calcium Mine and SK-1300 Valuation Initiative
+# HeartBeam (BEAT) Advances Commercial Launch, Reports First-Quarter 2026 Results
 
-MARIANNA, FLORIDA - May 14, 2026 (NEWMEDIAWIRE) - LIG Assets, Inc. (OTCQB: LIGA) (“LIG Assets” or the “Company”) is pleased to provide shareholders with an operational update regarding its calcium mining interests located in the Marianna, Florida region and the Company’s ongoing efforts to further validate and enhance the value of its mining assets.
+LOS ANGELES, CA - May 14, 2026 (NEWMEDIAWIRE) - HeartBeam (NASDAQ: BEAT) reported first-quarter 2026 operational and financial results highlighted by the launch of its initial commercial partnerships in key U.S. markets, progress in its heart attack detection and ambulatory ECG patch initiatives, and an April public offering that raised $11.5 million in gross proceeds. The company reported a first-quarter net loss of $4.7 million, improved from $5.5 million in the prior-year period, with research and development expenses declining year over year as HeartBeam continued advancing commercialization of its FDA-cleared cardiac monitoring platform and related growth initiatives.
 
- Management is currently working with industry professionals and consultants regarding the preparation and evaluation process associated with a potential SEC Regulation S-K Subpart 1300 technical report summary (“SK-1300”). The purpose of the report is to further define and validate the mineral resources, reserves, operational potential, and overall economic value associated with the Company’s calcium carbonate mining assets.
+ To view the full press release, visit https://ibn.fm/guMCF
 
- The Company notes that a prior appraisal and valuation report completed in 2009 estimated the value of the calcium reserves at approximately $400 million at a time when calcium products were reportedly valued at approximately $8.50 per ton. Since that time, the market prices, industrial demand, infrastructure needs, agricultural applications, and specialty calcium product opportunities have significantly increased and therefore management knows that the valuation of the mine should have greatley increased.
+ About HeartBeam, Inc.
 
- Management believes that the preparation of a modern SK-1300 technical report may provide updated reserve validation, operational analysis, and enhanced transparency regarding the underlying value of the mining asset. However, no assurance can be given regarding the conclusions, valuation ranges, reserve classifications, or economic outcomes that may ultimately result from any completed report or third-party analysis.
+ HeartBeam, Inc. is a medical technology company dedicated to transforming the detection and monitoring of critical cardiac conditions. The Company is creating the first-ever cable-free device capable of collecting ECG signals in 3D, from three non-coplanar directions, and synthesizing the signals into a 12-lead ECG. This platform technology is designed for portable devices that can be used wherever the patient is to deliver actionable heart intelligence. Physicians will be able to identify cardiac health trends and acute conditions and direct patients to the appropriate care – all outside of a medical facility, thus redefining the future of cardiac health management. HeartBeam’s 3D ECG technology received FDA clearance for arrhythmia assessment in December 2024 and the 12-lead ECG synthesis software in December 2025(1). The Company holds over 20 issued patents related to technology enablement.
 
- In addition to the ongoing technical and valuation work, the Company continues to evaluate additional strategic transactions and operational opportunities that management believes may strengthen the Company’s revenue base and long-term financial position. Several potential transactions and business initiatives are currently under review, and management anticipates providing additional updates as developments progress and agreements are finalized.
+ (1)Cleared Indications for Use
 
- “Our focus remains on building long-term shareholder value through strategic asset development, operational improvements, and disciplined growth initiatives,” stated management. “The Company believes that obtaining updated technical analysis and reserve validation through the SK-1300 process represents an important step in communicating the potential significance of our calcium mining assets.”
+ The HeartBeam System with 12-Lead ECG synthesis software for arrhythmia assessment received FDA clearance in December 2025. Refer to the Company’s Cleared Indications for Use at https://www.heartbeam.com/indications for details on the intended use of its technology.
 
- LIG Assets continues to focus on opportunities involving mining, land reclamation, environmental technologies, and resource-related operations where management believes undervalued assets and operational improvements may create future value opportunities.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- The Company intends to continue updating shareholders regarding operational milestones, acquisitions, technical reports, revenue initiatives, and material developments as information becomes available.
+ The latest news and updates relating to BEAT are available in the company’s newsroom at https://ibn.fm/BEAT
 
- Forward-Looking Statements
+ Forward Looking Statements
 
- This press release contains forward-looking statements within the meaning of the federal securities laws. Statements regarding future valuations, reserve estimates, projected revenues, operational opportunities, market conditions, transaction closings, strategic initiatives, SK-1300 reports, and future business prospects are forward-looking statements subject to risks and uncertainties. Actual results may differ materially from those projected or implied due to numerous factors, including market conditions, regulatory approvals, commodity pricing, operational risks, financing conditions, due diligence findings, and other risks beyond the Company’s control. The Company undertakes no obligation to update forward-looking statements except as required by applicable law.
-
- Contact:LIG Assets, Inc.OTCQB: LIGAOTC Markets ProfileURL: www.LIGAssets.net Social Media: www.X.com/LIGAssets
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/lig-assets-inc-otcqb-liga-provides-update-on-marianna-florida-calcium-mine-and-sk-1300-valuation-initiative-7086776)
+[Original/Source Press Release](https://www.newmediawire.com/news/heartbeam-beat-advances-commercial-launch-reports-first-quarter-2026-results-7086778)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lig-assets-updates-on-florida-calcium-mine-valuation-via-sk-1300/e86f694257159c20e603befad0443e17) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-reports-q1-2026-results-launches-commercial-partnerships/359480b1ef8bd0cc65fb872b5d870eb9) 
 
  
 
@@ -37,4 +33,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/14/coolBzkm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/14/waitSTMT.webp)
