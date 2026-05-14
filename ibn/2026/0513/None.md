@@ -1,62 +1,78 @@
-# 420 with CNW — What Marijuana Firms Need to Know About Retroactive Section 280E Relief
+# Alphabet to Offer Yen-Denominated Bonds to Fund AI Ambitions
 
-The cannabis industry has spent years debating what the eventual rollback of Section 280E could mean for businesses operating legally under state law. Tax professionals have largely agreed on one point: if marijuana is moved to a lower federal drug classification, any tax relief would likely apply only going forward.
+As major technology companies pour billions into AI, two of the sector’s biggest names are increasingly turning to overseas debt markets to support rising costs tied to the fast-moving AI race.
 
- As the 280E situation becomes clearer and qualifying marijuana firms start deducting business expenses like any other legal business, ancillary companies, such as Innovative Industrial Properties Inc. (NYSE: IIPR), could see their client lists grow as cannabis firms invest some of the money retained in expanding their…
+ Google parent company Alphabet recently revealed plans to issue its first bond denominated in the Japanese yen, while Amazon moved forward with preparations for an inaugural debt sale in Swiss francs. The developments reflect a broader financing shift among U.S. technology giants seeking fresh capital outside domestic markets as spending on advanced computing infrastructure accelerates.
 
- Read More>>
+ The step comes as investment in AI expands rapidly across the industry. Analysts expect large technology firms to collectively spend at least $700 billion on artificial intelligence-related infrastructure this year, a significant jump from the estimated $410 billion recorded last year. As spending requirements grow, companies that once relied heavily on strong internal cash reserves are increasingly making use of borrowing to fund expansion.
 
- About CNW420
+ Neither Alphabet nor Amazon disclosed the size of their planned bond offerings. However, a person familiar with Alphabet’s plans said the company’s yen-denominated issue could amount to hundreds of billions of yen. According to the source, details of the offering are expected to be finalized later this month.
 
- CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+ To manage the transaction, Alphabet has reportedly selected several major financial institutions, including Bank of America, Morgan Stanley, and Mizuho.
 
- To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+ Market analysts suggest the decision to raise funds internationally reflects both the enormous financing needs of leading technology companies and the strong investor confidence they command.
 
- For more information, please visit https://www.CannabisNewsWire.com
+ Alphabet has been active in bond markets in the recent past. Last week, the company secured almost $17 billion via two different bond transactions, including a €9 billion issue, equivalent to roughly $10.6 billion, and an C$8.5 billion sale valued at about $6.2 billion.
 
- Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+ Amazon also confirmed new borrowing plans. A company spokesperson said proceeds from the Swiss franc offering will support general corporate operations and may help finance future investments and long-term spending plans.
 
- CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+ A person with knowledge of the matter said Amazon has appointed several banks to oversee the transaction, including JPMorgan Chase, BNP Paribas, and Deutsche Bank. The planned debt sale is expected to include six separate parts, with repayment periods ranging from three years to as long as 25 years.
 
- CannabisNewsWire is powered by IBN 
+ The shift toward international bond markets illustrates how the race to dominate AI is changing not only business priorities but also how Silicon Valley’s largest players finance their ambitions.
+
+ As AI systems become more advanced, companies like Datavault AI Inc. (NASDAQ: DVLT) are likely to come up with even more sophisticated AI-powered solutions designed to meet the evolving needs of their client base.
+
+ About AINewsWire
+
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+
+ AINW is where breaking news, insightful content and actionable information converge.
+
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+
+ For more information, please visit www.AINewsWire.com
+
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
+
+ AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
+
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-what-marijuana-firms-need-to-know-about-retroactive-section-280e-relief/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/alphabet-to-offer-yen-denominated-bonds-to-fund-ai-ambitions/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cannabis-tax-relief-section-280e-rollback-could-boost-iipr/5073a98093ff648309dbfc5888964574) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tech-giants-alphabet-and-amazon-tap-overseas-debt-markets-for-ai-funding/951be000a7f39951de9f6ac55a7149d7) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/13/retroactive-section-280e-relief-could-reshape-cannabis-industry-experts-say/)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/13/alphabet-and-amazon-tap-overseas-bond-markets-to-fund-ai-infrastructure/)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/retroactive-section-280e-relief-unlikely-for-cannabis-firms-tax/202632136)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/alphabet-and-amazon-tap-international-bond-markets-to-fund-ai-in/202632144)
 
-Pickup - [https://advos.io/en](https://advos.io/en/tax-experts-reassess-section-280e-relief-for-cannabis-firms-as-rescheduling-looms)
+Pickup - [https://advos.io/en](https://advos.io/en/alphabet-plans-yen-denominated-bond-sale-to-fund-ai-spending)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/retroactive-section-280e-relief-may-benefit-marijuana-firms-tax-experts-say)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/alphabet-and-amazon-tap-international-bond-markets-to-fund-ai-investments)
 
-Pickup - [https://burstable.news](https://burstable.news/news/retroactive-section-280e-relief-unlikely-for-cannabis-firms-tax-experts-say)
+Pickup - [https://burstable.news](https://burstable.news/news/alphabet-plans-yen-denominated-bond-issuance-to-fund-ai-expansion)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ruckwirkende-ss280e-entlastung-fur-cannabis-firmen-unwahrscheinlich-sagen-steuerexperten)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/alphabet-plant-anleihe-in-yen-zur-finanzierung-der-ki-expansion)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/expertos-fiscales-dicen-que-es-improbable-un-alivio-retroactivo-de-la-seccion-280e-para-las-empresas-de-cannabis)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/alphabet-planea-emision-de-bonos-en-yenes-para-financiar-expansion-en-ia)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-allegement-retroactif-de-la-section-280e-peu-probable-pour-les-entreprises-de-cannabis-selon-des-experts-fiscaux)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/alphabet-prevoit-une-emission-dobligations-en-yens-pour-financer-son-expansion-dans-lia)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/alivio-retroativo-da-secao-280e-improvavel-para-empresas-de-cannabis-dizem-especialistas-em-impostos)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/alphabet-planeja-emissao-de-titulos-em-ienes-para-financiar-expansao-em-ia)
 
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/section-280e-rollback-could-boost-iiprs-client-base-as-cannabis-firms-invest-retained-earnings)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/alphabet-plans-yen-denominated-bond-sale-to-fund-ai-infrastructure-investments)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/retroactive-section-280e-relief-unlikely-tax-experts-say-as-cannabis-firms-eye-lower-federal-classification)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/alphabet-and-amazon-tap-international-bond-markets-to-fund-ai-infrastructure-spend)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/retroactive-section-280e-relief-what-marijuana-firms-need-to-know)
-
-Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/5073a98093ff648309dbfc5888964574)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/tech-giants-alphabet-and-amazon-turn-to-overseas-bond-markets-to-fund-ai-spending-spree)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/13/beanqTx3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/14/lineV9ul.webp)
