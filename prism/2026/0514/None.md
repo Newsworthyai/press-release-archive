@@ -1,68 +1,78 @@
-# Creatd Announces Vocal Equity Realignment and Updates Annual Shareholder Meeting Dates
+# BioStem Technologies Reports First Quarter 2026 Financial Results
 
-Board-approved Vocal transactions expected to increase Creatd’s ownership from approximately 20% to 51%
-
- Annual meeting record date updated to May 26, 2026; virtual shareholder meeting will be scheduled for June 25, 2026
-
- Vocal 3.0 remains on track as Creatd advances its SEC re-registration, corporate reorganization, and planned uplisting strategy
+POMPANO BEACH, Fla., May 14, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – BioStem Technologies, Inc. (OTC: BSEM), a leading regenerative medicine company focused on the development, manufacturing, and commercialization of perinatal tissue allograft products, today reported financial results for the first quarter ended March 31, 2026.
 
  
 
- NEW YORK, May 14, 2026 – PRISM MediaWire (Press Release Service – Press Release Distribution) – Creatd, Inc. (OTCQB: CRTD) (“Creatd” or the “Company”) today announced two corporate updates related to its broader reorganization and planned uplisting strategy. First, both the Company’s Board of Directors and the requisite shareholders of Vocal, Inc. (“Vocal”) have approved a targeted equity realignment and repurchase initiative, designed to restore Creatd’s majority ownership of Vocal. Second, the Company announced updated dates for its upcoming annual shareholder meeting and related record date.
+ 
 
- Vocal Equity Realignment
+ Recent Financial and Business Highlights
 
- The approved Vocal transactions are intended to increase Creatd’s ownership position in Vocal from approximately 20% to 51% on a post-transaction basis. The initiative follows Creatd’s completed sale of Fly Flyte, Inc. and represents the next step in the Company’s broader corporate reorganization, SEC re-registration process, and planned uplisting to a national exchange.
+ * Generated net revenue of $6.1 million for the first quarter 2026
+* Progressed integration initiatives following the BioTissue assets acquisition including reassignment of all GPO contracts
+* Expanded direct sales force to 35 representatives, up from 18 at the close of the BioTissue assets acquisition
+* Strengthened leadership team with appointment of Katherine Gorrell as Chief Legal and Compliance Officer
+* Retired outstanding debt with GMA to resolve two existing promissory notes, with an aggregate principal amount of $3 million and accrued interest of $2.3M
+* Advanced capital markets strategy with the completion of audited financial statements for 2024 and 2025; progressing toward planned Nasdaq uplisting
 
- The transaction includes the repurchase of certain Vocal common shares and Series A Preferred equity interests from current and former stakeholders. The repurchase is expected to be completed at a valuation based on Vocal’s previously established independent 409A valuation.
+ “The first quarter of 2026 marked the beginning of a strategic transformation for BioStem, as we completed our acquisition of the surgical and wound care assets from BioTissue and repositioned the company as a fully integrated, hospital-focused commercial organization. To best leverage these new resources in alignment with what we see as our most attractive market opportunity, the majority of our focus is now being prioritized on the hospital market. During the quarter, we expanded our presence across hospital-based settings, increased exposure to commercially insured patients, and made strong progress on key priorities including commercial integration. In addition, we continue to advance our capital markets strategy as we progress toward our Nasdaq uplisting. We believe that our achievements in the first quarter have built a foundational platform from which we can deliver durable growth over the long-term.”
 
- Vocal has historically been developed, funded, and majority-owned by Creatd. The Board determined that as part of Creatd’s capital markets strategy, Vocal should be positioned as a majority-owned core asset of the Company again.
+ Jason Matuszewski, Chairman and CEO of BioStem
 
- “We believe establishing majority ownership of Vocal is an important strategic step for Creatd as we continue advancing our uplisting objectives and broader restructuring initiatives,” said Jeremy Frommer, Chairman and Chief Executive Officer of Creatd. “Vocal has always been foundational to the Company. Increasing our ownership from approximately 20% to 51% better reflects Vocal’s role in our operating structure, our capital markets strategy, and the value we believe can be created for shareholders.”
+ Nasdaq Uplisting UpdateThe Company issued its audited financial statements for both 2024 and 2025 during the first quarter of 2026. The Company plans to continue moving forward with the next steps required for Nasdaq uplisting and expects to provide updates as additional milestones are reached.
 
- Vocal remains a creator-focused platform built to support digital publishing, storytelling, audience development, and creator monetization. The platform currently reaches approximately 30 million monthly unique visitors and supports nearly 10,000 premium creators, forming a significant foundation for Creatd’s next phase of growth.
+ First Quarter 2026 Financial ResultsNet revenue was $6.1 million, compared to $10.1 million in the fourth quarter of 2025 and $16.0 million in the first quarter of 2025. Revenue for the first quarter was primarily driven by Neox® and Clarix® product sales. Hospital revenue represented approximately 87% of total revenue, or $5.4 million, and physician office revenue contributed $0.8 million.
 
- Vocal is also within several months of the planned launch of Vocal 3.0, the next major evolution of the platform. Vocal 3.0 is being developed around the rapid implementation of AI-enabled infrastructure, enhanced creator tools, improved content distribution, and expanded monetization capabilities. The Company believes these advancements will allow Vocal to scale beyond its existing audience and creator base while strengthening its role as a core technology, media, and brand-services asset within Creatd.
+ Gross profit was $3.8 million, representing a gross margin of 61%, compared to $9.8 million and 97% in the fourth quarter of 2025, and $15.1 million and 95% in the first quarter of 2025. The sequential decrease in gross margin reflects the mix shift to the Neox® and Clarix® products which are subject to the cost-plus markup under the current manufacturing supply agreement. The company expects gross margin to improve significantly upon the completion of the planned manufacturing technology transfer in 2027.
 
- In addition to its creator platform, Vocal has significantly expanded the agency and brand-services side of the business. Through the integration of human editorial judgment, AI-enabled processes, audience data, and content infrastructure, Vocal works with brands seeking to have their voices heard and their products recognized by authentic, measurable, and product-relevant audiences. This operating relationship also gives Creatd a practical way to evaluate companies before pursuing deeper strategic opportunities, including potential M&A transactions, creating a natural positive-selection process in which only the most aligned and scalable relationships advance.
+ Operating expenses totaled $12.6 million, compared to $17.3 million in the fourth quarter of 2025 and $9.9 million in the first quarter of 2025. The sequential decline is primarily driven by the bad debt expense recorded in the fourth quarter of 2025 partly offset by the addition of the acquired workforce and expenses related to the BioTissue assets transaction and the uplist process.
 
- “Vocal has evolved into more than a publishing platform,” continued Frommer. “It has become a combined creator, media, technology, and brand-services asset. Vocal is also becoming the tip of the spear through which Creatd identifies, acquires, and integrates advanced processes, technology relationships, and AI-enabled development capabilities at the frontier of human and artificial intelligence collaboration. The same infrastructure that supports creators also gives brands a better way to connect with audiences that are aligned with their products, message, and identity. Increasingly, Vocal serves as a funnel through which the businesses we work with, invest in, or acquire can be improved through better content, smarter distribution, stronger audience data, and more efficient technology-enabled execution. We believe Vocal 3.0, together with the continued scaling of its agency business, positions Vocal for meaningful growth in the second half of 2026 and increasingly into 2027.”
+ GAAP net loss was ($8.8 million) or ($0.52) per share, compared to net income of $3.9 million or $0.23 per share in the first quarter of 2025.
 
- Annual Shareholder Meeting Update
+ Adjusted EBITDA was ($5.7 million), compared to $7.8 million in the first quarter of 2025.
 
- Creatd also announced that the record date for its upcoming annual shareholder meeting has been changed from April 17, 2026 to May 26, 2026. The virtual annual shareholder meeting, previously scheduled for May 21, 2026, will now be held on June 25, 2026.
+ As of March 31, 2026, cash and cash equivalents totaled $13.7 million, compared to $29.5 million at the end of the fourth quarter of 2025.
 
- Shareholders of record as of the close of business on May 26, 2026 will be entitled to notice of, and to vote at, the virtual annual meeting.
+ 2026 Financial Outlook
 
- “We are continuing to complete the necessary steps associated with our SEC re-registration process, audited financial statements, corporate reorganization, and shareholder meeting preparation,” said Frommer. “We believe the updated timing will allow the Company to better align these milestones with our annual meeting and broader corporate initiatives.”
+ BioStem expects its revenue for full year 2026 to be in the range of $25 million to $29 million.
 
- The annual shareholder meeting will address proposals related to the Company’s strategic initiatives, governance matters, and future direction. Additional details regarding electronic participation and voting procedures will be provided in advance of the meeting.
+ In the second half of the year, with continuing integration of the acquired BioTissue assets, expansion of its salesforce and execution of its strategic plan, the Company expects to drive sequential growth in the hospital business. As the physician office market begins to stabilize, the Company expects sequential revenue growth in that business in the second half of 2026.
 
- Creatd recently announced the completion of its 2025 audit and the submission of an amended draft registration statement on Form S-1 to the SEC, marking another milestone in its planned uplisting process. The Company has also stated that the Flyte transaction strengthened its balance sheet and provided additional flexibility as Creatd continues to pursue its broader capital markets strategy.
+ Conference Call & Webcast Information:
 
- The Company will continue to provide updates as it advances its SEC process, Vocal equity realignment, corporate reorganization, Vocal 3.0 launch plan, and planned uplisting strategy.
+ * Conference ID: 9695874
+* North America Toll-Free: (800) 715-9871
+* International Toll: +1 (646) 307-1963
+* Webcast Link: https://events.q4inc.com/attendee/844730655
 
- Shareholders, peers, and employees are invited to join Creatd’s community discussion in the Company’s Investor Slack channel.
+ About BioStem Technologies, Inc. (OTC: BSEM): BioStem Technologies is a publicly traded biomedical innovator, focused on developing, manufacturing and commercializing advanced allograft solutions derived from perinatal tissue. The company leverages its industry-leading proprietary BioRetain®, CryoTek® and SteriTek® processing technologies, designed to optimize the preservation of the natural properties of these tissues, supporting their use in clinical settings. Its allografts are used by clinicians across a wide range of specialties. With a growing portfolio of products, expanding clinical research initiatives, and a national commercial footprint, BioStem is committed to advancing innovation in regenerative medicine.
 
- About Creatd, Inc.
+ BioStem Technologies’ quality management system and standard operating procedures have been reviewed and accredited by the American Association of Tissue Banks (“AATB”). These systems and procedures are established in compliance with current Good Tissue Practices (“cGTP”) and current Good Manufacturing Processes (“cGMP”). BioStem’s portfolio of quality brands includes its Neox®, Clarix®, VENDAJE® and American Amnion™ product lines.
 
- Creatd, Inc. is focused on unlocking creativity for creators, brands, and investors through technology-enabled platforms, digital communities, and operating businesses. The Company’s portfolio includes Vocal, a creator-focused storytelling and publishing platform, as well as businesses and initiatives across media, technology, commerce, and brand services.
+ Join BioStem’s Distribution List & Social Media:To follow the latest developments at BioStem, sign up for the Company’s email distribution list HERE, and follow us on X and LinkedIn.
 
- Contact: ir@creatd.com
+ Forward-Looking Statements:Certain statements in this press release may be considered “forward-looking statements” within the meaning of the Private Securities Litigation Reform Act of 1995. Forward-looking statements generally relate to expectations or forecasts of future events including with respect to the operations of the Company, strategies, prospects, and other aspects of the business of the Company. Forward-looking statements may be identified using words such as “forecast,” “intend,” “seek,” “target,” “anticipate,” “believe,” “expect,” “estimate”, “plan,” “outlook,” and “project” and other similar expressions that predict or indicate future events or trends or that are not statements of historical fact. Forward-looking statements in this release include, among other things, statements regarding: the Company’s expectations regarding its financial and operational strength and diversity; the Company’s expectations regarding the benefits and integration of the acquired BioTissue assets; the Company’s expectations regarding its ability to navigate the evolving reimbursement landscape; the Company’s expectations regarding its ability to execute on its strategic plans, including expanding its salesforce; the Company’s expectations regarding its ability to uplist to Nasdaq; the Company’s expectations regarding second half and full year 2026 financial results; and the Company’s expectations regarding its ability to grow and the market penetration of the Company’s products.
 
- Forward-Looking Statements
+ Forward-looking statements with respect to the operations of the Company, strategies, prospects and other aspects of the business of the Company are based on current expectations that are subject to known and unknown risks and uncertainties, which could cause actual results or outcomes to differ materially from expectations expressed or implied by such forward-looking statements. These factors include, but are not limited to: the impact of any changes to the reimbursement levels for the Company’s products; significant and continuing competition, which could adversely affect the Company’s business, results of operations and financial condition; rapid technological change, which could cause the Company’s products to become outdated or obsolete, harming the Company’s ability to effectively compete; the Company’s ability to convince physicians that its products are safe and effective alternatives to existing treatments and that its products should be used in their procedures; the risk that the Company may be unable to successfully market its products to the end users of such products; the impact of any changes to the accounting treatment of the Company’s revenue and expenses; the Company’s ability to obtain financing on terms acceptable to it, or at all; the Company has incurred significant losses since inception and may incur losses in the future; the impact of any changes in applicable laws or regulations; the Company’s accounts receivable collection risk and concentration; the Company’s ability to maintain production of its products in sufficient quantities to meet demand; and the possibility that the Company may be adversely affected by other general economic, business, and/or competitive factors. There may be additional risks about which the Company is presently unaware of or that the Company currently believes are immaterial that could also cause actual results to differ from those contained in the forward-looking statements. You are cautioned not to place undue reliance upon any forward-looking statements, which speak only as of the date made. The Company undertakes no duty to update or revise the forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
 
- This press release contains forward-looking statements within the meaning of the federal securities laws. These statements include, but are not limited to, statements regarding the Company’s anticipated uplisting efforts, SEC re-registration process, ownership position in Vocal, Vocal 3.0, strategic initiatives, annual shareholder meeting, corporate reorganization, and future corporate actions. Forward-looking statements are based on current expectations and assumptions that are subject to risks and uncertainties which could cause actual results to differ materially from those expressed or implied. The Company undertakes no obligation to update these statements except as required by law.
+ Contact BioStem:Website: www.biostemtechnologies.comE-Mail: info@biostemtech.comX: @BSEM_TechFacebook: BioStemTechnologiesPhone: 954-380-8342
 
- Source: Creatd, Inc.
+ Investor Relations:Philip Trip Taylor, GilmartinE-Mail: ir@biostemtech.com
 
- The latest news and updates relating to $CRDT are available in the company’s newsroom at: https://tinyurl.com/crtdnewsroom
+ Public Relations:Jennifer Horton, Relevancejennifer@relevance.com
 
  
 
- $CRTD Creatd (OTCQB: CRTD) plans to raise its Vocal ownership to 51% as part of its SEC re-registration, Vocal 3.0 rollout, and national exchange uplisting strategy https://t.co/1NRRvT07ut The latest news and updates relating to $CRDT are available in the company’s newsroom at:… pic.twitter.com/uoKYYd2nwe
+ Non-GAAP Financial Measures:
 
-— PRISM MediaWire (@prism_mediawire) [May 14, 2026](https://twitter.com/prism_mediawire/status/2054914145649082868?ref_src=twsrc%5Etfw) 
+ Our management uses financial measures that are not in accordance with generally accepted accounting principles in the United States, or GAAP, in addition to financial measures in accordance with GAAP to evaluate our operating results. These non-GAAP financial measures should be considered supplemental to, and not a substitute for, our reported financial results prepared in accordance with GAAP. Our management uses Adjusted EBITDA, which we calculate as net income less interest, taxes, depreciation and amortization, share-based compensation expense, and transaction related costs, to evaluate our operating performance and trends and make planning decisions. Our management believes Adjusted EBITDA helps identify underlying trends in our business that could otherwise be masked by the effect of the items that we exclude. Accordingly, we believe that Adjusted EBITDA provides useful information to investors and others in understanding and evaluating our operating results, enhancing the overall understanding of our past performance and future prospects, and allowing for greater transparency with respect to key financial metrics used by our management in its financial and operational decision-making.
+
+ The following is a reconciliation of GAAP net (loss) income to non-GAAP EBITDA and non-GAAP Adjusted EBITDA for each of the periods presented:
+
+ Source: BioStem Technologies, Inc.
+
+ The latest news and updates relating to $BSEM are available in the company’s newsroom at: https://tinyurl.com/bsemnewsroom
 
  
 
@@ -70,49 +80,45 @@ Board-approved Vocal transactions expected to increase Creatd’s ownership from
 
  
 
- The post Creatd Announces Vocal Equity Realignment and Updates Annual Shareholder Meeting Dates first appeared on Prism Media Wire. 
+ The post BioStem Technologies Reports First Quarter 2026 Financial Results first appeared on Prism Media Wire. 
 
 ---
 
-[Original/Source Press Release](https://prismmediawire.com/creatd-announces-vocal-equity-realignment-and-updates-annual-shareholder-meeting-dates/)
+[Original/Source Press Release](https://prismmediawire.com/biostem-technologies-reports-first-quarter-2026-financial-results/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/creatd-boosts-vocal-ownership-to-51-in-uplisting-push/3b4e1fffab6b33b5e0748e1580fb68d5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biostem-q1-2026-revenue-dips-but-hospital-focus-and-nasdaq-uplist-advance/c0ff07e1d5bce5400b883582c47992da) 
 
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3b4e1fffab6b33b5e0748e1580fb68d5)
+Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/14/biostem-technologies-reports-q1-2026-revenue-drop-amid-strategic-shift-to-hospital-market/)
 
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/3b4e1fffab6b33b5e0748e1580fb68d5)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/biostem-technologies-reports-first-quarter-2026-financial-result/202632195)
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/14/creatd-to-regain-majority-ownership-of-vocal-as-part-of-uplisting-strategy/)
+Pickup - [https://advos.io/en](https://advos.io/en/biostem-technologies-reports-q1-2026-revenue-of-61m-advances-nasdaq-uplisting)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/creatd-restores-majority-ownership-of-vocal-as-part-of-broader-u/202632156)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/biostem-technologies-posts-q1-2026-revenue-of-61m-amid-strategic-shift-to-hospital-market)
 
-Pickup - [https://advos.io/en](https://advos.io/en/creatd-to-regain-majority-control-of-vocal-platform-sets-new-shareholder-meeting-date)
+Pickup - [https://burstable.news](https://burstable.news/news/biostem-technologies-reports-first-quarter-2026-financial-results-amid-strategic-transformation)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/creatd-to-regain-majority-control-of-vocal-advances-uplisting-plans)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/biostem-technologies-meldet-finanzergebnisse-fur-das-erste-quartal-2026-im-rahmen-der-strategischen-neuausrichtung)
 
-Pickup - [https://burstable.news](https://burstable.news/news/creatd-to-regain-majority-ownership-of-vocal-sets-new-shareholder-meeting-date)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/biostem-technologies-reporta-resultados-financieros-del-primer-trimestre-de-2026-en-medio-de-una-transformacion-estrategica)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/creatd-erhalt-mehrheitsbeteiligung-an-vocal-zuruck-und-setzt-neuen-termin-fur-hauptversammlung-fest)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/biostem-technologies-annonce-ses-resultats-financiers-du-premier-trimestre-2026-au-coeur-dune-transformation-strategique)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/creatd-recuperara-la-mayoria-accionarial-de-vocal-y-fija-nueva-fecha-para-la-junta-de-accionistas)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/biostem-technologies-reporta-resultados-financeiros-do-primeiro-trimestre-de-2026-em-meio-a-transformacao-estrategica)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/creatd-reprend-la-majorite-de-vocal-et-fixe-une-nouvelle-date-pour-lassemblee-des-actionnaires)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/biostem-technologies-posts-61m-q1-revenue-advances-nasdaq-uplisting-after-strategic-transformation)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/creatd-recupera-participacao-majoritaria-na-vocal-e-define-nova-data-para-assembleia-de-acionistas)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/biostem-technologies-posts-61m-q1-revenue-advances-nasdaq-uplisting)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/creatd-to-regain-majority-control-of-vocal-sets-new-annual-meeting-dates)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/biostem-technologies-reports-q1-2026-results-advances-nasdaq-uplisting)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/creatd-to-regain-majority-control-of-vocal-advances-uplisting-plans)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/creatd-announces-vocal-equity-realignment-and-updates-annual-shareholder-meeting-dates)
-
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/sBbIn_LZdPY)
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/MWcQePNlPb0)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/14/maskWVjE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/prism/qrcode/265/14/clubHllP.webp)
