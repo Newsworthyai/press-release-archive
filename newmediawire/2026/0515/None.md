@@ -1,41 +1,31 @@
-# Forian Inc. Announces Completion of Tender Offer and Closing of Merger
+# Datavault AI (DVLT) Reports Q1 Revenue Growth, Advances AI Infrastructure and Tokenization Strategy
 
-Forian is a Privately Held Company; Common Stock to be Delisted From Nasdaq
+LOS ANGELES, CA - May 15, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) reported first-quarter 2026 revenue of $3.4 million, a 443% increase from $0.6 million in the prior-year period, driven primarily by the acquisition of CompuSystems, while reiterating its full-year revenue target of at least $200 million.
 
- NEWTOWN, PA - May 15, 2026 (NEWMEDIAWIRE) - Forian Inc. (Nasdaq: FORA) (“Forian” or the “Company”), a provider of data analytics and information solutions, today announced the successful completion of the previously announced cash tender offer (the “Offer”) by Bravo Merger Sub, Inc. (“Merger Sub”), a Maryland corporation and wholly owned subsidiary of 2025 Acquisition Company, LLC, a Delaware limited liability company (“Parent,” and together with Merger Sub, the “Buyer Parties”), to acquire all of the outstanding shares of Forian common stock not already owned by the Buyer Parties at a price of $2.17 per share in cash, without interest and subject to any required tax withholding (the “Offer Price”).
+ The company highlighted significant strategic momentum, including approximately $750 million in tokenization contracts signed during the quarter, expansion of its quantum-ready distributed GPU edge network, planned cybersecurity and digital asset infrastructure acquisitions, and new financing initiatives to support nationwide deployment of AI and tokenization infrastructure.
 
- The Offer expired as scheduled at one minute after 11:59 p.m., Eastern Time, on May 14, 2026 (the “Expiration Date”). Broadridge Corporate Issuer Solutions, LLC, the depositary for the Offer (the “Depositary”), advised Parent that, as of the Expiration Date, a total of 6,444,415 shares of Forian common stock were validly tendered and not properly withdrawn pursuant to the Offer, which, together with the 21,887,631 shares (representing approximately 70% of the outstanding shares) already owned by the Buyer Parties prior to the Offer, satisfied the minimum condition required to consummate the Offer.
+ To view the full press release, visit https://ibn.fm/Z9Zlp
 
- All conditions to the Offer having been satisfied, on May 15, 2026, Merger Sub accepted for payment all shares validly tendered and not properly withdrawn pursuant to the Offer, and will promptly pay for such shares in accordance with the terms of the Offer. Following the acceptance of tendered shares, and pursuant to the Agreement and Plan of Merger, dated as of April 2, 2026 (the “Merger Agreement”), by and among Forian, Parent and Merger Sub, Merger Sub merged with and into Forian (the “Merger”) in accordance with Section 3-106.1 of the Maryland General Corporation Law, without a vote of Forian’s stockholders, with Forian continuing as the surviving corporation and becoming a wholly owned subsidiary of Parent.
+ About Datavault AI
 
- Terms of the Merger
+ Datavault AI(TM) is leading the way in AI-driven data experiences, valuation, and monetization of assets in the Web 3.0 environment. The Company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Sciences and Data Science divisions.
 
- At the effective time of the Merger, each share of Forian common stock issued and outstanding immediately prior to the effective time (other than shares owned by Forian, the Buyer Parties or any of their wholly owned subsidiaries) was automatically converted into the right to receive $2.17 per share in cash, without interest and subject to any required tax withholding - the same consideration paid in the Offer.
+ The Acoustic Sciences division features WiSA(R), ADIO(R), and Sumerian(R) patented technologies and industry-first foundational spatial and multichannel wireless, high-definition sound transmission technologies with intellectual property covering audio timing, synchronization, and multi-channel interference cancellation. The Data Science division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation, and secure monetization. The platform serves multiple industries, including high-performance computing software licensing for sports & entertainment, biotech, fintech, real estate, healthcare, energy, and more.
 
- Delisting and Deregistration
+ The Information Data Exchange(R) enables Digital Twins and the licensing of name, image, and likeness by securely anchoring to immutable metadata, fostering responsible AI with integrity. The Company’s technology suite offers AI- and machine-learning-based automation, third-party integration, and detailed analytics. Datavault AI is headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
 
- As a result of the completion of the Merger, Forian’s common stock will cease trading on the Nasdaq Stock Market prior to market open on May 15, 2026. Forian has requested that Nasdaq file a notification of delisting on Form 25 with the U.S. Securities and Exchange Commission (the “SEC”). Forian also intends to file a Form 15 with the SEC to terminate the registration of its common stock under the Securities Exchange Act of 1934, as amended, and to suspend its reporting obligations thereunder as promptly as practicable.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About Forian
+ Forward Looking Statements
 
- Forian provides a unique suite of data management capabilities and proprietary information and analytics solutions to optimize and measure operational, clinical and financial performance for customers within the traditional and emerging life sciences and healthcare payer and provider segments and the financial services industry. Forian has industry leading expertise in acquiring, integrating, normalizing and commercializing large scale healthcare data assets. Forian’s information products overlay sophisticated data management and data science capabilities on top of a comprehensive clinical data lake to identify unique relationships, create distinctive information assets and generate proprietary insights. For more information, please visit the Company’s website at www.forian.com.
-
- Cautionary Statements Regarding Forward-Looking Statements
-
- This release contains “forward-looking statements” within the meaning of the federal securities laws, including Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended (the “Exchange Act”). In this context, forward-looking statements often address expected future business and financial performance and financial condition, which may include GAAP and non-GAAP financial measures, and often contain words such as “expect,” “anticipate,” “intend,” “plan,” “believe,” “seek,” “see,” “will,” “would,” “target,” similar expressions and variations or negatives of these words. Forward-looking statements by their nature address matters that involve risks and uncertainties, many of which are beyond our control and are not guarantees of future results, such as statements about future financial and operating results, company strategy and intended product offerings and market positioning and plans and estimates. These and other forward-looking statements are not guarantees of future results and are subject to risks, uncertainties and assumptions that could cause actual results to differ materially from those expressed in any forward-looking statements. Accordingly, there are or will be important factors that could cause actual results to differ materially from those indicated in such statements and, therefore, you should not place undue reliance on any such statements and caution must be exercised in relying on forward-looking statements. Factors that could cause actual results to differ include, but are not limited to, those risks and uncertainties associated with operations, strategy and goals, our ability to execute on our strategy, and the additional risks and uncertainties set forth more fully under the caption “Risk Factors” in Forian’s most recently filed Annual Report on Form 10-K filed with the SEC, and elsewhere in Forian’s filings and reports with the SEC. Forward-looking statements contained in this release are made as of the date hereof, and we undertake no duty to publicly update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required under applicable law.
-
- Media and Investor Contact:forian.com/investorsir@forian.com267-225-6263
-
- SOURCE: Forian Inc.
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/forian-inc-announces-completion-of-tender-offer-and-closing-of-merger-7086783)
+[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-reports-q1-revenue-growth-advances-ai-infrastructure-and-tokenization-strategy-7086791)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/forian-acquired-delisted-from-nasdaq-after-merger-completion/a9f80f5d7ad96ca6bb1c9823118b56a0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-revenue-soars-443-on-compusystems-acquisition/304f104649973dd71a96a89371e84372) 
 
  
 
@@ -43,4 +33,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/15/zest3h3m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/15/silkkvKw.webp)

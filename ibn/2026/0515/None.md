@@ -1,14 +1,16 @@
-# InvestorNewsBreaks – Globavend Holdings Limited (NASDAQ: GVH) Expands Into Digital Entertainment With Proposed Loomi Acquisition
+# Frontieras North America Inc.’s Game-Changing Tech ‘Unlocks’ Coal as Multi-Output Industrial Feedstock
 
-Globavend Holdings (NASDAQ: GVH) announced a definitive agreement to acquire a 70% equity interest in Loomi Entertainment Group for a nominal consideration of $70, marking the company’s planned expansion beyond e-commerce logistics into digital entertainment. Through the proposed acquisition, Globavend would gain access to Loomi’s Southeast Asia-focused short drama platform and AI-powered content creation capabilities, supporting its strategy to diversify into high-growth digital media and entertainment markets.
+* The company’s proprietary FASForm(TM) platform advancing new approach to coal.
+* Frontieras processes coal into multiple commercially valuable outputs, tied to markets estimated at more than $2 trillion.
+* Core thesis is that coal’s largest missed opportunity lies not in power generation alone but in its unrealized value as a diversified industrial resource.
 
- To view the full press release, visit https://ibn.fm/BWVyU
+ Global demand for energy is accelerating at a historic pace as artificial intelligence (“AI”), advanced manufacturing and industrial expansion place increasing pressure on existing power systems. Governments and industries are exploring nearly every available energy source to meet that demand, yet one of the world’s most abundant and energy-dense resources remains widely overlooked and underutilized.
 
- About Globavend Holdings Limited
+ Frontieras North America is advancing a new approach to coal through its proprietary FASForm(TM) platform, which converts coal into fuels, hydrogen and industrial materials, positioning the resource as a multi-output industrial feedstock capable of supporting modern energy and manufacturing…
 
- Globavend Holdings Limited, an emerging e-commerce logistics provider, offers end-to-end logistics solutions in Hong Kong, Australia, and New Zealand. The Company primarily serves enterprise customers, including e-commerce merchants and operators of e-commerce platforms, facilitating business-to-consumer (B2C) transactions. As an e-commerce logistics provider, Globavend delivers integrated cross-border logistics services from Hong Kong to Australia and New Zealand. It provides customers with a comprehensive solution, encompassing pre-carriage parcel drop-off, parcel consolidation, air-freight forwarding, customs clearance, on-carriage parcel transportation, and final delivery.
+ Read More>>
 
- For more information, visit https://globavend.com/
+ NOTE TO INVESTORS: The latest news and updates relating to Frontieras are available in the company’s newsroom at https://ibn.fm/Frontieras
 
  About InvestorWire
 
@@ -24,10 +26,10 @@ Globavend Holdings (NASDAQ: GVH) announced a definitive agreement to acquire a 7
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-globavend-holdings-limited-nasdaq-gvh-expands-into-digital-entertainment-with-proposed-loomi-acquisition/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/frontieras-north-america-inc-s-game-changing-tech-unlocks-coal-as-multi-output-industrial-feedstock/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/globavend-holdings-expands-into-digital-entertainment-with-loomi-acquisition/62465ccf48e76c234e1c9a2d9ba6ae44) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/frontieras-unlocks-coals-2-trillion-potential-with-fasform-platform/28c3d8261bf608938e418b9038e69f97) 
 
  
 
@@ -35,4 +37,4 @@ Globavend Holdings (NASDAQ: GVH) announced a definitive agreement to acquire a 7
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/15/kitehrjK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/15/meanLFFd.webp)
