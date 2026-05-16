@@ -1,53 +1,71 @@
-# San Diego Dental Practice Offers Invisalign and Cosmetic Care
+# The ProMedia Group Welcomes New Project Manager to Support Continued Growth
 
-Dr. Raymond Wright III Leads Cosmetic and Restorative Dentistry Services in San Diego
+The ProMedia Group of Tampa Hires Troy Fernandez as Project Manager
 
- San Diego, United States - May 15, 2026 / Radiant Smiles /
+ Tampa, United States - May 15, 2026 / The ProMedia Group of Tampa /
 
- Radiant Smiles, a full-service cosmetic dental practice in San Diego, California, has formally expanded its treatment menu to include a broader range of restorative and aesthetic services under the continued leadership of Dr. Raymond Wright III. The expansion marks a deliberate shift toward meeting patient demand for comprehensive care under one roof, positioning the practice to serve a wider segment of San Diego residents seeking both general and specialized dental treatment.
+ Tampa, FL, May 12th, 2026 — The ProMedia Group (PMG), a Florida audiovisual and technology integration solutions provider, is pleased to announce the addition of Troy Fernandez as Project Manager to its growing team.
 
-A Practice Built Around Personalized Care
+A Career Built on Global ScaleBringing more than two decades of global program and project leadership experience, Troy Fernandez joins PMG with a proven track record managing large-scale design and construction initiatives across multiple continents. His portfolio spans residential, commercial, and industrial environments, positioning him as a strong asset as PMG continues expanding its national footprint.
 
-Radiant Smiles operates as a dentist in San Diego CA with a clinical focus on combining cosmetic and restorative procedures in a patient-centered environment. Dr. Raymond Wright III, who leads the practice, has structured the care model around minimizing referrals and reducing the number of providers a patient must see to complete complex treatment plans. The approach reflects a broader trend in private dental practices toward consolidating specialty services without sacrificing clinical precision.
+Prior to joining PMG, Fernandez held multiple leadership roles at Watchtower in Tuxedo Park, New York, most recently serving as Program Manager. In that role, he oversaw a global portfolio of active projects across 30 international offices, aligning execution with organizational strategy and executive priorities.
 
-The practice offers treatments including Invisalign clear aligner therapy, professional teeth whitening, crowns, bridges, and full restorative work. Each treatment plan is developed around the individual patient's oral health history, functional needs, and aesthetic goals rather than a standardized protocol.
+As Global Design Director, Fernandez led the development of design standards across 84 international branches while mentoring high-performing teams. Earlier in his career, he managed multi-site projects throughout the Americas, maintaining control over scope, schedule, and budget while delivering complex projects from concept through commissioning.
 
-Dental Implants Added as a Focal Point of Restorative Offerings
+His experience also includes 15 years with AECOM in New York, contributing to major infrastructure and transportation projects, including work with the Port Authority of New York and New Jersey, the Transportation Security Administration, and the World Trade Center PATH Terminal.
 
-Among the services that have received the most attention in the expanded offerings are dental implants in San Diego CA, which Radiant Smiles now provides with a more structured consultation and placement process. Dental implants replace missing teeth at the root level using a titanium post that integrates with the jawbone, making them a long-term alternative to dentures or bridges for qualifying patients.
+Stepping Into Sports, Stadiums, and TechnologyFernandez was drawn to PMG by the opportunity to expand into new types of facilities and technologies. “PMG is involved in a number of exciting projects, especially in the sports and stadium space,” he said. “I’ve spent my career managing residential and commercial work, but this is a chance to be part of something different — to get more hands-on and be on the other side of the process, especially in AV and broadcast environments.”
 
-"We have placed over 200 implant restorations in the last three years alone, and the addition of a more dedicated implant program means patients can complete the full process - from evaluation to final restoration - without leaving our practice," said Dr. Raymond Wright III, Founder and Lead Dentist of Radiant Smiles.
+His approach to project delivery is rooted in collaboration. “No matter the size of the project, the fundamentals are the same,” he explained. “Surround yourself with qualified people, work as a team, and keep everyone aligned toward the end goal. That’s what drives consistent, high-quality results.”
 
-The practice uses digital imaging and 3D planning tools during the implant consultation process to assess bone density and determine candidacy before any clinical steps begin. This reduces the likelihood of procedural complications and gives patients a clearer picture of the timeline and expected outcomes before committing to treatment.
+With a strong background in design and construction, Fernandez brings a perspective that supports alignment across teams. Having worked closely with design professionals throughout his career, he understands how to bridge gaps and keep projects moving efficiently. “I’ve been in their shoes before, so I know how to work alongside designers and help keep everything on track,” he said.
 
-Invisalign and Cosmetic Services Remain Central to the Practice
+His leadership philosophy emphasizes planning, adaptability, and transparency. “You need a solid plan, but you also need to be flexible when things change,” he added. “Staying adaptable while keeping the end goal in focus is critical.”
 
-As a cosmetic dentist in San Diego CA, Radiant Smiles has maintained Invisalign as one of its most frequently requested services. The clear aligner system is used to address crowding, spacing, and bite irregularities in both adolescent and adult patients. Dr. Wright and his clinical team conduct thorough assessments before recommending Invisalign over alternative orthodontic options, ensuring the treatment is clinically appropriate for each case.
+As he steps into his role at PMG, Fernandez will focus on strengthening client relationships and ensuring seamless project execution. “Clients need to feel heard and informed at every stage,” he said. “Being proactive — even when challenges come up — builds trust and leads to better outcomes.”
 
-Teeth whitening services at the practice include both in-office treatments and take-home systems, depending on the degree of discoloration and the patient's preference for scheduling. The practice also offers composite bonding, porcelain veneers, and smile assessments for patients exploring aesthetic improvements.
+“Adding someone with this level of global experience and leadership strengthens our ability to deliver exceptional results for our clients,” said Ken Avis, CEO of The ProMedia Group. “His expertise in managing complex, multi-site projects aligns perfectly with our commitment to excellence and continued growth.”
 
-About Radiant Smiles
+In his new role, Fernandez will oversee AV integration projects from design through installation, supporting PMG’s continued expansion and commitment to delivering reliable, high-performance solutions.
 
-Radiant Smiles is a cosmetic dental practice located in San Diego, California, led by Dr. Raymond Wright III. The practice provides a full range of dental services including general care, Invisalign, teeth whitening, cosmetic restoration, and dental implants. Radiant Smiles serves patients across San Diego County with a focus on personalized treatment planning and modern clinical techniques.
+The addition of Troy Fernandez reflects PMG’s ongoing investment in top-tier talent as the company continues to grow its services and geographic reach.
 
-Learn more at Radiant Smiles
+About The ProMedia Group
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/XgbUUdp6NQVqhzU0WWEiwyN7qe55DvvvAxpjzZVg.jpg) [](https://www.radiantsmilesofsd.com) Contact Information:
+The ProMedia Group (PMG) is an award-winning audiovisual design-build integrator headquartered in Tampa, Florida. Recognized as one of Tampa Bay’s Best Places to Work, the company provides tailored AV solutions for commercial clients across healthcare, education, corporate, and government sectors. Its highly credentialed team delivers excellence through design, engineering, programming, and service—bridging technology and experience to empower organizations across the Southeast.
 
- Radiant Smiles
+Media Contact
+
+The ProMedia Group
+
+Krystal McGrady
+
+The ProMedia Group of Tampa Corp.
+
+4893 W. Waters Ave, Suite F, Tampa, FL 33634
+
+800-881-6887
+
+sales@TheProMediaGroup.com
+
+TheProMediaGroup.com
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/02eqKBAcXrliarAo2FXvmYD5I2Msx0DHtEzqINp6.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rd1fbvkcqbcjhTqglqQcfod8gh4d6IVKgFlbRTnI.png) [](https://thepromediagroup.com) Contact Information:
+
+ The ProMedia Group of Tampa
 
  
 
-16918 Dove Canyon Road, Suite 209  San Diego, CA 92127United States
+4893 W Waters Ave Suite F  Tampa, FL 33634United States
 
- Stacia Martinez +1-858-798-9595 https://www.radiantsmilesofsd.com 
+ K. McGrady (800) 881-6887 https://thepromediagroup.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/san-diego-dental-practice-offers-invisalign-and-cosmetic-care-430459)
+[Original/Source Press Release](https://mediawiretoday.com/the-promedia-group-welcomes-new-project-manager-to-support-continued-growth-430187)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/radiant-smiles-expands-dental-services-under-dr-raymond-wright-iii/2a38b13cd402857089239815bf7c63cf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/promedia-group-hires-troy-fernandez-as-project-manager/addea12852c2bdd98233c647900cf00a) 
 
  
 
@@ -55,4 +73,4 @@ Learn more at Radiant Smiles
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/16/ninaPl20.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/16/tintqdCl.webp)
