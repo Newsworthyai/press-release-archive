@@ -1,31 +1,45 @@
-# Datavault AI (DVLT) Reports Q1 Revenue Growth, Advances AI Infrastructure and Tokenization Strategy
+# Nixxy Reports Strong First Quarter 2026 Results Following Strategic Transformation With Q1 Revenue of $29.1 Million
 
-LOS ANGELES, CA - May 15, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) reported first-quarter 2026 revenue of $3.4 million, a 443% increase from $0.6 million in the prior-year period, driven primarily by the acquisition of CompuSystems, while reiterating its full-year revenue target of at least $200 million.
+NEW YORK, NY - May 15, 2026 (NEWMEDIAWIRE) - Nixxy, Inc. (NASDAQ: NIXX) (“Nixxy” or the “Company”), an AI-enabled telecommunications and data infrastructure company, today announced financial results for the quarter ended March 31, 2026, as reported in its Quarterly Report on Form 10-Q filed with the U.S. Securities and Exchange Commission.
 
- The company highlighted significant strategic momentum, including approximately $750 million in tokenization contracts signed during the quarter, expansion of its quantum-ready distributed GPU edge network, planned cybersecurity and digital asset infrastructure acquisitions, and new financing initiatives to support nationwide deployment of AI and tokenization infrastructure.
+ Financial and operational highlights for the first quarter of 2026 include:
 
- To view the full press release, visit https://ibn.fm/Z9Zlp
+ * Revenue increased to approximately $29.1 million for the first quarter of 2026, compared to approximately $1.3 million in the prior-year quarter, reflecting the continued expansion of the Company’s global telecommunications platform.
+* Loss from continuing operations improved to approximately ($1.2) million, compared to approximately ($3.8) million in the prior-year period.
+* Cash increased to approximately $1.0 million as of March 31, 2026, compared to approximately $0.2 million on December 31, 2025.
+* Total stockholders’ equity increased to approximately $10.1 million as of March 31, 2026, compared to approximately $8.0 million on December 31, 2025.
+* The Company continued expanding its telecommunications infrastructure platform through wholesale voice and messaging traffic growth, routing optimization, telecommunications billing technologies, and strategic software initiatives related to embedded transaction and payment workflow capabilities.
 
- About Datavault AI
+ During the quarter, Nixxy continued executing its strategic transition from a legacy recruiting marketplace business into a telecommunications and AI infrastructure platform. The Company also continued integrating telecommunications billing systems, AI technologies, and EDGE infrastructure assets acquired during 2025 as part of its broader infrastructure strategy.
 
- Datavault AI(TM) is leading the way in AI-driven data experiences, valuation, and monetization of assets in the Web 3.0 environment. The Company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Sciences and Data Science divisions.
+ “Our first quarter results reflect the continued execution of Nixxy’s strategic transformation and the rapid scaling of our telecommunications platform,” said Mike Schmidt, CEO of Nixxy. “We are building a scalable communications infrastructure platform supported by AI-enabled routing, automation, and strategic software assets. As part of this evolution, we continue expanding our strategic collaboration with PayToMe.co across software development, embedded financial infrastructure, and AI-driven transaction technologies intended to support communications-enabled payment workflows, cross-border transaction capabilities, and next-generation digital infrastructure initiatives.
 
- The Acoustic Sciences division features WiSA(R), ADIO(R), and Sumerian(R) patented technologies and industry-first foundational spatial and multichannel wireless, high-definition sound transmission technologies with intellectual property covering audio timing, synchronization, and multi-channel interference cancellation. The Data Science division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation, and secure monetization. The platform serves multiple industries, including high-performance computing software licensing for sports & entertainment, biotech, fintech, real estate, healthcare, energy, and more.
+ “The convergence of telecommunications, AI, and financial transaction technologies represents a significant long-term opportunity, and we believe Nixxy is continuing to position its platform at the intersection of these rapidly evolving markets.”
 
- The Information Data Exchange(R) enables Digital Twins and the licensing of name, image, and likeness by securely anchoring to immutable metadata, fostering responsible AI with integrity. The Company’s technology suite offers AI- and machine-learning-based automation, third-party integration, and detailed analytics. Datavault AI is headquartered in Philadelphia, PA. Learn more at www.dvlt.ai.
+ The Company noted that it remains focused on operational efficiency, disciplined growth, and improving its long-term margin profile as it continues expanding global telecommunications operations and infrastructure capabilities.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ The financial results discussed in this release are derived from the Company’s unaudited condensed consolidated financial statements included in its Quarterly Report on Form 10-Q for the quarter ended March 31, 2026, filed with the SEC.
 
- Forward Looking Statements
+ About Nixxy
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Nixxy, Inc. (NASDAQ: NIXX) is an AI-enabled communications and data infrastructure company building a global platform for telecommunications services and communications-driven transaction workflows. The Company operates a carrier-scale telecommunications network delivering wholesale voice and messaging services enhanced by automation, analytics, and optimized logic enabled routing technologies. Nixxy is expanding its platform to support communications-enabled financial workflows, integrating messaging, identity, and transaction capabilities across global digital commerce systems.
+
+ For more information, visit www.nixxy .com
+
+ Forward-Looking Statements
+
+ This press release contains "forward-looking statements" within the meaning of the Private Securities Litigation Reform Act of 1995, including statements regarding anticipated growth, revenue scale, operating leverage, and the Company's development of communications-enabled financial workflows. Forward-looking statements are based on management's current expectations and involve risks and uncertainties that could cause actual results to differ materially from those expressed or implied. Investors should review the risk factors described in the Company's Annual Report on Form 10-K filed with the Securities and Exchange Commission on April 15, 2026, and other filings with the Securities and Exchange Commission. Nixxy undertakes no obligation to update forward-looking statements except as required by law.
+
+ Investor Relations Nixxy, Inc. ir@nixxy.com
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-reports-q1-revenue-growth-advances-ai-infrastructure-and-tokenization-strategy-7086791)
+[Original/Source Press Release](https://www.newmediawire.com/news/nixxy-reports-strong-first-quarter-2026-results-following-strategic-transformation-with-q1-revenue-of-29-1-million-7086792)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-revenue-soars-443-on-compusystems-acquisition/304f104649973dd71a96a89371e84372) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nixxy-reports-q1-2026-revenue-surge-to-29-1m-amid-ai-telecom-transformation/09bf06f1db8b5cc9a1c091c8fdce94ff) 
 
  
 
@@ -33,4 +47,4 @@ LOS ANGELES, CA - May 15, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT) repo
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/15/silkkvKw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/15/zeronX9R.webp)
