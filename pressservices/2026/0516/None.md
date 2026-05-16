@@ -1,71 +1,55 @@
-# The ProMedia Group Welcomes New Project Manager to Support Continued Growth
+# Ambler Painting Firm Marks 29 Years With Expanded No-Cost Estimate Access
 
-The ProMedia Group of Tampa Hires Troy Fernandez as Project Manager
+Approaching 30 Years, Ambler House Painters at Aspen Painting Broaden Free Estimate Availability
 
- Tampa, United States - May 15, 2026 / The ProMedia Group of Tampa /
+ Horsham, United States - May 16, 2026 / Aspen Painting & Wallcovering, Inc. /
 
- Tampa, FL, May 12th, 2026 — The ProMedia Group (PMG), a Florida audiovisual and technology integration solutions provider, is pleased to announce the addition of Troy Fernandez as Project Manager to its growing team.
+ Aspen Painting & Wallcovering, Inc. has announced the formal expansion of its free estimate program for residential homeowners in Ambler, PA, marking a renewed commitment to accessibility as the company approaches its 30th year of continuous operation in the region. The program makes professional color consultations and project scoping available at no cost to local residents across its full range of services, including interior and exterior painting, cabinet refinishing, and drywall repair.
 
-A Career Built on Global ScaleBringing more than two decades of global program and project leadership experience, Troy Fernandez joins PMG with a proven track record managing large-scale design and construction initiatives across multiple continents. His portfolio spans residential, commercial, and industrial environments, positioning him as a strong asset as PMG continues expanding its national footprint.
+Nearly Three Decades of Residential Service in Ambler
 
-Prior to joining PMG, Fernandez held multiple leadership roles at Watchtower in Tuxedo Park, New York, most recently serving as Program Manager. In that role, he oversaw a global portfolio of active projects across 30 international offices, aligning execution with organizational strategy and executive priorities.
+Founded in 1996, Aspen Painting & Wallcovering, Inc. has established a long-standing presence as one of the area's recognized Ambler painters, serving Montgomery County and surrounding communities. The Pennsylvania-licensed company has spent nearly three decades working directly with homeowners on projects ranging from single-room interior refreshes to full exterior repaints and wallcovering installations.
 
-As Global Design Director, Fernandez led the development of design standards across 84 international branches while mentoring high-performing teams. Earlier in his career, he managed multi-site projects throughout the Americas, maintaining control over scope, schedule, and budget while delivering complex projects from concept through commissioning.
+The company holds a current Pennsylvania contractor license, a credential that sets it apart among Ambler painting companies operating in the local market. Licensing requirements in Pennsylvania include verification of insurance coverage and adherence to state regulations, providing homeowners a layer of accountability when selecting a contractor for residential work.
 
-His experience also includes 15 years with AECOM in New York, contributing to major infrastructure and transportation projects, including work with the Port Authority of New York and New Jersey, the Transportation Security Administration, and the World Trade Center PATH Terminal.
+Free Estimates Now Available Across All Services
 
-Stepping Into Sports, Stadiums, and TechnologyFernandez was drawn to PMG by the opportunity to expand into new types of facilities and technologies. “PMG is involved in a number of exciting projects, especially in the sports and stadium space,” he said. “I’ve spent my career managing residential and commercial work, but this is a chance to be part of something different — to get more hands-on and be on the other side of the process, especially in AV and broadcast environments.”
+The no-cost estimate program covers the complete scope of services offered by Aspen Painting & Wallcovering, Inc. Homeowners in Ambler can request evaluations for interior painting, exterior painting, cabinet refinishing, wallcovering installation, drywall repair, and power washing - all without an upfront financial commitment.
 
-His approach to project delivery is rooted in collaboration. “No matter the size of the project, the fundamentals are the same,” he explained. “Surround yourself with qualified people, work as a team, and keep everyone aligned toward the end goal. That’s what drives consistent, high-quality results.”
+"Since 1996, we have completed thousands of projects for homeowners in the Ambler area, and the free estimate has always been how we start every conversation," said Mike McGill, Owner of Aspen Painting & Wallcovering, Inc. "We are making it more visible now because homeowners deserve the chance to get accurate pricing and ask questions before they decide anything."
 
-With a strong background in design and construction, Fernandez brings a perspective that supports alignment across teams. Having worked closely with design professionals throughout his career, he understands how to bridge gaps and keep projects moving efficiently. “I’ve been in their shoes before, so I know how to work alongside designers and help keep everything on track,” he said.
+As one of the longer-established Ambler painting contractors in the area, the company uses the estimate process to assess surface conditions, identify any prep work required - such as drywall repairs or pressure washing - and provide itemized pricing before any agreement is signed.
 
-His leadership philosophy emphasizes planning, adaptability, and transparency. “You need a solid plan, but you also need to be flexible when things change,” he added. “Staying adaptable while keeping the end goal in focus is critical.”
+Cabinet Refinishing and Specialty Services Add to Residential Offerings
 
-As he steps into his role at PMG, Fernandez will focus on strengthening client relationships and ensuring seamless project execution. “Clients need to feel heard and informed at every stage,” he said. “Being proactive — even when challenges come up — builds trust and leads to better outcomes.”
+Beyond standard wall painting, the Ambler painting company offers cabinet refinishing as a standalone service for homeowners looking to restore or update kitchen and bathroom cabinetry without a full replacement. The process involves surface preparation, priming, and finish application to produce results consistent with factory-sprayed finishes.
 
-“Adding someone with this level of global experience and leadership strengthens our ability to deliver exceptional results for our clients,” said Ken Avis, CEO of The ProMedia Group. “His expertise in managing complex, multi-site projects aligns perfectly with our commitment to excellence and continued growth.”
+Wallcovering installation is another specialty Aspen Painting & Wallcovering, Inc. has offered since its founding. The service includes removal of existing wallpaper, wall preparation, and installation of new materials - a process that requires careful surface assessment to avoid damage to drywall beneath older coverings.
 
-In his new role, Fernandez will oversee AV integration projects from design through installation, supporting PMG’s continued expansion and commitment to delivering reliable, high-performance solutions.
+Power washing rounds out the exterior service lineup, allowing the company to address surface cleaning before exterior painting begins. Clean surfaces are a baseline requirement for paint adhesion, and the company incorporates power washing into its pre-paint preparation assessments during the estimate phase. Ambler house painters seeking this level of prep work can request an evaluation that covers all applicable services in a single visit.
 
-The addition of Troy Fernandez reflects PMG’s ongoing investment in top-tier talent as the company continues to grow its services and geographic reach.
+About Aspen Painting & Wallcovering, Inc.
 
-About The ProMedia Group
+Aspen Painting & Wallcovering, Inc. is a Pennsylvania-licensed painting and wallcovering company based in the Ambler, PA area. Established in 1996, the company provides interior and exterior painting, cabinet refinishing, wallcovering installation, drywall repair, and power washing to residential clients. Free estimates are available by calling (215) 773-8422.
 
-The ProMedia Group (PMG) is an award-winning audiovisual design-build integrator headquartered in Tampa, Florida. Recognized as one of Tampa Bay’s Best Places to Work, the company provides tailored AV solutions for commercial clients across healthcare, education, corporate, and government sectors. Its highly credentialed team delivers excellence through design, engineering, programming, and service—bridging technology and experience to empower organizations across the Southeast.
+Learn more at Aspen Painting & Wallcovering, Inc.
 
-Media Contact
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Y0j0Do17eQDuQCfvs4YeH7aVkuDqhfXwgCA7TEuJ.jpg) [](https://aspenpaintingpa.com) Contact Information:
 
-The ProMedia Group
-
-Krystal McGrady
-
-The ProMedia Group of Tampa Corp.
-
-4893 W. Waters Ave, Suite F, Tampa, FL 33634
-
-800-881-6887
-
-sales@TheProMediaGroup.com
-
-TheProMediaGroup.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/02eqKBAcXrliarAo2FXvmYD5I2Msx0DHtEzqINp6.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rd1fbvkcqbcjhTqglqQcfod8gh4d6IVKgFlbRTnI.png) [](https://thepromediagroup.com) Contact Information:
-
- The ProMedia Group of Tampa
+ Aspen Painting & Wallcovering, Inc.
 
  
 
-4893 W Waters Ave Suite F  Tampa, FL 33634United States
+131 Sarahs Lane  Horsham, PA 19044United States
 
- K. McGrady (800) 881-6887 https://thepromediagroup.com 
+ Ray Paparo +1-215-773-8422 https://aspenpaintingpa.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/the-promedia-group-welcomes-new-project-manager-to-support-continued-growth-430187)
+[Original/Source Press Release](https://mediawiretoday.com/ambler-painting-firm-marks-29-years-with-expanded-no-cost-estimate-access-430510)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/promedia-group-hires-troy-fernandez-as-project-manager/addea12852c2bdd98233c647900cf00a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aspen-painting-expands-free-estimates-as-it-nears-30-years/33edac42e578486285bf551de839a79d) 
 
  
 
@@ -73,4 +57,4 @@ TheProMediaGroup.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/16/tintqdCl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/16/dashenmf.webp)
