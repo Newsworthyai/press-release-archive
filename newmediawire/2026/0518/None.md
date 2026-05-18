@@ -1,76 +1,52 @@
-# 'Hong Kong Cinema @ CANNES 2026': Hong Kong's Role as a Bridge Between Global and Asian Film Markets
+# GeoVax Highlights Strategic Importance of Domestic MVA-Based Preparedness Infrastructure Amid Escalating Global Infectious Disease Threats
 
-Goal: To Deepen Industry Exchange and Expand Co Production and Investment Opportunities
+WHO Emergency Declaration of Ebola Outbreak and Ongoing Mpox Developments Reinforce the Importance of Diversified Vaccine Supply and Scalable U.S.-Based Manufacturing Capabilities
 
- CANNES, FRANCE - May 18, 2026 (NEWMEDIAWIRE) - “Hong Kong Cinema @ CANNES 2026”, jointly organised by the Cultural, Sports and Tourism Bureau (CSTB) of the Hong Kong SAR Government, the Hong Kong Film Development Council (FDC), the Cultural and Creative Industries Development Agency (CCIDA), and the Hong Kong Trade Development Council (HKTDC), is held at the Cannes Film Festival from 12 to 23 May.
+ ATLANTA, GA - May 18, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing vaccines and immunotherapies for infectious diseases and cancer, today highlighted the growing strategic importance of scalable domestic vaccine manufacturing infrastructure and diversified vaccine supply capabilities amid a series of escalating global infectious disease developments.
 
- Exhibitions, industry seminars, business matching meetings, project pitching sessions and networking activities are organised to promote cross-regional co-production opportunities while underscoring Hong Kong’s role as an East-meets-West centre for international cultural exchange and a regional intellectual property (IP) trading hub. It also showcases the strength and creative diversity of Hong Kong’s film industry to the global screen community.
+ Recent public health events, including the World Health Organization’s declaration of a Public Health Emergency of International Concern (“PHEIC”) related to the ongoing Ebola outbreak involving the Bundibugyo strain, continued international spread of Clade I mpox, and recent hantavirus-related public health concerns, underscore the increasingly dynamic nature of global biodefense and pandemic preparedness requirements.
 
- “Hong Kong Night” enhances international industry exchange
+ “These developments reinforce the importance of scalable and flexible vaccine preparedness infrastructure,” said David A. Dodd, Chairman and Chief Executive Officer of GeoVax. “GeoVax’s primary strategic focus remains the advancement of GEO-MVA, our Modified Vaccinia Ankara (MVA) mpox and smallpox vaccine candidate, which we believe is well aligned with growing global emphasis on diversified vaccine supply, domestic manufacturing capability, and long-term biodefense preparedness.”
 
- As a highlight of “Hong Kong Cinema @ CANNES 2026”, “Hong Kong Night” was held on 16 May at Majestic Beach in Cannes, bringing together around 600 international film professionals, including producers, distributors, investors and film promotion organisations. The event connected these global industry players with Hong Kong exhibitors, emerging producers, and Hong Kong actors Carlos Chan and Natalie Hsu, as well as winning teams of the FDC’s Content Development Scheme for Streaming Platforms, creating valuable opportunities for international exchange and discussions on collaboration.
+ GeoVax is advancing GEO-MVA to support global orthopoxvirus preparedness efforts and help address the need for expanded and diversified vaccine supply infrastructure. The Company recently announced positive Scientific Advice from the European Medicines Agency supporting a Phase 3 immunobridging pathway toward potential regulatory approval. This pivotal, Ph 3 trial is scheduled to initiate in Q4 ’26, with data results anticipated by mid-2027.
 
- The Hong Kong Pavilion: industry strengths help expand global collaboration
+ GeoVax believes recent infectious disease developments further reinforce the strategic importance of:• diversified vaccine supply infrastructure;• scalable domestic manufacturing capabilities;• rapid-response vaccine platform technologies;• and long-term investment in biodefense preparedness.
 
- The Hong Kong Pavilion is staged at the Marché du Film, featuring a strong line-up of Hong Kong film production and distribution companies, including Edko Films, Emperor Motion Pictures, Entertaining Power, Media Asia Film, and One Cool Film. Other participating Hong Kong film companies include Fortune Star Media, Golden Network Asia, Mandarin Motion Pictures, and Blast Films.
+ The Company also noted that the broader applicability of the MVA platform has been demonstrated across multiple infectious disease settings, including prior preclinical Ebola/hemorrhagic fever virus vaccine studies in which GeoVax’s MVA-based Ebola-Zaire vaccine candidate demonstrated complete protection in non-human primate lethal-challenge studies following Ebola virus exposure.
 
- Exhibitors feature a range of latest and upcoming productions, including Edko Films’ Cold War 1994; the Chinese film Under Current, the top opening box office title of 2025; Entertaining Power’s The Fruitless Tree; Media Asia Film’s Twilight of the Warriors: The Final Chapter; and One Cool Film’s crime action film The Trier of Fact. These feature film projects have attracted producers, investors and distributors from different countries and regions, facilitating in-depth discussions on Hong Kong cinema’s latest creative trends, production strengths and international co-operation opportunities.
+ “Recent events continue to demonstrate that preparedness infrastructure cannot remain reactive or narrowly focused on individual outbreak cycles,” continued Mr. Dodd. “We believe the advancement of scalable domestic MVA-based manufacturing capability represents an important strategic objective for strengthening future biodefense readiness.”
 
- Anna Cheung, Assistant Executive Director of the HKTDC, said: “By co-organising ‘Hong Kong Cinema @ CANNES 2026’ once again with the CSTB, FDC and CCIDA during the Cannes Film Festival, the HKTDC helps the Hong Kong industry follow up on projects discussed at the Hong Kong International Film & TV Market (FILMART) held in March, and brings Hong Kong original works to overseas markets. We also support international screen productions in entering the Asian market via Hong Kong, reinforcing the city’s role as a vital bridge connecting Asian and the global markets.”
+ About GEO-MVA
 
- Participating companies said the Hong Kong Pavilion provides a highly effective platform for meetings with international buyers. Many participants received enquiries and collaboration invitations and say that “Hong Kong Cinema @ CANNES 2026” significantly raises the profile of Hong Kong cinema internationally, making it a key gateway for market expansion.
+ GEO-MVA is a next-generation Modified Vaccinia Ankara (MVA)-based vaccine candidate in development for the prevention of mpox and smallpox infection. GeoVax is advancing GEO-MVA as a potential differentiated MVA vaccine designed to support expanded global vaccine supply and diversified manufacturing capabilities. The program has received positive Scientific Advice from the European Medicines Agency supporting a Phase 3 immunobridging pathway toward potential regulatory approval.
 
- Grace Chan, Head of Distribution at Entertaining Power Co. Limited, said, "I bring the family-drama-themed title ‘The Fruitless Tree’. It is very important for me to meet every programmer from different film festivals. This is a really good bridge for us to come here and present a movie to everyone in the market especially film festival programmers."
+ About GeoVax
 
- Vanessa Lo, Vice President of Sales and Distribution at Media Asia, said: “Media Asia joined the Hong Kong Pavilion at this year’s Cannes market to seek partners for ‘Twilight of the Warriors: The Final Chapter’, and successfully established partnerships with buyers from multiple territories including France, Germany, Singapore and Vietnam, many of whom had previously collaborated on ‘Walled In’.” Mark Shaw, Director of Shaw Organisation, and Hang Trinh, Chief Executive Officer of Skyline Media, said: “The success of the ‘Twilight of the Warriors’ franchise stems from its strong cast, distinctly Hong Kong storytelling, and continued global demand for Hong Kong action cinema.”
+ GeoVax Labs, Inc. is a clinical-stage biotechnology company focused on the development of vaccines and immunotherapies addressing high-consequence infectious diseases and solid tumor cancers. GeoVax’s priority program is GEO-MVA, a Modified Vaccinia Ankara (MVA)–based vaccine targeting mpox and smallpox. The program is advancing under an expedited regulatory pathway, with plans to initiate a pivotal Phase 3 clinical trial in the second half of 2026, to address critical global needs for expanded orthopoxvirus vaccine supply and biodefense preparedness. In oncology, GeoVax is developing Gedeptin®, a gene-directed enzyme prodrug therapy (GDEPT) designed to enhance immune checkpoint inhibitor activity. Gedeptin has completed a multicenter Phase 1/2 clinical trial in advanced head and neck cancer and is being advanced into combination strategies, including planned neoadjuvant and first-line settings. GeoVax’s broader pipeline includes the development of GEO-CM04S1, a next-generation COVID-19 vaccine candidate being evaluated in immunocompromised and other patient populations. GeoVax maintains a global intellectual property portfolio supporting its infectious disease and oncology programs and continues to evaluate strategic partnerships and funding opportunities aligned with its development priorities. For more information, visit www.geovax.com.
 
- Exploring Asian film markets and seizing global opportunities
+ Forward-Looking Statements
 
- A series of industry seminars and exchange activities were also organised during the event. At the seminar titled “Capital Flows & Co-Production Opportunities in Hong Kong, Asia and Beyond”, speakers shared insight into funding trends and co-production opportunities in Hong Kong and Asian film markets. Another seminar, “Hong Kong Power: The ground-breaking AI ecosystem building cinema, technology and research”, featured representatives from Mei Ah Entertainment and The Hong Kong Academy for Performing Arts, who discussed the development of artificial intelligence (AI) in film creation, production workflows and talent development. The session also explored how Hong Kong can foster cross-regional and cross-sector collaborations by integrating industry, academia and research, alongside the rapid advancement of AI technologies.
+ This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
 
- The newly introduced “Spotlight on Hong Kong: Pitching Session” starred five emerging Hong Kong producers and their latest film projects. Award-winning teams of the FDC’s Content Development Scheme for Streaming Platforms also participated, with three winning producers - Kingman Cho, Li Ling Long and Tsang Tsui Shan - sharing updates on their projects. These sessions facilitated in-depth exchanges between the Hong Kong delegation and producers from different countries and regions on creative visions, production experience and collaboration models, with the aim of nurturing the next generation of Hong Kong film talent and enhancing their competitiveness in the international market.
+ Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
 
- “Hong Kong Cinema @ CANNES 2026” also introduced its first-ever business matching meetings, connecting the Hong Kong delegation with overseas producer delegations led by international organisations. Participating international organisations included returning partners from Producers Connect @ FILMART 2026, such as Cinecittà from Italy, the Film Development Council of the Philippines (FDCP), ICEX Spain Trade and Investment and the Korean Film Council (KOFIC), as well as new partners including Telefilm Canada, CNC (France), Cinema do Brasil, Medienboard Berlin-Brandenburg GmbH from Germany, and Saudi Arabia’s Red Sea Fund. These meetings have deepened long-term collaboration between Hong Kong and international institutions, while promoting co-production and partnership opportunities between filmmakers worldwide and Hong Kong.
+ Company Contact:info@geovax.com678-384-7220
 
- Photo download: https://bit.ly/3Puddnp
+ Media Contact:Jessica Starmanmedia@geovax.com
 
- Media enquiries
-
- HKTDC’s Communications & Public Affairs Department:
-
- Serena Cheung Tel: (852) 2584 4272 Email: serena.hm.cheung@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hong-kong-cinema-cannes-2026-hong-kong-s-role-as-a-bridge-between-global-and-asian-film-markets-7086800)
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-highlights-strategic-importance-of-domestic-mva-based-preparedness-infrastructure-amid-escalating-global-infectious-disease-threats-7086806)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-cinema-shines-at-cannes-2026-expanding-global-co-production/a4dbec752c432c939177bdcf5b22a5e1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-highlights-need-for-domestic-vaccine-manufacturing-amid-global-outbreaks/f2fb85a835f462558d80248274324648) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hong-kong-film-industry-showcases-global-ambitions-at-cannes-2026)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/hong-kong-cinema-showcases-global-bridge-role-at-cannes-2026-driving-co-production-and-investment)
-
-Pickup - [https://burstable.news](https://burstable.news/news/hong-kong-cinema-cannes-2026-strengthens-citys-role-as-bridge-between-global-and-asian-film-markets)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hongkong-kino-cannes-2026-starkt-die-rolle-der-stadt-als-brucke-zwischen-globalen-und-asiatischen-filmmarkten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hong-kong-cinema-cannes-2026-refuerza-el-papel-de-la-ciudad-como-puente-entre-los-mercados-cinematograficos-global-y-asiatico)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-cinema-hongkongais-au-festival-de-cannes-2026-renforce-le-role-de-la-ville-comme-pont-entre-les-marches-cinematographiques-mondiaux-et-asiatiques)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/cinema-de-hong-kong-cannes-2026-reforca-o-papel-da-cidade-como-ponte-entre-os-mercados-cinematograficos-global-e-asiatico)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/hong-kong-cinema-cannes-2026-showcases-citys-role-as-bridge-between-global-and-asian-film-markets)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/18/quiptn2b.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/18/blurhax7.webp)

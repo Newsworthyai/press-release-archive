@@ -1,58 +1,57 @@
-# Paluxy Music Fest Brings Three Days of Free Live Music to Glen Rose Memorial Day Weekend
+# New Global Cannabis Report from GCNC and Whitney Economics Examines How Pricing Compression Reshapes Emerging Markets
 
-Glen Rose, Texas (Newsworthy.ai) Monday May 18, 2026 @ 10:00 AM Central — Music lovers from across North Texas are invited to experience three days of free live entertainment during the annual Paluxy Music Fest, taking place Friday, May 22 through Sunday, May 24, throughout Glen Rose.
+New York City, NY (Newsworthy.ai) Monday May 18, 2026 @ 1:30 PM Eastern — As cannabis markets expand across Europe, Latin America, and other emerging regions, a new global report from the Global Cannabis Network Collective (GCNC), produced in partnership with Whitney Economics, introduces pricing compression as one of the clearest indicators of cannabis market maturity and one of the most misunderstood risks facing operators, investors, and policymakers today.
 
- The city-wide music festival will feature performances at venues across the community, including Historic Square, Snyder's Tavern Lawn Stage, Texas Amphitheater, Sexton Feed Mill, Glen Rose Brewing Company, and H&H Supply Company. Festivalgoers can enjoy country, Americana, jazz, blues, gospel, and acoustic music while exploring Glen Rose's restaurants, attractions, lodging, shopping, and entertainment venues.
+ The report, What You Need to Know: Pricing Compression and Its Impact on International Cannabis Markets, combines quantitative analysis from Whitney Economics with qualitative insight from operators, economists, legal experts, and market leaders across North America, Europe, Latin America, and Israel.
 
- Friday and Saturday will feature a lineup of country and Americana artists. Sunday's programming will transition into a relaxed jazz and blues atmosphere throughout the city.
+ The findings show that while new cannabis markets often launch with elevated pricing and strong growth expectations, many eventually experience sustained downward pricing pressure as supply expands, regulations evolve, and markets mature.
 
- In addition to live music, festival attendees can visit vendor booths on the Historic Downtown Square on Saturday and Sunday. Booths will feature shopping, local businesses, artisan goods, community organizations, and more.
+ “Every cannabis market evolves differently, but the pricing patterns are remarkably consistent,” said Beau Whitney, Economist, Whitney Economics. “The operators and investors that perform best are typically the ones using data to anticipate where the market is heading, rather than reacting after margins are already under pressure.”
 
- "All concerts are free to attend, making this a perfect Memorial Day weekend destination for families, visitors, and live music fans," festival organizers said. "We're excited to celebrate local talent, support our local businesses, and bring the community together through music."
+ The report examines how pricing compression has developed across mature U.S. markets, Canada, and Germany, while also analyzing emerging trends across Europe and Latin America. The report examines how regulatory frameworks, supply constraints, imports, consumer behavior, and reimbursement structures directly influence pricing stability and operator profitability.
 
- Festival Schedule Highlights Friday, May 22• 6:30 p.m. - Hard Nights Day at Historic Square• 8:30 p.m. - Le Freak at Historic Square
+ Germany, widely viewed as Europe’s anchor cannabis market, is already showing early signs of accelerated pricing pressure tied to import growth and shifting regulatory structures.
 
- Saturday, May 23• 3:30 p.m. - Trinity River Ramblers at Snyder's Tavern Lawn• 6 p.m. - Caleb Sam Brown at H&H Supply Company• 7 p.m. - Jesse Jennings at Snyder's Tavern Lawn• 7 p.m. - Jamie Richards at Texas Amphitheater• 9 p.m. - Kevin Fowler at Texas Amphitheater
+ “Germany is one of the clearest examples of how regulation can directly reshape market pricing,” said Aleksandra Vujinović, Founder, Attorney at Law & Strategic Legal Architect, AV LEGAL. “As reimbursement structures and access pathways evolved, the market shifted quickly from scarcity-driven pricing to competitive pricing pressure. That transition impacted supply chains, operational planning, and long-term positioning almost immediately.”
 
- Sunday, May 24 | Jazz & Blues Day• 11 a.m. - School of Music at University of North Texas at Historic Square• 11 a.m. - Ben B & Anthony S at Historic Square• 11 a.m. - A/C Project at Historic Square• 11 a.m. - The Meadow St. Two at Historic Square• 11:30 a.m. - Gospel Hour at Sexton Feed Mill• 1 p.m. - Bud & Sharon Galloway at Glen Rose Brewing Company & 3B's• 3 p.m. - Open Mic at Sexton Feed Mill• 4:30 p.m. - Kevin Vaughn at Historic Square
+ The report argues that pricing compression is not necessarily a sign of market failure, but rather a predictable phase of market development that can be modeled, monitored, and strategically planned for.
 
- Concert Locations • Historic Square, Corner of Elm & Vernon• Snyder's Tavern Lawn Stage, 205 SW Barnard St.• Sexton Feed Mill, 100 Grace St.• Glen Rose Brewing Company, 302 Lakewood St.• H&H Supply Company, 102 A Walnut St.• Texas Amphitheater, 5000 Texas Dr.
+ “The cannabis industry is moving from isolated markets to a truly global ecosystem, but operators are still navigating vastly different regulatory and commercial realities,” said Jillian Reddish, Co-founder, GCNC. “This report is designed to provide a clearer line of sight into how markets evolve, where pricing pressure is emerging, and what operators should be watching before making expansion decisions.”
 
- All festival concerts are free to attend. Parking is free throughout the downtown Glen Rose area. Parking at the Texas Amphitheater is available for $10 during concert performances. Shuttle transportation will also be available during portions of the festival weekend to help attendees travel between venues.
+ The report also examines how increasingly competitive markets are reshaping global supply chains and influencing the next generation of export opportunities.
 
- Festival attendees are encouraged to arrive early, bring lawn chairs, explore local restaurants and shops, and enjoy the welcoming atmosphere of Glen Rose throughout the weekend. Whether visitors come for one concert or spend the entire weekend, Paluxy Music Fest offers something for everyone.
+ “Across global markets, we are seeing a clear shift as patients and consumers increasingly seek out trusted, consistent, high-quality products as they move toward more premium choices,” said Margaret Brodie, CEO, Rubicon Organics. “Operators who have built their businesses around delivering reliable quality and elevated experiences are well positioned to support the continued maturation of international markets.”
 
- Additional event information, schedules, and updates will be available through local festival announcements and community event channels.
+ Additional report topics include:
 
- Media Contact:Traci NiedzielaCity of Glen Rose254-243-0029Email Contact 
+ * The relationship between regulation and pricing stability
+* Differences between medical and adult-use pricing behavior
+* Consumer price sensitivity and legal market participation
+* Supply saturation and margin compression
+* Predictive pricing models for emerging cannabis markets
+* Strategic considerations for operators, investors, and policymakers
+
+ The report is the first in a planned global series examining cannabis market development across Europe, Latin America, Africa, and other emerging regions.
+
+ What You Need to Know: Pricing Compression and Its Impact on International Cannabis Markets is now available at this link.
+
+ For more information or to schedule an interview, please contact Shawna Seldon at 1-917-971-7852 or Email Contact.
+
+ About GCNC The Global Cannabis Network Collective (GCNC) is a membership-based organization connecting cannabis operators, investors, and service providers worldwide. GCNC facilitates strategic connections, market intelligence, and drives international deal flow across the global cannabis supply chain. For more information, visit GCNC.Global. Continue the conversation on LinkedIn.
+
+ About Whitney Economics Portland, Oregon-based Whitney Economics is a global leader in cannabis and hemp business consulting, data, and economic research, supporting hemp and cannabis operators, investors and regulators. Whitney Economics does not take a position on the legalization of cannabis, nor does it take positions on proposed legislation. Visit WhitneyEconomics.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605182449/paluxy-music-fest-brings-three-days-of-free-live-music-to-glen-rose-memorial-day-weekend)
+[Original/Source Press Release](https://newsworthy.ai/news/202605182447/new-global-cannabis-report-from-gcnc-and-whitney-economics-examines-how-pricing-compression-reshapes-emerging-markets)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/paluxy-music-fest-returns-to-glen-rose-with-free-live-music/e28580658ca3a3c8693ec9653e9fb8f0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pricing-compression-the-hidden-risk-in-global-cannabis-markets/0fe10a9ae2138147f17b645e396d9c59) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/paluxy-music-fest-returns-to-glen-rose-with-three-days-of-free-live-music-over-memorial-day-weekend)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/paluxy-music-fest-returns-to-glen-rose-for-three-days-of-free-live-music-over-memorial-day-weekend)
-
-Pickup - [https://burstable.news](https://burstable.news/news/paluxy-music-fest-returns-to-glen-rose-with-free-live-music-over-memorial-day-weekend)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/paluxy-music-fest-kehrt-nach-glen-rose-zuruck-mit-kostenloser-livemusik-am-memorial-day-wochenende)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/paluxy-music-fest-regresa-a-glen-rose-con-musica-en-vivo-gratuita-durante-el-fin-de-semana-del-dia-de-los-caidos)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-paluxy-music-fest-de-retour-a-glen-rose-avec-de-la-musique-live-gratuite-pendant-le-week-end-du-memorial-day)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/paluxy-music-fest-retorna-a-glen-rose-com-musica-ao-vivo-gratis-no-fim-de-semana-do-memorial-day)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/paluxy-music-fest-offers-three-days-of-free-concerts-in-glen-rose-over-memorial-day-weekend)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/18/riceJ7E3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/18/cakeafDs.webp)
