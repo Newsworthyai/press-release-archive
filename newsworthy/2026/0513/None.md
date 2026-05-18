@@ -1,110 +1,101 @@
-# Canadian Judges Accused of Covering Up Itaipu Pension Fund Fraud
+# TNT Highlights Creapure Creatine for Strength, Endurance, and Daily Performance
 
-Asuncion, Paraguay (Newsworthy.ai) Wednesday May 13, 2026 @ 2:00 PM Eastern — 
+Boca Raton, Florida (Newsworthy.ai) Wednesday May 13, 2026 @ 6:00 PM Eastern — 
 
- On May 11, 2026, Paraguayan lawyer Julio Benítez, legal counsel for Eduardo García, formally submitted a complaint to the Canadian Judicial Council (CJC) alleging that senior Ontario judges participated in and protected what he describes as a massive judicial fraud involving the state-owned Itaipu Binacional Pension Fund (Cajubi) and more than C$20.8 million in disputed investment losses.
+ True Nutrition Technology (TNT), the German sports nutrition brand trusted by more than 500,000 customers, is highlighting its TNT Creapure® Creatine Monohydrate Powder, now available on Amazon for U.S. consumers seeking a high-purity creatine supplement manufactured under strict German quality standards.
 
- The complaint, addressed to Robin MacKay, accuses members of the Ontario Superior Court and Court of Appeal for Ontario of enabling false judgments, suppressing banking evidence, and protecting key financial actors linked to millions of dollars allegedly diverted through Swiss and Canadian accounts.
+ Formulated using patented Creapure®, TNT’s creatine product is designed to support strength, endurance, ATP energy production, and high-intensity athletic performance as part of a consistent training routine.
 
- According to Benítez, the original Ontario trial judgment issued in 2018 was “corrupt, unenforceable, and null,” and has been used to wrongly portray García as responsible for the alleged disappearance of the funds, despite the absence of direct bank records proving he received or embezzled the money.
+ “Creatine remains one of the most researched and widely used supplements in sports nutrition,” said Markus Himmelstoss, Managing Director of True Nutrition Technology. “Our focus is delivering it in its purest and most trusted form through German manufacturing and independent testing.”
 
- “The judges continue demanding an accounting of money they themselves have helped conceal,” said Benítez. “This is not justice-it is a cover-up.”
+ Built Around Patented Creapure® TNT’s formula uses Creapure®, a creatine monohydrate ingredient manufactured exclusively in Germany and recognized globally for its purity, consistency, and production standards.
 
- The complaint specifically references repeated contempt proceedings led by Justice Osborne, alleging that the court has avoided ordering the disclosure of the very bank records necessary to establish where the funds actually went. Benítez argues that key evidence points instead to Swiss accounts controlled by Cajubi’s former investment consultant Ronald Timcke and other individuals whose financial records were never properly pursued.
+ Each serving delivers 5 grams of micronized creatine monohydrate with no fillers, additives, flavors, or unnecessary ingredients.
 
- The court rulings were also used to silence García through repeated contempt proceedings and restrictions on public statements.
+ Key product features include:
 
- The case, widely described in Paraguay as the “heist of the century,” has had significant consequences for pension fund members and Paraguayan taxpayers, including major pension restructuring and projected long-term costs of hundreds of millions of dollars.
+ * 5,000 mg creatine monohydrate per serving
+* Formulated with patented Creapure®
+* 99.99% pure creatine monohydrate
+* Micronized for easy mixing and solubility
+* No fillers, additives, or artificial ingredients
+* 100% vegan formula
+* Manufactured in Germany under IFS-certified conditions
+* Independently lab tested for purity and microbiological safety
 
- Benítez also announced that a parallel complaint will be filed before Paraguay’s new Superintendency of Pensions and Retirement, requesting access to financial documents and an independent investigation into the pension fund actuarial deficit, losses and the tens of millions of dollars in legal fees paid over the past 15 years.
+ What Customers Are Saying Amazon customer reviews consistently highlight the product’s purity, mixability, and overall quality:
 
- “We believe the truth lies in the bank records that judges and opposing counsel have worked so hard to keep hidden,” Benítez added.
+ * “Absolutely top-quality Creapure® creatine. Very fine powder, neutral taste, dissolves easily, and is extremely well tolerated.”
+* “Super fine and almost completely tasteless.”
+* “For me, the best creatine monohydrate. With daily use, the increase in performance is noticeable.”
+* “Excellent creatine. Dissolves very well and mixes easily.”
 
- The legal team is calling for transparency, judicial accountability, and full disclosure of the bank records related to the disputed funds.
+ These reviews reflect TNT’s emphasis on purity, simplicity, and consistent manufacturing standards.
 
- The complaint specifically names Justices Sean F. Dunphy and Peter J. Oborne of the Ontario Superior Court and Justice David Paciocco of the Court of Appeal for Ontario. Case File: CV-11-00009210-CL.
+ Supporting Strength, Power, and Energy Production Creatine plays a central role in ATP production, helping support short-duration, high-intensity physical performance.
 
- 
+ It is commonly used by athletes, fitness enthusiasts, and active individuals looking to support:
 
- Media Contact
+ * Strength and power output
+* Training intensity and endurance
+* Muscle performance during repeated exercise
+* Cognitive energy during demanding physical or mental activity
 
- Julio BenítezBenítez Cubilla & AsociadosCiudad del Este, ParaguayEmail: Email ContactPhone: +595 983 669556 
+ Because creatine naturally occurs primarily in meat and fish, vegan-friendly supplementation has also become increasingly popular among plant-based consumers.
+
+ German Manufacturing and Quality Standards All TNT supplements are manufactured and packaged in Germany using carefully selected raw materials and strict quality control procedures.
+
+ Each production batch undergoes independent laboratory testing to verify purity, consistency, and microbiological safety.
+
+ This commitment to transparency and manufacturing standards has helped TNT build a customer base of more than 500,000 consumers across Europe.
+
+ Available Now on Amazon TNT Creapure® Creatine Monohydrate Powder (100 Servings) is now available on Amazon.
+
+ TNT’s Synapsensause “Wild Berry” Pre-Workout Booster is also available on Amazon as part of the company’s growing U.S. product lineup.
+
+ “This is one of the foundational products in the TNT portfolio,” Himmelstoss added. “We’re excited to make it more accessible to U.S. consumers through Amazon.”
+
+ About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
+
+ TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
+
+ From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
+
+ FDA Disclaimer
+
+ These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605132434/canadian-judges-accused-of-covering-up-itaipu-pension-fund-fraud)
+[Original/Source Press Release](https://newsworthy.ai/news/202605132443/tnt-highlights-creapurer-creatine-for-strength-endurance-and-daily-performance)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/paraguayan-lawyer-files-complaint-against-ontario-judges-over-20-8m-pension-fund-fraud/972b378dc0603f3d538088806eddadfa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tnt-brings-german-made-creapure-creatine-to-u-s-via-amazon/0161d323e998b836f3680fc67015fbce) 
 
 
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/13/paraguayan-lawyer-files-complaint-accusing-ontario-judges-of-covering-up-itaipu-pension-fund-fraud/)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/0161d323e998b836f3680fc67015fbce)
 
-Pickup - [https://advos.io/en](https://advos.io/en/canadian-judges-accused-of-covering-up-itaipu-pension-fund-fraud)
+Pickup - [https://advos.io/en](https://advos.io/en/tnt-highlights-creapure-creatine-for-strength-endurance-and-daily-performance)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/paraguayan-lawyer-files-complaint-accusing-canadian-judges-of-covering-up-208m-pension-fund-fraud)
+Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/true-nutrition-technology-brings-german-made-creapurer-creatine-to-us-market-via-amazon)
 
-Pickup - [https://burstable.news](https://burstable.news/news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-covered-up-itaipu-pension-fund-fraud)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/tnt-highlights-creapure-creatine-for-strength-endurance-and-daily-performance)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/paraguayischer-anwalt-reicht-beschwerde-beim-kanadischen-richterrat-ein-und-wirft-richtern-in-ontario-vertuschung-von-itaipu-pensionskassenbetrug-vor)
+Pickup - [https://burstable.news](https://burstable.news/news/tnt-launches-creapure-creatine-on-amazon-emphasizing-german-quality-and-purity)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/abogado-paraguayo-presenta-queja-ante-el-consejo-judicial-canadiense-alegando-que-jueces-de-ontario-encubrieron-fraude-al-fondo-de-pensiones-de-itaipu)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/tnt-bringt-creapure-kreatin-auf-amazon-mit-deutschem-qualitatsversprechen)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-accusant-des-juges-ontariens-davoir-dissimule-une-fraude-liee-a-la-caisse-de-retraite-ditaipu)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tnt-lanza-creapure-creatine-en-amazon-destacando-la-calidad-y-pureza-alemana)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/advogado-paraguaio-apresenta-queixa-ao-conselho-judicial-canadense-alegando-que-juizes-de-ontario-encobriram-fraude-no-fundo-de-pensao-de-itaipu)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tnt-lance-la-creatine-creapure-sur-amazon-mettant-en-avant-la-qualite-et-la-purete-allemandes)
 
-Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-enabled-fraud-in-itaipu-pension-fund-case)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/tnt-lanca-creatina-creapure-na-amazon-destacando-qualidade-e-pureza-alemas)
 
-Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-facilitated-massive-pension-fund-fraud)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-covered-up-itaipu-pension-fund-fraud)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/paraguayan-lawyer-files-judicial-complaint-against-ontario-judges-alleging-fraud-cover-up-in-208-million-pension-fund-case)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/un-avocat-paraguayen-depose-une-plainte-judiciaire-contre-des-juges-ontariens-pour-dissimulation-presumee-de-fraude-dans-une-affaire-de-caisse-de-retraite-de-208-millions-de-dollars)
-
-Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-enabled-208m-pension-fund-fraud)
-
-Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-involved-in-itaipu-pension-fund-fraud-cover-up)
-
-Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-alleguant-que-des-juges-ontariens-sont-impliques-dans-une-dissimulation-de-fraude-liee-au-fonds-de-pension-ditaipu)
-
-Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-participated-in-208-million-pension-fund-fraud-cover-up)
-
-Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-alleguant-que-des-juges-ontariens-ont-participe-a-un-camouflage-de-fraude-de-208-millions-de-dollars-dans-un-fonds-de-pension)
-
-Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-facilitated-pension-fund-fraud)
-
-Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-alleguant-que-des-juges-ontariens-ont-facilite-une-fraude-a-un-fonds-de-pension)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/canadian-judges-accused-of-covering-up-itaipu-pension-fund-fraud-in-complaint-to-judicial-council)
-
-Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/paraguayan-lawyer-files-complaint-against-ontario-judges-alleging-judicial-fraud-in-itaipu-pension-fund-case)
-
-Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/un-avocat-paraguayen-depose-une-plainte-contre-des-juges-ontariens-pour-fraude-judiciaire-dans-laffaire-du-fonds-de-pension-ditaipu)
-
-Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-ontario-judges-participated-in-208-million-pension-fund-fraud-cover-up)
-
-Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-alleguant-que-des-juges-ontariens-ont-participe-a-une-dissimulation-de-fraude-de-208-millions-de-dollars-du-fonds-de-pension)
-
-Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-fraud-cover-up-by-ontario-judges)
-
-Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-accusant-des-juges-ontariens-de-dissimuler-une-fraude)
-
-Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/paraguayan-lawyer-files-complaint-with-canadian-judicial-council-alleging-massive-judicial-fraud-in-pension-fund-case)
-
-Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/un-avocat-paraguayen-depose-une-plainte-aupres-du-conseil-canadien-de-la-magistrature-alleguant-une-fraude-judiciaire-massive-dans-une-affaire-de-caisse-de-retraite)
-
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/7ds514pvbuM)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/972b378dc0603f3d538088806eddadfa)
-
-Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/972b378dc0603f3d538088806eddadfa)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/tnt-brings-german-made-creapure-creatine-to-us-consumers-via-amazon)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/13/lilybRiU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/13/larkWpIA.webp)
