@@ -1,46 +1,74 @@
-# CHARBONE and Vema Hydrogen Build Quebec Hydrogen Supply Chain to Meet Wellhead-to-Industrial Gas Demand and Reduce Transport Costs - New Agreement Anchors a Scalable Hydrogen Supply Chain in one of North Americas Fastest-growing Energy Hubs
+# Scandium Canada and ALPOMET Establish Collaboration Framework to Develop Scandium-Based Advanced Materials
 
-BROSSARD, QUEBEC - May 19, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a vertically integrated industrial gases company focused on production, distribution and storage of clean ultra-high purity (“UHP”) hydrogen and other strategic industrial gases, today announced a Conditional Offtake and Infrastructure Development Agreement (“Agreement”) with Vema Hydrogen (“Vema”) to develop a new hydrogen production and processing project in Quebec. The site adds a valuable new resource for the region’s merchant industrial gas customers and strengthens the broader supply chain. The Agreement pairs Vema's Engineered Mineral Hydrogen (“EMH”) production with CHARBONE's purification, compression, and distribution capabilities to serve growing demand from CHARBONE's industrial merchant hydrogen customer base up to 15 tons per day.
+MONTREAL, QUEBEC - May 19, 2026 (NEWMEDIAWIRE) - Scandium Canada Ltd. (TSX-V: SCD) (the “Company") is pleased to announce that it has signed an agreement with Alpomet Muhendislik Danismanlik Yazilim Imalat San. ve Tic. Ltd. ("ALPOMET"), a Turkish advanced materials engineering company, establishing the framework for a strategic collaboration on specialty scandium-based alloys in multiple applications, including hydrogen technologies.
 
- Leveraging Quebec’s position as a regional hydrogen hub, the partnership sets the framework for a "well-to-market" supply chain in the region. The province’s concentrated industrial demand and proximity to key transportation networks minimize long-distance fuel transport and reduce overall system costs, making it a highly efficient geography for hydrogen production and distribution. The project's design allows Vema to expand into emerging markets including low-carbon maritime and aviation fuel manufacturing, e-fuels, and power generation, where CHARBONE’s purification and distribution capabilities could integrate into multiple parts of the value chain.
+ The collaboration brings together the Company's downstream Scandium+ capabilities in aluminum-scandium (Al-Sc) alloys and ALPOMET’s expertise in advanced materials engineering. Under the agreement, the parties intend to evaluate joint research and development activities across several areas, including:
 
- “The market is demanding high-value industrial gases and our customers need cleaner, more reliable supply. By pairing Vema’s EMH feedstock with our purification and distribution capabilities, we’re strengthening Quebec’s position as a regional hub for next-generation hydrogen,” said Dave Gagnon, President and CEO of CHARBONE.
+ - Metal powder production through gas and ultrasonic atomization technologies;
 
- On the heels of completing drilling and initiating pilot operations in Quebec by Vema, the Agreement represents the latest milestone in Vema’s accelerating commercial progress. It broadens the Company’s offtake pipeline into industrial gas distribution, e-fuels, and clean mobility as Vema positions its technology for initial market deployment.
+ - Al-Sc alloys design supported by Integrated Computational Materials Engineering (ICME);
 
- “Across high-value markets - from aviation and maritime fuels to industrial gases, there is incredible demand for Vema’s low-carbon Engineered Mineral Hydrogen. Now, more than ever, we need a pathway to deliver these low-carbon fuels,” said Pierre Levin, CEO of Vema. “As a valued offtaker and partner, CHARBONE’s established logistics networks provide the infrastructure and pathway to meet the immediate market demand for industrial customers across North America.”
+ - Additive manufacturing (3D printing) and advanced production processes;
 
- About CHARBONE CORPORATION
+ - Hydrogen storage and hydrogen-related material applications;
 
- CHARBONE is a vertically integrated industrial gases company focused on developing and operating a network of regional supply hubs for the production, storage, and distribution of Ultra-High Purity (UHP) strategic industrial gases. The Company serves customers across sectors including semiconductors, artificial intelligence and data centers, advanced pharmaceuticals, and aerospace and defense technologies, where UHP gases are critical for high-precision manufacturing processes and operational performance. CHARBONE is advancing a network of clean UHP hydrogen production plants across North America and select international markets. The Company’s modular, decentralized, and demand-driven approach, combined with its integrated storage and distribution platform for all UHP gases, supports scalable growth, enhances operational flexibility, and enables more stable and diversified revenue generation. This model allows CHARBONE to efficiently serve mid-tier industrial gas customers with a reliable supply of UHP gases, including hydrogen, helium, oxygen, and other high-demand gases that are often difficult to source. The Company is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gases, while addressing supply gaps for underserved industrial customers and accelerating the shift towards localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). For more information, please visit: www.charbone.com.
+ - Material characterization and the development of comprehensive technical data sheets.
 
- About Vema Hydrogen
+ "This collaboration reflects the growing international interest in a secure scandium supply and in the advanced materials it makes possible," said Guy Bourassa, Chief Executive Officer of Scandium Canada. "Working alongside a capable engineering team with access to European end users is another step in building the network of partners that a young and promising scandium market needs."
 
- Vema Hydrogen is a producer of low-carbon hydrogen, offering a new path to a clean energy future. The company's unique technology, Engineered Mineral Hydrogen, harnesses naturally occurring chemical reactions below the Earth's surface to produce high-purity hydrogen. By applying geoscience to de-risk production and ensure predictable, cost-competitive output, Vema makes clean hydrogen a viable solution for large-scale industrial energy and baseload power needs. Morehttps://www.vema.earth/.
+ "The value of this collaboration lies in the complementarity of capabilities," said Luc Duchesne, Ph.D., Chief Science Officer of Scandium Canada and Head of Scandium+. "Combining computational alloy design, powder atomization and rigorous material characterization adds capability to validate Al-Sc alloys for demanding industrial applications."
 
- Forward-Looking Statements
+ "ALPOMET and Scandium Canada bring together complementary strengths in advanced materials, additive manufacturing and hydrogen technologies," said Yagız Akyildiz, Co-Founder and General Manager of ALPOMET. "We see this collaboration as a structured framework for shaping the engineering materials of the future, and we look forward to building it step by step with the Scandium Canada team."
 
- This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Filing Statement dated March 31, 2022, which is available on SEDAR at www.sedar.com; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+ For Al-Sc alloys to reach their potential in laser powder bed fusion (L-PBF), they must be converted into high-quality and cost-effective metal powders. ALPOMET brings demonstrated experience in ICME-based alloy design and in powder production through gas and ultrasonic atomization, including work on high-strength aluminum alloys for additive manufacturing supported by the pan-European Eureka network. These capabilities complement the alloy development work carried out by the Company's Scandium+ division. This new collaboration is intended to provide Scandium+ with an alloy formulation and production alternative for the qualification of metal powders.
 
- Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+ These workstreams target high-value applications where Al-Sc alloys offer a decisive advantage, including aerospace structural components and electric motor systems, where reduced weight combined with increased strength is a key performance driver.
 
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ The agreement establishes confidentiality terms between the parties and provides a basis to explore the collaboration described above. Based in Kocaeli, Turkiye, ALPOMET adds to Scandium Canada’s European collaboration network.
 
- Contact Charbone Corporation Telephone: +1 450 678 7171Email: ir@charbone.comBenoit Veilleux CFO and Corporate Secretary
+ ABOUT ALPOMET
+
+ ALPOMET is a Turkish advanced materials engineering and R&D company based in Kocaeli, Turkiye. Its expertise spans Integrated Computational Materials Engineering (ICME), alloy development, powder metallurgy (including gas and ultrasonic atomization), additive manufacturing and material characterization. ALPOMET has been selected in two consecutive editions of the pan-European Eureka network Lightweighting Call (2024 and 2025) for projects developing high-strength aluminum alloys for additive manufacturing, working within international consortia that include partners in Germany and Poland. The company conducts national and international R&D projects across the aviation, space, automotive, defense, energy and mining sectors, and works extensively through university and industry collaborations.
+
+ ABOUT SCANDIUM+
+
+ Scandium+, a division of Scandium Canada, is dedicated to the research, development, and commercialization of innovative scandium uses. We strive to unlock the full potential of scandium through strategic partnerships, cutting-edge technology, and a commitment to responsible stewardship, leading progress across multiple sectors.
+
+ ABOUT SCANDIUM CANADA LTD.
+
+ Scandium Canada (TSX-V: SCD) is a public company whose ultimate goal is to bring the world's leading primary source of scandium into production, enabling the development and commercialization of aluminum-scandium (Al-Sc) alloys. The Company is leveraging its Al-Sc alloys development division and the development of its Crater Lake mining project to meet the growing need for lighter, greener, longer-lasting, high-performance materials. The Company aims to become a market leader in scandium, while committing itself to building a more responsible economy through innovation and agility.
+
+ FORWARD-LOOKING STATEMENTS
+
+ The information contained herein contains "forward-looking information" within the meaning of applicable Canadian securities legislation, including statements regarding the anticipated scope and benefits of the collaboration with ALPOMET, the development of Al-Sc alloys and metal powders, and the positioning of the Scandium+ division. These statements are based on current expectations and assumptions and are subject to known and unknown risks and uncertainties that could cause actual results to differ materially from those expressed or implied. The agreement described herein does not constitute a binding commitment to any commercial transaction, joint venture or definitive agreement, and there can be no assurance that the collaboration will result in any such agreement. The Company undertakes no obligation to update forward-looking statements except as required by applicable law.
+
+ Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable by the Company as of the time of such statements, are inherently subject to significant business, economic and competitive uncertainties, and contingencies. These estimates and assumptions may prove to be incorrect. Many of these uncertainties and contingencies can directly or indirectly affect, and could cause, actual results to differ materially from those expressed or implied in any forward-looking statements and future events, could differ materially from those anticipated in such statements. A description of assumptions used to develop such forward-looking information and a description of risk factors that may cause actual results to differ materially from forward-looking information can be found in the Company’s disclosure documents on the SEDAR+ website at www.sedarplus.ca.
+
+ By their very nature, forward-looking statements involve inherent risks and uncertainties, both general and specific, and risks exist that estimates, forecasts, projections and other forward-looking statements will not be achieved or that assumptions do not reflect future experience. Forward-looking statements are provided for the purpose of providing information about management’s endeavors to develop the Crater Lake project, and, more generally, its expectations and plans relating to the future. Readers are cautioned not to place undue reliance on these forward-looking statements as a number of important risk factors and future events could cause the actual outcomes to differ materially from the beliefs, plans, objectives, expectations, anticipations, estimates, assumptions and intentions expressed in such forward-looking statements. All of the forward-looking statements made in this press release are qualified by these cautionary statements and those made in our other filings with the securities regulators of Canada. The Company disclaims any intention or obligation to update or revise any forward-looking statement or to explain any material difference between subsequent actual events and such forward-looking statements, except to the extent required by applicable law.
+
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ For additional information, please contact:
+
+ Scandium Canada Ltd.Guy BourassaChief Executive OfficerPhone: +1 (418) 580-2320Email: info@scandium-canada.com
+
+ Website: www.scandium-canada.comLinkedIn: Scandium Canada Ltd.X: @ScandiumCanadaFacebook: Scandium CanadaInstagram: @scandiumcanada
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/charbone-and-vema-hydrogen-build-quebec-hydrogen-supply-chain-to-meet-wellhead-to-industrial-gas-demand-and-reduce-transport-costs-new-agreement-anchors-a-scalable-hydrogen-supply-chain-in-one-of-north-americas-fastest-growing-energy-hubs-7086813)
+[Original/Source Press Release](https://www.newmediawire.com/news/scandium-canada-and-alpomet-establish-collaboration-framework-to-develop-scandium-based-advanced-materials-7086824)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-and-vema-partner-to-build-quebec-hydrogen-supply-chain/21ef8a3fe746456dcefec992636d67f5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scandium-canada-and-alpomet-join-forces-on-advanced-scandium-alloys/3f3d62666aad3aebab9a5423ebb851be) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3f3d62666aad3aebab9a5423ebb851be)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/19/lilyUpa8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/19/pinkZVUG.webp)

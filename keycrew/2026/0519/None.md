@@ -1,39 +1,43 @@
-# Southlake, Texas Real Estate Leader Justin Nimergood Wins Double Honors at Epique Realty’s Inaugural Awards Gala
+# AgentBrief Launches Buyer Trend Analysis, Doubling Down on Intelligence Over Automation in Title Sales
 
-SOUTHLAKE, TX, May 2026 – Justin Nimergood, founder of Top Gun Team at Epique Realty and principal of Nimergood Real Estate, has been named both Team Leader of the Year and Area Leader of the Year at Epique Realty’s first annual awards gala, becoming the only honoree to receive dual recognition at the event.
+New report launches a category of agent-ready assets built on a relevance-first philosophy, as the rest of the industry races toward fully automated outreach.
 
- Nimergood also served as emcee and co-host of the gala alongside Epique’s two state leaders, marking a notable milestone for a team that has been in formal operation for less than a year.
+ LAS VEGAS, NV, May 18, 2026 – AgentBrief, the intelligence platform for title and settlement professionals, today announced the launch of its Buyer Trend Analysis (BTA), a neighborhood-level intelligence report designed to help title representatives position themselves as informed, strategic resources to real estate agents. The BTA is the first in what AgentBrief describes as a new category of agent-ready assets: tools that enable title reps to demonstrate value and market knowledge, sharpen conversations, and differentiate themselves through relevance and expertise rather than generic outreach and drip campaigns.
 
- Team Leader of the Year The Team Leader of the Year award was presented by Laqutia Martin and recognizes an outstanding team leader who has built, guided, and inspired their team through vision, accountability, and sustained support. The award citation reads: “True leadership is measured by the success of those you lead. By creating a culture of growth, collaboration, and excellence, this leader has empowered their team members to succeed both professionally and personally.”
+ The launch arrives at a moment when a new wave of fully automated outreach tools is entering the market, promising to monitor listing signals and fire off email sequences with no human in the loop. Since inception, AgentBrief has taken the opposite approach from automation-first tools promising growth without effort.
 
- Top Gun Team launched in 2026 with a deliberately selective approach to agent recruitment, targeting a first-year cohort of 12 to 20 high-caliber agents across the Dallas-Fort Worth metroplex and California. Despite the team’s small current size, Nimergood says the internal momentum has been building steadily.
+ “Real estate is a relationship business, and you cannot automate your way into a relationship,” said Mike Simon, founder and CEO of AgentBrief. “Timing matters. Signals matter. We have built a lot of both. But what actually closes the gap between a title rep and a real estate agent is relevance. It is knowing what to say, who to say it to, and what to bring to the table that makes the agent’s life better. Our entire product is built around that belief.”
 
- “Even though we are a small team right now, we are getting notoriety inside of Epique,” Nimergood said. “People are noticing. People are taking note of what we are doing. And even though it has not even been a full year, we have built enough credibility, momentum, and goodwill across the company that they recognized it.”
+ Simon was direct about the industry trend AgentBrief is rejecting. “If your strategy is to have technology monitor aggregated data sources for new listings, then kick out a templated email, and call it engagement, you are not building anything. You are spamming agents with repetitive sales pitches. Agents already get plenty of that, and they ignore it. We help customers avoid the same sequences that are sent to countless agents in their sphere. Our customers are not in this to run sequences. They are in this to be the title rep that an agent actually wants to work with.”
 
- The award, he added, came as a genuine surprise. “I thought I would have to run the team for at least a full year before they would consider me. They said: whatever you have done, it is different, and we want to reward you for it.”
+ What the BTA delivers Each BTA report gives a title rep a strategic view of the likely buyers in a specific neighborhood, including generational demographics, average household income, homeownership rates, and tailored marketing guidance covering platform recommendations, messaging themes, and positioning strategies. It also includes strategic observations on marketing approaches, communication themes, and positioning considerations relevant to that audience.
 
- Area Leader of the Year The Area Leader of the Year award recognizes a leader who builds trust, protects culture, and serves Epique agents with excellence. The award citation reads: “Their presence creates confidence, their leadership inspires growth, and their commitment has a lasting impact.”
+ Rather than serving as a promotional piece, the BTA is intended to inform more substantive conversations. It allows title representatives to engage with agents from a position of knowledge about local market dynamics and buyer behavior.
 
- In his Area Leader role, Nimergood oversees the largest area team in the state of Texas, comprising approximately 40 solo agents who joined Epique independently rather than through a team structure. His primary function in that role is mentorship, ensuring that solo agents have guidance and support without feeling isolated within the brokerage.
+ “The goal is not to ‘give’ something to an agent,” Simon said. “It is to demonstrate a level of professional insight that can serve as actionable intelligence for the agent. When a title rep can speak clearly about market data and strategy, that changes the nature of the conversation. The market does not need another automation tool. It needs more relevance in every conversation a title rep has.”
 
- “The area leader position is about making sure agents do not feel like they are left on an island alone,” Nimergood said. “It is mostly mentorship, but it is meaningful mentorship.”
+ Customer perspective Andy Granberg, Director of Sales & Business Development at The Title Team, described the BTA as a turning point in how his team approaches new agent relationships.
 
- About the Recognition The dual awards reflect recognition earned across two distinct leadership responsibilities: the direct team-building work of Top Gun Team, and the broader stewardship of a large group of independent agents across Texas. Receiving both in the same year, and at Epique’s first-ever formal awards event, underscores the pace at which Nimergood has established his leadership profile within the organization.
+ “My mission has always been to be of value to my agents, not just another vendor,” Granberg said. “The BTA helps frame conversations around market insight rather than sales. It allows us to engage agents in an informed and meaningful way. The BTA is the difference. When I walk into a meeting with one of these reports, I am not asking for the agent’s business. I am bringing a tool that will help them succeed. That is the kind of foot in the door that actually leads somewhere.”
 
- Top Gun Team is currently active across the Dallas-Fort Worth metroplex, with expansion to California and Florida planned for later in 2026 and beyond.
+ Built on three pillars AgentBrief’s product is organized around three pillars: Alerts, Assets, and Awareness. Alerts surface the right moments to reach out. Assets, beginning with the BTA, give title reps something of value to share. Awareness, which includes the company’s brokerage-level data and proprietary Vendor Diversity Index (VDI), helps reps understand which agents and organizations represent the highest-probability opportunities.
 
- Justin Nimergood is the founder of Top Gun Team at Epique Realty and principal of Nimergood Real Estate, specializing in residential real estate across the Dallas-Fort Worth metroplex and California. Learn more at thetopgunteam.com.
+ Additional agent-ready assets are planned for release through the remainder of 2026.
 
- Media Contact:Heather HookKeyCrew Mediaheather@keycrew.co
+ “Every feature we ship has to answer the same question,” Simon said. “Does this make a title rep more relevant to the agents they want to work with? If the answer is no, we do not build it.”
 
- This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions. 
+ About AgentBrief AgentBrief is the intelligence platform for title and settlement professionals. Built on the belief that mindset, data, and technology together are the formula for accelerated revenue growth, AgentBrief equips title reps with timely signals, agent-ready assets, and proprietary insights that turn market activity into lasting relationships. Learn more at agentbrief.com.
+
+ Disclaimer: Individuals or companies mentioned may have a commercial relationship with KeyCrew. This article is based on information provided by the company cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+
+ Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/southlake-texas-real-estate-leader-justin-nimergood-wins-double-honors-at-epique-realtys-inaugural-awards-gala/)
+[Original/Source Press Release](https://keycrew.co/journal/agentbrief-launches-buyer-trend-analysis-doubling-down-on-intelligence-over-automation-in-title-sales/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/justin-nimergood-wins-dual-honors-at-epique-realty-awards-gala/b81278be94c049347fda86dce36f6b89) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agentbrief-launches-buyer-trend-analysis-to-boost-relevance-over-automation/cd10469f8371e77adcbc60ddbec74e5a) 
 
  
 
@@ -41,4 +45,4 @@ SOUTHLAKE, TX, May 2026 – Justin Nimergood, founder of Top Gun Team at Epique 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/19/chefrVtl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/19/sagelQLz.webp)
