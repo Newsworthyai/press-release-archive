@@ -1,44 +1,44 @@
-# Abanca USA Drives The Debate on The Future of The Real Estate Market in South Florida
+# 9 Steps for a Lifetime of Heart-Healthy Eating
 
-MIAMI, FL — May 19, 2026 — (NOTICIAS NEWSWIRE) — ABANCA USA will serve as the presenting sponsor of the 2026 Real Estate Forum, an event organized by the Spain-US Chamber of Commerce in the USA. The forum will bring together real estate industry leaders, investors, developers, financial institutions, and market analysts to examine the trends and challenges currently redefining the region’s real estate landscape.
+NEW YORK, NY — May 19, 2026 — (NOTICIAS NEWSWIRE) — More than half of adults and about 60% of children in the United States have unhealthy diets, which can contribute to higher rates of health factors such as high blood pressure and obesity, and lead directly to poor health outcomes including death from chronic conditions such as cardiovascular disease.
 
- The event, scheduled to take place next Wednesday, May 20, at the Pérez Art Museum Miami (PAMM), stands as one of the most significant platforms for discussion within the real estate and financial sectors in South Florida.
+ These findings come from the American Heart Association, a global force changing the future of health for all, which published its “2026 Dietary Guidance to Improve Cardiovascular Health” in its peer-reviewed, flagship journal “Circulation” recommending Americans follow a lifelong healthy eating pattern that may reduce cardiovascular disease risk and improve quality of life based on the latest in evidence-based science.
 
- The day will begin at 8:00 a.m. with registration and breakfast, followed by a series of panels focused on key topics such as multifamily housing, residential development, the transformation of office and retail spaces, urban planning, infrastructure, and new investment dynamics driven by both international and domestic capital.
+ The statement outlines nine key features of a heart-healthy dietary pattern:
 
- One of the forum’s primary focal points will be an analysis of Miami’s growth as a financial hub and a strategic destination for global real estate investment. Panelists will address the impact of corporate relocations, the boom in mixed-use developments, the growing demand for premium office spaces, and the role of technology in urban planning and smart city development.
+ 1. Adjust energy intake and expenditure to achieve and maintain a healthy body weight: Try to balance how much you eat with how active you are to reach and maintain a healthy body weight.
+2. Eat a variety of vegetables and fruits: Include different colors, textures and types of produce. Remember, even canned and frozen can be nutritious and affordable.
+3. Choose foods made mostly with whole grains: Foods such as whole‑wheat bread, brown rice and oatmeal are typically better choices than refined grains including white bread or rice.
+4. Choose healthy sources of protein: Shift from meat to plant-based sources such as legumes, including beans, peas and lentils, along with nuts and seeds; regularly consume fish and seafood; select low-fat or fat-free dairy products; and, if red meat is desired, choose lean cuts, avoid processed forms and limit portion size.
+5. Choose sources of unsaturated fats: Replace saturated fats with healthy unsaturated fats, including those from nuts, seeds, avocados and nontropical plant oils.
+6. Choose minimally processed foods: Go with foods close to their natural state, with minimal added commercial ingredients, rather than those that are highly processed with additives.
+7. Minimize intake of added sugars: Limit the sugar-sweetened beverages you drink and the foods with added sugar you eat.
+8. Choose foods low in sodium and prepare foods with minimal or no salt: Be aware of hidden sources of sodium in prepared and packaged foods, and season food with healthier options such as herbs, spices or lemon instead of salt.
+9. If alcohol is not consumed, do not start; if alcohol is consumed, limit intake: Alcohol can increase your risk for high blood pressure and other health conditions, so if you don’t drink, don’t start.
 
- Additionally, the forum will explore the evolution of the residential and multifamily markets, including the need for an increased supply of affordable housing—a segment that continues to gain prominence due to population growth and sustained demand in a market that has distinguished itself as one of the most dynamic in the country. Financing solutions will constitute another central topic of discussion, examining the role played by banks, brokers, and private and public equity funds in the sector’s expansion. In addition to the panels, the event will offer multiple spaces for networking and strategic conversations among executives, business leaders, and key industry stakeholders, fostering investment opportunities and serving as a platform for the exchange of ideas regarding the future of urban development and emerging opportunities within the global real estate market.
+ “For healthy eating to be more attainable and sustainable, we recommend people focus on their overall eating pattern rather than specific nutrients or foods,” said Alice H. Lichtenstein, D.Sc., FAHA, volunteer chair of the scientific statement writing committee and senior scientist and leader of the Diet and Chronic Disease Prevention Directive at the Jean Mayer USDA Human Nutrition Research Center on Aging at Tufts University. “Every time you choose to make a swap for a healthier alternative, you’re making a step toward a healthier life.”
 
- Those interested in attending and viewing the event’s full agenda may register via the following link: Real Estate Forum 2026 Registration
+ While the updated guidance is specifically designed to improve cardiovascular health, it’s generally consistent with dietary recommendations for other conditions like Type 2 diabetes, kidney disease, some cancers and brain health as well due to shared risk factors, including high blood pressure, high cholesterol, high blood sugar, excess weight and reduced kidney function.
 
- About ABANCA USA ABANCA USA is an International Branch based in Miami and regulated by the Federal Reserve and the OFR. It is part of the ABANCA Corporación Bancaria Group, a financial institution headquartered in Spain with a presence in 11 countries across Europe and the Americas, and a workforce of over 8,000 employees. ABANCA USA’s flexible offering is tailored to client needs through a well-structured product portfolio focused on global and sustainable services, designed to support clients in all domestic and cross-border operations. Its distinctive value proposition combines personalized attention with remote operations delivered through digital channels, reflecting its commitment to international clients. For more information, please visit: www.abancausa.com.
+ “A healthy dietary pattern can support lifelong health and well-being beyond cardiovascular health,” Lichtenstein said.
 
- Instagram: @NegociosMagazine
+ To learn more about eating for heart and brain health, visit heart.org/healthydiet and talk to your health care provider about what will work best for you.
 
- Facebook: https://www.facebook.com/negociosus/
+ Photo courtesy of Shutterstock Feature Impact Source: American Heart Association
 
- X: @NegociosUS
-
- LinkedIn: Eduardo Hapke
-
- CONTACT: Eduardo Hapke ed@negociosus.com 786-607-9355 
+ CONTACT: Sarah Fowler 913-647-0938 sfowler@familyfeatures.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/abanca-drives-the-debate-on-the-future/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/9-steps-for-a-healthy-eating/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/abanca-usa-sponsors-2026-real-estate-forum-in-miami/835d741b770e080fdb4dca9c9e8a9cd4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aha-unveils-2026-dietary-guidance-to-combat-unhealthy-eating/975c9d827d93c2edfc6d45ad1b63370a) 
 
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/835d741b770e080fdb4dca9c9e8a9cd4)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/835d741b770e080fdb4dca9c9e8a9cd4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/265/19/ableHWyl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/265/19/pitapico65jk.webp)

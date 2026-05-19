@@ -1,50 +1,42 @@
-# InvestorNewsBreaks – NanoViricides (NYSE American: NNVC) Closes $2 Million Registered Direct Offering
+# Datavault AI Inc. (NASDAQ: DVLT) Announces Exclusive Healthcare License Targeting PBM-Driven Drug Pricing Inefficiencies
 
-NanoViricides, Inc. (NYSE American: NNVC) announced the closing of its previously announced registered direct offering with a single institutional investor, consisting of 1,333,334 shares of common stock, or pre-funded warrants in lieu thereof, along with accompanying warrants to purchase 1,333,334 additional common shares. The offering was priced at $1.50 per share and accompanying warrant, generating aggregate gross proceeds of approximately $2 million before fees and expenses. D. Boral Capital LLC acted as exclusive placement agent for the offering.
+* Agreement outlines an exclusive patent license granted to Wellgistics Health, giving the company sole access within its market segment to Datavault AI’s proprietary technologies.
+* At the center of the initiative is PharmacyChain(TM), a platform designed to track and manage prescription fulfillment from manufacturer to patient while automating processes that are traditionally routed through PBMs.
+* By granting exclusive, Datavault AI creates a stronger commercial incentive for adoption while also reinforcing the value of its intellectual property portfolio.
 
- To view the full press release, visit https://ibn.fm/5O81R
+ Prescription drug prices in the United States are among the highest in the world, driven in part by complex rebate structures controlled by pharmacy benefit managers (“PBMs”). Datavault AI (NASDAQ: DVLT), a technology company focused on AI-driven data monetization and digital asset infrastructure, is entering this landscape through an exclusive licensing agreement with Wellgistics Health Inc. The agreement positions the company’s technology at the center of a platform designed to streamline prescription distribution and reduce reliance on traditional intermediaries.
 
- About NanoViricides
+ According to the company, the agreement outlines an exclusive patent license granted to Wellgistics Health, giving the company sole access within its market segment to Datavault AI’s proprietary technologies. This exclusivity is a defining feature of the agreement, as it prevents direct…
 
- NanoViricides, Inc. (the “Company”) (www.nanoviricides.com) is a clinical stage company that is creating special purpose nanomaterials for antiviral therapy. The Company’s novel nanoviricide(TM) class of drug candidates and the nanoviricide(TM) technology are based on intellectual property, technology and proprietary know-how of TheraCour Pharma, Inc. The Company has a Memorandum of Understanding with TheraCour for the development of drugs based on these technologies for all antiviral infections. The MoU does not include cancer and similar diseases that may have viral origin but require different kinds of treatments.
+ Read More>>
 
- The Company has obtained broad, exclusive, sub-licensable, field licenses to drugs developed in several licensed fields from TheraCour Pharma, Inc. The Company’s business model is based on licensing technology from TheraCour Pharma Inc. for specific application verticals of specific viruses, as established at its foundation in 2005.
+ NOTE TO INVESTORS: The latest news and updates relating to DVLT are available in the company’s newsroom at https://ibn.fm/DVLT
 
- Our lead drug candidate is NV-387, a broad-spectrum antiviral drug that we plan to develop as a treatment of RSV, COVID, Long COVID, Influenza, and other respiratory viral infections, as well as MPOX/Smallpox infections, and even Measles. Our other advanced drug candidate is NV-HHV-1 for the treatment of Shingles. The Company cannot project an exact date for filing an IND for any of its drugs because of dependence on a number of external collaborators and consultants. The Company is currently focused on advancing NV-387 into Phase II human clinical trials.
+ About DefenseWireNews
 
- NV-CoV-2 (API NV-387) is our nanoviricide drug candidate for COVID-19 that does not encapsulate remdesivir. NV-CoV-2-R is our other drug candidate for COVID-19 that is made up of NV-387 with remdesivir encapsulated within its polymeric micelles. The Company believes that since remdesivir is already US FDA approved, our drug candidate encapsulating remdesivir is likely to be an approvable drug, if safety is comparable. Remdesivir is developed by Gilead. The Company has developed both of its own drug candidates NV-CoV-2 and NV-CoV-2-R independently.
+ DefenseWireNews (“DWN”) is a specialized communications platform with a focus on defense contractors, aerospace firms, cybersecurity leaders, advanced manufacturing innovators, and other mission-critical companies operating at the intersection of public markets and government demand. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, DWN is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, DWN brings its clients unparalleled recognition and brand awareness. DWN is where breaking news, insightful content and actionable information converge.
 
- The Company is also developing drugs against a number of viral diseases including oral and genital Herpes, viral diseases of the eye including EKC and herpes keratitis, H1N1 swine flu, H5N1 bird flu, seasonal Influenza, HIV, Hepatitis C, Rabies, Dengue fever, and Ebola virus, among others. NanoViricides’ platform technology and programs are based on the TheraCour® nanomedicine technology of TheraCour, which TheraCour licenses from AllExcel. NanoViricides holds a worldwide exclusive perpetual license to this technology for several drugs with specific targeting mechanisms in perpetuity for the treatment of the following human viral diseases: Human Immunodeficiency Virus (HIV/AIDS), Hepatitis B Virus (HBV), Hepatitis C Virus (HCV), Rabies, Herpes Simplex Virus (HSV-1 and HSV-2), Varicella-Zoster Virus (VZV), Influenza and Asian Bird Flu Virus, Dengue viruses, Japanese Encephalitis virus, West Nile Virus, Ebola/Marburg viruses, and certain Coronaviruses. The Company intends to obtain a license for RSV, Poxviruses, and/or Enteroviruses if the initial research is successful. As is customary, the Company must state the risk factor that the path to typical drug development of any pharmaceutical product is extremely lengthy and requires substantial capital. As with any drug development efforts by any company, there can be no assurance at this time that any of the Company’s pharmaceutical candidates would show sufficient effectiveness and safety for human clinical development. Further, there can be no assurance at this time that successful results against coronavirus in our lab will lead to successful clinical trials or a successful pharmaceutical product.
+ To receive SMS alerts from DefenseWireNews, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- NOTE TO INVESTORS: The latest news and updates relating to NNVC are available in the company’s newsroom at https://ibn.fm/NNVC
+ For more information, please visit https://www.DefenseWireNews.com
 
- About InvestorWire
+ Please see full terms of use and disclaimers on the DefenseWireNews website applicable to all content provided by DWN, wherever published or re-published: https://www.DefenseWireNews.com/Disclaimer
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ DefenseWireNewsAustin, TXwww.DefenseWireNews.com512.354.7000 OfficeEditor@DefenseWireNews.com
 
- For more information, please visit https://www.InvestorWire.com
-
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ DefenseWireNews is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nanoviricides-nyse-american-nnvc-closes-2-million-registered-direct-offering/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/dwn/datavault-ai-inc-nasdaq-dvlt-announces-exclusive-healthcare-license-targeting-pbm-driven-drug-pricing-inefficiencies/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nanoviricides-raises-2m-to-advance-broad-spectrum-antiviral-nv-387/7963b21a7398e48bc4fd4e0609ea9734) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-licenses-tech-to-wellgistics-taking-on-pbms/ae71a574cfae7396bfa9380e4fb75198) 
 
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/7963b21a7398e48bc4fd4e0609ea9734)
-
-Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/7963b21a7398e48bc4fd4e0609ea9734)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/19/gulf0cj5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/19/bosszBZc.webp)
