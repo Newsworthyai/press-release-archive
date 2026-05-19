@@ -1,52 +1,60 @@
-# GeoVax Highlights Strategic Importance of Domestic MVA-Based Preparedness Infrastructure Amid Escalating Global Infectious Disease Threats
+# Viromed Medical AG Signs Exclusive Distribution Partnership With NEBU-TEC for PulmoPlas With a Focus on Veterinary Applications
 
-WHO Emergency Declaration of Ebola Outbreak and Ongoing Mpox Developments Reinforce the Importance of Diversified Vaccine Supply and Scalable U.S.-Based Manufacturing Capabilities
+RELLINGEN, GERMANY - May 18, 2026 (NEWMEDIAWIRE) - Viromed Medical AG ("Viromed"; ISIN: DE000A40ZVN7), a medical technology company and pioneer in cold plasma technology, has entered into a global distribution partnership with NEBU-TEC International med. Produkte Eike Kern GmbH ("NEBU-TEC"). The collaboration combines PulmoPlas® with NEBU-TEC's nebulization technology. The partnership comprises worldwide exclusive distribution rights for veterinary applications and strengthens the international commercialization basis for the innovative product solutions based on Viromed's cold plasma technology.
 
- ATLANTA, GA - May 18, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing vaccines and immunotherapies for infectious diseases and cancer, today highlighted the growing strategic importance of scalable domestic vaccine manufacturing infrastructure and diversified vaccine supply capabilities amid a series of escalating global infectious disease developments.
+ As an innovative and globally active medical technology company, NEBU-TEC develops, manufactures and distributes state-of-the-art inhalation devices for human and veterinary medicine. With 30 years of experience in aerosol medicine, the company combines in-depth engineering expertise, its own device lines and a comprehensive portfolio of intellectual property to meet global healthcare needs across various fields.
 
- Recent public health events, including the World Health Organization’s declaration of a Public Health Emergency of International Concern (“PHEIC”) related to the ongoing Ebola outbreak involving the Bundibugyo strain, continued international spread of Clade I mpox, and recent hantavirus-related public health concerns, underscore the increasingly dynamic nature of global biodefense and pandemic preparedness requirements.
+ Under the partnership, Viromed's cold plasma technology will be combined with NEBU-TEC's inhalation and nebulization solutions. The aim is to open up new therapeutic applications for respiratory diseases. An initial focus of the cooperation is the veterinary use of PulmoPlas® for pulmonary diseases in horses. With this, Viromed is addressing a market with significant potential in the field of veterinary medicine. Particularly in the European equine market and in equestrian sports, there is a high demand for effective and practicable solutions for respiratory diseases. These conditions are widespread and affect a substantial proportion of the equine population. The market launch of PulmoPlas® vet is scheduled for later in 2026. No approval is required in this area.
 
- “These developments reinforce the importance of scalable and flexible vaccine preparedness infrastructure,” said David A. Dodd, Chairman and Chief Executive Officer of GeoVax. “GeoVax’s primary strategic focus remains the advancement of GEO-MVA, our Modified Vaccinia Ankara (MVA) mpox and smallpox vaccine candidate, which we believe is well aligned with growing global emphasis on diversified vaccine supply, domestic manufacturing capability, and long-term biodefense preparedness.”
+ The devices used by NEBU-TEC are Class IIa medical devices in accordance with the EU Medical Device Regulation (MDR). This makes the future use of the devices in humans in combination with PulmoPlas® med possible.
 
- GeoVax is advancing GEO-MVA to support global orthopoxvirus preparedness efforts and help address the need for expanded and diversified vaccine supply infrastructure. The Company recently announced positive Scientific Advice from the European Medicines Agency supporting a Phase 3 immunobridging pathway toward potential regulatory approval. This pivotal, Ph 3 trial is scheduled to initiate in Q4 ’26, with data results anticipated by mid-2027.
+ Uwe Perbandt, CEO of Viromed Medical AG, states: "The partnership with NEBU-TEC represents an important step in the international commercialization of our PulmoPlas® platform. Combining our cold plasma technology with NEBU-TEC's nebulization expertise opens up new fields of application in veterinary medicine and, going forward, also for applications in human medicine. We see attractive market potential here for this innovative approach."
 
- GeoVax believes recent infectious disease developments further reinforce the strategic importance of:• diversified vaccine supply infrastructure;• scalable domestic manufacturing capabilities;• rapid-response vaccine platform technologies;• and long-term investment in biodefense preparedness.
+ Eike Kern, Managing Director of NEBU-TEC, emphasizes: "The combination of inhalative application and cold plasma opens up new therapeutic possibilities. By bringing together complementary technologies, we are creating innovative and safe concepts for the treatment of both animals and humans – effective, safe and forward-looking."
 
- The Company also noted that the broader applicability of the MVA platform has been demonstrated across multiple infectious disease settings, including prior preclinical Ebola/hemorrhagic fever virus vaccine studies in which GeoVax’s MVA-based Ebola-Zaire vaccine candidate demonstrated complete protection in non-human primate lethal-challenge studies following Ebola virus exposure.
+ With this agreement, Viromed is further expanding its strategic partnerships in the field of cold plasma technology. At the same time, the company is laying the groundwork to position PulmoPlas® in additional international markets and further fields of application.
 
- “Recent events continue to demonstrate that preparedness infrastructure cannot remain reactive or narrowly focused on individual outbreak cycles,” continued Mr. Dodd. “We believe the advancement of scalable domestic MVA-based manufacturing capability represents an important strategic objective for strengthening future biodefense readiness.”
+ About Viromed Medical AG
 
- About GEO-MVA
+ Viromed Medical AG specializes in the development, manufacture and distribution of medical products. The operating business of the company, which has been listed on the stock exchange since October 2022, focuses on the distribution of innovative cold plasma technology for medical applications via its wholly owned subsidiary Viromed Medical GmbH. Viromed can draw on a broad customer base in the DACH region and beyond. Viromed is pursuing the goal of further advancing the use of cold plasma technology in medicine in the coming years and realizing the corresponding growth potential.
 
- GEO-MVA is a next-generation Modified Vaccinia Ankara (MVA)-based vaccine candidate in development for the prevention of mpox and smallpox infection. GeoVax is advancing GEO-MVA as a potential differentiated MVA vaccine designed to support expanded global vaccine supply and diversified manufacturing capabilities. The program has received positive Scientific Advice from the European Medicines Agency supporting a Phase 3 immunobridging pathway toward potential regulatory approval.
+ www.viromed-medical-ag.de
 
- About GeoVax
+ About NEBU-TEC
 
- GeoVax Labs, Inc. is a clinical-stage biotechnology company focused on the development of vaccines and immunotherapies addressing high-consequence infectious diseases and solid tumor cancers. GeoVax’s priority program is GEO-MVA, a Modified Vaccinia Ankara (MVA)–based vaccine targeting mpox and smallpox. The program is advancing under an expedited regulatory pathway, with plans to initiate a pivotal Phase 3 clinical trial in the second half of 2026, to address critical global needs for expanded orthopoxvirus vaccine supply and biodefense preparedness. In oncology, GeoVax is developing Gedeptin®, a gene-directed enzyme prodrug therapy (GDEPT) designed to enhance immune checkpoint inhibitor activity. Gedeptin has completed a multicenter Phase 1/2 clinical trial in advanced head and neck cancer and is being advanced into combination strategies, including planned neoadjuvant and first-line settings. GeoVax’s broader pipeline includes the development of GEO-CM04S1, a next-generation COVID-19 vaccine candidate being evaluated in immunocompromised and other patient populations. GeoVax maintains a global intellectual property portfolio supporting its infectious disease and oncology programs and continues to evaluate strategic partnerships and funding opportunities aligned with its development priorities. For more information, visit www.geovax.com.
+ NEBU-TEC International med. Produkte Eike Kern GmbH is a medical technology company headquartered in Elsenfeld and specializes in the development, production and distribution of state-of-the-art inhalation devices for human and veterinary medicine. The company has many years of experience in aerosol medicine and offers nebulization solutions for use in professional healthcare facilities as well as for home use.
 
- Forward-Looking Statements
+ www.nebu-tec.de
 
- This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
+ Contact ViromedE-Mail: kontakt@viromed-medical.de
 
- Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
+ Press contactE-Mail: viromed@kirchhoff.de
 
- Company Contact:info@geovax.com678-384-7220
+ 
 
- Media Contact:Jessica Starmanmedia@geovax.com
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-highlights-strategic-importance-of-domestic-mva-based-preparedness-infrastructure-amid-escalating-global-infectious-disease-threats-7086806)
+[Original/Source Press Release](https://www.newmediawire.com/news/viromed-medical-ag-signs-exclusive-distribution-partnership-with-nebu-tec-for-pulmoplas-with-a-focus-on-veterinary-applications-7086810)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-highlights-need-for-domestic-vaccine-manufacturing-amid-global-outbreaks/f2fb85a835f462558d80248274324648) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/viromed-medical-and-nebu-tec-partner-to-revolutionize-equine-respiratory-care-with-cold-plasma/b02f42af59901f4519a199c57608540e) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/b02f42af59901f4519a199c57608540e)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/b02f42af59901f4519a199c57608540e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/18/blurhax7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/18/beannw9l.webp)
