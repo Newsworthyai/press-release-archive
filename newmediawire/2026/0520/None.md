@@ -1,62 +1,36 @@
-# Yourgi Partners With Pet Care Insurance to Offer Built-in Coverage for Providers
+# Beeline Holdings (BLNE) Targets Scaled Growth as Q1 Revenue More Than Doubles
 
-PLEASANT GROVE, UTAH - May 20, 2026 (NEWMEDIAWIRE) - Yourgi has partnered with Pet Care Insurance (PCI) to offer liability and pet injury coverage to every walker, sitter, and boarder who joins its platform.
+LOS ANGELES, CA - May 20, 2026 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE), with its fast-growing digital mortgage platform offering a quicker and easier path to homeownership, reported first-quarter 2026 results that showed accelerating revenue growth alongside a broader strategic push into fee-based housing finance products and AI-enabled automation. The company said quarterly revenue reached $2.7 million, more than doubling from the prior-year period. Loan originations climbed to $85.6 million across 288 loans, compared with $39.8 million across 128 loans a year earlier.
 
- The partnership supports Yourgi’s nationwide rollout. Pet owners hire local providers for dog walking, in-home visits, and boarding through the app. Coverage is offered to all live Yourgi Pros so providers can accept work without worrying about gaps in protection.
+ * Beeline reported Q1 2026 revenue of $2.7 million, up over 100% year-over-year for its growing digital mortgage platform.
+* Loan originations increased to $85.6 million across 288 loans, compared with $39.8 million a year earlier.
+* Management continues to target a $100 million revenue run rate exiting 2027, while emphasizing cost controls and operating leverage.
+* The company is expanding its capital-light BeelineEquity platform, which generates fee revenue without balance sheet exposure.
+* AI tools, including Beeline’s “Bob” chatbot and automation platform, are being used to improve prospective borrower conversion rates and reduce processing times.
 
- “Pet care brings real responsibility, and many independent providers work without any safety net,” said Robert Lisiecki, director of marketing operations & strategy at PCI. “We built our program to give people coverage that matches the risks they face during daily work. Yourgi shares that mindset. Their team wants providers to have the tools and protection they need from the moment they take their first booking.”
+ Beeline’s diversified platform includes both conventional and certain Non-QM Mortgages, such as DSCR & Bank Statements loans, along with its new Equity Product (“BeelineEquity”) and Title Services. The company stated that it will shift its marketing efforts to drive the higher margin Non-Qm…
 
- PCI covers more than 16,000 pet professionals across the country. Policies include general liability, pet protection coverage, veterinarian reimbursement and optional equipment coverage. Claims range from broken bones during a run to allergic reactions, grooming accidents and swallowed objects. Yourgi users will receive the same coverage profile that full-time pet professionals rely on.
+ Read More
 
- Yourgi selected PCI to give its community a stronger coverage model than what many online platforms currently offer. Other services focus on the pet alone, leaving providers with fewer options when property damage or other incidents occur. Yourgi partnered with PCI to create a single policy that covered both the provider and the animals in their care for added protection.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- “This partnership supports our goal to raise the standard for local pet care,” said Scott Bramble, President of Yourgi. “People trust our platform with their homes and their pets. Providers deserve the same level of trust from us. Working with PCI makes that possible. They understand the pace, demands and unpredictability of hands-on pet work.”
+ Forward Looking Statements
 
- Both companies will roll out coverage across new and existing markets this month. Providers will see clear policy terms during onboarding and can contact PCI directly for support, claims help or questions about specific situations they may face on the job.
-
- To learn more about protecting your pet care business with PCI, visit https://www.petcareins.com/
-
- About Pet Care Insurance
-
- For more than a decade, PCI has helped pet sitters, groomers, and other pet care professionals get affordable business coverage with nose-to-tail protection. As a pet-business-only insurer, we understand the risks of caring for animals and build key protections like Animal Bailee and Veterinarian Reimbursement into every policy.
-
- Buying insurance online with PCI is quick and easy. Get a free quote in minutes and access to a licensed agent for help when you need it. We exist to provide the reliable, customizable coverage you need to put pets first.
-
- For more information, please visit https://www.petcareins.com/
-
- PCI is owned by Veracity Insurance
-
- About Yourgi
-
- Yourgi is a trusted, all-in-one pet care marketplace - from boarding, daycare, and dog walking to grooming, house sitting, veterinary care, and training, Yourgi makes it easy to find the right care, whether at a top-rated local facility or in the comfort of home. Every caregiver in the marketplace is background-checked, and the Yourgi rewards program lets pet parents earn points on every booking, redeemable for discounts and free services. Yourgi is live in Dallas / Fort Worth, Denver, Portland, Houston, and Boston, and is expanding to other cities nationwide soon.
-
- Yourgi is available at www.yourgi.com and on the Yourgi app for iOS and Android.
-
- Media Contact:Kyle PorterVirgo Public Relationsveracity@virgo-pr.com212-584-4289
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/yourgi-partners-with-pet-care-insurance-to-offer-built-in-coverage-for-providers-7086849)
+[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-targets-scaled-growth-as-q1-revenue-more-than-doubles-7086853)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/yourgi-partners-with-pci-to-offer-built-in-coverage-for-pet-care-providers/8c26a1f42223116698a1f2e876fbf722) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-q1-revenue-doubles-eyes-100m-run-rate/c4b7484b4a74da4c23c1fdae9c5cb4fe) 
 
-
-Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/8c26a1f42223116698a1f2e876fbf722)
-
-Pickup - [https://advos.io/en](https://advos.io/en/yourgi-partners-with-pet-care-insurance-to-offer-built-in-coverage-for-providers)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/yourgi-partners-with-pet-care-insurance-to-provide-built-in-coverage-for-pet-care-providers)
-
-Pickup - [https://burstable.news](https://burstable.news/news/yourgi-partners-with-pet-care-insurance-to-offer-built-in-coverage-for-providers)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/yourgi-partnerschaft-mit-pet-care-insurance-bietet-integrierten-versicherungsschutz-fur-anbieter)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/20/rendySmV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/265/20/gulfeA_y.webp)
