@@ -1,62 +1,64 @@
-# Caggiano Orthodontics Expands vPro Accelerated Invisalign in Parsippany NJ
+# Transform Your Smile with Harvey &amp; Thomas Orthodontics in Fairhope, AL
 
-Morris County Invisalign Provider Retains Diamond Tier and Expands Accelerated Treatment Access
+Discover Exceptional Orthodontic Care in Fairhope, AL
 
- Parsippany, United States - May 19, 2026 / Caggiano Orthodontics /
+ Fairhope, United States - May 19, 2026 / Harvey and Thomas Orthodontics /
 
- Caggiano Orthodontics, located at 272 Parsippany Road in Parsippany, New Jersey, has confirmed its continued Diamond-tier designation from Invisalign and announced the formal expansion of vPro accelerated treatment access for qualifying patients across Morris County. The dual development positions the practice to serve a broader range of patients seeking shorter treatment timelines without compromising clinical outcomes.
+ Harvey & Thomas Orthodontics stands out as the leading orthodontist in Fairhope, AL, dedicated to providing exceptional orthodontic care to patients of all ages. With a commitment to creating beautiful smiles, the practice offers a comprehensive range of orthodontic solutions, including traditional braces and innovative clear aligners. The team at Harvey & Thomas Orthodontics understands that each patient is unique, and they strive to tailor their services to meet individual needs and preferences.
 
-Diamond-Tier Status Retained Amid Growing Invisalign Demand
+At Harvey & Thomas Orthodontics, the journey to a perfect smile begins with a thorough consultation. During this initial visit, patients can expect a warm welcome and a detailed assessment of their orthodontic needs. The experienced orthodontists take the time to listen to patients' concerns and goals, ensuring that they feel comfortable and informed about their treatment options. This personalized approach sets the foundation for a successful orthodontic experience.
 
-The Diamond-tier designation is assigned by Align Technology, the manufacturer of Invisalign, and reflects a practice's volume of treated cases and demonstrated clinical experience with the system. Retaining this status places Caggiano Orthodontics among a smaller segment of providers in the region with that level of documented case experience.
+Braces have long been a popular choice for orthodontic treatment, and Harvey & Thomas Orthodontics offers a variety of options to suit different lifestyles and preferences. Traditional metal braces are known for their effectiveness in correcting a wide range of dental issues, from misaligned teeth to bite problems. For those seeking a more discreet option, the practice also provides ceramic braces, which blend in with the natural color of teeth, making them less noticeable.
 
-The practice serves patients at multiple life stages, from children beginning Phase 1 early-intervention treatment at approximately age 7 through to teens and adults enrolled in dedicated Invisalign programs. As a Morris County Invisalign provider operating at the Diamond tier, Caggiano Orthodontics handles a range of case complexities that general dental offices typically refer out to specialists.
+In addition to braces, Harvey & Thomas Orthodontics is proud to offer clear aligners in Fairhope, AL. Clear aligners have gained popularity in recent years due to their convenience and aesthetic appeal. These custom-made, removable trays gradually shift teeth into their desired positions without the need for brackets and wires. Patients appreciate the flexibility of clear aligners, as they can be removed for eating, brushing, and flossing, making oral hygiene easier during treatment.
 
-Dr. David J. Caggiano, DMD, MS, and Dr. Yasmeen Abboud, a board-certified orthodontist, jointly oversee patient treatment at the practice. Both clinicians bring specialty-level training to case planning and treatment monitoring, which the practice cites as central to its approach across all age groups.
+The team at Harvey & Thomas Orthodontics is committed to staying at the forefront of orthodontic technology and techniques. They utilize advanced imaging and diagnostic tools to create precise treatment plans tailored to each patient's unique dental structure. This commitment to innovation ensures that patients receive the highest quality care and the best possible outcomes.
 
-vPro Technology Expands Access to Faster Treatment Timelines
+One of the hallmarks of Harvey & Thomas Orthodontics is their dedication to patient education. The orthodontists believe that informed patients are empowered patients. Throughout the treatment process, they take the time to explain each step, ensuring that patients understand their options and the expected results. This transparency fosters trust and confidence, allowing patients to feel more at ease during their orthodontic journey.
 
-Alongside the Diamond-tier confirmation, Caggiano Orthodontics announced the expansion of its vPro accelerated treatment program. The vPro device uses high-frequency vibration technology to help seat aligners more precisely and may support faster tooth movement in qualifying cases. For eligible patients, vPro-assisted Invisalign treatment may reduce overall treatment duration by up to 50 percent compared to standard Invisalign timelines.
+The practice also recognizes that orthodontic treatment is an investment in a patient's future. To make quality orthodontic care accessible, Harvey & Thomas Orthodontics offers flexible financing options and works with various insurance plans. The team is committed to helping patients find a payment plan that fits their budget, ensuring that everyone has the opportunity to achieve their dream smile.
 
-The availability of accelerated Invisalign New Jersey patients can access through this program is notable for adults and working professionals who prioritize minimizing the active treatment period. Teen patients enrolled in the practice's Invisalign Teen program may also be evaluated for vPro eligibility based on clinical criteria determined at consultation.
+In addition to their exceptional orthodontic services, Harvey & Thomas Orthodontics is deeply rooted in the Fairhope community. The practice actively participates in local events and initiatives, demonstrating their commitment to giving back. Whether it's sponsoring school events or supporting local charities, the team believes in making a positive impact beyond the walls of their practice.
 
-"Our Diamond-tier status reflects the volume and variety of Invisalign cases we manage, and expanding vPro access gives qualifying patients a meaningful option to reduce how long they are in active treatment," said Dr. David J. Caggiano, DMD, MS, of Caggiano Orthodontics.
+Patient testimonials speak volumes about the quality of care provided at Harvey & Thomas Orthodontics. Many patients express their gratitude for the friendly and supportive environment, as well as the impressive results they achieve. The practice has built a reputation for excellence, and word-of-mouth referrals continue to drive new patients through their doors.
 
-Early Intervention and Full-Spectrum Care Across Morris County
+As the leading orthodontist in Fairhope, AL, Harvey & Thomas Orthodontics is dedicated to transforming smiles and boosting confidence. The team understands that a beautiful smile can have a profound impact on a person's self-esteem and overall quality of life. With this in mind, they work tirelessly to ensure that each patient leaves the practice with a smile they can be proud of.
 
-The practice's Phase 1 program addresses developing orthodontic concerns in children starting around age 7, a timeframe when certain jaw and bite irregularities are more responsive to intervention. Early treatment at this stage can reduce the complexity of later orthodontic work and, in some cases, reduce overall treatment time during adolescence.
+In conclusion, Harvey & Thomas Orthodontics is the premier destination for orthodontic care in Fairhope, AL. With a wide range of options, including braces and clear aligners, the practice is equipped to meet the diverse needs of its patients. The combination of advanced technology, personalized treatment plans, and a commitment to patient education sets Harvey & Thomas Orthodontics apart as a leader in the field. For anyone seeking orthodontic treatment in Fairhope, AL, the journey to a stunning smile begins at Harvey & Thomas Orthodontics.
 
-The Parsippany orthodontist practice has received external recognition including America's Top Orthodontist in 2016 and New Jersey's Favorite Kids' Docs in 2021, acknowledgments that reflect patient and peer evaluation over multiple cycles.
+Learn more on https://harveyandthomasortho.com/location/fairhope/
 
-With the vPro expansion now formalized and Diamond-tier status confirmed, patients in Parsippany and the surrounding Morris County communities have access to the updated program through the practice's standard consultation and intake process. Patients interested in determining vPro eligibility are evaluated on a case-by-case basis during initial appointments.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/VkCJtDHNfFzoKo1d0QXPfjhWYOO5Zv3e7HWiqBz5.jpg) [](https://harveyandthomasortho.com) Contact Information:
 
-About Caggiano Orthodontics
-
-Caggiano Orthodontics is an orthodontic practice located at 272 Parsippany Road in Parsippany, New Jersey, serving patients throughout Morris County. The practice provides Phase 1 early-intervention treatment, teen and adult Invisalign programs, and accelerated treatment options under the clinical oversight of Dr. David J. Caggiano, DMD, MS, and Dr. Yasmeen Abboud, board-certified orthodontist. Caggiano Orthodontics holds Diamond-tier Invisalign provider status and has been recognized as America's Top Orthodontist (2016) and New Jersey's Favorite Kids' Docs (2021).
-
-Learn more at Caggiano Orthodontics
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/iaMiDHEfl1vkIjLMbpmyzLbqqaPMwmhruHLo0Nj7.jpg) [](https://morriscountybraces.com) Contact Information:
-
- Caggiano Orthodontics
+ Harvey and Thomas Orthodontics
 
  
 
-272 Parsippany Rd  Parsippany, NJ 07054United States
+10160 Encounter Dr.  Fairhope, AL 36532United States
 
- Dr. David Caggiano (973) 887-8780 https://morriscountybraces.com 
+ Dr. Carter Thomas (251) 479-9597 https://harveyandthomasortho.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/caggiano-orthodontics-expands-vpro-accelerated-invisalign-in-parsippany-nj-431194)
+[Original/Source Press Release](https://mediawiretoday.com/transform-your-smile-with-harvey-thomas-orthodontics-in-fairhope-al-414121)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/morris-county-orthodontist-expands-accelerated-invisalign-with-diamond-status/f614f1298d0d01956e1e3f51f6b0e6c1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-orthodontist-in-fairhope-braces-clear-aligners/eb093d5e52ec754f0aa69b839c30ea96) 
 
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/eb093d5e52ec754f0aa69b839c30ea96)
+
+Pickup - [https://advos.io/en](https://advos.io/en/harvey-thomas-orthodontics-offers-comprehensive-smile-transformations-in-fairhope-al)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/harvey-thomas-orthodontics-expands-access-to-smile-transformations-in-fairhope)
+
+Pickup - [https://burstable.news](https://burstable.news/news/harvey-thomas-orthodontics-elevates-smile-transformations-in-fairhope-al-with-personalized-care-and-advanced-options)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/harvey-thomas-orthodontics-hebt-lacheln-transformationen-in-fairhope-al-durch-personliche-betreuung-und-moderne-optionen-hervor)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/20/markKHuI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/20/ricex_v1.webp)
