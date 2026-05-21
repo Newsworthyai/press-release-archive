@@ -1,35 +1,31 @@
-# InvestorNewsBreaks – American Fusion Inc. (OTC: AMFN) Files First Quarterly Report Following Kepler Transaction
+# Why DeFi Is Getting a Tiny Share of the Tokenization Boom
 
-American Fusion (OTC: AMFN), a company developing advanced fusion energy technologies, including its Texatron(TM) Fusion Engine(TM) platform, filed its Quarterly Report on Form 10-Q for the quarter ended March 31, 2026, marking its first quarterly report reflecting the consolidated operations of American Fusion and Kepler Fusion Technologies following the closing of the previously announced reverse-merger share exchange on Feb. 27, 2026.
+The market for tokenized real-world assets (RWAs) is approaching the $30 billion mark on blockchain networks, yet only a small share is actively participating in decentralized finance.
 
- To view the full press release, visit: https://ibn.fm/fX9Bj
+ Blockchain industry actors like Marathon Digital Holdings Inc. (NASDAQ: MARA) will continue to watch…
 
- About American Fusion Inc.
+ Read More>>
 
- American Fusion Inc. (OTC: AMFN) is an advanced energy platform company focused on the development and commercialization of next-generation fusion energy technologies. The Company is advancing the Texatron(TM) Fusion Engine(TM), a neutronic fusion platform, designed for modular, infrastructure-grade deployment across industrial, commercial, and grid-constrained applications.
+ About CryptoCurrencyWire
 
- The Company’s development strategy emphasizes system-level engineering, disciplined intellectual property protection, and scalable architectures intended to support long-term commercial operation, while maintaining a focus on capital discipline and transparent corporate governance.
+ CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
 
- NOTE TO INVESTORS: The latest news and updates relating to AMFN are available in the company’s newsroom at http://ibn.fm/AMFN
+ To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About InvestorWire
+ For more information, please visit https://www.CryptoCurrencyWire.com
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
 
- For more information, please visit https://www.InvestorWire.com
+ CryptoCurrencyWireNew York, NYwww.CryptoCurrencyWire.com212.994.9818 OfficeEditor@CryptoCurrencyWire.com
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ CryptoCurrencyWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-american-fusion-inc-otc-amfn-files-first-quarterly-report-following-kepler-transaction/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/why-defi-is-getting-a-tiny-share-of-the-tokenization-boom/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-files-first-post-merger-quarterly-report/fcdc2bb2170309e2172e87c8c8f6b3aa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tokenized-real-world-assets-near-30b-but-largely-untapped-in-defi/689aee95f63bd0897a90e912e5644d10) 
 
  
 
@@ -37,4 +33,4 @@ American Fusion (OTC: AMFN), a company developing advanced fusion energy technol
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/21/yoga6LuC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/21/evenkNHM.webp)
