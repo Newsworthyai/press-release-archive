@@ -1,65 +1,51 @@
-# Free AI Palm Reading Platform Launches With No Account Required
+# 5-Star Accredited Preschool Serves Albuquerque Families
 
-How One Founder Is Making AI Palm Reading, Tarot, and Astrology Free for Everyone
+Why Cross of Hope Stands Out Among Private Schools Albuquerque Parents Are Choosing
 
- Islamabad, Pakistan - May 20, 2026 / ReadMyPalms /
+ Albuquerque, United States - May 20, 2026 / Cross Of Hope School /
 
- Read My Palms, the free AI-powered spiritual tools platform founded by Hamza Sheikh, has officially launched with a clear commitment: no account required, no fees, and no barriers between a person and their own self-discovery. The platform delivers instant results across palm reading, tarot, aura readings, horoscopes, and birth charts -- making it one of the few spiritual wellness platforms to offer this range of tools entirely free at launch.
+ Cross of Hope School has announced the continued enrollment availability for its 5-star accredited preschool program, with elementary program in process of accreditation, in Albuquerque, drawing renewed attention from families evaluating educational options for the upcoming academic year. The announcement highlights the school's commitment to small class sizes, licensed teachers, and a faith-centered learning environment that addresses the academic, social, spiritual, and emotional development of each child.
 
-A Founder's Mission Rooted in Access
+A Different Kind of Early Childhood EducationWhen Albuquerque families begin comparing options for pre-kindergarten and elementary education, the differences between programs become clear quickly. Cross of Hope School separates itself from other private schools Albuquerque parents consider by combining state-accredited 5-star preschool programming with a structured elementary curriculum - all within the same faith-based campus. That continuity matters for families who want consistency in their child's formative years without switching schools between preschool and elementary grades.
 
-Hamza Sheikh spent years watching people pay for fragmented spiritual experiences -- a tarot reading here, a birth chart there -- often gated behind subscriptions or one-time fees that made genuine exploration feel transactional. His answer was Read My Palms, a platform built on the premise that ancient wisdom should belong to everyone, not just those who can afford it.
+The school's preschool holds a 5-star rating for their preschool program, which represents the highest level of quality recognition under New Mexico's early childhood program standards. That distinction reflects the school's adherence to rigorous benchmarks in teacher qualifications, curriculum design, and learning environment quality.
 
-Sheikh's background sits at the intersection of technology and personal curiosity. He observed that while AI was reshaping industries from healthcare to finance, the spiritual wellness space remained largely unchanged -- dominated by paid gatekeepers and inconsistent experiences. Read My Palms was built to change that dynamic, using AI to deliver the kind of personalized insight that once required a one-on-one session with a practitioner.
+Small Classes, Licensed Teachers, and Whole-Child DevelopmentOne of the most practical advantages Cross of Hope offers is its small class sizes. Fewer students per classroom means teachers can give more direct attention to each child, identify learning needs earlier, and build stronger relationships with students and their families. This structure supports academic growth in a way that larger classrooms often cannot replicate.
 
-"When I built Read My Palms, I wanted 5 distinct tools -- palm reading, tarot, aura, horoscopes, and birth charts -- all available to anyone with a phone or laptop, no sign-up, no payment, no friction," said Hamza Sheikh, Founder of Read My Palms. "Spiritual self-discovery is a human experience, and it should not have a price tag on it."
+All teachers at Cross of Hope hold proper licensure, which ensures that instruction meets professional standards from the earliest grades. The school does not rely on unlicensed staff to fill instructional roles, a distinction that matters when parents are comparing programs in detail.
 
-AI Palm Reading and Beyond -- What the Platform Offers
+"At Cross of Hope, we believe children learn best in an environment filled with joy, curiosity, and strong relationships. Our dedicated teachers and staff partner closely with families to nurture each child academically, socially, emotionally, and spiritually," said Susan Rivera, Director of School Ministry at Cross of Hope School.
 
-At the core of the platform is its AI palm reading feature, which analyzes uploaded images of a user's hand and returns a detailed reading within seconds. The technology maps traditional palmistry markers -- life line, heart line, head line -- and interprets them through a trained AI model designed to reflect the depth of a practitioner's analysis without the wait or cost.
+How Cross of Hope Compares to Other OptionsAmong private schools Albuquerque families evaluate, the combination of accreditation level, teacher qualifications, class size, and faith integration in a single school is not always easy to find. Many programs offer one or two of these qualities but not all four together.
 
-Alongside AI palm reading, Read My Palms offers a free tarot reading online that generates card draws and interpretations tailored to a user's question or mood. The experience mirrors a traditional single or multi-card spread, with plain-language explanations that make the symbolism accessible to first-time users and experienced practitioners alike.
+Public preschool programs may offer no-cost enrollment but often lack the small class structures and individualized attention that come with a private setting. Larger private schools may have strong academic reputations but less capacity for the kind of close teacher-student relationships that younger children benefit from most. Cross of Hope is positioned at the intersection of academic rigor, personal attention, and values-based education - a combination that fits families looking for more than standard instruction during their child's early years.
 
-The platform's online astrology tools include natal birth chart generation and daily horoscopes. Users input a birth date, time, and location to receive a full chart breakdown covering planetary positions, house placements, and aspect interpretations. These are the same data points used by professional astrologers, now delivered without a consultation fee.
+The school serves students from preschool through elementary grades, giving families a long-term educational home rather than a short-term solution. That continuity builds familiarity between staff and families and allows teachers to track student development over multiple years.
 
-No Account, No Cost -- The Architecture of Access
+Enrollment Details and What Families Can ExpectCross of Hope School is currently accepting enrollment inquiries for the upcoming academic year. Families interested in the preschool program will find a structured curriculum aligned with the school's high accreditation standards, while elementary families can expect licensed instruction across core subject areas within a supportive, faith-informed setting.
 
-One of the more deliberate design decisions behind Read My Palms is the complete removal of account creation. Users arrive, choose a tool, and receive results. There is no email capture, no forced registration, and no freemium wall waiting after the first interaction.
+The school encourages early enrollment discussions as class sizes are intentionally kept small, which limits the number of available spots per grade level. Families are encouraged to schedule a visit to the campus to observe classrooms, meet teachers, and get a direct sense of the school's daily environment.
 
-This structure reflects Sheikh's view that the act of requiring a sign-up is itself a barrier -- one that disproportionately affects users who are cautious about data privacy or simply want a quick, anonymous experience. By stripping that layer out entirely, Read My Palms positions itself as a utility rather than a service requiring commitment.
+About Cross of Hope SchoolCross of Hope School is a faith-based educational institution in Albuquerque, New Mexico, offering preschool through elementary education. Its program supports the academic, social, emotional, and spiritual development of each student through small class sizes and a structured, values-centered curriculum.
 
-The platform is built for mobile and desktop use, with a clean interface designed to keep the focus on the reading rather than the product. Results are generated instantly, and users can return to any tool as many times as they choose without encountering usage limits.
+Learn more at Cross Of Hope School
 
-Spiritual Wellness as a Social Equity Issue
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/7ULYFrdfzQyFj4e1p3GK3jBeraYtgz7zVWlWyq1x.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/bxniZoHRcxjyrJifvGIdwknLzoVIRBjM1MfHAHXx.jpg) [](https://crossofhopeschool.org) Contact Information:
 
-Sheikh frames the launch not just as a product release but as a position on access. Spiritual tools -- whether used for reflection, decision-making, or personal growth -- have historically been available primarily to those with disposable income or proximity to practitioners. Read My Palms is built on the argument that this imbalance is correctable through technology.
-
-The platform does not monetize through paywalls or premium tiers. Its sustainability model is designed to keep the core experience free while the team explores non-intrusive approaches to long-term support. For now, the priority is reach -- getting tools into the hands of users who would otherwise go without.
-
-Read My Palms launched publicly in 2025 and is currently available globally with no geographic restrictions. All five tools -- palm reading, tarot, aura, horoscopes, and birth charts -- are live and accessible without login at launch.
-
-About Read My Palms
-
-Read My Palms is a free AI-powered spiritual wellness platform founded by Hamza Sheikh. The platform offers instant access to palm reading, tarot, aura readings, horoscopes, and birth charts with no account required and no cost to the user. Read My Palms is designed to make spiritual self-discovery accessible to anyone, anywhere.
-
-Learn more at ReadMyPalms
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/cblpsLN9Ku8XjH3B59lafZqoXJVbIKWqpJrg6wC9.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/YyGGD88kuhX8aojyMUExb45CKJnaxbOzo0Nrw9sn.jpg) [](https://readmypalms.com) Contact Information:
-
- ReadMyPalms
+ Cross Of Hope School
 
  
 
-Remote Business  Islamabad, Islamabad Capital Territory 44000Pakistan
+6104 Taylor Ranch Rd NW  Albuquerque, NM 87120United States
 
- Hamza Sheikh +92 324 4692241 https://readmypalms.com 
+ Brandon Herrera +1-505-897-1832 https://crossofhopeschool.org 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/free-ai-palm-reading-platform-launches-with-no-account-required-429291)
+[Original/Source Press Release](https://mediawiretoday.com/5-star-accredited-preschool-serves-albuquerque-families-431088)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/founder-makes-ai-palm-reading-tarot-and-astrology-free-for-all/7c0593fd13514ce30d448f3fc769f2f7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cross-of-hope-school-top-choice-for-albuquerque-families/851c782e100c7443e557cc9bfa376986) 
 
  
 
@@ -67,4 +53,4 @@ Remote Business  Islamabad, Islamabad Capital Territory 44000Pakistan
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/21/waitWc8S.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/265/21/voltwSWp.webp)

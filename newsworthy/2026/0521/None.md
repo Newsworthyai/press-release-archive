@@ -1,79 +1,70 @@
-# TNT Highlights Synapsensause Pre-Workout for Energy, Focus, and Training Intensity
+# Matt Hardin Law Welcomes Accomplished Litigator Andrew Lockert as New Partner
 
+Matt Hardin Law is proud to announce that Andrew Lockert has joined the firm as its newest Partner. A seasoned litigator with nearly a decade of experience, Lockert brings a formidable track record in personal injury, federal civil rights, and criminal law to the firm’s growing practice. Lockert hails from a distinguished legal tradition in Cheatham County, Tennessee. He is the latest in a long line of legal professionals, including a grandfather who served as both a judge and attorney, an aunt who served as a judge, an uncle who served as an attorney, and a cousin who served as a public defender for over 30 years. This deep-rooted family history has instilled in Lockert a profound respect for the Tennessee legal system and a unique ability to navigate complex litigation with professional diplomacy.
 
-True Nutrition Technology (TNT), the German sports nutrition brand trusted by more than 500,000 customers, is highlighting its TNT Synapsensause “Wild Berry” Pre-Workout Booster, now available on Amazon for U.S. consumers seeking a high-performance training supplement formulated for energy, focus, and workout intensity.
+ He is perhaps best known for his tenacity in federal courts and his unwavering commitment to holding institutions accountable.
 
- Manufactured in Germany and independently lab tested, Synapsensause combines caffeine, guarana, L-Citrulline, and L-Tyrosine in a vegan-friendly formula designed to support demanding training sessions.
+ Lockert spent years litigating the significant case of Campbell v. Cheatham County, a complex civil rights matter involving the protection of Fourth Amendment rights against excessive police force. Throughout this period, he successfully navigated the Middle District of Tennessee and the 6th Circuit Court of Appeals to ensure the claim against the primary officer could proceed to trial, seeking justice for homeowners facing unconstitutional government conduct.
 
- “Pre-workout products should do more than simply deliver caffeine,” said Markus Himmelstoss, Managing Director of True Nutrition Technology. “We designed Synapsensause to support focus, energy, and training performance while maintaining high standards for ingredient quality and manufacturing.”
+ He also gained regional recognition for his work alongside the late John Morris in the 'Reid Van Ness' litigation. This complex series of cases challenged the regulatory boundaries of the funeral industry and sought to protect families from the mishandling of their loved ones' remains. Navigating the intricate legal landscape of the Middle District of Tennessee, he fought to hold institutions accountable for the sanctity of the deceased and the constitutional rights of those who care for them.
 
- Designed for High-Intensity Training Synapsensause delivers a dual-source caffeine system totaling 400 mg per serving, combining pure caffeine with guarana-derived caffeine for both immediate and sustained energy release.
+ While Lockert has often stood on the opposite side of the aisle from local municipalities and law enforcement, he has maintained a reputation for professional excellence and mutual respect. He prides himself on maintaining productive, collaborative relationships with the police units and agencies in Cheatham County and throughout Middle Tennessee, even while aggressively advocating for the civil rights of his clients.
 
- The formula also includes 8 grams of L-Citrulline, commonly used in pre-workout formulations to support nitric oxide production and blood flow during exercise.
+ In addition to bolstering the firm’s core personal injury practice, Lockert will lead a new Criminal Defense practice area at Matt Hardin Law. His goal is to provide a voice for those who feel unheard by the system, ensuring that whether a client is a car accident victim or an individual facing a violation of their civil rights, they receive counsel that understands both the local landscape and the federal courts.
 
- Key product features include:
+ Outside of the office, Lockert is an avid traveler and a regular on the basketball court. He remains deeply committed to the Middle Tennessee community where he was raised.
 
- * 400 mg total caffeine from pure caffeine and guarana extract
-* 8 g L-Citrulline for workout performance support
-* 6 g L-Tyrosine for focus and mental performance
-* Vegan formula with no added sugar
-* Smooth Wild Berry flavor
-* Excellent solubility and easy mixing
-* Manufactured in Germany under strict quality standards
-* Independently lab tested for purity and safety
+ About Matt Hardin Law: Matt Hardin Law is a premier personal injury firm serving clients across Tennessee. Known for its "locally grown" approach, the firm handles cases involving car accidents, medical malpractice, wrongful death, and now, federal civil rights and criminal defense. With the addition of Andrew Lockert, the firm continues its mission of providing elite legal representation with a personal, community-focused touch.
 
- What Customers Are Saying Amazon customer reviews consistently highlight the product’s energy support, focus, taste, and mixability:
+Media Contact:
 
- * “The pump is strong and you are mentally awake without it becoming too much.”
-* “Really stable booster… you get a lot of energy and can focus really well during training.”
-* “Noticeable effect - focus, drive, and mental alertness set in quickly without unpleasant crashes.”
-* “Wild Berry tastes really great and dissolves perfectly without lumps.”
-* “Top product, top manufacturer.”
+ Katie Zaccardi
 
- The reviews also frequently reference the product’s German manufacturing and laboratory testing as key factors behind customer confidence.
+ Marketing Director
 
- Balancing Energy, Focus, and Performance Synapsensause was developed for athletes and fitness enthusiasts looking to support:
+ Email Contact
 
- * Workout energy and intensity
-* Mental focus during training
-* Endurance during demanding sessions
-* Pre-workout motivation and alertness
+ 615-200-1111
 
- The dual-source caffeine approach combines fast-acting caffeine with more gradual release from guarana, helping maintain energy levels throughout longer workouts.
-
- German Manufacturing and Independent Testing All TNT supplements are manufactured in Germany using carefully selected raw materials and strict quality control procedures.
-
- Each production batch undergoes independent laboratory testing to verify purity, consistency, and microbiological safety.
-
- This commitment to transparency and manufacturing standards has helped TNT establish a customer base of more than 500,000 consumers across Europe.
-
- Available Now on Amazon TNT Synapsensause “Wild Berry” Pre-Workout Booster is now available on Amazon.
-
- TNT’s Creapure® Creatine Monohydrate Powder is also available on Amazon as part of the company’s growing U.S. product lineup.
-
- “We’re excited to bring one of our most recognized training products to U.S. consumers through Amazon,” Himmelstoss added.
-
- About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
-
- TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
-
- From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
-
- FDA Disclaimer
-
- These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ https://www.matthardinlaw.com/ 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605212457/tnt-highlights-synapsensause-pre-workout-for-energy-focus-and-training-intensity)
+[Original/Source Press Release](https://newsworthy.ai/news/202605212454/matt-hardin-law-welcomes-accomplished-litigator-andrew-lockert-as-new-partner)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tnt-synapsensause-pre-workout-hits-amazon-for-u-s-athletes/decaefe62a3aa58e864491e30daf5911) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/andrew-lockert-joins-matt-hardin-law-as-partner-expanding-civil-rights-and-criminal-defense/deb16623f652c554790a154a926852e4) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/matt-hardin-law-adds-andrew-lockert-as-partner-expands-into-criminal-defense)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/matt-hardin-law-expands-practice-with-addition-of-litigator-andrew-lockert-as-partner)
+
+Pickup - [https://burstable.news](https://burstable.news/news/matt-hardin-law-expands-with-addition-of-accomplished-litigator-andrew-lockert-as-partner)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/matt-hardin-law-erweitert-sich-mit-dem-erfahrenen-prozessanwalt-andrew-lockert-als-partner)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/matt-hardin-law-se-expande-con-la-incorporacion-del-experimentado-litigante-andrew-lockert-como-socio)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-cabinet-matt-hardin-law-sagrandit-avec-larrivee-de-lavocat-accompli-andrew-lockert-en-tant-quassocie)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/matt-hardin-law-se-expande-com-a-adicao-do-consumado-litigante-andrew-lockert-como-socio)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/matt-hardin-law-adds-andrew-lockert-as-partner-expanding-into-criminal-defense-and-federal-civil-rights)
+
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/matt-hardin-law-expands-into-criminal-defense-with-new-partner-andrew-lockert)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/matt-hardin-law-expands-practice-with-addition-of-partner-andrew-lockert)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/matt-hardin-law-adds-civil-rights-litigator-andrew-lockert-as-pa/202632486)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/deb16623f652c554790a154a926852e4)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/deb16623f652c554790a154a926852e4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/21/mintOs1v.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/21/dualAyCY.webp)
