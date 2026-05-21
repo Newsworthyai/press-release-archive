@@ -1,46 +1,60 @@
-# BioMedNewsBreaks — Sunshine Biopharma Inc. (NASDAQ: SBFM) Closes $6 Million Public Offering
+# 420 with CNW — US House Passes Amendment Allowing VA Doctors to Recommend Medical Marijuana
 
-Sunshine Biopharma (NASDAQ: SBFM) announced the closing of its previously announced public offering, generating approximately $6 million in gross proceeds before fees and expenses through the sale of 12 million common units, each including common stock or pre-funded warrants and two Series C warrants. The company said net proceeds will be used for general corporate purposes and working capital, with potential additional gross proceeds of approximately $12 million if the Series C warrants are fully exercised for cash, while Aegis Capital acted as exclusive placement agent.
+The U.S. House has approved a measure that could expand healthcare options for military veterans by allowing physicians within the Department of Veterans Affairs (VA) to recommend medical cannabis in states where it is permitted.
 
- To view the full press release, visit https://ibn.fm/XuHPC
+ The amendment, introduced by Representatives Brian Mast, Dina Titus, and Dave Joyce, cleared the House through a voice vote on Thursday. If it becomes law, the proposal would stop the VA from applying an existing policy that prevents agency doctors from helping veterans enroll in state-approved medical marijuana programs.
 
- About Sunshine Biopharma Inc.
+ At present, VA healthcare providers may talk with patients about cannabis use, but they are barred from completing paperwork or formally recommending participation in state medical marijuana systems. That limitation has often forced veterans to seek private physicians, sometimes at considerable expense, in order to access treatment that may already be legal where they live.
 
- Sunshine Biopharma currently markets 60 generic prescription drugs in Canada, with 12 additional launches planned for the remainder of 2026. The Company is also advancing two proprietary drug development programs:
+ Speaking on the House floor before the vote, Mast, a combat veteran who lost both legs while serving in Afghanistan, argued that veterans deserve open discussions with trusted medical professionals about every available treatment option.
 
- * K1.1 mRNA, an mRNA‑Lipid Nanoparticle therapeutic candidate targeting liver cancer.
+ He emphasized that veterans should be able to consult VA doctors regarding whether medical cannabis may help their condition or potentially interfere with medications already prescribed. According to Mast, the role of deciding whether cannabis is appropriate belongs to physicians, but those conversations should not be restricted.
 
- * PLpro protease inhibitor, a small‑molecule antiviral candidate for SARS‑related coronavirus infections.
+ Reflecting on his own recovery after combat injuries, Mast recalled awakening in a military hospital surrounded by multiple prescriptions, including antidepressants, sedatives, anti-inflammatory medication, and opioid painkillers. While he was able to stop using many of those medications quickly, he acknowledged that many former service members struggle to do the same.
 
- Additional information is available at https://sunshinebiopharma.com/
+ He noted concerns about long-term dependency and lasting side effects linked to narcotic pain treatments, arguing that veterans should have access to broader medical discussions within the VA system.
 
- About BioMedWire
+ Titus also defended the proposal, pointing to research and patient experiences suggesting cannabis may assist with conditions often affecting veterans, including chronic pain, post-traumatic stress disorder, and opioid dependence. She said veterans should not be forced outside the federal healthcare network to explore treatment possibilities and instead deserve honest conversations with their doctors about all available options.
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ Joyce framed the amendment as a practical healthcare issue, saying veterans deserve access to treatments that might improve daily life. He questioned whether former service members would be better served receiving advice from licensed physicians rather than retail cannabis employees.
 
- BMW is where breaking news, insightful content and actionable information converge.
+ Joyce added that many veterans return home carrying psychological and physical injuries that traditional therapies have not always successfully addressed, leaving some searching for alternatives to manage symptoms and reduce reliance on addictive medications.
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ The amendment specifically bars federal funding from being used to enforce sections of the VA directive that prohibit medical staff from recommending marijuana, referring veterans to state cannabis programs, or helping complete enrollment documents.
 
- For more information, please visit https://www.BioMedWire.com
+ Although Congress has approved similar measures in prior years, none have ultimately become law. This latest effort arrives shortly after the federal government moved to reclassify medical marijuana under national drug policy, a development supporters believe could improve the chances of reform for veterans moving forward.
 
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
+ The progress of this legislation will be followed by entities like Canopy Growth Corp. (NASDAQ: CGC) (TSX: WEED) within the marijuana industry as it could mark a major shift in federal drug policy, especially with regard to military veterans.
 
- BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
+ About CNW420
 
- BioMedWire is powered by IBN 
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
+
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
+
+ For more information, please visit https://www.CannabisNewsWire.com
+
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
+
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
+
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-sunshine-biopharma-inc-nasdaq-sbfm-closes-6-million-public-offering/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-us-house-passes-amendment-allowing-va-doctors-to-recommend-medical-marijuana/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sunshine-biopharma-raises-6m-in-public-offering-for-drug-pipeline/bcc51ef372c590868ed5ac0f4c679308) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/house-votes-to-let-va-doctors-recommend-medical-marijuana-to-veterans/165b620cbf6a5c8d0f454d00d7df5dca) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/house-approves-measure-allowing-va-doctors-to-recommend-medical-cannabis-to-veterans)
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/165b620cbf6a5c8d0f454d00d7df5dca)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/20/filejizk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/20/rainHJBZ.webp)
