@@ -1,72 +1,78 @@
-# Your CPA Never Mentioned Cost Segregation. Here Is What That Is Costing You.
+# Investors Are Talking Themselves Out of Good Deals. A 30-Year Operator Explains What That’s Costing Them.
 
-A large number of real estate investors who could benefit from cost segregation have never heard about it from their tax preparer. Some were told it was not worth it for their property. Others had CPAs who simply did not bring it up. For many, the result is years of straight-line depreciation on assets that could have been generating tax savings from day one. CostSegRx principal Brian Kiczula sees this pattern consistently, and his explanation for it is straightforward.
+More than a third of investors plan to buy zero properties this year. A veteran who has closed through every cycle since 1991 says excessive selectivity is the single biggest mistake he sees.
 
- It Used to Be Too Expensive, and CPAs Adapted Accordingly The main reason cost segregation was not on the table for smaller investors historically comes down to cost. Studies on smaller properties used to run into thousands of dollars, sometimes tens of thousands. For a CPA managing clients with modest residential portfolios, the math simply did not work. Recommending a study that cost more than the benefit it produced was not good advice.
+ A recent sentiment survey found that 38% of investors expect market conditions to improve, but more than a third plan to purchase nothing this year. That gap between optimism and action is not new, but in a market where Southeast Michigan apartment rents are still climbing, and buyers consistently outnumber sellers, the cost of sitting out is compounding.
 
- So the default became straight-line depreciation across the entire asset, and that default stuck. Many CPAs who work with real estate investors never updated their thinking because their client base never pushed them to.
+ Larry Gotcher, owner and broker of Resource Realty Group in Ann Arbor, Michigan, has watched this pattern repeat through every major cycle of the last three decades. His read is direct: “Investors are way too picky about what they’re buying. Purchasing real estate in America is one of the most lucrative things you can do. It’s hard to go wrong, even if you make a mistake, because you get your appreciation back over time.”
 
- What has changed is that engineering-based studies can now be conducted cost-effectively on smaller residential properties. Not AI-generated reports, not online calculators, but actual detailed engineering studies. Kiczula is clear about this distinction: “I’m not talking about a DIY cost seg study or an online calculation. I’m talking about an engineered study where someone is looking at the property and providing an accurate study back.”
+ Being Selective and Being Paralyzed Are Not the Same Thing There is a version of caution that protects you from bad investments. Then there is a version that keeps you on the sidelines while properties appreciate without you.
 
- The Other Reason: Not All CPAs Are Investor-Focused Beyond cost, Kiczula points to a knowledge gap. Some tax preparers are simply not deeply familiar with real estate investment strategies, or their real estate clients represent a small enough portion of their book that cost segregation never became a specialty.
+ The investors who build meaningful portfolios, in Gotcher’s view, are the ones who close more transactions and win a little each time – rather than waiting to win by a landslide on a single deal. “You don’t have to win the lottery on every deal,” he says. “I would rather close more transactions and win a little bit every time. In the end, you’re going to win bigger because you own more property.”
 
- “They’re not investor-friendly CPAs, or they’re not well versed in real estate, or maybe their clients own real estate but don’t own enough of it for that to be an option they’re offering,” he says.
+ In a market like Southeast Michigan, where apartment inventory has been chronically short for decades, and rents have increased consistently, holding out for perfect conditions means watching entry prices climb while the ideal moment keeps moving further away.
 
- That does not make them bad CPAs. It does mean the investor may need to bring the topic to the table themselves.
+ The Two Questions That Signal a Buyer Who Won’t Close After more than 30 years in commercial real estate, Gotcher has a sharp read on when a potential buyer is doing real due diligence versus looking for reasons to walk.
 
- The Right Way to Introduce It to Your CPA Kiczula’s recommended approach is deliberate. Do not get a cost segregation study done first and then hand it to your tax preparer as a done deal. Get a free estimate of benefit, take it to your CPA, and let them review it against your specific tax situation before committing to anything.
+ Two questions in particular have become reliable signals that a transaction is not going anywhere. The first is asking why the seller wants to sell. It seems reasonable on the surface, but in practice, it rarely produces useful information. “Why does anybody get into real estate? Buy low and sell high,” says Andrea Gotcher, who handles residential transactions and analytics at the firm. “They’re just wanting to move on to a different project, or they want their money.”
 
- “I’m not saying to get a cost segregation study done and then take it to your tax professional,” he says. “I’m saying get an estimate done and then see how the benefits might apply to your specific situation.”
+ The second is asking to see the seller’s financials to assess past performance. Gotcher’s position is that this focuses attention on the wrong variable entirely. “What somebody else has done to run their business into the ground doesn’t matter,” Andrea Gotcher says. “We know our area. We know what we can do with the property. We base our numbers on that.”
 
- This approach does two things. It removes friction from the conversation because your CPA is evaluating actual numbers rather than a general pitch. And it respects the fact that whether the depreciation actually helps you depends entirely on your tax picture, specifically whether you’re generating active or passive income and whether you can use the losses in the way you’re expecting.
+ For investors with genuine market knowledge, that is the correct lens. The question should not be what the current owner produced – it should be what you can produce given your operating expertise, your financing, and your management approach.
 
- What to Do If Your CPA Still Pushes Back Kiczula takes a measured stance here. If a CPA looks at the numbers and genuinely concludes it is not a fit for the client, he will often agree with them. He has archived proposals in cases where he concluded the study would not serve the client well, including situations where the investor was planning to sell the property soon and would face depreciation recapture, or where the investor simply could not use the losses the study would generate.
+ The One Non-Negotiable Gotcher’s acquisition criteria are simple. Properties need to cash flow at or above zero after debt service. Monthly negative cash flow is the floor he will not go below, because below that line, every other assumption in the deal has to be exactly right to avoid losing money.
 
- “I don’t mind canceling proposals,” he says. “I don’t want to, but it’s part of the business.”
+ Breaking even monthly is acceptable. Tax depreciation generates a real return on top of that, and long-term appreciation does the rest. A deal that looks unremarkable on paper today tends to look like a solid decision five or ten years out, which is exactly how the math is supposed to work.
 
- If your CPA’s objection is based on unfamiliarity with cost segregation rather than a genuine analysis of your situation, that is worth a second conversation. Getting an independent estimate puts real numbers on the table and gives both of you something concrete to evaluate.
+ “The key is owning as much real estate as you can,” Gotcher says. “If you’re too picky about what you buy, you’re not going to acquire very much real estate.”
 
- CostSegRx offers complimentary estimates of benefit with no obligation to move forward.
+ Hold, Even When It’s Uncomfortable If there is a single principle that runs through every piece of advice Gotcher gives, it is this: buy and hold.
 
- About CostSegRx: CostSegRx is an engineering-based cost segregation firm led by Brian Kiczula, a member of the American Society of Cost Segregation Professionals. The firm works with residential and commercial real estate investors nationwide. CostSegRx provides complimentary estimates of benefit and supports investors and their CPAs through the full reporting process. Learn more at costsegrx.com or call (888) 850-4155.
+ “Don’t be scared by temporary market conditions that force you to sell,” he says. “Make sure you hold as long as you can.”
 
- Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ That applies in a high-rate environment, in a flat market, and in a downturn. The investors who sold into fear during the 2008 cycle – particularly in resilient markets like Ann Arbor – came out significantly behind those who stayed in. Time corrects most underwriting errors in real estate in ways that are almost impossible to recover from if you are sitting on the sidelines.
+
+ The market today, with rates still elevated and many buyers waiting for conditions that may never arrive, is another version of the same test. The investors acquiring now, at reasonable prices and with sound assumptions, will likely look back at this as a good entry point. The ones waiting for certainty will be looking at higher prices by then.
+
+ About Resource Realty Group: Resource Realty Group is a full-service commercial and residential brokerage headquartered in Ann Arbor, Michigan. Led by Owner and Broker Larry Gotcher, the team has built a reputation for closing high-volume commercial transactions through deep market knowledge, disciplined process, and creative deal structuring. The group also manages land development projects and operates a REIT designed to provide investors with access to resilient, income-producing real estate across Michigan and international markets.
+
+ This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/your-cpa-never-mentioned-cost-segregation-here-is-what-that-is-costing-you/)
+[Original/Source Press Release](https://keycrew.co/journal/investors-are-talking-themselves-out-of-good-deals-a-30-year-operator-explains-what-thats-costing-them/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cost-segregation-the-tax-break-your-cpa-may-not-mention/ac66a7529cfa2c2549d341c97e2c5d75) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/why-being-too-picky-could-be-your-biggest-real-estate-mistake/4886ea65893000c98fbcb0c2349ad877) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/why-your-cpa-may-not-have-mentioned-cost-segregation-and-what-that-could-cost-you)
+Pickup - [https://advos.io/en](https://advos.io/en/investors-excessive-selectivity-costs-them-deals-veteran-broker-says)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/why-many-real-estate-investors-miss-out-on-cost-segregation-and-what-it-costs-them)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/investors-over-selectivity-is-costing-them-deals-says-30-year-veteran)
 
-Pickup - [https://burstable.news](https://burstable.news/news/cost-segregation-studies-for-smaller-properties-now-cost-effective-yet-many-cpas-still-not-recommending-them)
+Pickup - [https://burstable.news](https://burstable.news/news/investors-risk-missing-opportunities-by-being-overly-selective-veteran-operator-warns)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kostentrennungsstudien-fur-kleinere-immobilien-jetzt-kosteneffizient-dennoch-empfehlen-viele-steuerberater-sie-nicht)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/investoren-riskieren-chancen-durch-ubertriebene-selektivitat-zu-verpassen-warnt-erfahrener-makler)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/estudios-de-segregacion-de-costos-para-propiedades-mas-pequenas-ahora-son-rentables-pero-muchos-contadores-aun-no-los-recomiendan)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/un-veterano-operador-advierte-que-los-inversores-pierden-oportunidades-por-ser-demasiado-selectivos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/etudes-de-segregation-des-couts-pour-petites-proprietes-desormais-rentables-mais-de-nombreux-cpa-ne-les-recommandent-toujours-pas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-veteran-previent-que-les-investisseurs-risquent-de-rater-des-opportunites-en-etant-trop-selectifs)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/estudos-de-segregacao-de-custos-para-propriedades-menores-agora-sao-economicos-mas-muitos-contadores-ainda-nao-os-recomendam)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/investidores-correm-risco-de-perder-oportunidades-por-serem-excessivamente-seletivos-alerta-veterano-do-setor)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/cost-segregation-often-overlooked-by-tax-preparers-says-costsegrx-principal)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/investors-excessive-selectivity-is-costing-them-deals-30-year-veteran-warns)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/why-your-cpa-may-have-overlooked-cost-segregation-and-what-it-costs-you)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/4886ea65893000c98fbcb0c2349ad877)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/cost-segregation-the-tax-strategy-many-real-estate-investors-are-missing)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/over-selectivity-costing-investors-in-tight-market-says-30-year-operator)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/cost-segregation-why-your-cpa-may-not-have-told-you-about-it-and/202632503)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/excessive-selectivity-is-costing-real-estate-investors-30-year-v/202632525)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/21/boldj6qS.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/21/kiwiCqao.webp)
