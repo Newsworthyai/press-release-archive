@@ -1,40 +1,35 @@
-# Tú Cuentas Cine Youth Fest Wins Two Telly Awards
+# ABANCA USA Meets Real Estate Experts to Debate The Present And Future of Miami as An International Hub
 
-NEW YORK, NY — May 22, 2026 — (NOTICIAS NEWSWIRE) — Tú Cuentas Cine Youth Fest (TCCYF), the youth-focused film initiative created by HITN, features a Latino-focused interview series Tú Cuentas Cafecito and this year the segment earned two Telly Awards in the General–Interview & Talk Show category for conversations featuring media executive Ingrid ‘Superstar’ Salcedo and actress and producer Roselyn Sánchez.
+MIAMI, FL — May 22, 2026 — (NOTICIAS NEWSWIRE) — ABANCA USA was the main presenter of the Real Estate Forum 2026, a meeting organized by the Spanish Chamber of Commerce in the US to analyze the trends and challenges that are redefining the real estate landscape in the region. ABANCA’s participation demonstrates its position as a key actor in the transformation of the city at a time where Miami continues to attract capital, companies and international interest.
 
- The series won a Silver Telly for its episode with Ingrid ‘Superstar’ Salcedo, the Emmy Award-winning broadcast executive and producer known for helping shape some of television’s most prominent Latin music award shows. A second episode, featuring the Puerto Rican actress and filmmaker Roselyn Sánchez, received a Bronze Telly. Sánchez, whose acting credits include the television series Without a Trace and Devious Maids, has recently expanded into directing with her film Diario, Mujer y Café, a personal project rooted in Puerto Rican storytelling.
+ The meeting, which was held at the iconic Pérez Art Museum Miami (PAMM), brought together more than 150 developers, investors, financial executives, brokers, architects, urban planners and business leaders from the United States, Spain and Latin America, consolidating Miami as one of the main global centers for real estate investment and development.
 
- “For the past five years, HITN’s goal with Tú Cuentas has been to create a platform where young filmmakers and storytellers can showcase their voices and their work,” said Cynthia Rivera, co-director of the series. “Seeing our Cafecito series recognized with these Telly Awards is a beautiful affirmation of that vision, and we are deeply grateful to the emerging filmmakers who trust us with their stories and to the Telly Awards for this honor.”
+ The day began with a conversation between Mónica Vázquez, president of the Spain-United States Chamber of Commerce and General Manager of ABANCA USA, and Muayad Abbas, Managing Director of Development of OKO Group and professor at the University of Miami. During the talk they analyzed the evolution of Miami as a global city, the sustained growth of the residential market and the attractiveness of the city as a strategic destination for long-term investments.
 
- The recognition marks another milestone for Tú Cuentas Cafecito, a series that centers intimate conversations with Hispanic leaders, creatives and changemakers. At the heart of the program is host Raymond Arturo Pérez, a Los Angeles-based television writer and creative originally from San Antonio, Texas. Pérez previously served as a staff writer on season two of Selena: The Series and has built a career focused on elevating Latino, queer and other underrepresented voices.
+ Throughout the forum, executives and experts discussed some of the main trends that are transforming the South Florida real estate market today, including the growth of the multifamily segment, the evolution of mixed-use spaces, corporate relocation, and the challenges of infrastructure and affordable housing.
 
- Rivera also praised Pérez’s role in shaping the tone of the conversations. “Our host, Raymond Arturo Pérez, brings warmth and authenticity to every Cafecito conversation,” she said. “He creates a welcoming space where guests can openly share their stories and connect with audiences in a meaningful way.”
+ Prominent industry players such as Rilea Group, Constellation, Empira, Berkadia, Key International, JLL, Coastal Construction, DDA, Blanca Real Estate, among others, reaffirmed Miami’s role as an international hub.
 
- The awards underscore the growing visibility of Hispanic-centered storytelling in digital and television media, particularly programs that blend cultural conversation with personal narrative.
+ In this context, ABANCA USA stood out as an institution oriented to both local and international clients, offering personalized financial solutions and a global vision of the business, from a client-centric perspective. In recent years, the bank has positioned itself as one of the most active players in project financing in the region, participating in multifamily, office, retail, hotel and industrial developments.
 
- About HITN Media HITN Media is the leading Spanish-language media company that offers educational and cultural programming for the whole family. It reaches more than 35 million homes in the United States and Puerto Rico through DIRECTV, DIRECTV NOW, AT&T U-verse, AT&T TV, AT&T TV Now, DISH Network, Verizon FiOS TV, Comcast Xfinity, Charter Spectrum, Mediacom, CenturyLink Prism, and Altice, Liberty Cable and Claro (Puerto Rico). Download the HITN GO app available on Apple, Android, Apple TV, and Roku® with a subscription.
+ The forum also highlighted how economic and population growth in South Florida continues to drive new real estate developments, as well as the need for greater collaboration between the private sector and public institutions to sustain urban growth in an efficient and sustainable manner.
 
- Follow HITN
+ ABANCA USA’s participation in the Real Estate Forum 2026 reflects not only its commitment to the economic growth of South Florida, but also its commitment to strengthening strategic ties with entrepreneurs, developers and investors in one of the most dynamic markets in the world.
 
- * HITN.org
-* LinkedIn
-* Facebook
-* X (Twitter)
-* Instagram
-* YouTube
+ About ABANCA USA ABANCA USA represents the presence in the United States of ABANCA Corporación Bancaria, one of the main international financial groups based in Spain. With a global presence in Europe and America, ABANCA operates in 11 countries and has more than 8,000 professionals around the world.
 
- About The Telly Awards The Telly Awards is the premier award honoring video and television across all screens. Established in 1979, The Telly Awards receives over 13,000 entries from all 50 states and 5 continents. Entrants are judged by The Telly Awards Judging Council—an industry body of over 250 leading experts including advertising agencies, production companies, and major television networks, reflective of the multi-screen industry The Telly Awards celebrates. Partners of The Telly Awards include AWN, View Conference, Skwigly, ACM SIGGRAPH, Seed & Spark, Kinema, The Gotham, Portrait, NAB, RunwayML AIFF, ReelAbilities Film Festival, Film Fatales, FWD-Doc, NYWIFT, Stash, Production Hub, Video Consortium, SeriesFest and Green The Bid.
+ In the United States, ABANCA combines the strength of traditional banking with cutting-edge technology, offering a personalized approach and solutions adapted to each client, with complete geographic coverage to support both national and international financial operations.
 
- Link to Images
+ Instagram: @NegociosMagazine Facebook: https://www.facebook.com/negociosus/ X: @NegociosUS LinkedIn: Eduardo Hapke
 
- CONTACT: Fernando Cardenas fcardenas@hitn.org 
+ CONTACT: Eduardo Hapke 786-607-9355 ed@negociosus.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/tu-cuentas-cine-youth-fest/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/abanca-usa-meets-real-estate-experts/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hitns-tu-cuentas-cafecito-wins-two-telly-awards/737efe1ef0d8574ecaf1610495c93df3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abanca-usa-leads-real-estate-forum-2026-in-miami-shaping-future-trends/81bc4daf8b1f07592f1f3361830ba817) 
 
  
 
@@ -42,4 +37,4 @@ NEW YORK, NY — May 22, 2026 — (NOTICIAS NEWSWIRE) — Tú Cuentas Cine Youth
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/265/22/envyp12j.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/265/22/chefLYIr.webp)
