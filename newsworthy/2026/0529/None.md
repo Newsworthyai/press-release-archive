@@ -1,54 +1,62 @@
-# Did NASA's Lunar Economy Pitch Fall Flat? No Agenda Weighs In
+# Tempest Droneworx Appoints Dr. Dana Abramovitz as CEO Amidst Strategic Growth
 
-Episode 1872 of the No Agenda Show, titled 'Lunar Economy,' published May 28, 2026, finds hosts Adam Curry and John C. Dvorak broadcasting from the Texas Hill Country and Refinery Row to deconstruct a week of high-volume media noise. From NASA Administrator Jared Isaacman's $20 billion pitch for a permanent moon base to President Trump's twelfth televised cabinet meeting, the hosts unpack what mainstream outlets amplified, what they buried, and why the phrase 'lunar economy' became the unintentional punchline of the news cycle.
+Tempest Droneworx today announced that co-founder Dr. Dana Abramovitz has been named Chief Executive Officer, with co-founder Ty Audronis transitioning into the roles of Chief Technology Officer and Chief Marketing Officer.
 
- The episode threads together several running stories with the show's signature media deconstruction approach:
+ For the founders, the move is less about changing direction - and more about aligning leadership with what Tempest has become.
 
- * NASA's Artemis timeline, helium-3 extraction claims, and the proposed 'orbital economy' under Isaacman
-* Treasury Secretary Scott Bessent's awkward turn at the White House podium and the new Trump Account savings app
-* The third Ebola media cycle in two years, with CDC acting director Dr. Jay Bhattacharya requesting airport screening volunteers ahead of the FIFA World Cup
-* Teen takeover crackdowns in Polk County, Florida and Chicago, including proposals to charge parents
-* Ferrari's all-electric Luce, co-designed with Jony Ive, and Mayor Mamdani's meetings with Jamie Dimon and David Solomon
+ When Tempest was founded, the company began with an ambitious idea: using cooperative autonomous systems and real-time intelligence to help prevent catastrophic wildfires before they could spread. While drones helped inspire that original vision, Tempest was always built as a software and intelligence company focused on transforming live data into actionable operational insight.
 
- The hosts' skepticism is on full display when Curry reacts to Isaacman's vision of helium-3 mining and quantum computing fuel sourced from the moon. 'Open the Straits, give me $3 gas, then we can talk about moon stuff,' Curry says. 'It's gonna be all the lunar economy.' Dvorak offers a meta-prediction that contradicts Curry's expectation of a spectacular Artemis failure: 'Nothing blows up, nothing happens. Yak yak yak. They're gonna talk talk talk. Send a couple of robots up there, and one of them will stop working.'
+ Since then, the company has grown far beyond its original concept.
 
- Beyond space policy, the episode digs into Treasury Secretary Scott Bessent's rotation as White House press briefer, Marco Rubio's report on 20 third-country deportation agreements, EPA Administrator Lee Zeldin's clawback of $29 billion in late-Biden disbursements including a contested $2 billion grant tied to Stacey Abrams, and Interior Secretary Doug Burgum's claim of $4 billion in new lease sale revenue from the Permian, Bakken, and Alaska's North Slope. Curry reviews 'Young Washington' by Wonder Network, analyzes the Texas Senate runoff, and notes a Sydney drone-show glitch as a potential attack vector.
+ Over the years, Tempest has completed a FAA Broad Agency Announcement (BAA) effort, advanced USAF SBIR/STTR initiatives, expanded into multiple commercial and defense applications, and developed platforms designed to support defense, emergency response, critical infrastructure, agriculture, and real-time operational awareness.
 
- About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for its sharp commentary, humor, and media deconstruction, the show questions official narratives and rewards audience contributions through its value-for-value model. Episode 1872 is available now wherever podcasts are heard. 
+ Now, with the public release of the Corvus Platform, Harbinger entering commercialization, and the company transitioning from advanced R&D into broader deployment, both founders felt the timing was right for an evolution in leadership.
+
+ The architect of a solution often best leads a company through its early stages. “But eventually the company grows to a point where the business and the product become two very different challenges. We’ve reached a stage where the best thing I can do for Tempest is focus directly on the technology, the platforms, the visualization systems, and the products that will shape our future - while Dana focuses on guiding the business side of the company she helped build from day one.”
+
+ As co-founder and COO, Dr. Abramovitz has led business development, contracting, operations, and strategic growth throughout Tempest’s evolution. She founded GameTank, later acquired by Ubisoft, where its flagship product evolved into Rocksmith, a market staple today. She also holds a Master of Science in Management (MSM) from Stanford University Graduate School of Business (GSB), in addition to her Ph.D. in Bio-Chemistry and Bio-Physics from Columbia University.
+
+ “This feels like a very natural next step for us,” said Dr. Abramovitz. “Ty’s vision, creativity, and deep understanding of the technology are what built Tempest into what it is today. As we move into commercialization and broader growth, this alignment allows both of us to focus on the areas where we can have the greatest impact for the company, our customers, and our mission.”
+
+ The leadership transition comes during a major growth period for Tempest. The company recently announced the public release of the Corvus Platform, including its first deployment with the University of Houston, while Harbinger enters commercialization alongside ongoing government and advanced technology initiatives.
+
+ “Our mission hasn’t changed,” Audronis added. “If anything, it’s accelerating.”
+
+ Tempest Droneworx remains focused on preventing issues from becoming serious problems through real-time insight.
+
+ For more information, visit www.tempestdroneworx.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202605292493/did-nasas-lunar-economy-pitch-fall-flat-no-agenda-weighs-in)
+[Original/Source Press Release](https://newsworthy.ai/news/202605292492/tempest-droneworx-appoints-dr-dana-abramovitz-as-ceo-amidst-strategic-growth)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-show-deconstructs-lunar-economy-hype/f0a04dcb335d1788337075eed7181e97) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-names-dr-dana-abramovitz-ceo-in-leadership-shift/e4eeb77f51cb35537932c6230074660e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/no-agenda-show-skeptical-of-nasas-20-billion-lunar-economy-pitch)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/tempest-droneworx-appoints-dr-dana-abramovitz-as-ceo-amid-strategic-growth)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/no-agenda-show-skeptical-of-nasas-20-billion-lunar-economy-pitch)
+Pickup - [https://burstable.news](https://burstable.news/news/tempest-droneworx-names-dr-dana-abramovitz-ceo-as-company-transitions-to-commercialization)
 
-Pickup - [https://burstable.news](https://burstable.news/news/no-agenda-show-skeptical-of-nasas-lunar-economy-pitch-deconstructs-media-narratives)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/tempest-droneworx-ernennt-dr-dana-abramovitz-zur-ceo-unternehmen-beginnt-kommerzialisierung)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/no-agenda-show-skeptisch-gegenuber-nasas-mondwirtschafts-pitch-zerlegt-medienerzahlungen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tempest-droneworx-nombra-ceo-a-la-dra-dana-abramovitz-mientras-la-empresa-transita-hacia-la-comercializacion)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-show-no-agenda-se-muestra-esceptico-ante-la-propuesta-de-economia-lunar-de-la-nasa-y-deconstruye-las-narrativas-mediaticas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tempest-droneworx-nomme-le-dr-dana-abramovitz-pdg-alors-que-lentreprise-passe-a-la-commercialisation)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lemission-no-agenda-sceptique-quant-au-discours-de-la-nasa-sur-leconomie-lunaire-deconstruit-les-recits-mediatiques)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/tempest-droneworx-nomeia-dra-dana-abramovitz-como-ceo-enquanto-empresa-transita-para-comercializacao)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/no-agenda-show-cetico-em-relacao-ao-discurso-da-economia-lunar-da-nasa-e-desconstroi-narrativas-da-midia)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/tempest-droneworx-appoints-dr-dana-abramovitz-as-ceo-ty-audronis-as-ctocmo)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/no-agenda-show-dissects-nasas-lunar-economy-pitch-calls-for-earthbound-priorities)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/tempest-droneworx-names-dr-dana-abramovitz-ceo-as-company-shifts-toward-commercialization)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/no-agenda-podcast-skeptical-of-nasas-lunar-economy-pitch)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/tempest-droneworx-names-dr-dana-abramovitz-ceo-as-company-shifts-toward-commercialization)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/no-agenda-podcast-deconstructs-nasas-lunar-economy-pitch-questio/202632720)
-
-Pickup - [https://x.com](https://twitter.com/i/status/2060182387128947018)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tempest-droneworx-appoints-dr-dana-abramovitz-as-ceo-amidst-stra/202632721)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/29/ableokT_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/265/29/mild8xcw.webp)
