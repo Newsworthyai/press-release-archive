@@ -1,38 +1,40 @@
-# US CDC Broadens Ebola Travel Ban to Include Green Card Holders
+# 420 with CNW — Missouri Regulators Prepare Final Marijuana License Lottery
 
-The Centers for Disease Control and Prevention (CDC) in the U.S. has extended the recently issued travel ban on individuals who have been to Uganda, South Sudan, and the Democratic Republic of Congo (DRC) during the past 21 days to now include green card holders. The reason given for this broadened ban is to prevent the disease from being brought into the country by legal permanent residents.
+Missouri cannabis regulators are preparing for a statewide outreach effort ahead of the final lottery that will distribute 77 microbusiness marijuana permits, with officials hoping recent policy changes will strengthen oversight and reduce problems that have troubled earlier rounds.
 
- All stakeholders in the healthcare sector, including firms like Astiva Health, are probably getting very concerned about the likelihood of this…
+ As these microbusiness licenses are issued and the recipients launch their operations, other opportunities could be created within the marijuana industry ecosystem for services similar to what firms like Innovative Industrial Properties Inc. (NYSE: IIPR) offer…
 
  Read More>>
 
- About BioMedWire
+ About CNW420
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- BMW is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.CannabisNewsWire.com
 
- For more information, please visit https://www.BioMedWire.com
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
-
- BioMedWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/us-cdc-broadens-ebola-travel-ban-to-include-green-card-holders/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-missouri-regulators-prepare-final-marijuana-license-lottery/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cdc-extends-ebola-travel-ban-to-green-card-holders/84db4fee38965df4b3310c9ff47c3bd2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/missouri-implements-new-rules-for-final-cannabis-license-lottery/ff2a38252208f3b8acdaffea21be127f) 
 
+
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/missouri-cannabis-regulators-prepare-for-final-microbusiness-license-lottery-with-enhanced-oversight)
+
+Pickup - [https://curatedcannabisnews.substack.com](https://curatedcannabisnews.substack.com/p/ff2a38252208f3b8acdaffea21be127f)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/29/waitZzHN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/265/29/openscTn.webp)
