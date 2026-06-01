@@ -1,116 +1,95 @@
-# Move More for Your Health, Not Just for the Scale
+# GeoVax CEO Welcomes FIFA World Cup 2026 While Addressing Biothreat Readiness
 
-Statement Highlights:
+Largest FIFA Tournament in History Expected to Draw 6.5 Million Attendees Across North America and More Than 1.2 Million International Visitors to U.S. Host Cities Amid Growing Concerns Regarding Mpox, Ebola, Hantavirus, Measles, and Other Emerging Infectious Disease Threats
 
- * Regular physical activity improves blood pressure, insulin sensitivity, cholesterol levels and cardiorespiratory fitness in adults with overweight or obesity, independent of weight loss, according to a new scientific statement from the American Heart Association.
-* Physical activity is an essential part of effective obesity treatment, likely adding health benefits even with weight-loss medications or surgery, strengthening results when used alongside today’s treatments.
-* Long‑term success with weight loss depends on team‑based support, with clinicians and other health professionals helping people build and maintain realistic health habits.
+ ATLANTA, GA - June 1, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX), a clinical-stage biotechnology company developing vaccines and immunotherapies for infectious diseases and cancer, today welcomed the upcoming FIFA World Cup 2026 and highlighted the importance of public health readiness, healthcare capacity, and biodefense capabilities as North America prepares to host the largest sporting event in history.
 
- DALLAS - June 1, 2026 (NEWMEDIAWIRE) - With obesity now affecting more than 40% of U.S. adults and fueling rising rates of heart disease, a new scientific statement from the American Heart Association calls for a comprehensive treatment approach that puts physical activity front and center. The statement, Role of Physical Activity in Obesity Treatment and Cardiometabolic Health, published today in Circulation, the Association’s flagship, peer‑reviewed journal.
+ According to a recent economic impact analysis conducted by Oxford Economics and Tourism Economics, FIFA World Cup 2026 is expected to attract approximately 6.5 million attendees across the United States, Canada, and Mexico, including more than 1.2 million international visitors traveling to U.S. host cities alone. For public health authorities, healthcare systems, emergency management agencies, and national security planners, the tournament represents a real-world test of disease surveillance, healthcare capacity, emergency response coordination, vaccine availability, and critical public health infrastructure at a scale rarely encountered outside of a global crisis.
 
- The statement underscores that regular physical activity improves blood pressure, insulin sensitivity, cholesterol levels and cardiorespiratory fitness in adults with overweight or obesity, independent of weight loss. These findings support the need for exercise as a critical component to any weight loss strategy, including medications or surgery, because physical activity offers important cardiometabolic health benefits in its own right.
+ The event arrives amid a period of increasing infectious disease activity marked by ongoing Clade I mpox transmission, the escalating Bundibugyo Ebola outbreak in Central Africa, renewed concern surrounding zoonotic pathogens such as hantavirus and avian influenza, and growing measles outbreaks in multiple regions. Together, these developments reinforce a broader reality: biological threats are becoming more global, more interconnected, and increasingly simultaneous.
 
- “Doctors and health professionals often focus on weight loss to help people lower their risk of heart disease. There are certainly health benefits from weight loss, especially when it’s sustained long-term. However, encouraging physical activity should always be an important part of that care plan, as it can support both weight loss and long-term maintenance,” said Damon L. Swift, Ph.D., FAHA, American Heart Association volunteer and chair of the writing group for the scientific statement and an associate professor of kinesiology at the University of Virginia in Charlottesville. “Physical activity delivers powerful heart and metabolic health gains even when the scale doesn’t move. These benefits are especially important because many people with overweight or obesity already have cardiovascular risk factors.”
+ "FIFA 2026 represents more than a sporting event. It is a large-scale operational challenge occurring in an era of persistent biological risk," said David A. Dodd, Chairman and Chief Executive Officer of GeoVax. "When millions of people move across borders, transportation networks, and densely populated urban environments over a compressed period of time, health security becomes an operational necessity. The ability to detect, monitor, and respond rapidly to emerging infectious disease threats will be as important as the infrastructure supporting the tournament itself."
 
- How much exercise do I need?
+ Mass gatherings do not create outbreaks. However, they can amplify the operational consequences of existing vulnerabilities. Millions of visitors moving through airports, public transportation systems, hotels, entertainment venues, and urban centers create conditions that test disease surveillance systems, laboratory capacity, healthcare surge capabilities, public communication networks, and cross-jurisdictional coordination.
 
- “For most people, cardio exercise without changing your diet is unlikely to result in a large amount of weight loss. Dietary changes remain the primary driver of weight loss,” Swift said. “However, physical activity plays a powerful supporting role when combined with other treatments, including healthy eating, weight loss medications or surgery. Exercise can help people lose a little more weight, preserve important lean mass - especially with resistance exercise - and improve overall health.”
+ Recent outbreaks have reinforced the reality that governments can no longer focus on a single pathogen at a time. The continued spread of mpox beyond historically endemic regions, the emergence of more virulent viral strains, and the ongoing Bundibugyo Ebola outbreak, which currently lacks a broadly licensed vaccine specifically approved for widespread deployment, underscore the need for flexible response capabilities able to address multiple evolving threats simultaneously.
 
- Swift said when people lose weight by cutting calories, they often lose muscle, too. Studies show that adding exercise to dietary weight loss helps people preserve more muscle compared with dieting alone. Strength or resistance training appears especially effective, particularly for middle-aged and older adults. Eating at least the recommended daily amount of protein also helps the body maintain muscle while losing fat. Keeping muscle isn’t just about strength, it helps with mobility, metabolism, and blood sugar control.
+ "The central challenge is no longer responding to a single outbreak," continued Dodd. "Governments and health systems increasingly require the ability to manage multiple biological threats at once. Health security today means more than surveillance. It requires manufacturing capacity, supply-chain diversification, stockpile availability, operational coordination, and the ability to rapidly deploy effective countermeasures when and where they are needed."
 
- On its own, exercise usually does not lead to clinically meaningful weight loss unless people are able to be active for very long periods each week.
+ GeoVax believes several priorities warrant increased attention as FIFA 2026 approaches:
 
- * The scientific statement highlights that exercise by itself rarely leads to any more than a 5% or more loss in body weight unless aerobic activity levels are quite high, at least 225-420 minutes per week.
-* Fewer than 15% of individuals reach a clinically significant amount of weight loss through exercise alone. Modest weight loss of around 3% (and less than 5%) of body weight is more achievable and does support some health benefits.
+ * Expanding domestic vaccine manufacturing capacity
+* Diversifying critical medical countermeasure supply chains
+* Enhancing disease surveillance and rapid-response capabilities
+* Supporting adaptable vaccine platform technologies
+* Strengthening public-private health security partnerships
+* Improving stockpile management and deployment logistics
 
- According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, most people in the U.S. are not getting an adequate amount of physical activity for any health benefits, much less weight loss.
+ A New Era of Biological Risk
 
- * Only 1 in 4 U.S. adults and 1 in 5 youths 6 to 17 years of age meet national recommendations for being physically active.
+ The World Cup does not create vulnerabilities. It has the potential to expose them.
 
- The American Heart Association recommends that adults achieve a minimum of 150 minutes per week of moderate-intensity aerobic activity or 75 minutes per week of vigorous aerobic activity. To maximize health outcomes, these aerobic guidelines should be paired with muscle-strengthening activities of at least moderate intensity on two or more days per week. Adherence to these physical activity levels with significant improvements in heart disease risk factors and a marked reduction in all-cause and cardiovascular mortality.
+ Recent mpox outbreaks demonstrated how rapidly demand for vaccines and medical countermeasures can outpace available supply. The Bundibugyo Ebola outbreak has highlighted continuing gaps in available tools for emerging pathogen variants. At the same time, concerns regarding zoonotic spillover events, international mobility, and supply-chain concentration have reinforced the importance of scalable manufacturing capacity, diversified sourcing, flexible vaccine technologies, and geographically distributed biodefense infrastructure.
 
- Why do I have to keep exercising after I reach my goal weight?
+ The ongoing mpox environment has also highlighted the strategic importance of poxvirus vaccine availability. Today, global supply of MVA-based poxvirus vaccines remains concentrated among a single non-U.S. manufacturer, creating potential constraints during periods of heightened demand. Expanding manufacturing capacity and strengthening supply diversity may play an important role in future health security efforts.
 
- Swift said maintaining weight loss is often more difficult than achieving it. The statement highlights strong evidence that high levels of consistent physical activity - often 200 to 300 minutes per week of moderate-intensity physical activity - are associated with long‑term weight‑loss maintenance and that is considerably more than the 150 minutes per week recommended by the American Heart Association for cardiovascular health.
+ GeoVax's development portfolio is anchored by GEO-MVA, an MVA-based poxvirus vaccine candidate being advanced for protection against mpox and smallpox and intended to support a more diversified global poxvirus vaccine supply. GeoVax is also advancing Gedeptin®, an immuno-oncology program designed to enhance anti-tumor immune responses in solid tumors. The Company's broader technology portfolio includes preclinical vaccine candidates targeting hemorrhagic fever pathogens, including Ebola and Marburg viruses, which have demonstrated encouraging efficacy in animal studies and may provide future strategic optionality for biodefense and global health applications.
 
- However, if you cannot reach those levels, it is still beneficial to maintain a regular schedule with some exercise and stay as active as you can. Doing any physical activity is much better than doing nothing.
+ "As the world comes together to celebrate FIFA World Cup 2026, we extend our congratulations to the athletes who have dedicated years to reaching this global stage and to the organizers responsible for bringing this remarkable event to life," concluded Dodd. "The success of gatherings like these depends not only on what happens on the field, but also on the public health systems, healthcare infrastructure, and operational planning that support them behind the scenes. By investing in manufacturing capacity, disease surveillance, and biodefense capabilities today, we can help ensure that the world's attention remains focused where it belongs - on the athletes, the competition, and the spirit of international cooperation."
 
- “Many of the health benefits achieved from weight loss may be reversed if the weight is gained back,” he said. “Physical activity can not only help maintain weight loss, it also may protect cardiovascular health even if some weight regain occurs, helping preserve earlier improvements in blood pressure and insulin sensitivity.”
+ About GeoVax
 
- What does successful treatment of obesity look like?
+ GeoVax Labs, Inc. is a clinical-stage biotechnology company focused on the development of vaccines and immunotherapies addressing high-consequence infectious diseases and solid tumor cancers. GeoVax’s priority program is GEO-MVA, a Modified Vaccinia Ankara (MVA)–based vaccine targeting mpox and smallpox. The program is advancing under an expedited regulatory pathway, with plans to initiate a pivotal Phase 3 clinical trial in the second half of 2026, to address critical global needs for expanded orthopoxvirus vaccine supply and biodefense preparedness. In oncology, GeoVax is developing Gedeptin®, a gene-directed enzyme prodrug therapy (GDEPT) designed to enhance immune checkpoint inhibitor activity. Gedeptin has completed a multicenter Phase 1/2 clinical trial in advanced head and neck cancer and is being advanced into combination strategies, including planned neoadjuvant and first-line settings. GeoVax maintains a global intellectual property portfolio supporting its infectious disease and oncology programs and continues to evaluate strategic partnerships and funding opportunities aligned with its development priorities. For more information, visit www.geovax.com.
 
- “As with any major medical issue, treatment of obesity should be individually tailored to a person’s specific needs and usually requires a comprehensive, multipronged approach that’s best achieved with guidance from a health professional,” Swift said. “Not only does this support individual accountability, but just as you wouldn’t likely treat high blood pressure or diabetes on your own, optimal results in treating obesity will come from a collaboration with your clinician and health care team.”
+ Forward-Looking Statements
 
- Because long‑term success depends on ongoing support, the statement emphasizes the role of clinicians and health care professionals to help people address obesity by setting realistic goals, staying motivated and using evidence-based approaches including medications or surgery, counseling and digital tools. Treatment plans should consider strong physician-patient communication, comprehensive medical assessments and plans for follow-up care.
+ This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
 
- The statement highlights the 5A model as one option to successfully encourage regular physical activity participation:
+ Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
 
- * Assess: Uncover the individual’s intention to engage in and knowledge of increased physical activity.
-* Advise: Offer information to further the individual’s understanding of approaches to incorporate regular physical activity into their day.
-* Agree: Collaborate on establishing SMART goals which are:  Specific, Measurable, Achievable, Relevant and Time bound.
-* Assist: Collaborate on problem-solving and strategies to achieve a SMART goal.
-* Arrange: Work on plans to review progress and to provide references for additional support.
+ Company Contact:info@geovax.com678-384-7220
 
- Incorporating physical activity into an obesity treatment plan may include a wide range of options:
+ Media Contact:Jessica Starmanmedia@geovax.com
 
- * Appropriate clinical interventions such as weight loss medication or surgery
-* Referrals to physiotherapists, physical therapists or exercise physiologists
-* Consultations with other auxiliary health care professionals such as nurses/nurse practitioners, registered dietitians, health educators/coaches or behavioral counselors
-* Use of technology including electronic health records, cost-effective pedometers and digital technologies such as mobile health applications and wearables (such as smartwatches or adhesive patches with sensors) for real-time monitoring to support or facilitate lifestyle changes.
-
- “Despite the known benefits of physical activity, many people face challenges being active, including time constraints and limited access to safe or convenient ways to move during daily routines. Addressing these barriers can help support healthier habits over time,” said Stacey E. Rosen, M.D., FAHA, volunteer president of the American Heart Association and executive director of the Katz Institute for Women’s Health and senior vice president of women’s health at Northwell Health in New York City. “The American Heart Association supports evidence-based public health policies that integrate physical activity assessment, prescription and referral into health care delivery and help make physical activity easier and more accessible for people of all ages and abilities. Research shows that safe community design, opportunities for activity in schools and in the workplace, along with access to active transportation can all increase daily movement and support long-term cardiovascular and metabolic health.”
-
- “For many people, lasting weight loss can feel out of reach. When movement is added as part of obesity care, it not only supports weight loss goals, but improves key health risk factors,” Swift said. “Physical activity should be prescribed and prioritized for its cardiovascular and metabolic benefits in obesity treatment. Exercise can help you be healthier even if you don’t lose weight.”
-
- This scientific statement was prepared by a volunteer writing group on behalf of the American Heart Association Council on Lifestyle and Cardiometabolic Health; Council on Cardiovascular and Stroke Nursing; Council on Clinical Cardiology; Council on Hypertension;
-
- and Stroke Council. American Heart Association scientific statements promote greater awareness about cardiovascular diseases and stroke issues and help facilitate informed health care decisions. Scientific statements outline what is currently known about a topic and what areas need additional research. While scientific statements inform the development of guidelines, they do not make treatment recommendations. American Heart Association guidelines provide the Association’s official clinical practice recommendations.
-
- Co-authors are Leanna M. Ross, Ph.D., FAHA, Vice Chair; Deepika R. Laddu, Ph.D., FAHA;
-
- Molly B. Conroy, M.D., M.P.H., FAHA; Charles A. German, M.D., M.S., FAHA; Lorraine S. Evangelista, Ph.D., R.N., FAHA; Francoise A. Marvel, M.D.; and Gerald J. Jerome, Ph.D., FAHA. Authors’ disclosures are listed in the manuscript.
-
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- More than 8 in 10 (82%) U.S. adults say they are confident in the American Heart Association to provide trustworthy information related to public health, according to a recent Annenberg Policy Center poll. The Association ranked second only to an individual’s personal health care provider.
-
- Additional Resources:
-
- * Additional multimedia are on right column of release link.
-* Spanish news release
-* After 4 a.m. CT/5 a.m. ET, Monday, June 1, 2026, view the manuscript online.
-* The American Heart Association’s Heart on the Move Challenge, is a 21-day, step-based program to help people build a consistent movement routine in a way that fits into daily living.
-* American Heart Association Scientific Statement: Obesity and Cardiovascular Disease
-* American Heart Association Health Information: Healthy Eating
-* American Heart Association Health Information: Fitness
-* American Heart Association Health Information: Cardiovascular-Kidney-Metabolic Health
-* American Heart Association Policy Information: Policy Levers to Improve Physical Education, Youth Physical Activity and Social and Emotional Learning (PDF)
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from Circulation, the American Heart Association flagship journal on X @CircAHA.
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Cathy Lewis: cathy.lewis@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/move-more-for-your-health-not-just-for-the-scale-7086957)
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-ceo-welcomes-fifa-world-cup-2026-while-addressing-biothreat-readiness-7086962)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/move-more-for-health-not-just-the-scale-aha-urges-exercise-in-obesity-care/cbc834061eb7684bab979bad592e81e7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-warns-of-biothreats-as-fifa-world-cup-2026-nears/fa3d7333747d18f82a8576bd3d5d809e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/geovax-ceo-highlights-biothreat-readiness-as-fifa-world-cup-2026-approaches)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/geovax-ceo-highlights-biothreat-readiness-as-fifa-world-cup-2026-approaches)
+
+Pickup - [https://burstable.news](https://burstable.news/news/geovax-ceo-highlights-biothreat-readiness-ahead-of-fifa-world-cup-2026)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/geovax-ceo-hebt-bedeutung-der-bioterror-abwehr-vor-der-fifa-weltmeisterschaft-2026-hervor)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ceo-de-geovax-destaca-la-preparacion-ante-amenazas-biologicas-de-cara-a-la-copa-mundial-de-la-fifa-2026)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-pdg-de-geovax-souligne-la-necessite-de-la-preparation-aux-menaces-biologiques-avant-la-coupe-du-monde-de-la-fifa-2026)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ceo-da-geovax-destaca-prontidao-contra-ameacas-biologicas-para-a-copa-do-mundo-fifa-2026)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/geovax-ceo-highlights-biothreat-readiness-as-fifa-world-cup-2026-approaches)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/fa3d7333747d18f82a8576bd3d5d809e)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/geovax-highlights-biodefense-gaps-ahead-of-2026-world-cup)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/geovax-ceo-highlights-biothreat-readiness-as-fifa-world-cup-2026-approaches)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/geovax-ceo-highlights-biothreat-readiness-as-fifa-world-cup-2026/202632824)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/fa3d7333747d18f82a8576bd3d5d809e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/1/apexW1ZC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/1/glueBpM7.webp)
