@@ -1,107 +1,123 @@
-# Inventory Update Expands Viking Travel Trailer Options in Ontario Market
+# Updated RV Inventory Reported Across Colorado by Windish RV Center in Longmont
 
-RV Trailers for Sale in Ontario Supported by Personalized Service and Guidance at Keith's Trailer Sales
+Family-Owned RV Dealer Expands Access to RVs for Sale in Colorado Springs Across Colorado Locations
 
- Erin, Canada - May 29, 2026 / Keith's Trailer Sales /
+ Longmont, United States - May 29, 2026 / Windish RV Center Longmont /
 
- ERIN, ON, May 29, 2026 — Keith's Trailer Sales reported updated inventory movement across its travel trailer lineup, including additions tied to Viking and Keystone travel trailer units at its Erin, Ontario dealership. The update reflects changes in available stock driven by incoming deliveries and turnover in used RV units within the RV trailer category.
+ LONGMONT, Colorado, May 29, 2026 — Windish RV Center in Longmont reported updated RV inventory across its Colorado dealership locations, including Montana 5th wheel and RV units. Inventory is listed across Longmont, Lakewood, and Colorado Springs locations.
 
-The dealership, located north of Hillsburgh, continues operating as a family-run RV dealership in Ontario, offering new and used travel trailers, fifth wheels, and toy haulers. Inventory activity this cycle includes both Forest River Viking and Keystone RV trailer models across multiple configurations.
+The dealership operates in Colorado as a multi-location RV retailer offering new and pre-owned recreational vehicles, including fifth wheels, travel trailers, motorhomes, and toy haulers.
 
-The update reflects routine stock rotation tied to trade-ins, supplier deliveries, and ongoing customer demand for towable RV units.
+![Image of RV from Windish RV](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/pEOvb6vvkgHO2E1Nqtdahq5mFqE5IzvO6EPdFquB.jpg)
 
-![2026 Keystone RV Arcadia Select 21SRK-kitchen](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/roXPDW5Ics8NAmw9TZgM0cO7XET2QNbcqG8J5Gge.jpg)
+RV Inventory Update Across Colorado LocationsThe dealership confirmed availability of Keystone Montana 5th wheel units within its current fifth wheel inventory. Units are available in both new and pre-owned condition, depending on location.
 
-Travel Trailer Inventory Includes Viking and Keystone UnitsKeith's Trailer Sales confirmed that Viking RV trailer models form part of its updated inventory mix. These units are commonly reviewed by buyers seeking lightweight towing options and practical interior layouts suitable for
+Current inventory includes:
 
-short and mid-range travel.
+* New and Used Keystone 5th wheel units
+* Fifth wheels from Grand Design RV and Jayco
 
-Current Viking travel trailer characteristics within the inventory include:
+Inventory varies by location based on incoming units and trade-ins.
 
-* Compact and lightweight construction
-* Bunkhouse and multi-sleep layouts
-* Functional kitchen and dining areas
-* Basic storage configurations for travel use
-* Towing compatibility for a range of vehicles
+Customers reviewing RV for sale listings can view available floor plans and specifications based on current dealership inventory.
 
-Keystone travel trailer units are also part of the updated inventory cycle. These models typically appeal to buyers comparing larger layouts and extended-use camping capability.
+“Customer decisions in RV selection often depend on timing, available inventory, and how different models align with planned travel requirements,” said Carolyn Windish Irwin, President of Windish RV Center in Longmont. “As a family-owned dealership serving multiple locations across Colorado, maintaining access to both new and pre-owned RV options within the same network supports the way buyers evaluate their choices.”
 
-Key Keystone RV trailer features include:
+Montana RV Availability in Regional InventoryWindish RV Center in Longmont confirmed that Keystone Montana RV units remain listed within its fifth wheel inventory category across its Colorado dealership locations. The update reflects current availability across Longmont, Lakewood, and Colorado Springs.
 
-* Expanded floor plans with additional living space
-* Family-oriented sleeping arrangements
-* Increased storage capacity
-* Multi-use interior layouts for longer stays
+Inventory listings include:
 
-Buyers comparing travel trailers or Viking RV dealer listings often evaluate layout size, towing requirements, and seasonal usage needs.
+* Keystone Montana RV fifth wheel units
+* Multiple floor plan configurations
+* Units available across different dealership locations
 
-Inventory Rotation and RV Specials ActivityKeith's Trailer Sales maintains an active inventory rotation system based on incoming shipments and used unit availability. This approach supports regular updates to both standard listings and RV specials inventory.
+Listed models provide specification details such as interior layout, storage design, and towing requirements based on current unit availability. Inventory records are updated as units are added or removed through trade-ins and incoming shipments across the network.
 
-RV specials typically include selected units moved into a separate category due to:
+RVs for Sale in Colorado Springs AccessWindish RV Center reported that inventory listings are accessible for searches related to RVs for sale in Colorado Springs through its Colorado dealership network. The update reflects shared listing coverage across Longmont, Lakewood, and Colorado Springs locations.
 
-* New inventory arrivals replacing older stock
-* Seasonal adjustments in trailer availability
-* Pre-owned units entering dealership intake
-* Short-term pricing adjustments based on stock levels
+Current listing categories include:
 
-Buyers reviewing RV dealers near Ontario often compare:
+* New and Pre-owned RV units listed in Colorado Springs
+* Cross-location inventory listings across Colorado dealerships
 
-* Trailer weight and tow capacity
-* Interior floor plan layout
-* Sleeping capacity and configuration
-* Appliance condition and usability
-* Storage design and accessibility
-* Suitability for seasonal camping
+Inventory records cover motorhomes, travel trailers, toy haulers, and fifth wheel units. Each listing contains unit-specific details such as floor plan layout, towing specifications, and interior configuration based on available stock at the time of listing updates across the network.
 
-Each trailer purchase includes a walkthrough session covering core operating systems, including electrical, water, and appliance usage, before delivery.
+Inventory Overview and Vehicle CategoriesWindish RV Center reported an updated inventory count exceeding 600 recreational vehicles across its Colorado locations as of its latest internal listing review. The inventory spans multiple RV categories and is distributed across Longmont, Lakewood, and Colorado Springs dealership sites.
 
-Local Dealership Operations in Erin, OntarioKeith's Trailer Sales continues serving customers from its Erin location with a focus on both new and pre-owned towable RV inventory. The dealership works with buyers ranging from new RV owners to returning customers upgrading existing units.
+Recorded inventory categories include:
 
-Services and inventory categories include:
+* Fifth wheel units
+* Travel trailers in both new and pre-owned condition
+* Toy hauler units with varying floor plans
+* Motorhome listings across multiple size classes
 
-* New and used travel trailers
-* Fifth wheels
-* Toy haulers
-* RV specials inventory
-* Used RV purchases (model year 2009 or newer)
+Inventory levels are adjusted through incoming manufacturer shipments and customer trade-in activity. Each update reflects changes in unit availability, including additions and removals recorded across the dealership network’s listing system.
 
-The dealership also evaluates and purchases qualifying used trailers from sellers across Ontario, contributing to ongoing inventory turnover and selection variety.
+![RV interior from Windish RV Center](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/onINcUTPqRVoPw4TOlBgAB5wBO5gY91B17RVGEUZ.jpg)
 
-Customers searching for a Viking RV trailer or Keystone RV dealer can review current listings through the dealership website or visit the Erin location for an in-person inspection.
+About Windish RV Center in LongmontWindish RV Center is a family-owned recreational vehicle dealership based in Colorado with more than 50 years of continuous operation. The business was established and developed through multiple generations of the Windish family and continues to operate under long-standing ownership leadership.
 
-![2026 Keystone RV Arcadia Select 21SRK-exterior](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/NzXuPtIzOEfQ4n5xjHP3hdKjPXWuQIFV0EvBK7wQ.jpg)
+The dealership maintains locations in Longmont and Lakewood, serving customers across Colorado through a retail RV network that includes new and pre-owned recreational vehicles. Its inventory includes brands such as Airstream, Forest River, Grand Design, Jayco, nuCamp, Cruiser, and Keystone.
 
-About Keith's Trailer SalesKeith's Trailer Sales is a family-run RV dealership based just north of Hillsburgh in Erin, Ontario. Established in 2014, the dealership operates in the recreational vehicle sector. It offers new and used travel trailers, fifth wheels, and toy haulers. Inventory includes models from manufacturers such as Viking (Forest River) and Keystone. The dealership also purchases used trailers from model year 2009 or newer. Operations focus on RV sales and trade-in acquisition within the regional market.
+They have been recognized within the RV industry through independent dealer rankings, including inclusion in national dealership listings based on business operations and service standards. The company operates with an emphasis on direct customer communication and in-house decision processes within its dealership structure.
 
-Media ContactPR Office, Keith's Trailer Sales6113 Wellington Road 24Erin, ON L0N 1N0CanadaPhone: (289) 344-0557Email: keith@keithstrailers.com
+Media ContactCarolyn Windish Irwin
 
-Website: www.keithstrailers.com
+President of Windish RV Center
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/KzU8HYoaR0P6QqhpfUleHc8yHPWLXweAuIadHtmy.jpg) [](https://www.keithstrailers.com/) Contact Information:
+10300 E I-25 Frontage Rd
 
- Keith's Trailer Sales
+Longmont, CO, 80504, United States Phone: (866) 989-3022Website: https://www.windishrv.com/
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/onINcUTPqRVoPw4TOlBgAB5wBO5gY91B17RVGEUZ.jpg) [](https://www.windishrv.com/) Contact Information:
+
+ Windish RV Center Longmont
 
  
 
-6113 Wellington Road 24  Erin, ON L0N 1N0Canada
+10300 E I-25 Frontage Rd  Longmont, CO 80504United States
 
- Public Relations +1 289-344-0557 https://www.keithstrailers.com/
+ Public Relations (866) 989-3022 https://www.windishrv.com/
 
  
 
- Original Source:  https://keithstrailersales.media-room.app/ 
+ Original Source:  https://windishrvcenterlongmont.media-room.app/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/inventory-update-expands-viking-travel-trailer-options-in-ontario-market-432256)
+[Original/Source Press Release](https://mediawiretoday.com/updated-rv-inventory-reported-across-colorado-by-windish-rv-center-in-longmont-432134)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ontario-rv-dealer-updates-inventory-with-viking-and-keystone-trailers/c7f9c955187e88b08cf20047efd422d3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/windish-rv-center-expands-colorado-inventory-with-montana-5th-wheels/589ae8b7d44acd5215284b7354dc334e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/windish-rv-center-reports-updated-inventory-across-colorado-locations)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/windish-rv-center-updates-inventory-across-colorado-locations-expanding-access-for-buyers)
+
+Pickup - [https://burstable.news](https://burstable.news/news/windish-rv-center-updates-rv-inventory-across-colorado-locations-including-colorado-springs)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/windish-rv-center-aktualisiert-rv-bestand-an-standorten-in-colorado-einschliesslich-colorado-springs)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/windish-rv-center-actualiza-el-inventario-de-vehiculos-recreativos-en-sus-ubicaciones-de-colorado-incluido-colorado-springs)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/windish-rv-center-met-a-jour-son-inventaire-de-camping-cars-dans-ses-sites-du-colorado-y-compris-colorado-springs)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2061811945540333715)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/windish-rv-center-atualiza-estoque-de-rvs-em-locais-do-colorado-incluindo-colorado-springs)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/windish-rv-center-reports-updated-rv-inventory-across-colorado-locations)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/windish-rv-center-reports-updated-rv-inventory-across-colorado-locations)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/windish-rv-center-reports-updated-rv-inventory-across-colorado-l/202632902)
+
+Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/589ae8b7d44acd5215284b7354dc334e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/2/calmLktT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/2/kissC3zx.webp)
