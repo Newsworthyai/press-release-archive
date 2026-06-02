@@ -1,123 +1,78 @@
-# Updated RV Inventory Reported Across Colorado by Windish RV Center in Longmont
+# Service Nation Partnership Brings 3.5% Rebate to Contractors
 
-Family-Owned RV Dealer Expands Access to RVs for Sale in Colorado Springs Across Colorado Locations
+Contractors Earn 3.5% Rebate on CI Web Group Services Under Service Nation Deal
 
- Longmont, United States - May 29, 2026 / Windish RV Center Longmont /
+ Houston, United States - May 31, 2026 / CI Web Group, Inc. /
 
- LONGMONT, Colorado, May 29, 2026 — Windish RV Center in Longmont reported updated RV inventory across its Colorado dealership locations, including Montana 5th wheel and RV units. Inventory is listed across Longmont, Lakewood, and Colorado Springs locations.
+ Houston, TX, May 28, 2026 - CI Web Group, Inc., a digital marketing and technology agency focused on the home-services industry, has been named a Preferred Partner of Service Nation by EverPro. The partnership aims to help HVAC, plumbing and electrical contractors across North America drive business growth through AI-powered marketing, automated lead generation and contractor training programs.
 
-The dealership operates in Colorado as a multi-location RV retailer offering new and pre-owned recreational vehicles, including fifth wheels, travel trailers, motorhomes, and toy haulers.
+Through the Preferred Partner designation, Service Nation members will gain access to CI Web Group's AI-driven solutions and training resources. Central to the offering is Hydra OS, the company's proprietary website architecture built for speed, security and enhanced visibility across both traditional search engines and AI-driven answer platforms such as ChatGPT and Google AI Overviews.
 
-![Image of RV from Windish RV](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/pEOvb6vvkgHO2E1Nqtdahq5mFqE5IzvO6EPdFquB.jpg)
+"We're excited to align our AI-driven marketing solutions with Service Nation's community and education programs," said Jennifer Bagley, CEO of CI Web Group. "Together we'll give contractors a clear, practical path to measurable growth."
 
-RV Inventory Update Across Colorado LocationsThe dealership confirmed availability of Keystone Montana 5th wheel units within its current fifth wheel inventory. Units are available in both new and pre-owned condition, depending on location.
+The agreement also introduces a gamified ambassador program through which contractors and distributors can accumulate points redeemable for marketing services, including SEO, blog content and website enhancements. Service Nation members will receive a 3.5% rebate on eligible CI Web Group products and services, and existing CI Web Group clients qualify for a complimentary Hydra OS upgrade at no additional cost.
 
-Current inventory includes:
+"Welcoming CI Web Group into our Preferred Partner Program is a win for our members," said Nicole Norris, Strategic Partner Manager at Service Nation. "Their AI expertise and commitment to contractor education expand the tools and training available to our community."
 
-* New and Used Keystone 5th wheel units
-* Fifth wheels from Grand Design RV and Jayco
+About CI Web Group, Inc.
 
-Inventory varies by location based on incoming units and trade-ins.
+CI Web Group is a digital marketing agency and technology innovator dedicated to serving the trades. Since 2008, the company has specialized in helping home service businesses - including HVAC, plumbing, electrical and roofing contractors - scale through high-performance digital strategies. Learn more at www.ciwebgroup.com.
 
-Customers reviewing RV for sale listings can view available floor plans and specifications based on current dealership inventory.
+About Service Nation by EverPro
 
-“Customer decisions in RV selection often depend on timing, available inventory, and how different models align with planned travel requirements,” said Carolyn Windish Irwin, President of Windish RV Center in Longmont. “As a family-owned dealership serving multiple locations across Colorado, maintaining access to both new and pre-owned RV options within the same network supports the way buyers evaluate their choices.”
+Service Nation by EverPro supports contractors through community, education and business resources designed to help them learn, grow and connect. Member benefits include peer groups, leadership training, partner rebates and national events such as Service World Expo. As part of EverPro within EverCommerce, Service Nation links its network with modern technology solutions. Learn more at www.servicenation.com.
 
-Montana RV Availability in Regional InventoryWindish RV Center in Longmont confirmed that Keystone Montana RV units remain listed within its fifth wheel inventory category across its Colorado dealership locations. The update reflects current availability across Longmont, Lakewood, and Colorado Springs.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/UofV6WQA15xKNrZQEFL9zXIHIKopY6l1HVm5QLKJ.png) [](https://www.ciwebgroup.com) Contact Information:
 
-Inventory listings include:
-
-* Keystone Montana RV fifth wheel units
-* Multiple floor plan configurations
-* Units available across different dealership locations
-
-Listed models provide specification details such as interior layout, storage design, and towing requirements based on current unit availability. Inventory records are updated as units are added or removed through trade-ins and incoming shipments across the network.
-
-RVs for Sale in Colorado Springs AccessWindish RV Center reported that inventory listings are accessible for searches related to RVs for sale in Colorado Springs through its Colorado dealership network. The update reflects shared listing coverage across Longmont, Lakewood, and Colorado Springs locations.
-
-Current listing categories include:
-
-* New and Pre-owned RV units listed in Colorado Springs
-* Cross-location inventory listings across Colorado dealerships
-
-Inventory records cover motorhomes, travel trailers, toy haulers, and fifth wheel units. Each listing contains unit-specific details such as floor plan layout, towing specifications, and interior configuration based on available stock at the time of listing updates across the network.
-
-Inventory Overview and Vehicle CategoriesWindish RV Center reported an updated inventory count exceeding 600 recreational vehicles across its Colorado locations as of its latest internal listing review. The inventory spans multiple RV categories and is distributed across Longmont, Lakewood, and Colorado Springs dealership sites.
-
-Recorded inventory categories include:
-
-* Fifth wheel units
-* Travel trailers in both new and pre-owned condition
-* Toy hauler units with varying floor plans
-* Motorhome listings across multiple size classes
-
-Inventory levels are adjusted through incoming manufacturer shipments and customer trade-in activity. Each update reflects changes in unit availability, including additions and removals recorded across the dealership network’s listing system.
-
-![RV interior from Windish RV Center](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/onINcUTPqRVoPw4TOlBgAB5wBO5gY91B17RVGEUZ.jpg)
-
-About Windish RV Center in LongmontWindish RV Center is a family-owned recreational vehicle dealership based in Colorado with more than 50 years of continuous operation. The business was established and developed through multiple generations of the Windish family and continues to operate under long-standing ownership leadership.
-
-The dealership maintains locations in Longmont and Lakewood, serving customers across Colorado through a retail RV network that includes new and pre-owned recreational vehicles. Its inventory includes brands such as Airstream, Forest River, Grand Design, Jayco, nuCamp, Cruiser, and Keystone.
-
-They have been recognized within the RV industry through independent dealer rankings, including inclusion in national dealership listings based on business operations and service standards. The company operates with an emphasis on direct customer communication and in-house decision processes within its dealership structure.
-
-Media ContactCarolyn Windish Irwin
-
-President of Windish RV Center
-
-10300 E I-25 Frontage Rd
-
-Longmont, CO, 80504, United States Phone: (866) 989-3022Website: https://www.windishrv.com/
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/onINcUTPqRVoPw4TOlBgAB5wBO5gY91B17RVGEUZ.jpg) [](https://www.windishrv.com/) Contact Information:
-
- Windish RV Center Longmont
+ CI Web Group, Inc.
 
  
 
-10300 E I-25 Frontage Rd  Longmont, CO 80504United States
+13710 Vintage Centre Drive  Houston, TX 77069United States
 
- Public Relations (866) 989-3022 https://www.windishrv.com/
-
- 
-
- Original Source:  https://windishrvcenterlongmont.media-room.app/ 
+ CI Web Group Inc. +1-877-839-1122 https://www.ciwebgroup.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/updated-rv-inventory-reported-across-colorado-by-windish-rv-center-in-longmont-432134)
+[Original/Source Press Release](https://mediawiretoday.com/service-nation-partnership-brings-35-rebate-to-contractors-433028)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/windish-rv-center-expands-colorado-inventory-with-montana-5th-wheels/589ae8b7d44acd5215284b7354dc334e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ci-web-group-partners-with-service-nation-to-boost-contractor-growth/4db435de515d052bf0461ec0dd5fb2f3) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/windish-rv-center-reports-updated-inventory-across-colorado-locations)
+Pickup - [https://advos.io/en](https://advos.io/en/ci-web-group-named-preferred-partner-of-service-nation-offering-contractors-35-rebate-on-ai-marketing-services)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/windish-rv-center-updates-inventory-across-colorado-locations-expanding-access-for-buyers)
+Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/ci-web-group-partners-with-service-nation-to-bring-ai-marketing-to-home-services-contractors)
 
-Pickup - [https://burstable.news](https://burstable.news/news/windish-rv-center-updates-rv-inventory-across-colorado-locations-including-colorado-springs)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/ci-web-group-named-preferred-partner-of-service-nation-offering-35-rebate-to-contractors)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/windish-rv-center-aktualisiert-rv-bestand-an-standorten-in-colorado-einschliesslich-colorado-springs)
+Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/ci-web-group-named-preferred-partner-of-service-nation-bringing-ai-marketing-to-home-services-contractors)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/windish-rv-center-actualiza-el-inventario-de-vehiculos-recreativos-en-sus-ubicaciones-de-colorado-incluido-colorado-springs)
+Pickup - [https://burstable.news](https://burstable.news/news/ci-web-group-named-preferred-partner-of-service-nation-offering-35-rebate-to-contractors)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/windish-rv-center-met-a-jour-son-inventaire-de-camping-cars-dans-ses-sites-du-colorado-y-compris-colorado-springs)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ci-web-group-als-bevorzugter-partner-von-service-nation-ernannt-35-rabatt-fur-handwerker)
 
-Pickup - [https://x.com](https://twitter.com/i/status/2061811945540333715)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ci-web-group-nombrado-socio-preferido-de-service-nation-ofreciendo-un-reembolso-del-35-a-los-contratistas)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/windish-rv-center-atualiza-estoque-de-rvs-em-locais-do-colorado-incluindo-colorado-springs)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ci-web-group-nomme-partenaire-privilegie-de-service-nation-offrant-un-rabais-de-35-aux-entrepreneurs)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/windish-rv-center-reports-updated-rv-inventory-across-colorado-locations)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ci-web-group-nomeada-parceira-preferencial-da-service-nation-oferecendo-35-de-reembolso-aos-contratantes)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/windish-rv-center-reports-updated-rv-inventory-across-colorado-locations)
+Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/ci-web-group-becomes-service-nation-preferred-partner-to-bring-ai-marketing-to-home-service-contractors)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/windish-rv-center-reports-updated-rv-inventory-across-colorado-l/202632902)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ci-web-group-named-preferred-partner-of-service-nation-offering-35-rebate-to-contractors)
 
-Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/589ae8b7d44acd5215284b7354dc334e)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ci-web-group-named-preferred-partner-of-service-nation-offers-35-rebate-to-contractors)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ci-web-group-named-preferred-partner-of-service-nation-offering-ai-marketing-and-rebates-to-contractors)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ci-web-group-named-preferred-partner-of-service-nation-offering/202632955)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2061876948905713902)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/2/kissC3zx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/2/quay711T.webp)
