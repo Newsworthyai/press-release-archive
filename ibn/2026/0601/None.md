@@ -1,31 +1,31 @@
-# Meta Reveals Plans to Pilot AI Subscription Offers
+# 420 with CNW — DEA Prepares for Hearings on Federal Marijuana Rescheduling
 
-Meta has announced plans to test new paid subscription options for its artificial intelligence tools, marking an important step in how the company wants to earn money from AI beyond advertising. The new plans will be added to the Meta AI app and website and will give users access to more powerful features for a monthly fee.
+Federal regulators are moving closer to a key decision on cannabis policy as the DEA prepares to hold a hearing in June on the reclassification of marijuana under national law. The proceedings have already attracted interest from groups on both sides of the legalization debate, highlighting the continuing divide over cannabis reform in the U.S.
 
- It would be interesting to pick the minds of officials at firms like D-Wave Quantum Inc. (NYSE: QBTS) to hear what they have to say about the benefits and drawbacks of using subscription models in other…
+ The marijuana landscape is very much in flux, and licensed firms like Green Thumb Industries Inc. (CSE: GTII) (OTCQX: GTBIF) are probably working out how to tweak their strategic plans in order to…
 
  Read More>>
 
- About TechMediaWire
+ About CNW420
 
- TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
+ CNW420 spotlights the latest developments in the rapidly evolving cannabis industry through the release of an article each business day at 4:20 p.m. Eastern – a tribute to the time synonymous with cannabis culture. The concise, informative content serves as a gateway for investors interested in the legalized cannabis sector and provides updates on how regulatory developments may impact financial markets. If marijuana and the burgeoning industry surrounding it are on your radar, CNW420 is for you! Check back daily to stay up-to-date on the latest milestones in the fast -changing world of cannabis.
 
- To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
+ To receive SMS alerts from CNW, text CANNABIS to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit https://www.TechMediaWire.com
+ For more information, please visit https://www.CannabisNewsWire.com
 
- Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the CannabisNewsWire website applicable to all content provided by CNW, wherever published or re-published: https://www.CannabisNewsWire.com/Disclaimer
 
- TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+ CannabisNewsWireDenver, COwww.CannabisNewsWire.com303.498.7722 OfficeEditor@CannabisNewsWire.com
 
- TechMediaWire is powered by IBN 
+ CannabisNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/meta-reveals-plans-to-pilot-ai-subscription-offers/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-dea-prepares-for-hearings-on-federal-marijuana-rescheduling/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-to-pilot-ai-subscription-plans-starting-at-7-99-month/a5aecbaa9df13cc001d9a4965fc12663) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dea-prepares-for-pivotal-hearing-on-marijuana-rescheduling/d983bf311913c89b1b383c97d9cc9ba5) 
 
  
 
@@ -33,4 +33,4 @@ Meta has announced plans to test new paid subscription options for its artificia
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/1/herbSfPf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/1/nukeZoj4.webp)
