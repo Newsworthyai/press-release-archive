@@ -1,40 +1,46 @@
-# WP WAF Manager Brings Cloudflare Firewall Management Directly Into WordPress
+# Service Excellence: 14 Years of Pioneering Home Service Training with PRESS PLAY
 
-WP WAF Manager is a WordPress plugin from Nahnu Plugins that lets site owners, developers, freelancers, and agencies manage Cloudflare tools directly from the WordPress admin dashboard. The plugin connects to Cloudflare through the Cloudflare API and supports WAF rules, DNS records, zone controls, IP access rules, security events, analytics, email routing, and multiple Cloudflare accounts from one WordPress interface.
+Service Excellence, a Buda, Texas-based business coaching and training company for Plumbing, HVAC, Electrical, and various home service businesses, is celebrating last month’s successful completion of another PRESS PLAY live training event.
 
- For WordPress agencies, WP WAF Manager solves a common workflow problem. Managing Cloudflare across multiple client sites often requires logging into separate dashboards, repeating rule updates, and switching between accounts. WP WAF Manager brings the most-used Cloudflare controls into the WordPress admin area, where agencies already manage client websites.
+ The event marks another milestone in the 14-year history of PRESS PLAY, an on-premise live training experience designed to help technicians, salespeople, managers, and home service teams improve how they communicate, serve customers, and guide homeowners through important service decisions.
 
- WP WAF Manager helps WordPress site owners improve edge-level security by deploying Cloudflare WAF rules before traffic reaches the WordPress server. The plugin includes five tested firewall rules based on the open-source wafrules.com ruleset. These rules help address bad bots, SQL injection attempts, path traversal, VPN traffic, web hosting ASN traffic, and other common attack patterns.
+ PRESS PLAY was not built as a lecture. It was built as a working room. Attendees practice real conversations, real questions, real objections, and real customer moments they face in the field every day.
 
- The plugin separates custom IP and user agent allowlists from the base WAF ruleset. This allows users to update the main ruleset without losing their own custom allowlist settings. For agencies managing client sites, this reduces the risk of overwriting important access rules during security updates.
+ “PRESS PLAY was built for the real world,” said Todd Liles, CEO of Service Excellence. “This is not training people sit through and forget. This is a live event where technicians and salespeople practice the words, the mindset, and the process that help them serve customers better. Seeing this event so successful after 14 years tells us the trades still want training that changes behavior, not just information.”
 
- WP WAF Manager also includes Cloudflare DNS management from inside WordPress. Users can manage Cloudflare DNS records, zone controls, cache purge, Under Attack Mode, Development Mode, SSL settings, IP access rules, security events, and email routing without leaving the WordPress dashboard.
+ Service Excellence also delivers PRESS PLAY for entire companies that want their teams trained together. Owners use the event to align technicians, salespeople, CSRs, dispatchers, managers, and leaders around one shared process, one shared language, and one higher standard for the customer experience.
 
- The plugin uses scoped Cloudflare API tokens as the recommended connection method. Scoped tokens allow users to grant only the permissions WP WAF Manager needs. This gives site owners and agencies better control than using a full Cloudflare Global API Key.
+ For 14 years, PRESS PLAY has helped home service teams improve the moments that matter most during service calls or sales appointments. The training focuses on listening, asking better questions, finding the real need, explaining options clearly, handling customer concerns, and helping homeowners make confident decisions without pressure.
 
- WP WAF Manager works with Cloudflare Free for most supported features. The Security Events viewer requires Cloudflare Pro or higher because it depends on Cloudflare Events API access.
+ “Homeowners do not want pressure,” Liles said. “They want clarity. They want respect. They want a professional who knows the work and knows how to communicate. PRESS PLAY teaches teams how to create that kind of experience on every call.”
 
- WP WAF Manager is available as a free, open-source plugin through GitHub under the MIT license. A Pro license is available for users who want automatic plugin updates inside WordPress admin and priority email support.
+ “In one word, "Excellent." They always bring good training and content. I have been working with SE for about 5 years now, and my business has substantially leveled up due to the entire Service Excellence team. They do more than train, they partner with you where you are at to level up your service business.” - Kendall Cooper, Owner of Bowers Plumbing
 
- Website:
+ “Todd at Service Excellence is the real deal. My coworker and I got the genuine feeling that he wanted us to succeed and did everything he could to demonstrate that. 10/10 would recommend his service to others.” - Andrew Plamann, Steve’s Plumbing
 
- https://www.wpwafmanager.com/
+ The completion of this event highlights continued demand for practical, live training inside the residential service trades. Service Excellence continues to work with home service business owners who want stronger teams, better communication, more consistent sales, and healthier growth.
 
- Documentation:https://www.wpwafmanager.com/docs/
+ “For 14 years, we have watched people change their careers through this training,” Liles said. “Better training creates better service. Better service creates better companies. Better companies create better lives for the people inside them.”
 
- Nahnu Plugins:https://www.nahnuplugins.com 
+ About Service Excellence Service Excellence is a business coaching and training company based in Buda, Texas. The company serves residential home service businesses, including Plumbing, HVAC, Electrical, and related trades. Service Excellence helps owners and teams improve leadership, sales, service, communication, operations, profitability, and customer experience through coaching, training, and live events.
+
+ Media Contact: Todd Liles, CEOService Excellence
+
+ Tel: (512) 333-4133Email: Email ContactWebsite: servextra.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606022499/wp-waf-manager-brings-cloudflare-firewall-management-directly-into-wordpress)
+[Original/Source Press Release](https://newsworthy.ai/news/202606022498/service-excellence-14-years-of-pioneering-home-service-training-with-press-play)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wp-waf-manager-cloudflare-control-from-wordpress-dashboard/f4d2b22b3633a6f821c43230f80e23f8) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
 
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/ZrFPjVWoxdw)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/2/pale0tzE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/2/mildIMFm.webp)

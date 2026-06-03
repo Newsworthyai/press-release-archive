@@ -1,40 +1,52 @@
-# BOXABL, FG Merger II (FGMC) Positioned for Growth as Factory-Built Housing Moves Toward Public Markets
+# Publication of PSI s 2025 Annual and Consolidated Financial Statements Postponed to June 2026
 
-LOS ANGELES, CA - June 2, 2026 (NEWMEDIAWIRE) - BOXABL, which plans to become a publicly traded company through its proposed business combination with FG Merger II (NASDAQ: FGMC), is applying centralized manufacturing and assembly-line production techniques to residential construction in an effort to address housing affordability and supply challenges. In a June 1 SPACtrac report published by ChannelChek and Noble Capital Markets, analysts Michael Kupinski and Jacob Mutchler highlighted BOXABL’s proprietary folding-home technology, growing contract backlog of 271 units and current production capacity of approximately 3,000 units annually, with longer-term automation initiatives targeting up to 5,000 units per year. The analysts noted that the company’s factory-built housing model is designed to reduce construction timelines, improve efficiency and lower transportation costs through standardized production and logistics.
+BERLIN - June 2, 2026 (NEWMEDIAWIRE) - The publication of the audited 2025 annual and consolidated financial statements of PSI Software SE, which was most recently scheduled for May 2026, will be further postponed until June 2026. The background is still that, for formal reasons, the statutory audit cannot be completed until the final outstanding condition of the tender offer by Warburg Pincus to the shareholders of PSI has been fulfilled, i.e., the approval of the transaction under investment control regulations by the Federal Ministry for Economic Affairs and Energy. PSI expects to receive such approval shortly.
 
- The report also cited BOXABL’s strong balance sheet, including approximately $22.3 million in cash, cash equivalents and short-term investments as of March 31, 2026, with no funded debt. According to the analysts, the proposed merger values BOXABL at approximately $3.5 billion and reflects investor expectations regarding the scalability of its manufacturing platform and its potential to disrupt the broader residential housing market. ChannelChek and Noble concluded that BOXABL’s differentiated manufacturing approach, transportation advantages and exposure to a large addressable housing market provide a compelling framework for long-term value creation if management successfully executes its growth strategy.
+ As previously communicated, the financial results for the 2025 fiscal year are in line with expectations and have been reviewed by the auditor. PSI will publish the audited annual and consolidated financial statements without delay and convene the Annual General Meeting. PSI will announce the exact publication date as soon as it has been determined.The PSI Group develops software products for optimizing the flow of energy and materials for utilities and industry. As an independent software producer with more than 2,300 employees, PSI has been a technology leader since 1969 for process control systems that ensure sustainable energy supply, production and logistics by combining AI methods with industrially proven optimization methods. The innovative industry products can be operated on-premises or in the cloud. [www.psi.de](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=a7e81396bf9bbad6bc230cbcdbb4eda8&application_id=2338090&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)Contact:PSI Software SEKarsten PierschkeHead of Investor Relations and Corporate CommunicationsDircksenstraBe 42-4410178 BerlinGermanyPhone: +49 30 2801-2727E-Mail: [KPierschke@psi.de](mailto:KPierschke@psi.de)[](https://eqs-cockpit.com/cgi-bin/fncls.ssp?fn=redirect&url=dc4555fdd51ee5c92ca9a84acc09125b&application_id=2338090&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
 
- To view the full report, visit https://ibn.fm/DQQTy
+ 
 
- About BOXABL
+ 
 
- BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’S flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation-setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes.
-
- For more information, please visit https://www.boxabl.com/ir
-
- About FG Merger II Corp.
-
- FG Merger II Corp. is a blank check company, also commonly referred to as a special purpose acquisition company, or SPAC, formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses or entities.
-
- For more information, visit https://fgmerger.com/
-
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/boxabl-fg-merger-ii-fgmc-positioned-for-growth-as-factory-built-housing-moves-toward-public-markets-7086989)
+[Original/Source Press Release](https://www.newmediawire.com/news/publication-of-psi-s-2025-annual-and-consolidated-financial-statements-postponed-to-june-2026-7086992)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-s-folding-homes-aim-to-solve-housing-crisis-via-spac-merger/68af30fc6e5d011d91be3831f841ba8f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/psi-software-se-delays-2025-financial-statements-to-june-2026/29e0c8b10dfdbdbb4be04f691a2be424) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/psi-software-se-postpones-2025-annual-report-publication-to-june-2026)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/psi-software-postpones-2025-financial-statement-publication-to-june-2026-pending-warburg-pincus-deal-approval)
+
+Pickup - [https://burstable.news](https://burstable.news/news/psi-software-se-delays-publication-of-2025-annual-report-to-june-2026-awaiting-regulatory-approval)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/psi-software-se-verschiebt-veroffentlichung-des-jahresberichts-2025-auf-juni-2026-in-erwartung-der-regulatorischen-genehmigung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/psi-software-se-retrasa-la-publicacion-del-informe-anual-2025-hasta-junio-de-2026-en-espera-de-aprobacion-regulatoria)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/psi-software-se-reporte-la-publication-de-son-rapport-annuel-2025-a-juin-2026-dans-lattente-dune-approbation-reglementaire)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/psi-software-se-adia-publicacao-do-relatorio-anual-de-2025-para-junho-de-2026-aguardando-aprovacao-regulatoria)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/psi-software-se-delays-audited-2025-financial-statements-pending-regulatory-clearance-for-warburg-pincus-tender-offer)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/psi-software-se-postpones-publication-of-2025-annual-and-consolidated-financial-statements-to-june-2026)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/psi-software-se-postpones-2025-financial-statements-publication-to-june-2026-pending-warburg-pincus-deal-approval)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/psi-software-se-postpones-publication-of-2025-financial-statemen/202632981)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/29e0c8b10dfdbdbb4be04f691a2be424)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/29e0c8b10dfdbdbb4be04f691a2be424)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/2/kissMSxW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/2/wolf_tOJ.webp)
