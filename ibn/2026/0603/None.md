@@ -1,39 +1,37 @@
-# TinyGemsBreaks – LIXTE Biotechnology Holdings Inc. (NASDAQ: LIXT) Prices $16.6 Million Registered Direct Offering
+# InvestorNewsBreaks – Earth Science Tech, Inc. (OTC: ETST) CEO to Present at Planet MicroCap Las Vegas 2026 Investor Conference
 
-LIXTE Biotechnology Holdings (NASDAQ: LIXT) announced definitive agreements with accredited investors for a registered direct offering expected to generate approximately $16.6 million in gross proceeds. The offering consists of 2,625,362 shares of common stock and pre-funded warrants priced at $6.31 per share, with the transaction priced at the market under Nasdaq rules. The company said the financing materially strengthens its balance sheet and provides additional flexibility to pursue strategic priorities.
+Earth Science Tech (OTC: ETST) announced that Chief Executive Officer and Chairman Giorgio R. Saumat will present at the Planet MicroCap Las Vegas 2026 Investor Conference on June 17, 2026, at the Bellagio Resort & Hotel in Las Vegas. The presentation will include a live question-and-answer session with attendees.
 
- LIXTE expects the offering to close on or about June 3, 2026, subject to customary closing conditions, and plans to use the net proceeds for general corporate purposes, working capital and strategic initiatives. Chief Executive Officer Geordan Pursglove said the financing positions the company for its next phase of growth and follows the recent appointment of Denham Capital founder Stuart Porter to the company’s board of directors.
+ Earth Science Tech, Inc. (OTC: ETST) also said management will be available throughout the conference for in-person, one-on-one meetings with investors.
 
- To view the full press release, visit https://ibn.fm/rHL1p
+ To view the full press release, visit https://ibn.fm/7PQxd
 
- About LIXTE Biotechnology Holdings, Inc.
+ About Earth Science Tech, Inc. (ETST)
 
- LIXTE Biotechnology Holdings, Inc. is a clinical-stage pharmaceutical and med-tech company focused on new targets for cancer drug development and developing and commercializing cancer therapies. LIXTE has demonstrated that LB-100, its lead compound and first-in-class lead clinical PP2A inhibitor, is well-tolerated in cancer patients at doses associated with anti-cancer activity. Based on published preclinical data, LB-100 has the potential to significantly enhance chemotherapies and immunotherapies and improve outcomes for patients with cancer. It is part of a pioneering effort in an entirely new field of cancer biology – activation lethality – that is advancing a new treatment paradigm. LIXTE’s novel approach is covered by a comprehensive patent portfolio, with proof-of-concept clinical trials currently in progress for Ovarian Clear Cell Carcinoma, Metastatic Colon Cancer and Advanced Soft Tissue Sarcoma. Additional information can be found at www.lixte.com.
+ Earth Science Tech, Inc. operates as a diversified holding company focused on the health and wellness sector. The Company’s principal operating strategy is to build a vertically integrated healthcare platform that combines compounding pharmacy operations, telemedicine platforms, clinical support, and direct-to-patient fulfillment. The Company’s healthcare operations are supported by investments in real estate and asset management activities and a consumer products business.
 
- Through LIXTE’s wholly owned subsidiary, Liora Technologies Europe Ltd., the Company also is pioneering the development of electronically controlled proton therapy systems for treating tumors in various types of cancers. Liora’s proprietary flagship technology, LiGHT System, is believed to provide significant advantages over currently available technologies for treating tumors with proton therapy. Additional information about Liora Technologies can be found at www.lioratechnologies.com.
+ The core of the Company’s value proposition is the seamless integration of patient care, from consultation to fulfillment. This is achieved through the synergy of specialized subsidiaries.
 
- NOTE TO INVESTORS: The latest news and updates relating to LIXT are available in the company’s newsroom at https:/ibn.fm/LIXT
+ NOTE TO INVESTORS: The latest news and updates relating to ETST are available in the company’s newsroom at https://ibn.fm/ETST
 
- About TinyGems
+ About InvestorWire
 
- TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
+ For more information, please visit https://www.InvestorWire.com
 
- For more information, please visit https://www.TinyGems.com
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
-
- TinyGems is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/tinygemsbreaks-lixte-biotechnology-holdings-inc-nasdaq-lixt-prices-16-6-million-registered-direct-offering/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-earth-science-tech-inc-otc-etst-ceo-to-present-at-planet-microcap-las-vegas-2026-investor-conference/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lixte-biotechnology-raises-16-6m-to-advance-cancer-therapies-and-proton-therapy/dc625560dcca8de7ede979abf5076cd9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earth-science-tech-ceo-to-present-at-planet-microcap-2026-conference/c0d1254bb30f16f46a6b545758ec2be2) 
 
  
 
@@ -41,4 +39,4 @@ LIXTE Biotechnology Holdings (NASDAQ: LIXT) announced definitive agreements with
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/3/kitewKVr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/3/yoga2i6Z.webp)
