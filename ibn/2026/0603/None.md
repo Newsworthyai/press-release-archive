@@ -1,42 +1,62 @@
-# InvestorNewsBreaks – Earth Science Tech, Inc. (OTC: ETST) CEO to Present at Planet MicroCap Las Vegas 2026 Investor Conference
+# Gold Edges Up as Treasury Yields Ease
 
-Earth Science Tech (OTC: ETST) announced that Chief Executive Officer and Chairman Giorgio R. Saumat will present at the Planet MicroCap Las Vegas 2026 Investor Conference on June 17, 2026, at the Bellagio Resort & Hotel in Las Vegas. The presentation will include a live question-and-answer session with attendees.
+The price of gold recorded some gains on Tuesday as yields on U.S. Treasuries eased and there was news of de-escalation in the conflict between Israel and Hezbollah in Lebanon. However, there were mixed signals on progress in talks between Iran and the U.S.
 
- Earth Science Tech, Inc. (OTC: ETST) also said management will be available throughout the conference for in-person, one-on-one meetings with investors.
+ If gold can regain the $5,000 mark, traders will be reenergized to look at the precious metal as one that is finally seeing its price move in line with what underlying fundamentals suggest it should be doing. Bullion’s price movement over the coming weeks will be closely watched by Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) and traders as well as the…
 
- To view the full press release, visit https://ibn.fm/7PQxd
+ Read More>>
 
- About Earth Science Tech, Inc. (ETST)
+ About Rocks & Stocks
 
- Earth Science Tech, Inc. operates as a diversified holding company focused on the health and wellness sector. The Company’s principal operating strategy is to build a vertically integrated healthcare platform that combines compounding pharmacy operations, telemedicine platforms, clinical support, and direct-to-patient fulfillment. The Company’s healthcare operations are supported by investments in real estate and asset management activities and a consumer products business.
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- The core of the Company’s value proposition is the seamless integration of patient care, from consultation to fulfillment. This is achieved through the synergy of specialized subsidiaries.
+ R&S is where breaking news, insightful content and actionable information converge.
 
- NOTE TO INVESTORS: The latest news and updates relating to ETST are available in the company’s newsroom at https://ibn.fm/ETST
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About InvestorWire
+ For more information, please visit https://RocksAndStocks.news
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
 
- For more information, please visit https://www.InvestorWire.com
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-earth-science-tech-inc-otc-etst-ceo-to-present-at-planet-microcap-las-vegas-2026-investor-conference/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/gold-edges-up-as-treasury-yields-ease/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/earth-science-tech-ceo-to-present-at-planet-microcap-2026-conference/c0d1254bb30f16f46a6b545758ec2be2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-edges-up-on-easing-treasury-yields-geopolitical-calm/7ac863614f7978c90538dd1201cdd03d) 
 
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gold-edges-up-as-treasury-yields-ease-and-geopolitical-tensions-moderate)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/gold-edges-up-as-treasury-yields-ease-de-escalation-in-lebanon-conflict)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/gold-edges-up-as-treasury-yields-ease-de-escalation-in-middle-ea/202633037)
+
+Pickup - [https://advos.io/en](https://advos.io/en/gold-edges-up-as-treasury-yields-ease-de-escalation-in-middle-east)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/gold-edges-up-as-treasury-yields-ease-geopolitical-tensions-show-signs-of-de-escalation)
+
+Pickup - [https://burstable.news](https://burstable.news/news/gold-edges-up-as-treasury-yields-ease-market-watches-for-5000-mark)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gold-steigt-leicht-da-renditen-von-staatsanleihen-nachlassen-markt-beobachtet-5000-dollar-marke)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-oro-sube-ligeramente-mientras-los-rendimientos-de-los-bonos-del-tesoro-ceden-el-mercado-observa-la-marca-de-los-5000)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lor-progresse-alors-que-les-rendements-obligataires-sassouplissent-le-marche-surveille-le-seuil-des-5-000-)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ouro-sobe-com-alivio-dos-rendimentos-dos-titulos-mercado-de-olho-na-marca-de-us-5000)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/gold-edges-higher-as-treasury-yields-ease-and-geopolitical-tensions-fluctuate)
+
+Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/7ac863614f7978c90538dd1201cdd03d)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/3/yoga2i6Z.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/3/ellatUR1.webp)
