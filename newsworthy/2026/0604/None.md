@@ -1,30 +1,60 @@
-# HRO Today Forum EMEA 2026 Set for Barcelona Nov. 4–5
+# Michelle Ly: Leading Round Rock's Business & Civic Growth
 
-SharedXpertise Media, LLC, parent company of HRO Today magazine and its associated properties, is proud to announce the kickoff its signature event outside the US, the 2026 HRO Today Forum EMEA, at the NH Collection, Barcelona Gran Hotel Calderón in Barcelona.
+Episode 76 of Rock Solid: Round Rock Business Leaders Podcast, titled "Michelle Ly: Balancing City Council, Business Ownership & Motherhood in Round Rock," hosted by Bryan Eisenberg, brings listeners inside the relentless schedule of one of Round Rock's most visible civic leaders. Published June 2, 2026, the conversation lands as Ly enters her third term on City Council and continues to expand a portfolio that spans roofing, hospitality, nonprofit boards, and motherhood. It is a candid look at servant leadership in a Texas city the mayor recently described as able to be "picky" about new arrivals.
 
- HR Executives from Europe, Africa and the Middle East convene in Barcelona for an agenda that includes HRD interviews, panel discussions on HR best practices, "think tank" sessions on key current topics, and the annual Awards Gala featuring the HRD of the Year and TA Team of the Year Awards.
+ Eisenberg walks Ly through a portfolio that would exhaust most operators. Topics include:
 
- This year’s theme, “H(R)evolution,” put a spotlight on the changing nature of the business landscape. We have a full agenda of networking events, engaging panels, and thoughtful conversations designed to help attendees elevate their work to the next level.
+ * Growing Hall Roofing & Construction, opened in 2012, with her husband Eric
+* Operating The Rock Sports Bar, The Flats, and Alcove Cantina in downtown Round Rock
+* Board service with the Round Rock Chamber, Williamson County Children's Advocacy Center, and Rotary
+* Stepping off the YMCA board after two three-year terms when she felt less effective
+* Her journey as the daughter of Vietnamese refugees who moved to Round Rock for the semiconductor industry
 
- This exclusive event will welcome many leaders from across the region to attend and network with their peers from different countries and share professional insights with fellow HR leaders.
+ Ly is direct about the cost of doing it all, and about why she keeps showing up. Asked how she manages, she tells Eisenberg she runs on roughly three to four hours of sleep most nights and time-blocks the slivers between meetings for payroll, phone calls, and roof inspections. On the decision to rebuild The Rock Sports Bar in a new commercial kitchen building rather than close after losing the original lease, she recalls:
 
- Today’s workforce is changing at a light-speed pace and savvy HR executives are leveraging AI in workforce management and to engage and retain top performers.
+ My husband was like, this is not the way we end the Rock Sports Bar. Our landlord doesn't get to tell us the end of our story. We are in it for the long haul. We want to see downtown thriving. The episode explores Round Rock's transformation since Ly's graduation, highlighting fellow alumni entrepreneurs like Brooks Bennett and Salicia Sanchez Adame. She recalls a downtown that was once "a ghost town" anchored by a funeral home and Round Rock Donuts, and credits Mayor Pro Tem Kristen Stevens and colleagues for cautiously reshaping zoning. Ly also discusses donating a roof after hearing nonprofit leader Philip Golden speak, leading by example on trash duty at her bars, and her hope to one day take her daughter Reagan back to Vietnam to immerse her in the family's culture.
 
- Always a highlight of HRO Today Forum events, the annual Awards Gala is among the industry’s best-known and most prestigious events that brings together inspirational innovators and thought leaders. The Awards Gala will shine a well-deserved spotlight on HR leaders from across the region for exemplary work and HRO Today will celebrate all of the award finalists and winners for HRD of the Year and Talent Acquisition Team of the Year.
-
- For information on the event such as our sponsors, VIP guests, speakers, and agenda, visit https://www.hrotoday.com/hro-today-emea-forum/ 
+ About Rock Solid: Round Rock Business Leaders Podcast Produced at Round Rock Studio and hosted by bestselling author and keynote speaker Bryan Eisenberg, Rock Solid profiles the entrepreneurs, nonprofits, and civic leaders shaping Round Rock, Texas. The show is built on neighborly conversations rather than politics, spotlighting the people behind the businesses listeners pass every day. Episode 76 with Michelle Ly is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606042510/hro-today-forum-emea-2026-set-for-barcelona-nov-4-5)
+[Original/Source Press Release](https://newsworthy.ai/news/202606042509/michelle-ly-leading-round-rocks-business-and-civic-growth)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hro-today-forum-emea-2026-hr-evolution-in-barcelona/6be18fe276e29f5b813c04f99ac6acb2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/councilmember-ly-juggles-business-family-and-civic-duty/f6b5ddcaa5e197baccf343938582f890) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/round-rock-council-member-michelle-ly-juggles-business-empire-civic-duties-and-motherhood-on-three-hours-of-sleep)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/round-rock-council-member-michelle-ly-juggles-business-empire-city-governance-and-motherhood-on-new-podcast)
+
+Pickup - [https://burstable.news](https://burstable.news/news/michelle-ly-balancing-business-city-council-and-motherhood-in-round-rock)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/michelle-ly-geschaft-stadtrat-und-mutterschaft-in-round-rock-unter-einen-hut-bringen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/michelle-ly-equilibrando-negocios-concejo-municipal-y-maternidad-en-round-rock)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/michelle-ly-concilier-affaires-conseil-municipal-et-maternite-a-round-rock)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/michelle-ly-equilibrando-negocios-camara-municipal-e-maternidade-em-round-rock)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/round-rock-councilmember-michelle-ly-juggles-business-empire-and-civic-duty-on-three-hours-of-sleep)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/round-rock-councilmember-michelle-ly-juggles-business-empire-civic-duty-and-motherhood)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/michelle-ly-discusses-balancing-city-council-business-ownership/202633055)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f6b5ddcaa5e197baccf343938582f890)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/f6b5ddcaa5e197baccf343938582f890)
+
+Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/f6b5ddcaa5e197baccf343938582f890)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2062558404690809034)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/4/nukefnJ1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/4/icyLFXq.webp)
