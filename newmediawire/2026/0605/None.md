@@ -1,108 +1,64 @@
-# Ares Strategic Mining Announces Nearly $1 Million Management Investment and Strategic Corporate Updates
+# B2i Digital Named Official Marketing Partner of 121 Mining Investment New York
 
-Management Commits Additional Capital as Company Advances Toward Production, Government Deliveries, and Next Phase of Growth
+A Two-Day Conference Brings More Than 70 Mining Companies Face to Face With North American Investors, June 15-16, 2026
 
- VANCOUVER, BC - June 5, 2026 (NEWMEDIAWIRE) - Ares Strategic Mining Inc. (CSE: ARS) (OTCQX: ARSMF) (FRA: N8I1) is pleased to announce a significant vote of confidence from Company leadership, with members of management and insiders committing approximately $990,112.65 to acquire common shares of the Company at a deemed price of $0.28 per share, representing approximately 3.53 million shares.
+ The Lineup Spans Gold, Silver, Copper, Lithium, Uranium, and Other In-Demand Critical Minerals
 
- The investment comes as Ares continues to achieve major milestones across its operations, including the commencement of mining, growing ore stockpiles at surface, continued construction progress across its processing facilities, and the recently announced U.S. Department of Defense fluorspar supply contract.
+ NEW YORK, NY - June 5, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. has joined 121 Mining Investment New York as its Official Marketing Partner. Part of an international series that runs from London to Cape Town, the conference takes place June 15-16, 2026 at Convene, 360 Madison Avenue in Manhattan.
 
- Management Demonstrates Confidence in Company's Future
+ Over 300 qualified investors will take part in 1,000-plus pre-arranged one-on-one meetings, alongside sessions led by top analysts and fund managers on commodity outlooks and mining finance.
 
- The insider investment reflects management's belief in the Company's long-term value and future growth prospects. Over the past year, Ares has transformed from a development-stage company into an emerging producer with:
+ B2i Digital will cover the event across press and social media, feature key elements on a dedicated landing page, and drive registrations and meeting requests from its investor network.
 
- - Active mining operations at the Lost Sheep Mine;
+ B2i Digital’s expanded coverage runs the range, from established producers to developers and explorers including companies such as: Andean Precious Metals, Argenta Silver, Centerra Gold, Century Lithium, Dilolo Metal and Resources, Elevate Uranium, First Majestic Silver, Gunnison Copper, Korea Zinc, Lion Rock Resources, Millennial Potash, Minera Alamos, NovaGold, Q2 Metals, Serabi Gold, Thesis Gold, U.S. GoldMining, West Red Lake Gold, Xali Gold, and Zodiac Gold.
 
- - Growing surface ore stockpiles awaiting processing;
+ “Mining and critical minerals are a growing focus for B2i, across our conferences and the companies we work with,” said David Shapiro, Chief Executive Officer of B2i Digital. “121 runs one of the best rooms in the business for this sector, and we want our investors in it.”
 
- - Significant progress on both the Lumps Plant and Acidspar Flotation Plant;
+ “Our events already connect mining companies with a strong global investor base, and working with B2i Digital builds on that,” said Steve Davidson, Head of Investor Strategy at 121 Group. “They bring more investors who follow the space, and they help open it up to those who don’t know it well, but should. Some of the most compelling opportunities in this market are the ones that get overlooked and putting them in front of the right people is what New York is about.”
 
- - Major U.S. government contract awards;
+ Details and company profiles will be available at https://b2idigital.com/121-mining-investment-conference.
 
- - Strategic critical mineral positioning within the United States;
+ Investors who would like to meet with management can apply through 121’s registration at https://newyork.121mininginvestment.com/page/investor-registration.
 
- - A growing portfolio of assets and infrastructure.
+ Participation is subject to standard vetting and approval.
 
- James Walker, President and CEO of Ares Strategic Mining, commented: "Management believes the Company has reached a point where its operational progress, strategic assets, government relationships, and production trajectory are not fully reflected in the current market valuation. This investment demonstrates our confidence in the future we are building and our commitment to creating long-term value alongside shareholders."
+ About B2i Digital
 
- Building Momentum
+ B2i Digital, Inc. partners with investor conferences, public companies, and capital markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Acting as The Capital Markets Matchmaker℠, B2i Digital connects investors and companies through digital marketing, investor conferences, and direct meetings, supported by a proprietary network of more than 1.7 million market participants and a track record as the marketing partner for over 115 investor conferences. Its mantra, From Marketing to Meetings℠, reflects this integrated approach. The firm was founded in 2021 by David Shapiro, a former Maxim Group investment banker and Chief Marketing Officer.
 
- The Company believes it is entering one of the most significant periods in its history, with multiple catalysts expected over the coming months, including:
+ B2i Digital Contact Information
 
- - Continued mine production and stockpiling;
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.comhttps://www.linkedin.com/in/davidshapironyc
 
- - Advancement toward processing operations;
+ B2i Digital Social Media
 
- - Development of domestic acidspar production capacity;
+ https://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigitalhttps://www.threads.net/@davidshapironychttps://www.pinterest.com/b2idigitalhttps://bsky.app/profile/b2idigital.bsky.social
 
- - Execution of government contract opportunities;
+ About 121 Mining Investment
 
- - Expansion of commercial relationships;
+ 121 Mining Investment is the mining sector event series from 121 Group, an omnichannel meetings platform for the global mining investment community and part of Hyve Group plc. Founded in 2014, 121 Group connects mining company management teams with qualified institutional investors, private equity groups, and family offices through pre-arranged one-on-one meetings and expert-led sessions. The series runs across mining finance hubs including London, New York, and Cape Town, alongside a global online edition.
 
- - Continued strengthening of the Company's balance sheet and market position.
+ 121 Mining Investment Contact Information
 
- Walker concluded: "The story of Ares today is one of execution. We have built the mine, we are mining, we are building the processing facilities, and we are securing customers. Management's decision to invest nearly one million dollars alongside shareholders reflects our belief that the most exciting chapters of Ares are still ahead of us."
+ Steve DavidsonHead of Investor Strategysteve.davidson@121mininginvestment.comhttps://121mininginvestment.comhttps://www.facebook.com/weare121https://www.linkedin.com/company/121-mininginvestmenthttps://www.youtube.com/channel/UCKVU7BhjT30LVlCasumn38A
 
- Renewal of Strategic Marketing and Investor Communications Program
+ Disclosure & Disclaimer
 
- The Company is also pleased to announce the renewal of its engagement with Pivotal CM Limited, which has supported Ares' investor communications, digital strategy, marketing initiatives, shareholder engagement, website management, conference organization, content development, and advertising campaigns.
-
- Under the renewed arrangement, approximately US$356,250 of services will be satisfied through the issuance of common shares at the current market price, representing approximately 1.76 million shares, subject to regulatory approvals and final documentation. The renewed engagement is intended to support the Company's growing profile as it advances toward production and expands its visibility within North American and international capital markets.
-
- Ares is also pleased to announce that the Company has agreed to the settlement of an aggregate of $69,046.47 of debt incurred by the Company for financial services provided by Prospero, and Craven Capital. The Company issued an aggregate of 246,595 common shares at a deemed price of $0.28 per Share.
-
- Board Evolution Supports Company's Next Phase
-
- The Company also announces that in response to public response, Lorenzo Esteva elected to step down from the Board of Directors. The Board thanks Mr. Esteva for his contributions and support during a period of significant growth for the Company.
-
- Ares notes that certain public commentary regarding Mr. Esteva's prior regulatory history contained misrepresentation and erroneous characterizations. Responding to public comments, Mr. Esteva's lawyer clarified that he voluntarily resigned his FINRA registrations and disputed most allegations that have circulated publicly. The Company appreciates Lorenzo's professionalism throughout and regrets the inaccurate and false publications that caused him to step down. We wish him success in his future endeavors.
-
- About Ares Strategic Mining
-
- Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure.
-
- Lost Sheep Fluorspar Project – Delta, Utah
-
- - 100% owned – 5,982 acres – 353 Claims
-
- - Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
-
- - Fully Permitted – including mining permits.
-
- - NI 43-101 Technical Report identified extensive high-grade fluorspar with low levels of impurities.
-
- - Mining plan approved by BLM
-
- First approved by Rex Rowley – Area Manager, Bureau of Land Management – 24th August 1992.
-
- Renewed by Paul B. Baker – Minerals Program Manager, Bureau of Land Management – 12th December 2016.
-
- ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING INC.
-
- James WalkerChief Executive Officer and President
-
- For further information, please contact James Walker by email at info@aresmining.com
-
- DISCLOSURE AND FORWARD-LOOKING STATEMENTS:
-
- Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
-
- Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law.
+ B2i Digital is the Official Marketing Partner of 121 Mining Investment New York, an event organized by 121 Group. B2i Digital is not an affiliate of 121 Group, is not authorized to represent or act on its behalf, and the organizer has not reviewed or approved B2i Digital’s content. Company-specific content is provided or approved by the respective company or drawn from the public domain, and B2i Digital has not independently verified it. B2i Digital is not a broker-dealer or investment adviser, and nothing in this release is an offer, solicitation, or recommendation to buy or sell any security. This release is for informational purposes only. See the full disclosure at https://b2idigital.com/disclaimer.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-announces-nearly-1-million-management-investment-and-strategic-corporate-updates-7087040)
+[Original/Source Press Release](https://www.newmediawire.com/news/b2i-digital-named-official-marketing-partner-of-121-mining-investment-new-york-7087043)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-strategic-mining-gets-1m-insider-investment-advances-production/3afc30cd47c85c33b2853d330afa327e) 
-
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3afc30cd47c85c33b2853d330afa327e)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2i-digital-partners-with-121-mining-investment-new-york-for-major-conference/a01bd741f994e16ab1c935cd00febd24) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/5/envyBy_z.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/5/yawnerC1.webp)
