@@ -1,77 +1,108 @@
-# At Fenway Park, 400 Step up to the Plate for CPR Training During National CPR Week
+# Ares Strategic Mining Announces Nearly $1 Million Management Investment and Strategic Corporate Updates
 
-BOSTON - June 4, 2026 (NEWMEDIAWIRE) - Sudden cardiac arrest kills hundreds of thousands of people in the U.S. each year, often because bystanders don’t know how to respond. On June 4, the Red Sox Foundation and the American Heart Association transformed Fenway Park into a lifesaving training ground, equipping an invited 400 people with Hands-Only CPR skills following the Red Sox–Orioles game. Youth athletes, coaches, educators, healthcare advocates and community leaders gathered in the outfield to participate in an immersive Hands-Only CPR training designed to equip bystanders with the confidence and skills to respond during a sudden cardiac arrest emergency. The event, held during National CPR and AED Awareness Week - June 1-7, highlighted the critical importance of CPR education and reinforced the vital role bystanders play in improving survival outcomes during cardiac emergencies.
+Management Commits Additional Capital as Company Advances Toward Production, Government Deliveries, and Next Phase of Growth
 
- “We are deeply grateful to the Red Sox Foundation for their extraordinary leadership in bringing this lifesaving effort to Fenway Park. By uniting hundreds of people on the field during National CPR and AED Awareness Week, this effort not only raises awareness but equips individuals with the confidence to act when every second matters,” said Nancy Brown, chief executive officer of the American Heart Association. “Events like this remind us of the power of community - when bystanders are trained and ready, they can turn a critical moment into a lifesaving one. Together, we are building a nation of lifesavers and advancing our shared commitment to longer, healthier lives.”
+ VANCOUVER, BC - June 5, 2026 (NEWMEDIAWIRE) - Ares Strategic Mining Inc. (CSE: ARS) (OTCQX: ARSMF) (FRA: N8I1) is pleased to announce a significant vote of confidence from Company leadership, with members of management and insiders committing approximately $990,112.65 to acquire common shares of the Company at a deemed price of $0.28 per share, representing approximately 3.53 million shares.
 
- Earlier in the day, the Red Sox Foundation and American Heart Association, devoted to changing the future to a world of healthier lives for all, hosted a panel discussion focused on heart health, emergency response preparedness, and the importance of bystander intervention. The discussion, moderated by Jennifer Ashton, M.D., founder of Ajenda- a multimedia women's health and wellness company, and American Heart Association board member, featured Nancy Brown, chief executive officer of the American Heart Association; 2018 Red Sox World Series Champion Brock Holt; Angel City FC defender and cardiac arrest survivor Savy King; and local cardiac arrest survivor and lifesaver duo Marc Henderson and Jim McQuade.
+ The investment comes as Ares continues to achieve major milestones across its operations, including the commencement of mining, growing ore stockpiles at surface, continued construction progress across its processing facilities, and the recently announced U.S. Department of Defense fluorspar supply contract.
 
- “At the Red Sox Foundation, we believe strengthening our communities means investing in the health, safety and well-being of the people who call them home,” said Bekah Salwasser, executive director of the Red Sox Foundation and executive vice president of social impact for the Boston Red Sox. “Providing access to lifesaving education like Hands-Only CPR is one of the many ways we work to create lasting impact beyond the ballpark. We’re grateful to the American Heart Association for their collaboration in bringing this important initiative to life to help advance emergency preparedness in our communities. Bringing 400 people together at Fenway Park to learn these critical skills reflects our commitment to empowering individuals to step in during an emergency and help save lives.”
+ Management Demonstrates Confidence in Company's Future
 
- “Cardiac arrest can happen to anyone, anywhere, and survival often depends on whether someone nearby is prepared to act in those first critical moments,” said Ashton. “Expanding access to CPR education is one of the most important ways we can strengthen public health and save lives. Seeing hundreds of people gathered across the Fenway Park outfield learning these lifesaving skills sent a powerful message about the impact communities can have when education, awareness and action come together.”
+ The insider investment reflects management's belief in the Company's long-term value and future growth prospects. Over the past year, Ares has transformed from a development-stage company into an emerging producer with:
 
- By completing the training, participants officially joined the American Heart Association’s Nation of Lifesavers™, a global movement launched in 2023 following the sudden cardiac arrest of NFL player Damar Hamlin during Monday Night Football™. Since its launch, the initiative has focused on expanding CPR education, increasing access to automated external defibrillators (AEDs) and building confidence to act in an emergency through the Smart Heart Sports Coalition. The MLB (Major League Baseball) is a founding member of the Coalition and the Heart Association will offer Hands-Only CPR skills to fans attending the All-Star Village in Philadelphia, July 11-14.
+ - Active mining operations at the Lost Sheep Mine;
 
- More than 350,000 cardiac arrests occur outside hospitals each year in the U.S., and about 90% are fatal, often because CPR isn’t performed soon enough. To break the myth that CPR requires special training, the Heart Association emphasizes that Hands‑Only CPR for teens and adults has just two steps:
+ - Growing surface ore stockpiles awaiting processing;
 
- 1. Call 911
-2. Push hard and fast in the center of the chest at 100–120 beats per minute - roughly the rhythm of “Stayin’ Alive” or “Uptown Funk" and to a depth of approximately two inches.
+ - Significant progress on both the Lumps Plant and Acidspar Flotation Plant;
 
- About the American Heart Association
+ - Major U.S. government contract awards;
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ - Strategic critical mineral positioning within the United States;
 
- About the Red Sox Foundation
+ - A growing portfolio of assets and infrastructure.
 
- The official team charity of the Boston Red Sox, the Red Sox Foundation has awarded more than 7,000 grants since its creation in 2002 and focuses on making a difference in the lives of children, families, Veterans, and communities in need by improving their health, education, and recreational opportunities. Through core partnerships with best-in-class organizations in healthcare, the Red Sox have helped raised over $190 million for cancer treatment and research for The Jimmy Fund, supported more than 50,000 Veterans and their families suffering from the “invisible wounds of war” with the Home Base Program, and helped the Dimock Center serve over 20,000 patients annually with health and human services. The Foundation’s self-run, direct-service education and youth baseball and softball programs have helped 385 Boston Public Schools students with college scholarships and promotes healthy choices and valuable life skills to more than 1,500 youth annually through its Nike RBI baseball and softball program in Boston, Chelsea and Lawrence.
+ James Walker, President and CEO of Ares Strategic Mining, commented: "Management believes the Company has reached a point where its operational progress, strategic assets, government relationships, and production trajectory are not fully reflected in the current market valuation. This investment demonstrates our confidence in the future we are building and our commitment to creating long-term value alongside shareholders."
 
- A 501(c)(3) nonprofit, the Red Sox Foundation raises funds through special events, corporate sponsorships, and grants. Founded and initially funded by Red Sox Principal Owner John Henry, Chairman Tom Werner, the late Larry Lucchino and their partners, the Red Sox Foundation has won numerous awards for the impact of its innovative programs. In 2010, the Foundation’s Red Sox Scholars program was recognized by Major League Baseball with the first-ever “MLB Commissioner’s Award for Philanthropic Excellence.” In 2009, the Red Sox Foundation was honored by the Robert Wood Johnson Foundation and the Sports Philanthropy Project with the Patterson Award as the nation’s “Best Team Charity in Sports.” For more information about the foundation, visit redsoxfoundation.org.
+ Building Momentum
 
- For Media Inquiries: 214-706-1173
+ The Company believes it is entering one of the most significant periods in its history, with multiple catalysts expected over the coming months, including:
 
- Linzy Cotaya: 504-872-3446; linzy.cotaya@heart.org
+ - Continued mine production and stockpiling;
 
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+ - Advancement toward processing operations;
 
- heart.org and stroke.org
+ - Development of domestic acidspar production capacity;
+
+ - Execution of government contract opportunities;
+
+ - Expansion of commercial relationships;
+
+ - Continued strengthening of the Company's balance sheet and market position.
+
+ Walker concluded: "The story of Ares today is one of execution. We have built the mine, we are mining, we are building the processing facilities, and we are securing customers. Management's decision to invest nearly one million dollars alongside shareholders reflects our belief that the most exciting chapters of Ares are still ahead of us."
+
+ Renewal of Strategic Marketing and Investor Communications Program
+
+ The Company is also pleased to announce the renewal of its engagement with Pivotal CM Limited, which has supported Ares' investor communications, digital strategy, marketing initiatives, shareholder engagement, website management, conference organization, content development, and advertising campaigns.
+
+ Under the renewed arrangement, approximately US$356,250 of services will be satisfied through the issuance of common shares at the current market price, representing approximately 1.76 million shares, subject to regulatory approvals and final documentation. The renewed engagement is intended to support the Company's growing profile as it advances toward production and expands its visibility within North American and international capital markets.
+
+ Ares is also pleased to announce that the Company has agreed to the settlement of an aggregate of $69,046.47 of debt incurred by the Company for financial services provided by Prospero, and Craven Capital. The Company issued an aggregate of 246,595 common shares at a deemed price of $0.28 per Share.
+
+ Board Evolution Supports Company's Next Phase
+
+ The Company also announces that in response to public response, Lorenzo Esteva elected to step down from the Board of Directors. The Board thanks Mr. Esteva for his contributions and support during a period of significant growth for the Company.
+
+ Ares notes that certain public commentary regarding Mr. Esteva's prior regulatory history contained misrepresentation and erroneous characterizations. Responding to public comments, Mr. Esteva's lawyer clarified that he voluntarily resigned his FINRA registrations and disputed most allegations that have circulated publicly. The Company appreciates Lorenzo's professionalism throughout and regrets the inaccurate and false publications that caused him to step down. We wish him success in his future endeavors.
+
+ About Ares Strategic Mining
+
+ Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure.
+
+ Lost Sheep Fluorspar Project – Delta, Utah
+
+ - 100% owned – 5,982 acres – 353 Claims
+
+ - Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
+
+ - Fully Permitted – including mining permits.
+
+ - NI 43-101 Technical Report identified extensive high-grade fluorspar with low levels of impurities.
+
+ - Mining plan approved by BLM
+
+ First approved by Rex Rowley – Area Manager, Bureau of Land Management – 24th August 1992.
+
+ Renewed by Paul B. Baker – Minerals Program Manager, Bureau of Land Management – 12th December 2016.
+
+ ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING INC.
+
+ James WalkerChief Executive Officer and President
+
+ For further information, please contact James Walker by email at info@aresmining.com
+
+ DISCLOSURE AND FORWARD-LOOKING STATEMENTS:
+
+ Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
+
+ Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/at-fenway-park-400-step-up-to-the-plate-for-cpr-training-during-national-cpr-week-7087032)
+[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-announces-nearly-1-million-management-investment-and-strategic-corporate-updates-7087040)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fenway-park-hosts-cpr-training-400-learn-lifesaving-skills/3f18aa41f9795def3e86b66ad3d8e4c2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-strategic-mining-gets-1m-insider-investment-advances-production/3afc30cd47c85c33b2853d330afa327e) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/fenway-park-hosts-cpr-training-for-400-during-national-cpr-week)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/fenway-park-hosts-cpr-training-for-400-during-national-cpr-week-highlighting-bystander-intervention)
-
-Pickup - [https://news.bostondailytribune.com/curated](https://news.bostondailytribune.com/curated/red-sox-foundation-and-american-heart-association-train-400-in-hands-only-cpr-at-fenway-park)
-
-Pickup - [https://burstable.news](https://burstable.news/news/red-sox-foundation-and-american-heart-association-train-400-at-fenway-park-in-hands-only-cpr-during-national-cpr-week)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/red-sox-foundation-und-american-heart-association-schulen-400-personen-im-fenway-park-in-hands-only-cpr-wahrend-der-nationalen-cpr-woche)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-fundacion-red-sox-y-la-asociacion-americana-del-corazon-capacitan-a-400-personas-en-fenway-park-en-rcp-solo-con-las-manos-durante-la-semana-nacional-de-la-rcp)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fondation-des-red-sox-et-american-heart-association-forment-400-personnes-au-fenway-park-au-massage-cardiaque-uniquement-manuel-pendant-la-semaine-nationale-du-rcp)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fundacao-red-sox-e-associacao-americana-do-coracao-treinam-400-no-fenway-park-em-rcp-apenas-com-as-maos-durante-a-semana-nacional-de-rcp)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/fenway-park-hosts-cpr-training-for-400-during-national-cpr-week-highlighting-bystander-impact-on-cardiac-arrest-survival)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/red-sox-foundation-and-american-heart-association-train-400-in-hands-only-cpr-at-fenway-park)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/red-sox-foundation-and-american-heart-association-train-400-in-hands-only-cpr-at-fenway-park)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fenway-park-hosts-cpr-training-for-400-during-national-cpr-week/202633095)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3afc30cd47c85c33b2853d330afa327e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/5/irisYhm_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/5/envyBy_z.webp)

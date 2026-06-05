@@ -1,54 +1,68 @@
-# Trump's 'Effing Crazy' Netanyahu Call Analyzed by Curry and Dvorak
+# Bodegas TV Debuts NYC's First In-Store Video Network at Innovation Summit
 
-The latest installment of the long-running media deconstruction podcast, Episode 1874, titled 'Kennel Index,' hosted by Adam Curry and John C. Dvorak, arrives June 4, 2026, with a sweeping breakdown of the week's most contested narratives. Broadcasting from the Texas Hill Country and California, the hosts unpack a leaked Trump-Netanyahu phone call first reported by Axios, the surprise rise of Tom Steyer in the California governor's race, and a House War Powers Resolution vote that drew four Republican defectors including Kentucky's Thomas Massie.
+Bodegas TV launched NYC's first in-store video network, bodegas.tv, on June 4, 2026, at the #NYTechWeek Bodega & Small Business Innovation Summit. The Summit took place from 4:00 PM to 7:00 PM at Stuyvesant Yacht Club, 10 Centre St., The Bronx.
 
- Listeners can expect Curry and Dvorak's signature framing across several threads pulled directly from the news cycle:
+ Co-hosted by the Bodega & Small Business Group (BSBG), Cortes Global Equity Partners, the Summit convened over 100 NYC bodega owners, startup founders, investors, and technologists to explore what organizers call the “Sovereign Bodega” framework - modernizing the corner store’s digital infrastructure without displacing the cultural identity that makes bodegas essential to their communities.
 
- * The Axios leak in which President Trump reportedly told Prime Minister Netanyahu he was 'effing crazy' over the Lebanon incursion, and Miranda Devine's follow-up interview on the New York Post podcast.
-* Megyn Kelly and Sean Ryan's 'black-pilled' podcast circuit lamenting Israeli influence, alongside Cenk Uygur and Anna Kasparian's shifting positions.
-* Senate testimony from detransitioner Chloe Cole and Treasury Secretary Scott Bessent's mic-drop exchange with Senator Ron Wyden over Jeffrey Epstein.
+ Summit Programming Panels will explore four pillars of bodega modernization, all anchored in the “Sovereign Bodega” thesis - modernization without displacement, technology without erasure:
 
- The hosts examine the second, less-reported half of the Axios story, in which a source told reporter Barak Ravid that Netanyahu has been, as Curry quotes the piece verbatim:
+ * Media Tech & AI: Transforming storefronts into hyper-local media hubs through decentralized broadcasting and intelligent automation.
+* FinTech: Deploying integrated financial systems and frictionless micro-payments that unlock new revenue streams for small businesses.
+* Security: AI-powered ambient systems that protect assets while enhancing the customer experience.
+* Infrastructure: Synchronizing inventory, data, and content across distributed physical locations.
 
- There are people in the Trump administration who are gravely concerned that Netanyahu has been, in the words of one of them, too bloodthirsty. Curry argues the leak appears engineered to redirect public anger away from Israel and toward Netanyahu personally, while Dvorak presses on who the leakers could plausibly be and why Miranda Devine declined to follow up on that portion of the call.
+ Panelists Include * Andre Ureña - Co-Founder & Chairman, Centro AI; Founder, Latin American Professional Alliance 30+ years across insurance, fintech, real estate, and technology.
+* Milbert Kiggundu-Bentham - Co-Founder & CEO, Alvix Advisory Former Bank of America executive leading digital engagement for millions of small-business clients.
+* Samira O. - Founder, Building Experimental AI Products AI strategy background spanning Amazon, Scale AI, MIT, and the University of Pennsylvania.
+* Charlie Barnet - Co-Founder, World Mobile (MVNO) Built a family telecom business to $100M+ in revenue across multiple continents.
+* Arabel Alva Rosales, J.D. - President & CEO, AAR Tech Former Acting Chairman of the Chicago Transit Authority; host of Chic Innovator podcast.
+* Jean Michael Lif - Co-Founder, RDÉ Harvard-trained policy analyst; Cultural Ambassador of the Museo de Arte Moderno in Santo Domingo.
+* Riya Goel - Investment Banker, Bank of America; Founder, Barnard Investment Group
+* Steve Yanovsky - Founder, Brand Alchemy. Media innovation veteran with experience leading digital strategies for Apple, ESPN, Microsoft Xbox, Pepsi, Unilever, and Atlantic Records. Co-founder of DriverTV, the automotive industry’s first contextual video-on-demand network, acquired by NBCUniversal.
 
- Elsewhere, the episode dissects NVIDIA CEO Jensen Huang's Korea keynote unveiling the RTX Spark and DGX Station for Windows, which Huang called a 'reinvention of laptop' capable of running trillion-parameter models 'meter-free' on the desktop. The hosts contrast Huang's vision with Ed Zitron's Bloomberg appearance questioning AI ROI, David Sachs invoking Jevons' Paradox on the All-In Pod, and a CNBC segment on $30 to $50 billion data-center debt deals. Other segments cover Bill Pulte's appointment as acting Director of National Intelligence, the scrapped $1.8 billion 'anti-weaponization fund,' Eli Lilly's retatrutide trial results, Richard Gere's 'Dictatorship of the Monsters' speech, and Ukraine's drone strike on St. Petersburg during Putin's economic forum.
+ Quotes Our bodegas are always open. They are the ones who are building relationships, community, and they are the ones creating jobs.”
 
- About No Agenda Show No Agenda is a listener-supported, value-for-value podcast hosted by Adam Curry and John C. Dvorak. Twice weekly, the hosts deliver skeptical, humor-laced media deconstruction, examining how stories are framed, amplified, or buried across mainstream news, government messaging, and big tech platforms. With nearly two decades on the air and a global community of producers, the show offers an irreverent alternative to conventional news analysis. Episode 1874 is available now wherever podcasts are heard. 
+ - Vanessa Gibson, Bronx Borough President
+
+ Technology is something we can all integrate into our businesses. We are in every corner and we are here to stay.
+
+ - Carlos Collado, National Supermarket Association, Bodega and Small Business Association
+
+ Bodegas are institutions that are highly community focused. I care because I’m a member of the world community, and I support small businesses. I’m amazed by the level of support from all the participants and bodega owners and people who are part of Tech Week, and the amount of commitment and resolve to protect bodegas. People really love and care about bodegas, this is the beginning for bodegas to involve more technology.
+
+ - Ozzie Cortes, Cortes Global Equity Partners, LLC
+
+ About the Co-Host & Partners Bodega & Small Business Group (BSBG): Led by President Francisco Marte, BSBG represents thousands of NYC bodega owners and serves as the community anchor for this initiative.
+
+ Cortes Global Equity Partners, LLC: Ozzie Cortes serves as Founder & CEO and is listed as an Investor & Advisor on Bodegas TV project. He is also an Associate at Tech Ranch Austin.
+
+ About [Bodegas](https://www.google.com/url?q=http://bodegas.tv&sa=D&source=editors&ust=1780672981510212&usg=AOvVaw3vkLHkYktvO-NZFbUA0Jt1)[.](https://www.google.com/url?q=http://bodegas.tv&sa=D&source=editors&ust=1780672981510256&usg=AOvVaw0QDhbbnUuTW6VAeWLRQKQm)[TV](https://www.google.com/url?q=http://bodegas.tv&sa=D&source=editors&ust=1780672981510288&usg=AOvVaw0hPbDmQj_Vpt0GCdfH5Hvi) Bodegas.TV is a smart-screen video network deploying inside NYC’s bodegas, delivering hyper-local media, advertising campaigns, and AI-curated content directly to the point of purchase. ThThis network targets Latino and urban communities, contributing to $45 billion in annual spending in NYC's corner stores.he launch at NYTechWeek marks the beginning of a planned expansion to 500 bodegas by end of 2026, and 2,000 bodegas within three years.
+
+ For media inquiries, interview requests, or additional information, contact:
+
+ Maria Probert
+
+ Bodegas TV
+
+ Email Contact | (332)222-6640 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606052519/trumps-effing-crazy-netanyahu-call-analyzed-by-curry-and-dvorak)
+[Original/Source Press Release](https://newsworthy.ai/news/202606052520/bodegas-tv-debuts-nycs-first-in-store-video-network-at-innovation-summit)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1874-trump-netanyahu-leak-nvidia-ai-and-more/876804e09f854cc5c8f00da5de975f6a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bodegas-tv-launches-nyc-s-first-in-store-video-network-at-nytechweek-summit/9e5ea6cc00ed6e756b3f9b902d1ba7d2) 
 
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/leaked-trump-netanyahu-call-sparks-media-deconstruction-on-no-agenda-episode-1874)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/9e5ea6cc00ed6e756b3f9b902d1ba7d2)
 
-Pickup - [https://burstable.news](https://burstable.news/news/no-agenda-podcast-episode-1874-dissects-trump-netanyahu-leak-tech-trends-and-political-shifts)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/9e5ea6cc00ed6e756b3f9b902d1ba7d2)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/no-agenda-podcast-episode-1874-analysiert-trump-netanyahu-leak-tech-trends-und-politische-verschiebungen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-episodio-1874-del-podcast-no-agenda-analiza-la-filtracion-trump-netanyahu-tendencias-tecnologicas-y-cambios-politicos)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-podcast-no-agenda-episode-1874-disseque-la-fuite-trump-netanyahou-les-tendances-technologiques-et-les-changements-politiques)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/podcast-no-agenda-episodio-1874-disseca-vazamento-trump-netanyahu-tendencias-tecnologicas-e-mudancas-politicas)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/effing-crazy-leak-trump-netanyahu-call-sparks-media-deconstruction-on-no-agenda-episode)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/no-agenda-podcast-episode-1874-dissects-leaked-trump-netanyahu-call-ai-hardware-moves-and-more)
-
-Pickup - [https://politics.in-focus.news/political-news](https://politics.in-focus.news/political-news/no-agenda-show-episode-1874-dissects-trump-netanyahu-leak-tech-disruption-and-political-shifts)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/no-agenda-episode-1874-leaked-trump-netanyahu-call-tom-steyers-rise-and-media-deconstruction)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/curry-and-dvorak-dissect-trump-netanyahu-phone-leak-and-media-fr/202633096)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/9e5ea6cc00ed6e756b3f9b902d1ba7d2)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/5/join4qq9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/5/wamcTPGN.webp)
