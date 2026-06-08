@@ -1,37 +1,41 @@
-# DefenseNewsBreaks – Safe Pro Group Inc. (NASDAQ: SPAI) Delivers AI-Powered Threat Detection System Under U.S. Army Contract
+# TechMediaBreaks – Foresight Autonomous Holdings (NASDAQ: FRSX) (TASE: FRSX) Secures Strategic Investment from VisionWave to Advance AI-Powered Defense Technologies
 
-Safe Pro Group (NASDAQ: SPAI) announced it has fulfilled a U.S. Army order valued at approximately $743,000 for its AI-powered Threat Analysis Kit, which combines the company’s NODE edge-computing platform with Black Widow(TM) drones from Red Cat Holdings (NASDAQ: RCAT). The field-ready battlefield intelligence system is designed to process drone-captured video and rapidly identify threats such as landmines, unexploded ordnance, cluster munitions and hostile drones, while generating detailed 2D and 3D battlefield maps for situational awareness.
+Foresight (NASDAQ: FRSX) (TASE: FRSX) announced a definitive agreement with VisionWave Holdings (NASDAQ: VWAV) for a strategic equity investment of up to $17.5 million in VisionWave common stock, reflecting a post-investment valuation of approximately $34 million for Foresight. The companies plan to combine Foresight’s visible light, infrared and neuromorphic sensing technologies with VisionWave’s artificial intelligence and radio frequency-based perception systems to develop advanced solutions for defense and security applications.
 
- The award follows a recent subcontract from a defense prime contractor to provide the U.S. Army with battlefield intelligence capabilities powered by Safe Pro’s patented SPOTD technology. The company expects to train Army personnel before the end of June and provide operational support through the third quarter of 2026. Safe Pro said its AI models are trained on a database of more than 2.8 million drone images and over 50,000 confirmed threat detections collected across more than 35,000 acres in Ukraine, enabling rapid threat identification and analysis in high-risk operational environments.
+ Under the agreement, VisionWave is expected to acquire a controlling 52% stake in Foresight through a two-stage transaction and gain representation on the company’s board of directors, subject to shareholder and regulatory approvals. The collaboration is intended to accelerate the development and commercialization of AI-enhanced perception platforms targeting applications such as counter-drone systems, tactical unmanned systems, border security and critical infrastructure monitoring, while both companies continue operating as independent publicly traded entities.
 
- To view the full press release, visit https://ibn.fm/LHywh
+ To view the full press release, visit https://ibn.fm/S5pL1
 
- About Safe Pro Group Inc.
+ About Foresight
 
- Safe Pro Group Inc. (Nasdaq: SPAI) is a mission-driven technology company delivering AI-enabled security and defense solutions. Through cutting-edge platforms like SPOTD, Safe Pro provides advanced situational awareness tools for defense, humanitarian, and homeland security applications globally. The Company is a leading provider of artificial intelligence (AI) solutions specializing in drone imagery processing, leveraging commercially available off-the-shelf drones with its proprietary machine learning and computer vision technology to enable rapid identification of explosive threats, providing a safer and more efficient alternative to traditional human-based analysis methods. Built on a cloud-based ecosystem and powered by Amazon Web Services (AWS), Safe Pro Group’s scalable platform targets multiple markets, including commercial, government, law enforcement, and humanitarian sectors where its Safe Pro AI software, Safe-Pro USA protective gear, and Airborne Response drone-based services can work in synergy to deliver safety and operational efficiency.
+ Foresight Autonomous Holdings Ltd. (NASDAQ and TASE: FRSX) is a technology company developing advanced three-dimensional (3D) perception systems and cellular-based applications. Through its wholly owned subsidiaries, Foresight Automotive Ltd., Foresight Changzhou Automotive Ltd. and Eye-Net Mobile Ltd., Foresight develops both “in-line-of-sight” vision systems and “beyond-line-of-sight” accident-prevention solutions.
 
- For more information on Safe Pro Group Inc., please visit https://safeprogroup.com.
+ Foresight’s 3D perception systems include modules of automatic calibration and dense 3D point cloud that can be applied to different markets such as automotive, defense, autonomous driving, agriculture, heavy industrial equipment and unmanned aerial vehicles (UAVs).
 
- NOTE TO INVESTORS: The latest news and updates relating to SPAI are available in the company’s newsroom at http://ibn.fm/SPAI
+ Eye-Net Mobile develops next-generation vehicle-to-everything (V2X) collision prevention solutions and smart automotive systems to enhance road safety and situational awareness for all road users in urban mobility environments. By leveraging cutting-edge artificial intelligence (AI) technology, advanced analytics, and existing cellular networks, Eye-Net’s innovative solution suite delivers real-time pre-collision alerts to all road users via smartphones and other smart devices within vehicles.
 
- About DefenseWireNews
+ For more information about Foresight and its wholly owned subsidiary, Foresight Automotive, visit www.foresightauto.com
 
- DefenseWireNews (“DWN”) is a specialized communications platform with a focus on defense contractors, aerospace firms, cybersecurity leaders, advanced manufacturing innovators, and other mission-critical companies operating at the intersection of public markets and government demand. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, DWN is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, DWN brings its clients unparalleled recognition and brand awareness. DWN is where breaking news, insightful content and actionable information converge.
+ About TechMediaWire
 
- To receive SMS alerts from DefenseWireNews, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.DefenseWireNews.com Please see full terms of use and disclaimers on the DefenseWireNews website applicable to all content provided by DWN, wherever published or re-published: https://www.DefenseWireNews.com/Disclaimer
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- DefenseWireNewsAustin, TXwww.DefenseWireNews.com512.354.7000 OfficeEditor@DefenseWireNews.com
+ For more information, please visit https://www.TechMediaWire.com
 
- DefenseWireNews is powered by IBN 
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
+
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/dwn/defensenewsbreaks-safe-pro-group-inc-nasdaq-spai-delivers-ai-powered-threat-detection-system-under-u-s-army-contract/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-foresight-autonomous-holdings-nasdaq-frsx-tase-frsx-secures-strategic-investment-from-visionwave-to-advance-ai-powered-defense-technologies/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/safe-pro-group-fulfills-743k-u-s-army-order-for-ai-threat-detection-system/24d9349a8ab771913cc46fb6fb75ec46) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foresight-and-visionwave-join-forces-for-17-5m-defense-tech-investment/1545af47197c94af0c228a1cfc172cd2) 
 
  
 
@@ -39,4 +43,4 @@ Safe Pro Group (NASDAQ: SPAI) announced it has fulfilled a U.S. Army order value
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/8/gulfavRZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/8/numb0yBu.webp)

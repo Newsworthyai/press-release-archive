@@ -1,77 +1,32 @@
-# Nefense Advances Airway Hygiene with Hypochlorous Acid Nasal Spray
+# California's Vote Count Delays and AI Economy Risks Explored in No Agenda's Latest Episode
 
-Nefense®, a pioneer in advanced clinical hygiene and airway health solutions, today announced the official launch of its highly anticipated Hypochlorous Acid (HOCl) nasal spray line. This comprehensive product expansion introduces an age-specific approach to airway health, respiratory hygiene, and nasal wellness, providing safe and effective nasal care solutions for adults, children, and infants.
+Episode 1875 of the No Agenda Show, titled 'Sonic Thump,' published June 7, 2026 and hosted by Adam Curry and John C. Dvorak, delivers a sweeping media deconstruction of a chaotic news week. Broadcasting from the Texas Hill Country and Northern Silicon Valley, the duo dig into California's mail-in ballot delays, U.S. Attorney Bill Essayli's fraud investigations, President Trump's contentious sit-down with NBC's Kristen Welker, and the surprise naming of Bill Pulte as acting Director of National Intelligence. It is classic Crackpot and Buzzkill territory: skeptical, irreverent, and relentlessly specific.
 
- The new product family includes Hyponasal, Hyponasal Junior, and Hypobaby, giving consumers and healthcare professionals access to a complete portfolio of drug-free nasal spray solutions designed to support healthy breathing, clear airways, and everyday respiratory wellness.
+ Listeners get a guided tour through the week's most contested narratives, including:
 
- Hyponasal: A New Approach to Daily Nasal Hygiene The flagship product, Hyponasal HOCl Nose Spray, represents a breakthrough in daily nasal hygiene and airway support. Formulated as highly effective biocleanse for the nasal passages and mucosal linings, Hyponasal helps flush away environmental irritants while supporting the body’s natural respiratory defenses.
+ * California's 37-day mail-in counting window and SB 75's signature-verification rollback under Governor Gavin Newsom
+* Xavier Becerra's front-runner status in the governor's race and Steve Hilton's frustration over the LA mayoral count
+* The Watson v. Republican National Committee case pending before the Supreme Court
+* Pete Hegseth's D-Day speech in Normandy warning Europe about migration
+* The New World Screwworm outbreak roughly 100 miles southwest of San Antonio
 
- By cleansing the nasal cavity without harsh chemicals, medications, or steroids, Hyponasal provides soothing relief from nasal irritation while helping maintain a healthier airway environment.
+ The hosts roll tape on Trump telling Welker the press is crooked before walking off the Wisconsin barn set. 'They're crooked, just like you're crooked. Press is crooked,' the president says in the clip. Welker's on-camera tag blamed rain interruptions. Curry counters that historical precedent for personal attorneys running Justice runs from Edmund Randolph under Washington to Robert Kennedy under JFK, calling MSNBC analyst Ari Fleischer's framing 'bullcrap' aimed at low-IQ viewers.
 
- “Proper airway management begins with maintaining a clean and healthy nasal cavity. With Hyponasal, we are providing a superior biocleanse solution that addresses daily irritation at its source, setting a new standard for everyday respiratory hygiene.” - Dr. Richard D. Downs, D.D.S.
+ The episode's deepest thread is the AI bubble. Curry walks through Google raising $80 billion partly to cover RSU cash-outs, Microsoft engineers 'token maxing' for promotions, and Cisco president Jeetu Patel pitching $200-per-week per-employee token costs across 90,000 workers. The hosts mock 'Jevons Paradox,' the 1865 economic principle now invoked by VCs to justify runaway AI spend, and flag a Stanford study, 'Algorithmic Monocultures in Hiring,' showing resume scores persist for 330 days across employers. They also cover NASA's X-59 quiet supersonic jet, the Ebola facility controversy at Kenya's Lokichogio airbase, and an mpox smuggling case involving NIH researchers Vincent Munster and Claude Kwe.
 
- The Science Behind Hypochlorous Acid (HOCl) At the core of the Nefense nasal spray line is Ionoxx Hypochlorous Acid (HOCl), a naturally occurring molecule produced by the human immune system as part of its first-line defense mechanisms.
-
- HOCl has gained significant attention within healthcare and clinical hygiene settings for its anti-microbial and anti-inflammatory properties. When used in nasal hygiene applications, HOCl helps support a cleaner nasal environment while promoting healthy respiratory function and airway comfort.
-
- For individuals seeking natural nasal spray alternatives, drug-free allergy relief, or support for everyday respiratory hygiene, HOCl offers a soothing and non-habit-forming option for maintaining healthy nasal passages.
-
- “Inflammation and congestion are the primary enemies of healthy breathing and restorative sleep,” said Dr. Joseph Zelk, a sleep specialist who collaborates with the Nefense team on airway optimization. “The anti-inflammatory and antimicrobial properties of HOCl make it a remarkable tool for naturally clearing the airway, mitigating allergies, and supporting healthier breathing.”
-
- Supporting Airway Health at Every Age Recognizing that clear, healthy breathing is important throughout every stage of life, Nefense is simultaneously introducing Hyponasal Jr. and Hypobaby.
-
- These specialized pediatric formulations deliver the same effective cleansing technology found in Hyponasal antimicrobial nasal spray while being specifically tailored for the sensitive nasal passages of children and infants. The products provide parents with a safe, non-stinging option for supporting airway health and helping manage everyday congestion associated with environmental and seasonal challenges.
-
- “Parents constantly struggle to find safe, drug-free solutions for their children’s congestion,” said Dr. Shane Smith. “Hypobaby and Hyponasal Jr. offer unparalleled peace of mind, delivering a clinical-grade cleanse that is potent enough for little noses while remaining highly effective.”
-
- Meeting Growing Consumer Interest in Sleep and Airway Wellness Consumer interest in respiratory wellness and healthy breathing practices continues to grow as more individuals seek products that may help support overall airway and nasal health. Areas of interest often include:
-
- * Airway wellness
-* Nasal hygiene
-* Healthy breathing habits
-* Seasonal allergy management
-* Drug-free approaches to nasal comfort
-* Antimicrobial nasal care
-* Respiratory wellness routines
-* Sleep-supportive breathing practices
-
- With the introduction of Hyponasal, Hyponasal Jr., and Hypobaby, Nefense expands its portfolio of science-driven airway wellness products designed for individuals and families seeking options that may support healthy nasal hygiene, respiratory comfort, and overall breathing wellness as part of their daily routines.
-
- About Nefense® Nefense®, Natural Wellness & Defense, is dedicated to developing advanced, science-driven health and hygiene products. Working in collaboration with doctors and ENT specialists, Nefense focuses on creating innovative solutions that bridge the gap between daily hygiene, airway health, restorative sleep, and overall wellness. Many clinics and practices nationwide offer in-store purchases of the Nefense nasal spray family, including XyloClean, a xylitol-based nasal spray designed to help moisturize and rebalance the nasal passages. Through its growing portfolio of clinically inspired products, Nefense remains committed to helping people breathe better and live healthier.
-
- For more information, visit Nefense.com 
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and technology. Known for its sharp humor, media deconstruction, and value-for-value model, the show examines how stories are framed, amplified, or ignored. Episode 1875, 'Sonic Thump,' is available now wherever podcasts are heard and at noagendashow.net. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606082511/nefense-advances-airway-hygiene-with-hypochlorous-acid-nasal-spray)
+[Original/Source Press Release](https://newsworthy.ai/news/202606082521/californias-vote-count-delays-and-ai-economy-risks-explored-in-no-agendas-latest-episode)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nefense-launches-age-specific-hocl-nasal-sprays-for-all-ages/93f76e18dee9182e65204577e7b0019b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-show-episode-1875-sonic-thump-deconstructs-ai-bubble-and-election-chaos/8506aaa98eaf32eda563fedf89508f0a) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/nefense-launches-hypochlorous-acid-nasal-spray-line-for-all-ages)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/nefense-launches-hypochlorous-acid-nasal-spray-line-for-all-ages)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/nefense-bringt-altersspezifische-nasenspray-linie-mit-hypochloriger-saure-fur-die-atemwegsgesundheit-auf-den-markt)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/nefense-lanza-linea-de-spray-nasal-de-acido-hipocloroso-especifica-por-edad-para-la-salud-de-las-vias-respiratorias)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/nefense-lance-une-gamme-de-sprays-nasaux-a-lacide-hypochloreux-adaptee-a-chaque-age-pour-la-sante-des-voies-respiratoires)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/nefense-lanca-linha-de-spray-nasal-com-acido-hipocloroso-por-faixa-etaria-para-saude-das-vias-aereas)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/nefense-launches-hypochlorous-acid-nasal-spray-line-for-age-specific-airway-hygiene)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/nefense-launches-hypochlorous-acid-nasal-spray-line-for-all-ages)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/nefense-launches-hypochlorous-acid-nasal-spray-line-for-drug-free-respiratory-wellness)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/nefense-launches-hypochlorous-acid-nasal-spray-line-for-age-spec/202633150)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/8/chipJEGG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/8/maskftD7.webp)

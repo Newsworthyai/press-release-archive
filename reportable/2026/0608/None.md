@@ -1,33 +1,33 @@
-# Lifordi Immunotherapeutics Presents Phase 1 Clinical Data for LFD-200, a Subcutaneous Glucocorticoid Antibody Drug Conjugate, at EULAR 2026
+# Boston Advisory Firm The Deady Group Sharpens Focus on Technology Procurement, Utility Procurement, and Recurring Spend Management
 
-BURLINGTON, MA – JUNE 8, 2026
+BOSTON, MA, MAY 27, 2026
 
-Lifordi Immunotherapeutics, Inc., a clinical-stage biotechnology company developing antibody-drug conjugates (ADCs) for the treatment of autoimmune and inflammatory disorders, presented first-in-human data for LFD-200, the Company’s novel subcutaneously (SC) administered ADC delivering a potent glucocorticoid (GC) directly to immune cells. Phase 1 data from healthy participants (HPs) presented at EULAR 2026 (European Congress of Rheumatology), in London, UK, June 3-6, 2026, showed LFD-200 was well tolerated and demonstrated dose-responsive anti-inflammatory activity with no impact on serum cortisol levels, a sensitive marker for systemic GC toxicity. Dosing patients with moderate to severe rheumatoid arthritis (RA) in the Phase 1 study is ongoing with data expected by year-end 2026.
+The Deady Group, a Boston-based independent technology advisory firm, has sharpened its market focus on technology procurement, utility procurement, modernization strategy, and recurring spend management for regulated and innovation-driven organizations.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Initial Phase 1 data in showed LFD-200 was safe and well tolerated, and demonstrated anti-inflammatory effects without affecting cortisol
-* Dosing in the Phase 1 study of LFD-200 in patients with Rheumatoid Arthritis is ongoing, with data expected by year-end 2026
-* First-in-human clinical data for LFD-200 was presented in a poster presentation at EULAR 2026
+Key Takeaways:* The Deady Group is a Boston-based independent technology advisory firm focused on procurement, modernization, vendor evaluation, and recurring spend management across technology and utility environments.
+* The firm gives regulated and innovation-driven organizations vendor-neutral guidance, structured evaluation, and broader market access across telecom, communications, cloud, cybersecurity, SaaS, AI, utilities, and related infrastructure.
+* In suitable environments, recurring spend reduction opportunities may range from 15 percent to 30 percent through contract cleanup, vendor consolidation, service rationalization, benchmarking, and disciplined procurement.
 
-[Click image above to view full announcement.](https://lifordi.reportablenews.com/pr/lifordi-immunotherapeutics-presents-phase-1-clinical-data-for-lfd-200-a-subcutaneous-glucocorticoid-antibody-drug-conjugate-at-eular-2026)
+[Click image above to view full announcement.](https://the-deady-group.reportablenews.com/pr/boston-advisory-firm-the-deady-group-sharpens-focus-on-technology-procurement-utility-procurement-and-recurring-spend-management)
 
-About LifordiLifordi Immunotherapeutics, Inc. is a clinical-stage biotechnology company leading the way by leveraging the success of antibody-drug conjugates (ADCs) to develop treatments for autoimmune and inflammatory disorders. The Company’s lead ADC, LFD-200, is in a Phase 1 clinical trial for rheumatoid arthritis and demonstrated a favorable safety, PK and PD profile in healthy participants, including dose-responsive anti-inflammatory activity without systemic glucocorticoid toxicity (cortisol suppression). Lifordi has also applied its novel drug delivery approach to other diverse payloads, such as antisense oligonucleotides (ASOs), siRNA, and small molecules. As experienced drug developers in immunology and inflammatory diseases, together with expert clinical advisors and funding from ARCH Venture Partners, Atlas Venture, 5AM Ventures, and Sanofi Ventures, Lifordi is committed to changing how immune and inflammatory diseases are treated. For more information, please visit www.lifordi.com and follow us on LinkedIn.
+The Deady Group is a Boston-based independent technology advisory firm guiding regulated and innovation-driven organizations through complex decisions across technology, utilities, vendors, and recurring spend. The firm brings vendor-neutral guidance, structured evaluation, and broader market access to procurement and modernization decisions that often span telecom, cloud, cybersecurity, software, AI, communications, and utility-related infrastructure. By combining procurement discipline with modernization judgment, The Deady Group gives leaders a clearer path to reduce risk, improve visibility, control costs, and align decisions with operational reality.
 
-1McClure et al., ACR 2025
+Learn more at thedeadygroup.com
 
-Contacts:Theresa McNeely tmcneely@lifordi.com
+Contacts:William Deady+1 617.221.7970media@thedeadygroup.com
 
-Source: Lifordi
+Source: The Deady Group
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://lifordi.reportablenews.com/pr/lifordi-immunotherapeutics-presents-phase-1-clinical-data-for-lfd-200-a-subcutaneous-glucocorticoid-antibody-drug-conjugate-at-eular-2026)
+[Original/Source Press Release](https://the-deady-group.reportablenews.com/pr/boston-advisory-firm-the-deady-group-sharpens-focus-on-technology-procurement-utility-procurement-and-recurring-spend-management)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lifordi-s-adc-lfd-200-shows-promise-in-phase-1-ra-trial/1ef03ed0cd5863c550128836b28ec3e9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boston-advisor-sharpens-focus-on-tech-utility-procurement/22f7e834551fbb0f6ea55b04889e8eb1) 
 
  
 
@@ -35,4 +35,4 @@ Distributed by: Reportable, Inc.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/266/8/archQF35.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/266/8/davePGyE.webp)
