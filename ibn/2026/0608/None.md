@@ -1,20 +1,10 @@
-# TechMediaBreaks – Foresight Autonomous Holdings (NASDAQ: FRSX) (TASE: FRSX) Secures Strategic Investment from VisionWave to Advance AI-Powered Defense Technologies
+# Businesses are Lagging in Their Readiness for the AI Transition
 
-Foresight (NASDAQ: FRSX) (TASE: FRSX) announced a definitive agreement with VisionWave Holdings (NASDAQ: VWAV) for a strategic equity investment of up to $17.5 million in VisionWave common stock, reflecting a post-investment valuation of approximately $34 million for Foresight. The companies plan to combine Foresight’s visible light, infrared and neuromorphic sensing technologies with VisionWave’s artificial intelligence and radio frequency-based perception systems to develop advanced solutions for defense and security applications.
+Artificial intelligence is quickly becoming a major part of modern business operations. Companies around the world are adopting AI tools to improve productivity, automate routine tasks, analyze large amounts of data, and enhance customer service.
 
- Under the agreement, VisionWave is expected to acquire a controlling 52% stake in Foresight through a two-stage transaction and gain representation on the company’s board of directors, subject to shareholder and regulatory approvals. The collaboration is intended to accelerate the development and commercialization of AI-enhanced perception platforms targeting applications such as counter-drone systems, tactical unmanned systems, border security and critical infrastructure monitoring, while both companies continue operating as independent publicly traded entities.
+ Nowhere else is this best illustrated than in the online gaming industry. Firms like Core AI Holdings Inc. (NASDAQ: CHAI) are transforming game development and the millions of…
 
- To view the full press release, visit https://ibn.fm/S5pL1
-
- About Foresight
-
- Foresight Autonomous Holdings Ltd. (NASDAQ and TASE: FRSX) is a technology company developing advanced three-dimensional (3D) perception systems and cellular-based applications. Through its wholly owned subsidiaries, Foresight Automotive Ltd., Foresight Changzhou Automotive Ltd. and Eye-Net Mobile Ltd., Foresight develops both “in-line-of-sight” vision systems and “beyond-line-of-sight” accident-prevention solutions.
-
- Foresight’s 3D perception systems include modules of automatic calibration and dense 3D point cloud that can be applied to different markets such as automotive, defense, autonomous driving, agriculture, heavy industrial equipment and unmanned aerial vehicles (UAVs).
-
- Eye-Net Mobile develops next-generation vehicle-to-everything (V2X) collision prevention solutions and smart automotive systems to enhance road safety and situational awareness for all road users in urban mobility environments. By leveraging cutting-edge artificial intelligence (AI) technology, advanced analytics, and existing cellular networks, Eye-Net’s innovative solution suite delivers real-time pre-collision alerts to all road users via smartphones and other smart devices within vehicles.
-
- For more information about Foresight and its wholly owned subsidiary, Foresight Automotive, visit www.foresightauto.com
+ Read More>>
 
  About TechMediaWire
 
@@ -32,15 +22,41 @@ Foresight (NASDAQ: FRSX) (TASE: FRSX) announced a definitive agreement with Visi
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-foresight-autonomous-holdings-nasdaq-frsx-tase-frsx-secures-strategic-investment-from-visionwave-to-advance-ai-powered-defense-technologies/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/businesses-are-lagging-in-their-readiness-for-the-ai-transition/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/foresight-and-visionwave-join-forces-for-17-5m-defense-tech-investment/1545af47197c94af0c228a1cfc172cd2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-transforms-gaming-core-ai-holdings-leads-the-charge/8be98779ce47145847847aa84bb32f58) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2064090364487536971)
+
+Pickup - [https://advos.io/en](https://advos.io/en/businesses-lag-in-ai-readiness-as-adoption-accelerates-across-industries)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/businesses-lag-in-ai-readiness-as-industry-adoption-accelerates)
+
+Pickup - [https://burstable.news](https://burstable.news/news/businesses-lag-in-ai-readiness-as-adoption-accelerates)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/unternehmen-hinken-bei-ki-bereitschaft-hinterher-wahrend-die-einfuhrung-beschleunigt-wird)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/las-empresas-rezagadas-en-preparacion-para-la-ia-mientras-se-acelera-la-adopcion)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-entreprises-a-la-traine-dans-leur-preparation-a-lia-alors-que-ladoption-saccelere)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/empresas-ficam-para-tras-na-prontidao-para-ia-enquanto-adocao-acelera)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/businesses-lag-in-ai-readiness-as-adoption-accelerates-across-industries)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/businesses-lag-in-ai-readiness-as-industry-acceleration-continues)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ai-adoption-in-online-gaming-core-ai-holdings-leads-the-transformation)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/businesses-lag-in-ai-readiness-as-industry-leaders-emerge/202633186)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/8be98779ce47145847847aa84bb32f58)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/8/numb0yBu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/8/kissmuak.webp)
