@@ -1,112 +1,54 @@
-# Generation to Present on the Emerging Growth Conference on June 11, 2026
+# 'Health Talk America', America's Premier Nationwide Radio Health Talk Show and Co-Host Dr. Adam Brockman Sign With CMP Agent Alan Morell for Commercial Rights, Sponsorships, Advertisers, and Talent Bookings
 
-Generation Uranium Invites Individual and Institutional Investors as Well as Advisors and Analysts, to Attend Its Real-time, Interactive Presentation on the Emerging Growth Conference
+CMP Will Additionally Represent Dr. Brockman Individually for His Books, Executive Producing and Monetized Revenue Streams Across All Platforms
 
- VANCOUVER, BC - June 9, 2026 (NEWMEDIAWIRE) - Generation Uranium Inc. (TSXV: GEN, OTCQB: GENRF, FRA: W85) (the “Company” or “Generation”) is pleased to announce that is pleased to announce that Generation has been invited to present on the Emerging Growth Conference on June 11, 2026.
+ BEVERLY HILLS, CA - June 9, 2026 (NEWMEDIAWIRE) - Announced today, 'Health Talk America', America’s Premier Nationwide Radio Health Talk Show, hosted by Dr. Bob Martin and Dr. Adam Brockman, sign with CMP Agent Alan Morell for Commercial Rights, Sponsorships, Advertisers and Talent Bookings. CMP Will Additionally Represent Dr. Brockman Individually for His Books And Monetized Revenue Streams Across All Platforms.
 
- With 17 defined uranium targets, improved geophysical targeting and proof of concept discoveries to the south on Atha Energy’s Angilak Project, (see Atha Energy’s press release May 5, 2026), Generation is poised for discovery at the Yath project.
+ About Health Talk America (HTA): Health Talk America (HTA) is the parent brand of "The Dr. Bob Martin Show," recognized as the #1 Health Talk Radio Program in America. Syndicated across more than 500 stations and digital platforms globally, the show reaches an audience of 1.5 million to 2 million "action-takers" every week. HTA provides a high-impact forum for natural health, progressive medicine, and wellness breakthroughs, bridging the gap between conventional medical practices and evidence-based natural solutions.
 
- The next Emerging Growth Conference is presenting on June 11, 2026. This live, interactive online event will give existing shareholders and the investment community the opportunity to learn about the Yath Uranium Project, and interact with the Company’s CEO, Michael Collins in real time.
+ About Dr. Adam Brockman: Dr. Adam Brockman is a leading voice in the health and wellness industry, serving as the Co-Host and Executive Producer of Health Talk America. A specialist in Regenerative and Sports Medicine, Dr. Brockman brings a clinical perspective to the airwaves, focusing on recovery, performance, and longevity. He is the owner of the Complete Wellness Companies, which has been recognized as the "Nation's Best and Brightest in Wellness" for eight years running.
 
- Mr. Collins will perform a presentation and may subsequently open the floor for questions. Please submit your questions in advance to Questions@EmergingGrowth.com or ask your questions during the event and Mr. Collins will do his best to get through as many of them as possible.
+ Beyond his role behind the microphone and in the production suite, Dr. Brockman is an entrepreneur and advocate for health innovation. His work has won many national awards and focuses on spotlighting wellness advancements and helping brands become trusted authorities for healthy living. With a deep background in treating elite athletes and chronic health issues alike, Dr. Brockman’s mission is to guide the HTA audience toward sustainable health through education and expert-backed guidance.
 
- Generation Uranium will be presenting at 4:10 PM Eastern time for 12 minutes.
+ Said Co-Host, Executive Producer of Health Talk America (HTA) and Author Dr. Adam Brockman: "Co-Hosting with the legendary Dr. Bob Martin and Executive Producing Health Talk America has been a distinct honor. I am very enthusiastic about the future of HTA and I felt the time was perfect to bring in CMP, so signing with CMP uberAgent Alan Morell to represent both HTA and my personal Literary, Broadcast and Commercial representation was the right strategy for continued growth.
 
- Please register here to ensure you are able to attend the conference and receive any updates that are released.
+ "At HTA, we don’t just talk about wellness; we drive movement in the marketplace. We reach millions of listeners who are ready to take immediate action to improve their lives. By partnering with Alan and CMP, we are positioning HTA and my personal brands to scale across all platforms, ensuring that the highest-quality health innovations find their way to the people who need them most. Our goal is to continue being the bridge between cutting-edge health science and the everyday consumer."
 
- https://goto.webcasts.com/starthere.jsp?ei=1757504&tp_key=cc5c9b4321&sti=gen
+ Said Agent Alan Morell of Creative Management Partners LLC: "I am honored to represent both “Heath Talk America”, America's source for health information for over 30 years! For their Talent Bookings, Advertising and Licensing Commercial Rights worldwide, And its Celebrity Doctor, Co-Host, Executive Producer Dr. Adam Brockman individually for his Literary works as well as his Speaking Engagements and Commercial career initiatives. At CMP, we represent more Doctors than any Agency in the World, in our 700+ portfolio of clients across Entertainment, Sports, Arts, Medical, Health and Wellness, Military, Music, Politics and Business under our CMP Management.”
 
- If attendees are not able to join the event live on the day of the conference, an archived webcast will also be made available on EmergingGrowth.com and on the Emerging Growth YouTube Channel, http://www.YouTube.com/EmergingGrowthConference. We will release a link to that after the event.
+ Relevant Links:
 
- About the Emerging Growth Conference
+ Health Talk America: healthtalkamerica.com
 
- The Emerging Growth conference is an effective way for public companies to present and communicate their new products, services and other major announcements to the investment community from the convenience of their office, in a time efficient manner.
+ The Dr. Bob Martin Show: doctorbob.com
 
- The Conference focus and coverage include companies in a wide range of growth sectors, with strong management teams, innovative products & services, focused strategy, execution, and the overall potential for long term growth. Its audience includes potentially tens of thousands of Individual and Institutional investors, as well as Investment advisors and analysts.
+ Creative Management Partners: www.creativemanagementpartners.com
 
- All sessions will be conducted through video webcasts and will take place in the Eastern time zone.
+ Social Media:
 
- About Generation Uranium
+ YouTube: [Health Talk America Channel]
 
- Generation Uranium is a Canadian exploration company focused on advancing high‑quality uranium assets in premier jurisdictions. Its flagship Yath Project is strategically located in Nunavut’s Angilak district - one of Canada’s most active and rapidly emerging uranium camps. With a growing portfolio of high‑priority targets and exposure to proven mineralized trends, Generation is well positioned to contribute to the future global supply of clean nuclear energy.
+ Instagram: [@DoctorBobMartinShow]
 
- For Further InformationMichael Collins, P.Geo., CEO+1(778) 819-7881admin@generationuranium.com
+ Facebook: [Health Talk America Official]
 
- Roger Leschuk, VP Corporate Developmentrlescuk@generationuranium.com+1(604) 720-4544
+ About Alan Morell, CEO, Creative Management Partners LLC (CMP)
 
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release. The TSX Venture Exchange has neither approved nor disapproved of the contents of this news release.
+ Mr. Morell has over 40 years of global experience managing more than 3,700 campaigns; Radio /Internet, Podcast Media Tours and Satellite Media Tours, in the development and management of talent, literary works, television and film packaging, commercial rights, corporate consulting, media positioning, sponsorship of live events, and intellectual property rights. Over 250 Doctors are represented by CMP across every medical discipline ranging from top tier medical hospitals and medical institutions, Chief Medial of Big Pharma; FDA; White House Task Force; AMA. Mr. Morell is among the few industry leaders whose clients have received prestigious awards including Grammy, Tony, Clio, Oscar, Emmy, ESPY, Telly, Victors, Nobel Foundation Medical Candidates and New York Times Bestselling author recognition.
 
-View the original release on www.newmediawire.com 
+ Contact InformationCreative Management Partners LLC (CMP)Beverly Hills Gardens Building,9440 Santa Monica Blvd., Suite 301Beverly Hills, CA 90210Direct Dial: 508-292-7900www.creativemanagementpartners.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/generation-to-present-on-the-emerging-growth-conference-on-june-11-2026-7087071)
+[Original/Source Press Release](https://www.newmediawire.com/news/health-talk-america-america-s-premier-nationwide-radio-health-talk-show-and-co-host-dr-adam-brockman-sign-with-cmp-agent-alan-morell-for-commercial-rights-sponsorships-advertisers-and-talent-bookings-7087079)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/generation-uranium-to-present-at-emerging-growth-conference-on-june-11/f5ca4a534927fbc25d54b748f38eb826) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/health-talk-america-signs-with-cmp-for-commercial-rights-and-sponsorships/444488b066f2d6bd97ebcaa42e8725b0) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/generation-uranium-to-present-at-emerging-growth-conference-on-june-11-highlighting-yath-project-potential)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/generation-uranium-to-present-at-emerging-growth-conference-on-june-11-highlighting-yath-project-potential)
-
-Pickup - [https://burstable.news](https://burstable.news/news/generation-uranium-to-present-at-emerging-growth-conference-on-june-11-highlighting-yath-project-potential)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/generation-uranium-prasentiert-sich-auf-der-emerging-growth-conference-am-11-juni-und-hebt-das-potenzial-des-yath-projekts-hervor)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/generation-uranium-se-presentara-en-la-emerging-growth-conference-el-11-de-junio-destacando-el-potencial-del-proyecto-yath)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/generation-uranium-presentera-a-la-conference-emerging-growth-le-11-juin-mettant-en-avant-le-potentiel-du-projet-yath)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/generation-uranium-apresentara-na-conferencia-de-crescimento-emergente-em-11-de-junho-destacando-o-potencial-do-projeto-yath)
-
-Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-amid-advancing-yath-project)
-
-Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-highlighting-yath-project-potential)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/generation-uranium-to-present-at-emerging-growth-conference-on-june-11-2026)
-
-Pickup - [https://news.halifaxdaily.com/canadian-news](https://news.halifaxdaily.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-highlighting-yath-project-progress)
-
-Pickup - [https://news.halifaxdaily.com/les-informations](https://news.halifaxdaily.com/les-informations/generation-uranium-presentera-a-la-emerging-growth-conference-mettant-en-avant-lavancement-du-projet-yath)
-
-Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-amid-promising-yath-project-developments)
-
-Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/generation-uranium-presentera-a-la-conference-emerging-growth-dans-le-cadre-des-developpements-prometteurs-du-projet-yath)
-
-Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-highlighting-yath-project-developments)
-
-Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/generation-uranium-presentera-a-lemerging-growth-conference-mettant-en-lumiere-les-developpements-du-projet-yath)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/generation-uranium-to-present-at-emerging-growth-conference-amid-promising-developments-at-yath-project)
-
-Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-highlighting-yath-project-potential)
-
-Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/generation-uranium-presentera-a-lemerging-growth-conference-mettant-en-lumiere-le-potentiel-du-projet-yath)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/generation-uranium-to-present-at-emerging-growth-conference-on-june-11-highlighting-yath-project-potential)
-
-Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-amid-promising-yath-project-progress)
-
-Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/generation-uranium-presentera-a-lemerging-growth-conference-dans-le-cadre-des-progres-prometteurs-du-projet-yath)
-
-Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-amid-advancements-at-yath-project)
-
-Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/generation-uranium-presentera-a-la-conference-emerging-growth-conference-au-milieu-des-avancees-du-projet-yath)
-
-Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-highlighting-yath-project-potential)
-
-Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/generation-uranium-presentera-a-la-emerging-growth-conference-mettant-en-avant-le-potentiel-du-projet-yath)
-
-Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/generation-uranium-to-present-at-emerging-growth-conference-amid-promising-developments-at-yath-project)
-
-Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/generation-uranium-presentera-a-la-emerging-growth-conference-dans-le-cadre-des-developpements-prometteurs-du-projet-yath)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/generation-uranium-to-showcase-yath-project-at-emerging-growth-c/202633190)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/9/iconL7QV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/9/roamBcU0.webp)
