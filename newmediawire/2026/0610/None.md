@@ -1,42 +1,52 @@
-# New Southern California CityPASS Tickets Bundle Top Theme Parks and Attractions
+# ProtoSpace Mfg Returns as Lead Sponsor of World's Largest Collegiate Rocketry Competition as More Than 2,000 Students Gather for IREC 2026
 
-VICTOR, ID - June 10, 2026 (NEWMEDIAWIRE) - City Pass, Inc., a leading provider of bundled tickets for discounted admission to the most famous attractions in North America, announces the revamp of the Southern California CityPASS® ticket. The curated lineup provides a flexible, value-driven way for travelers to experience the region’s most iconic theme parks and sought-after attractions.
+Student Engineers From More Than 20 Countries Will Converge in Midland, Texas for One of the Aerospace Industry's Most Important Talent Pipelines
 
-With one streamlined purchase, travelers customize an itinerary by selecting Disneyland® Resort, Universal Studios Hollywood, or both, plus two additional top Southern California attractions. “Thanks to our longstanding collaborations with Southern California’s top theme parks, we’re able to reimagine the Southern California CityPASS ticket,” said Megan Allen, City Pass, Inc. president and CEO. “This latest enhancement introduces more choice, flexibility and savings, empowering visitors to tailor their experience while enjoying the value and convenience of a bundled product.” Disneyland® Resort (Anaheim) - Disneyland® Resort offers legendary entertainment and lifelong memories at Disneyland® Park and Disney California Adventure® Park. The two theme parks at Disneyland® Resort feature immersive lands such as Star Wars: Galaxy’s Edge, Avengers Campus, and Cars Land alongside classic experiences such as Sleeping Beauty Castle and “it’s a small world.” Between rides, live entertainment, seasonal celebrations, and character encounters, Disneyland® Resort delivers a multi- day mix of nostalgia and new discoveries for families, couples, and returning fans. CityPASS admission includes the traveler’s choice of a 2-Day 1 Park Per Day Ticket (to visit each park but on 2 separate days) OR a 2-Day Park Hopper® ticket (to visit both parks on both days). Universal Studios Hollywood (Los Angeles) - A world-class entertainment destination, Universal Studios Hollywood brings today’s most compelling movie, television and gaming properties to life, including The Wizarding World of Harry Potter™, SUPER NINTENDO WORLD™, and the world-famous Studio Tour, which offers guests a front row seat to an authentic movie and television production studio lot. From Jurassic World–The Ride to the high-energy WaterWorld stunt show, this is the best day in L.A. as guests experience movie-making magic. CityPASS admission includes 1-Day General Admission. Southern California CityPASS ticketholders also get one-day admission to their choice of two of the following: LEGOLAND® California Resort (Carlsbad) - Designed for kids ages 2–12, LEGOLAND® California Resort features more than 60 rides, shows, and attractions inspired by LEGO® creativity, including interactive play zones and Miniland USA, with intricate LEGO® recreations of major cities. The resort’s newest land, LEGO® Galaxy, features Galacticoaster, an all-new indoor family roller coaster, adding even more excitement to the experience. The resort also includes SEA LIFE® Aquarium, hands-on building experiences, and character meet-and-greets that bring the LEGO® world to life. LEGOLAND® California is also a Certified Autism Center (CAC), accredited by the International Board of Credentialing and Continuing Education Standards (IBCCES). SeaWorld® San Diego (San Diego) - This marine park blends high-energy thrills with unforgettable marine life experiences, delivering a day full of adventure for all ages. From the powerful Orca Encounter and the playful energy of Dolphin Adventures to adrenaline-charged coasters, every corner of the park offers something unforgettable. Guests can also explore the park’s all-new Shark Encounter, an immersive exhibit featuring breathtaking underwater views and up-close experiences that bring guests face-to-fin with some of the ocean’s most fascinating predators. SeaWorld San Diego blends excitement and education into an unforgettable coastal adventure. San Diego Zoo® (San Diego) - Located in Balboa Park, the San Diego Zoo is world-renowned for its lush, naturalistic habitats and extraordinary collection of more than 12,000 rare and endangered animals, from giant pandas and koalas to polar bears and elephants. CityPASS admission includes unlimited use of the Guided Bus Tour and Skyfari Aerial Tram, along with regularly scheduled shows, keeper talks, and interactive exhibits. San Diego Zoo® Safari Park (Escondido) - Set across 1,800 acres, the Safari Park offers an immersive wildlife experience with open-range habitats and opportunities to see giraffes, rhinos, and other species up close. The Park’s all-new Elephant Valley is not to be missed, allowing visitors to step into the heart of the savanna and come face-to-face with the largest land animals on Earth. CityPASS tickets include unlimited rides on the Africa Tram and regularly scheduled shows and exhibits. Offering savings of up to 47% off combined regular adult admission pricing, Southern California CityPASS tickets are available online at [citypass.com](https://www.citypass.com/southern-california) and delivered via email. Ticket pricing starts at $224 for adults and $219 for children ages 3-9. Child savings are even greater this summer, with tickets starting at $199 and savings as high as 71% on bundles that include Disneyland® Resort. Customers can use the My CityPASS app to access their tickets, make reservations, and find entry instructions, directions, special offers, and more for each attraction. About CityPASS: For more than 29 years, CityPASS® tickets have helped travelers save on admission to top attractions across North America. Available in 17 destinations — Atlanta, Boston, Chicago, Dallas, Denver, Houston, Los Angeles, New York, Orlando, Philadelphia, San Antonio, San Diego, San Francisco, Seattle, Southern California, Tampa Bay, and Toronto - CityPASS tickets offer bundled access to leading attractions with built-in savings and flexibility. Trusted by millions, CityPASS tickets have earned more than 88,000 reviews with an average rating of 4.6 out of 5 stars and have served more than 30 million travelers since 1997. For more information, visit [CityPASS.com](http://www.citypass.com/). Prices and program details are subject to change. CityPASS® and City Pass® are registered trademarks of City Pass, Inc.
+ SYDNEY, NOVA SCOTIA - June 10, 2026 (NEWMEDIAWIRE) - ProtoSpace Mfg, a global leader in rapid manufacturing for aerospace, defense, engineering, and research organizations, today announced its return as Lead Sponsor of the International Rocket Engineering Competition (IREC) 2026, taking place June 15-20 at Midland International Air & Space Port in Midland, Texas.
 
- View the original release on www.newmediawire.com 
+ Organized by the Experimental Sounding Rocket Association (ESRA), IREC is the world's largest collegiate rocketry competition and one of the aerospace industry's most important talent pipelines. This year's event will bring together more than 2,000 student engineers representing 175 university teams from over 20 countries across six continents.
+
+ Throughout the week, teams will present, test, and launch rockets they have spent the past year designing, building, and validating while navigating rigorous safety reviews, technical inspections, engineering presentations, and launch operations. Teams will compete across multiple categories, including missions reaching altitudes of up to 45,000 feet.
+
+ Beyond serving as Lead Sponsor, ProtoSpace Mfg has provided direct manufacturing support to both the competition and participating teams. The company has helped design and manufacture critical competition infrastructure, including launch equipment, payload support hardware, and specialized components used throughout the event, while also supplying custom-manufactured parts, enclosures, assemblies, and other hardware that help student teams move rapidly from design to testing and launch.
+
+ "Most engineering students spend years solving problems on paper. These students are building flight hardware, testing it, troubleshooting failures, and learning how to adapt when things don't go according to plan," said Dr. Doug Milburn, Co-Founder and Vice President of Protocase and ProtoSpace Mfg. "That's the reality of aerospace engineering. The ability to iterate quickly, solve problems under pressure, and learn from setbacks is what separates great teams from average ones. Competitions like IREC provide an environment where those skills are developed at an incredibly high level, which is why they are so valuable to both students and industry."
+
+ Many former IREC competitors have gone on to careers at leading aerospace companies, government agencies, research institutions, and advanced manufacturing organizations, making the competition a key proving ground for the next generation of technical talent.
+
+ "ESRA is proud to once again partner with ProtoSpace Mfg for IREC 2026," said Steve Taylor, President of ESRA. "Every year we see students take on increasingly ambitious engineering challenges, and their success depends on their ability to rapidly design, build, test, and improve their systems. ProtoSpace Mfg understands that process better than anyone, and their support helps teams transform ideas into flight-ready hardware."
+
+ The 2026 competition will feature a full week of technical presentations, poster sessions, safety reviews, launch operations, and industry engagement opportunities, culminating with an awards ceremony on June 20. Launches will once again take place at Midland International Air & Space Port, one of the few FAA-licensed commercial spaceports in the United States.
+
+ Conference Day will bring together students, industry leaders, aerospace organizations, and competition partners from around the world. Highlights include ProtoPod Live at IREC: Engineering, Velocity & Life After University, a live recording of Protocase and ProtoSpace Mfg's innovation-focused podcast hosted by Jordan Rose and featuring guests from Mercury Space Systems and Blue Origin. Rose will also lead two sessions of Project DNA: How to Build Projects That Actually Move, a seminar focused on accelerating execution, reducing project friction, and building momentum in complex engineering environments.
+
+ ProtoSpace Mfg's support of IREC reflects the company's broader investment in the future of aerospace manufacturing. The company works with universities, research organizations, startups, and 19 of the world's 20 largest aerospace and defense contractors, helping engineering teams eliminate manufacturing bottlenecks and accelerate development cycles. As aerospace activity continues to expand across North America, ProtoSpace Mfg is also growing its own footprint, including significant investments in Wilmington, North Carolina, to support increasing demand from the aerospace and defense sectors.
+
+ For media inquiries or to schedule an interview with Dr. Doug Milburn, please contact protocase@phillcomm.global.
+
+ About ProtoSpace Mfg
+
+ ProtoSpace Mfg provides rapid manufacturing services for aerospace, defense, engineering, and research organizations, delivering custom enclosures, panels, assemblies, and precision-manufactured components with unmatched speed. Trusted by 19 of the world's 20 largest aerospace and defense contractors, ProtoSpace Mfg helps innovators accelerate development cycles and bring complex technologies to market faster.
+
+ About IREC
+
+ The International Rocket Engineering Competition (IREC), organized by the Experimental Sounding Rocket Association (ESRA), is the world's largest collegiate rocketry competition. University teams from around the globe design, build, and launch high-powered rockets while demonstrating excellence in engineering, safety, project management, and innovation. The competition serves as a premier training ground for future aerospace professionals and a showcase for the next generation of engineering talent.
+
+ Contact: Jonathan Phillipsprotocase@phillcomm.global
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/new-southern-california-citypass-tickets-bundle-top-theme-parks-and-attractions-7087098)
+[Original/Source Press Release](https://www.newmediawire.com/news/protospace-mfg-returns-as-lead-sponsor-of-world-s-largest-collegiate-rocketry-competition-as-more-than-2-000-students-gather-for-irec-2026-7087103)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/citypass-revamps-southern-california-ticket-with-more-flexibility-and-savings/2e956e017fb68f8ee48d9099b304dc37) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/protospace-mfg-returns-as-lead-sponsor-of-irec-2026-world-s-largest-collegiate-rocketry-competition/d9e645686165630f5c58316a52537450) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/citypass-revamps-southern-california-ticket-with-more-choice-and-savings)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/revamped-southern-california-citypass-offers-greater-flexibility-and-savings-on-top-theme-parks)
-
-Pickup - [https://burstable.news](https://burstable.news/news/citypass-revamps-southern-california-ticket-with-expanded-theme-park-choices)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/citypass-uberarbeitet-sudkalifornien-ticket-mit-erweiterten-freizeitpark-optionen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/citypass-renueva-el-boleto-del-sur-de-california-con-mas-opciones-de-parques-tematicos)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/citypass-relance-le-billet-de-la-californie-du-sud-avec-un-choix-elargi-de-parcs-a-theme)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/citypass-reformula-bilhete-do-sul-da-california-com-opcoes-ampliadas-de-parques-tematicos)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/citypass-revamps-southern-california-ticket-with-more-theme-park-choices-and-savings)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/citypass-revamps-southern-california-ticket-offering-flexible-bundles-and-up-to-47-savings)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/new-southern-california-citypass-tickets-offer-flexible-bundles/202633241)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/fileXc1v.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/bendeKph.webp)
