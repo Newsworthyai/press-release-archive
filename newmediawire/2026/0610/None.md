@@ -1,47 +1,37 @@
-# ProtoSpace Mfg Returns as Lead Sponsor of World's Largest Collegiate Rocketry Competition as More Than 2,000 Students Gather for IREC 2026
+# BOXABL and FG Merger II (FGMC) Stockholders Approve Business Combination
 
-Student Engineers From More Than 20 Countries Will Converge in Midland, Texas for One of the Aerospace Industry's Most Important Talent Pipelines
+LOS ANGELES, CA - June 10, 2026 (NEWMEDIAWIRE) - BOXABL and FG Merger II Corp. (NASDAQ: FGMC) announced that stockholders of both companies approved the previously announced business combination at their respective special meetings held June 9, 2026. Upon completion of the transaction, FGMC will be renamed BOXABL Inc., with the combined company’s common stock expected to begin trading on the Nasdaq Stock Market under the ticker symbol BXBL.
 
- SYDNEY, NOVA SCOTIA - June 10, 2026 (NEWMEDIAWIRE) - ProtoSpace Mfg, a global leader in rapid manufacturing for aerospace, defense, engineering, and research organizations, today announced its return as Lead Sponsor of the International Rocket Engineering Competition (IREC) 2026, taking place June 15-20 at Midland International Air & Space Port in Midland, Texas.
+ BOXABL said its stockholders approved the business combination proposal, while FGMC stockholders approved all proposals required to complete the transaction, including the business combination, governance, stock issuance and director election proposals. Company executives said the combination will provide BOXABL with access to public capital markets to support expansion of its factory-built housing platform and accelerate growth as a publicly traded company.
 
- Organized by the Experimental Sounding Rocket Association (ESRA), IREC is the world's largest collegiate rocketry competition and one of the aerospace industry's most important talent pipelines. This year's event will bring together more than 2,000 student engineers representing 175 university teams from over 20 countries across six continents.
+ To view the full press release, visit https://nnw.fm/vNtkY
 
- Throughout the week, teams will present, test, and launch rockets they have spent the past year designing, building, and validating while navigating rigorous safety reviews, technical inspections, engineering presentations, and launch operations. Teams will compete across multiple categories, including missions reaching altitudes of up to 45,000 feet.
+ About BOXABL
 
- Beyond serving as Lead Sponsor, ProtoSpace Mfg has provided direct manufacturing support to both the competition and participating teams. The company has helped design and manufacture critical competition infrastructure, including launch equipment, payload support hardware, and specialized components used throughout the event, while also supplying custom-manufactured parts, enclosures, assemblies, and other hardware that help student teams move rapidly from design to testing and launch.
+ BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’S flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation-setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes.
 
- "Most engineering students spend years solving problems on paper. These students are building flight hardware, testing it, troubleshooting failures, and learning how to adapt when things don't go according to plan," said Dr. Doug Milburn, Co-Founder and Vice President of Protocase and ProtoSpace Mfg. "That's the reality of aerospace engineering. The ability to iterate quickly, solve problems under pressure, and learn from setbacks is what separates great teams from average ones. Competitions like IREC provide an environment where those skills are developed at an incredibly high level, which is why they are so valuable to both students and industry."
+ For more information, please visit https://www.boxabl.com/ir
 
- Many former IREC competitors have gone on to careers at leading aerospace companies, government agencies, research institutions, and advanced manufacturing organizations, making the competition a key proving ground for the next generation of technical talent.
+ About FG Merger II Corp.
 
- "ESRA is proud to once again partner with ProtoSpace Mfg for IREC 2026," said Steve Taylor, President of ESRA. "Every year we see students take on increasingly ambitious engineering challenges, and their success depends on their ability to rapidly design, build, test, and improve their systems. ProtoSpace Mfg understands that process better than anyone, and their support helps teams transform ideas into flight-ready hardware."
+ FG Merger II Corp. is a blank check company, also commonly referred to as a special purpose acquisition company, or SPAC, formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses or entities.
 
- The 2026 competition will feature a full week of technical presentations, poster sessions, safety reviews, launch operations, and industry engagement opportunities, culminating with an awards ceremony on June 20. Launches will once again take place at Midland International Air & Space Port, one of the few FAA-licensed commercial spaceports in the United States.
+ For more information, visit https://fgmerger.com/
 
- Conference Day will bring together students, industry leaders, aerospace organizations, and competition partners from around the world. Highlights include ProtoPod Live at IREC: Engineering, Velocity & Life After University, a live recording of Protocase and ProtoSpace Mfg's innovation-focused podcast hosted by Jordan Rose and featuring guests from Mercury Space Systems and Blue Origin. Rose will also lead two sessions of Project DNA: How to Build Projects That Actually Move, a seminar focused on accelerating execution, reducing project friction, and building momentum in complex engineering environments.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- ProtoSpace Mfg's support of IREC reflects the company's broader investment in the future of aerospace manufacturing. The company works with universities, research organizations, startups, and 19 of the world's 20 largest aerospace and defense contractors, helping engineering teams eliminate manufacturing bottlenecks and accelerate development cycles. As aerospace activity continues to expand across North America, ProtoSpace Mfg is also growing its own footprint, including significant investments in Wilmington, North Carolina, to support increasing demand from the aerospace and defense sectors.
+ Forward Looking Statements
 
- For media inquiries or to schedule an interview with Dr. Doug Milburn, please contact protocase@phillcomm.global.
-
- About ProtoSpace Mfg
-
- ProtoSpace Mfg provides rapid manufacturing services for aerospace, defense, engineering, and research organizations, delivering custom enclosures, panels, assemblies, and precision-manufactured components with unmatched speed. Trusted by 19 of the world's 20 largest aerospace and defense contractors, ProtoSpace Mfg helps innovators accelerate development cycles and bring complex technologies to market faster.
-
- About IREC
-
- The International Rocket Engineering Competition (IREC), organized by the Experimental Sounding Rocket Association (ESRA), is the world's largest collegiate rocketry competition. University teams from around the globe design, build, and launch high-powered rockets while demonstrating excellence in engineering, safety, project management, and innovation. The competition serves as a premier training ground for future aerospace professionals and a showcase for the next generation of engineering talent.
-
- Contact: Jonathan Phillipsprotocase@phillcomm.global
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/protospace-mfg-returns-as-lead-sponsor-of-world-s-largest-collegiate-rocketry-competition-as-more-than-2-000-students-gather-for-irec-2026-7087103)
+[Original/Source Press Release](https://www.newmediawire.com/news/boxabl-and-fg-merger-ii-fgmc-stockholders-approve-business-combination-7087108)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/protospace-mfg-returns-as-lead-sponsor-of-irec-2026-world-s-largest-collegiate-rocketry-competition/d9e645686165630f5c58316a52537450) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-and-fg-merger-ii-stockholders-approve-business-combination/817347b9c04349810e5958056e5b0f78) 
 
  
 
@@ -49,4 +39,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/bendeKph.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/yawnva5r.webp)
