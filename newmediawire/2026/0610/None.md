@@ -1,57 +1,42 @@
-# One Week Remains to Apply for National Recognition as One of Americas Fastest-Growing Purpose-Driven Companies
+# New Southern California CityPASS Tickets Bundle Top Theme Parks and Attractions
 
-LOS ANGELES, CA - June 9, 2026 (NEWMEDIAWIRE) - Purpose-driven companies across the United States have just one week remaining to apply for inclusion in the inaugural PurposeBuilt100™, a national recognition program honoring the 100 fastest-growing purpose-driven companies in America. Applications are free and must be submitted by June 15, 2026.
+VICTOR, ID - June 10, 2026 (NEWMEDIAWIRE) - City Pass, Inc., a leading provider of bundled tickets for discounted admission to the most famous attractions in North America, announces the revamp of the Southern California CityPASS® ticket. The curated lineup provides a flexible, value-driven way for travelers to experience the region’s most iconic theme parks and sought-after attractions.
 
- Selected companies will be recognized as part of PurposeBuilt100™, an annual ranking and awards program celebrating organizations that combine meaningful social or environmental impact with exceptional business growth. Winners will receive national recognition, be profiled in a hardcover annual report, and be featured during the PurposeBuilt100™ Showcase at SuperCrowd26, a three-day televised event scheduled for August 25–27, 2026.
+With one streamlined purchase, travelers customize an itinerary by selecting Disneyland® Resort, Universal Studios Hollywood, or both, plus two additional top Southern California attractions. “Thanks to our longstanding collaborations with Southern California’s top theme parks, we’re able to reimagine the Southern California CityPASS ticket,” said Megan Allen, City Pass, Inc. president and CEO. “This latest enhancement introduces more choice, flexibility and savings, empowering visitors to tailor their experience while enjoying the value and convenience of a bundled product.” Disneyland® Resort (Anaheim) - Disneyland® Resort offers legendary entertainment and lifelong memories at Disneyland® Park and Disney California Adventure® Park. The two theme parks at Disneyland® Resort feature immersive lands such as Star Wars: Galaxy’s Edge, Avengers Campus, and Cars Land alongside classic experiences such as Sleeping Beauty Castle and “it’s a small world.” Between rides, live entertainment, seasonal celebrations, and character encounters, Disneyland® Resort delivers a multi- day mix of nostalgia and new discoveries for families, couples, and returning fans. CityPASS admission includes the traveler’s choice of a 2-Day 1 Park Per Day Ticket (to visit each park but on 2 separate days) OR a 2-Day Park Hopper® ticket (to visit both parks on both days). Universal Studios Hollywood (Los Angeles) - A world-class entertainment destination, Universal Studios Hollywood brings today’s most compelling movie, television and gaming properties to life, including The Wizarding World of Harry Potter™, SUPER NINTENDO WORLD™, and the world-famous Studio Tour, which offers guests a front row seat to an authentic movie and television production studio lot. From Jurassic World–The Ride to the high-energy WaterWorld stunt show, this is the best day in L.A. as guests experience movie-making magic. CityPASS admission includes 1-Day General Admission. Southern California CityPASS ticketholders also get one-day admission to their choice of two of the following: LEGOLAND® California Resort (Carlsbad) - Designed for kids ages 2–12, LEGOLAND® California Resort features more than 60 rides, shows, and attractions inspired by LEGO® creativity, including interactive play zones and Miniland USA, with intricate LEGO® recreations of major cities. The resort’s newest land, LEGO® Galaxy, features Galacticoaster, an all-new indoor family roller coaster, adding even more excitement to the experience. The resort also includes SEA LIFE® Aquarium, hands-on building experiences, and character meet-and-greets that bring the LEGO® world to life. LEGOLAND® California is also a Certified Autism Center (CAC), accredited by the International Board of Credentialing and Continuing Education Standards (IBCCES). SeaWorld® San Diego (San Diego) - This marine park blends high-energy thrills with unforgettable marine life experiences, delivering a day full of adventure for all ages. From the powerful Orca Encounter and the playful energy of Dolphin Adventures to adrenaline-charged coasters, every corner of the park offers something unforgettable. Guests can also explore the park’s all-new Shark Encounter, an immersive exhibit featuring breathtaking underwater views and up-close experiences that bring guests face-to-fin with some of the ocean’s most fascinating predators. SeaWorld San Diego blends excitement and education into an unforgettable coastal adventure. San Diego Zoo® (San Diego) - Located in Balboa Park, the San Diego Zoo is world-renowned for its lush, naturalistic habitats and extraordinary collection of more than 12,000 rare and endangered animals, from giant pandas and koalas to polar bears and elephants. CityPASS admission includes unlimited use of the Guided Bus Tour and Skyfari Aerial Tram, along with regularly scheduled shows, keeper talks, and interactive exhibits. San Diego Zoo® Safari Park (Escondido) - Set across 1,800 acres, the Safari Park offers an immersive wildlife experience with open-range habitats and opportunities to see giraffes, rhinos, and other species up close. The Park’s all-new Elephant Valley is not to be missed, allowing visitors to step into the heart of the savanna and come face-to-face with the largest land animals on Earth. CityPASS tickets include unlimited rides on the Africa Tram and regularly scheduled shows and exhibits. Offering savings of up to 47% off combined regular adult admission pricing, Southern California CityPASS tickets are available online at [citypass.com](https://www.citypass.com/southern-california) and delivered via email. Ticket pricing starts at $224 for adults and $219 for children ages 3-9. Child savings are even greater this summer, with tickets starting at $199 and savings as high as 71% on bundles that include Disneyland® Resort. Customers can use the My CityPASS app to access their tickets, make reservations, and find entry instructions, directions, special offers, and more for each attraction. About CityPASS: For more than 29 years, CityPASS® tickets have helped travelers save on admission to top attractions across North America. Available in 17 destinations — Atlanta, Boston, Chicago, Dallas, Denver, Houston, Los Angeles, New York, Orlando, Philadelphia, San Antonio, San Diego, San Francisco, Seattle, Southern California, Tampa Bay, and Toronto - CityPASS tickets offer bundled access to leading attractions with built-in savings and flexibility. Trusted by millions, CityPASS tickets have earned more than 88,000 reviews with an average rating of 4.6 out of 5 stars and have served more than 30 million travelers since 1997. For more information, visit [CityPASS.com](http://www.citypass.com/). Prices and program details are subject to change. CityPASS® and City Pass® are registered trademarks of City Pass, Inc.
 
- Unlike traditional awards programs that simply publish a list, PurposeBuilt100™ is designed to elevate founders and their companies through storytelling, visibility, and ongoing recognition. The program culminates in a televised showcase distributed through the e360tv Network, Roku, Amazon Fire TV, and SuperCrowd.tv, introducing selected companies to an audience of founders, investors, advisors, and ecosystem leaders.
-
- “Every year, purpose-driven founders create extraordinary value for customers, communities, and investors, yet many never receive the recognition they deserve,” said Devin Thorpe, founder of PurposeBuilt100™ and CEO of The Super Crowd, Inc. “PurposeBuilt100™ was created to shine a spotlight on companies proving that purpose and growth can go hand in hand. If your company is making a difference and growing rapidly, I encourage you to apply before the June 15 deadline.”
-
- PurposeBuilt100™ recognizes companies demonstrating both measurable growth and meaningful purpose. Eligible companies are evaluated based on documented revenue growth over a five-year period and evidence of social or environmental purpose embedded in their mission, products, services, or governance.Companies selected for the inaugural PurposeBuilt100™ will receive:
-
- * Inclusion in the inaugural PurposeBuilt100™ ranking
-* A profile in the hardcover PurposeBuilt100™ Report
-* Recognition during the televised PurposeBuilt100™ Showcase at SuperCrowd26
-* National publicity and promotional opportunities
-* A digital badge and commemorative award for marketing, recruiting, and investor communications
-* Visibility among investors, founders, advisors, and ecosystem leaders
-
- The PurposeBuilt100™ Report will serve as a permanent record of the inaugural class, profiling each selected company and providing long-form visibility beyond the awards presentation itself.
-
- PurposeBuilt100™ is produced by The Super Crowd, Inc., a public benefit corporation dedicated to helping purpose-driven entrepreneurs access capital, credibility, and community. The recognition program serves as the culminating showcase of SuperCrowd26, a three-day event bringing together founders, investors, and ecosystem leaders from across the impact investing landscape.
-
- Applications are free and typically require only three to five minutes to complete.
-
- The application deadline is June 15, 2026.
-
- Apply now at PurposeBuilt100.com.
-
- About PurposeBuilt100™
-
- PurposeBuilt100™ is an annual ranking and recognition program honoring the 100 fastest-growing purpose-driven companies in America. Companies are selected based on documented growth and meaningful social or environmental purpose. The program combines rigorous selection, founder storytelling, national visibility, and a televised showcase designed to celebrate companies proving that purpose and growth belong together. Learn more and apply at https://PurposeBuilt100.com.
-
- About The Super Crowd, Inc.
-
- The Super Crowd, Inc. is a public benefit corporation dedicated to helping entrepreneurs raise capital and helping investors deploy capital for impact. Through media, events, education, and community-building initiatives, The Super Crowd promotes the growth of purpose-driven entrepreneurship and democratized investment opportunities. Learn more at https://TheSuperCrowd.com.
-
- Media Contact:Devin ThorpeCEO | The Super Crowd, Inc., a public benefit corporation801-930-0588
-
- 
-
-View the original release on www.newmediawire.com 
+ View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/one-week-remains-to-apply-for-national-recognition-as-one-of-americas-fastest-growing-purpose-driven-companies-7087096)
+[Original/Source Press Release](https://www.newmediawire.com/news/new-southern-california-citypass-tickets-bundle-top-theme-parks-and-attractions-7087098)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/one-week-left-to-apply-for-purposebuilt100tm-national-recognition/3474825d503106b70d7dcf70925a0666) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citypass-revamps-southern-california-ticket-with-more-flexibility-and-savings/2e956e017fb68f8ee48d9099b304dc37) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/citypass-revamps-southern-california-ticket-with-more-choice-and-savings)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/revamped-southern-california-citypass-offers-greater-flexibility-and-savings-on-top-theme-parks)
+
+Pickup - [https://burstable.news](https://burstable.news/news/citypass-revamps-southern-california-ticket-with-expanded-theme-park-choices)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/citypass-uberarbeitet-sudkalifornien-ticket-mit-erweiterten-freizeitpark-optionen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/citypass-renueva-el-boleto-del-sur-de-california-con-mas-opciones-de-parques-tematicos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/citypass-relance-le-billet-de-la-californie-du-sud-avec-un-choix-elargi-de-parcs-a-theme)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/citypass-reformula-bilhete-do-sul-da-california-com-opcoes-ampliadas-de-parques-tematicos)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/citypass-revamps-southern-california-ticket-with-more-theme-park-choices-and-savings)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/citypass-revamps-southern-california-ticket-offering-flexible-bundles-and-up-to-47-savings)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/new-southern-california-citypass-tickets-offer-flexible-bundles/202633241)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/bestenxs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/fileXc1v.webp)
