@@ -1,0 +1,18 @@
+# LOS ANGELES VIOLENT CRIME FALLS TO LOWEST LEVEL IN NEARLY 60 YEARS AS PEACE RIDERS CONTINUE 14-YEAR MISSION OF HOPE
+
+LOS ANGELES, CA, June 07, 2026 /24-7PressRelease/ -- Los Angeles recorded 230 homicides in 2025, marking the city's lowest homicide rate since 1966. While many factors contribute to long-term crime reduction, community leaders point to the sustained efforts of grassroots organizations such as the Peace Riders, whose mission has focused on promoting peace, hope and unity throughout South Central Los Angeles for the past 14 years.  Each month, the Peace Riders—comprised of motorcyclists, low-riders enthusiasts, car clubs and motorcycle clubs—travel together through South Central Los Angeles neighborhoods with a singular purpose: bringing communities together and encouraging peace.  Along their route, Peace Riders stop to engage residents, distribute peace-focused educational materials and strengthen neighborhood connections. When communities are affected by recent violent crime, the Peace Riders gather with grieving families, offering prayers, comfort and support. They embrace the families as their own and offer themselves as extended family. They provide hope and remind families they are not alone.  The Peace Riders conclude the ride with a community gathering that often includes a shared meal and, at times, festivals featuring live entertainment. Organizers describe these events as "edutainment"—combining education and entertainment to inspire positive choices.  "For many of the participants, this mission is deeply personal," said a Peace Riders representative. "Many have experienced the loss of loved ones through unnecessary violence and are determined to spread the idea of peace and love to others to help prevent future violence."  Supporting these efforts for many years, the Church of Scientology Celebrity Centre International in Los Angeles has provided free educational materials to assist the Peace Riders' community outreach activities. Over the years, nearly 50,000 copies of The Way to Happiness booklet, written by L. Ron Hubbard, have been donated.  Described as a common-sense guide to better living, The Way to Happiness promotes values that transcend cultural, religious and social differences. The booklet is distributed throughout neighborhoods as a practical resource to encourage respect, responsibility and happier relationships with others.  L. Ron Hubbard emphasized the importance of sharing these principles broadly, stating: "All you have to do is keep The Way to Happiness flowing in the society. Like gentle oil spread upon the raging sea, the calm will flow outward and outward."  After 14 years of continuous outreach, the Peace Riders remain committed to their successful purpose of bringing people together, providing succor when needed, educating others on universal truths to live by and creating a more peaceful future for Los Angeles.  The Church of Scientology Celebrity Centre International has supported the Peace Rides since its inception, providing funds, The Way to Happiness Booklets and moral support alongside of the Founders.  Website: https://www.scientology.cc 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/535635/los-angeles-violent-crime-falls-to-lowest-level-in-nearly-60-years-as-peace-riders-continue-14-year-mission-of-hope)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peace-riders-help-la-hit-lowest-homicide-rate-since-1966/2c7124237ded2e987479a310e7ef4159) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/266/11/coollltd.webp)

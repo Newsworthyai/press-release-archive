@@ -1,54 +1,78 @@
-# PXG Celebrates 250 Years of American Independence With New PXG Stars &amp; Stripes 250 Collection
+# LataMed AI Initiates Strategic Process to Evaluate Installment-Based Healthcare Payment Integration With Cashea Platform
 
-Special-edition Collection Honors America’s Revolutionary Spirit With Bold Patriotic Design, Exclusive Tour-level Gear, and a one-of-one Custom Wedge set Giveaway
+CARACAS, VENEZUELA - June 11, 2026 (NEWMEDIAWIRE) - LataMed AI Corp. (OTC: LMED) (the “Company”), a development-stage digital health and artificial intelligence technology company focused on telehealth infrastructure, healthcare analytics, and care coordination solutions for emerging markets, today announced that it has initiated the operational, technical, and commercial evaluation process to support a potential integration of installment-based healthcare payment capabilities through Cashea, one of Venezuela’s leading buy-now-pay-later financial technology platforms.
 
- SCOTTSDALE, AZ - June 11, 2026 (NEWMEDIAWIRE) - PXG is celebrating 250 years of American independence with the launch of the new PXG Stars & Stripes 250 Collection, a bold special-edition lineup inspired by the spirit of freedom, individuality, and American grit that continue to shape the nation and the game of golf.
+ The proposed initiative is designed to evaluate ways to reduce upfront financial barriers for patients seeking access to private healthcare services, consultations, diagnostics, wellness programs, and other eligible healthcare offerings through the LataMed AI ecosystem.
 
- Founded by United States Marine Corps Vietnam War Veteran Bob Parsons, PXG has always been rooted in American innovation, uncompromising performance, and the belief that confidence comes from trusting your tools. The PXG Stars & Stripes 250 Collection brings that mindset to life through premium golf gear and accessories that blend iconic Americana with PXG’s unmistakable performance-driven design.
+ Management believes that improving payment accessibility may support greater patient engagement, increased healthcare utilization, stronger platform adoption, and broader access to private healthcare services. By addressing affordability challenges, the Company believes it can further strengthen its position as a technology-enabled healthcare marketplace serving patients, providers, and healthcare partners throughout Latin America.
 
- Timed to commemorate America’s semiquincentennial celebration, the collection pays tribute to the values that define both the country and the PXG brand: independence, courage, ownership, and the freedom to play your own way.
+ The Company expects that a potential Cashea-related payment integration, if successfully completed, could support LataMed AI’s broader strategy of combining artificial intelligence, telehealth infrastructure, care coordination tools, and digital payment accessibility to create a more scalable healthcare marketplace for patients and providers.
 
- The PXG Stars & Stripes 250 Collection features visually striking accessories, bags, headcovers, towels, apparel, and headwear inspired by historic American symbolism and reimagined through a PXG lens. Standout design elements include elevated red, white, and blue patchwork motifs inspired by Betsy Ross and the creation of the American flag, alongside embroidered references to the Liberty Bell, the American eagle, and other symbols synonymous with freedom, strength, and resilience.
+ Dr. Kevin Rodan Levy, Chief Executive Officer of LataMed AI Corp., stated: “We believe financial accessibility is a critical component of healthcare delivery. Our objective is to evaluate solutions that may help patients obtain timely medical care while simultaneously expanding the reach and utility of our healthcare ecosystem. We believe initiatives such as this have the potential to strengthen patient acquisition, improve engagement, and support long-term platform growth.”
 
- The collection’s vintage Americana aesthetic is paired with bold textures, premium materials, dimensional embroidery, and PXG’s unmistakable visual identity, creating one of the brand’s most distinctive seasonal releases to date. From embroidered tour bags and statement headcovers to patriotic caps and towels, the collection is designed to stand out on the course.
+ The Company has not entered into a definitive commercial agreement related to this initiative as of the date of this release. Completion of any integration remains subject to further commercial discussions, technical implementation requirements, regulatory review, and customary business conditions. LataMed AI intends to provide additional updates as material developments occur.
 
- As part of the launch celebration, PXG is also introducing the PXG Stars & Stripes 250 Giveaway, giving golfers the opportunity to win some of the most exclusive pieces in the collection. This includes limited-edition embroidered PXG Stars & Stripes 250 Tour Staff Bags that will not be available for retail sale and will be carried by PXG tour professionals including Jake Knapp, Aldrich Potgieter, and Marco Penge during the U.S. Open.
+ For additional information, please visit https://latamed.ai, follow the Company’s official social media channels, or review the Company’s filings with the U.S. Securities and Exchange Commission at www.sec.gov.
 
- The grand prize winner will receive:
+ About LataMed AI Corp.
 
- * One limited-edition PXG Stars & Stripes 250 Tour Staff Bag
-* A one-of-one set of custom PXG Stars & Stripes 250 Stick’em Forged Wedges
-* Custom patriotic True Temper Project X Shafts
-* Matching Stars & Stripes 250 Accessories and Headcovers
-* PXG Xtreme Tour Golf Balls
+ LataMed AI Corp. (OTC: LMED) is a development-stage digital health and artificial intelligence technology company focused on building telehealth infrastructure, healthcare coordination tools, analytics capabilities, and AI-enabled healthcare solutions for emerging markets. The Company’s strategy is centered on developing technology platforms designed to support healthcare access, patient engagement, provider coordination, emergency medical response, pharmacy integration, and data-driven healthcare operations, with an initial regional focus on Latin America.
 
- Additional winners will also receive exclusive PXG Stars & Stripes 250 prize packages featuring limited-edition tour bags and accessories.
+ Forward-Looking Statements
 
- No purchase is necessary to enter. Golfers can register throughout June by visiting PXG.com, entering through PXG social media channels, or scanning the QR code available at participating PXG retail stores nationwide. Winners will be selected and contacted on July 7, 2026. This promotion is open to U.S. residents only.
+ This press release contains forward-looking statements. Forward-looking statements include, but are not limited to, statements regarding the Company's business strategy, proposed healthcare payment integration initiatives, payment accessibility programs, healthcare technology initiatives, telehealth infrastructure development, artificial intelligence applications, commercialization initiatives, platform deployment, operational execution, strategic relationships, market opportunities, regional expansion plans, and future operations.
 
- The PXG Stars & Stripes 250 Collection is available now at select PXG retail stores and online at www.PXG.com.
+ These statements are based on current expectations and assumptions and are subject to significant risks and uncertainties that could cause actual results to differ materially from those expressed or implied. Investors are cautioned not to place undue reliance on forward-looking statements, which speak only as of the date of this press release.
 
- About PXG (Parsons Xtreme Golf)
+ Actual results may differ materially due to various factors, including but not limited to: the Company's ability to successfully implement its business plan; the availability of financing; the Company's ability to obtain required regulatory authorizations; operational execution risks; technology deployment risks; risks associated with operations in emerging markets, including Venezuela; the Company's ability to successfully negotiate and implement any potential payment integration arrangements; and general economic and market conditions.
 
- Founded by American entrepreneur and self-proclaimed golf nut Bob Parsons, PXG embodies his belief that every new product - from clubs to apparel - should be markedly better. Every innovation should noticeably improve performance, and every moment of impact should elevate enjoyment.
+ The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
 
- Today, PXG offers a complete lineup of both right- and left-handed golf clubs, including drivers, fairway woods, hybrids, irons, wedges, and putters, engineered to be custom fit and built to every golfer’s unique specification. The company also designs and delivers high-performance golf apparel and accessories.
+ Disclaimer
 
- PXG’s professional staff includes Christiaan Bezuidenhout, Eric Cole, Patrick Fishburn, Jake Knapp, David Lipsky, Marco Penge, Aldrich Potgieter, Chad Ramey, Mason Andersen, Christian Banke, Paul Barjon, Sebastian Cappelen, Patrick Cover, Cristobal Del Solar, Keven Dougherty, Joey Garber, Ryan McCormick, Henrik Norlander, Augusto Nunez, Nathan Petronzio, Garrett Reband, Shad Tuten, Celine Boutier, Olivia Cowan, Minji Kang, Megan Khang, Auston Kim, Christina Kim, Gina Kim, Mina Kreiter, Kaitlin Milligan, and Linnea Storm.
+ This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company. Any investment decision should be made solely on the basis of information contained in the Company's filings with the U.S. Securities and Exchange Commission and other publicly available documents.
 
- Contact: Leela BrennanPress@pxg.com 
+ The Company's securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company's SEC filings before making any investment decision.
+
+ No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
+
+ Investor Relations Contact
+
+ LataMed AI Corp.ir@latamed.ai+1 (787) 476-2350https://latamed.ai
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pxg-celebrates-250-years-of-american-independence-with-new-pxg-stars-stripes-250-collection-7087113)
+[Original/Source Press Release](https://www.newmediawire.com/news/latamed-ai-initiates-strategic-process-to-evaluate-installment-based-healthcare-payment-integration-with-cashea-platform-7087119)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pxg-stars-stripes-250-collection-honors-american-independence/7eb5d3ea4680f3d1a9b160519e1c859e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/latamed-ai-explores-cashea-pay-integration-for-affordable-healthcare/b8928c2242f676f70bfc0512ad6b61da) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/latamed-ai-evaluates-installment-based-healthcare-payment-integration-with-cashea-platform)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/latamed-ai-evaluates-integration-of-installment-based-healthcare-payments-via-cashea-platform)
+
+Pickup - [https://burstable.news](https://burstable.news/news/latamed-ai-evaluates-integration-of-installment-based-payments-via-cashea-platform)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/latamed-ai-pruft-integration-von-ratenzahlungen-uber-cashea-plattform)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/latamed-ai-evalua-la-integracion-de-pagos-en-cuotas-a-traves-de-la-plataforma-cashea)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/latamed-ai-evalue-lintegration-des-paiements-fractionnes-via-la-plateforme-cashea)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/latamed-ai-avalia-integracao-de-pagamentos-parcelados-via-plataforma-cashea)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/latamed-ai-evaluates-integration-with-cashea-bnpl-platform-to-boost-healthcare-access-in-venezuela)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/latamed-ai-evaluates-installment-payment-integration-with-cashea-to-boost-healthcare-access-in-latin-america)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/latamed-ai-evaluates-integration-of-installment-payments-via-cas/202633409)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/11/numbxO3U.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/11/wamcJ8kY.webp)

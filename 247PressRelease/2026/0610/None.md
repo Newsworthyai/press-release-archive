@@ -1,0 +1,18 @@
+# Dynamics Square USA Completes Microsoft Dynamics 365 Business Central Upgrade for South Carolina Recycling Organization
+
+GREENVILLE, SC, June 10, 2026 /24-7PressRelease/ -- Dynamics Square USA, a Microsoft Solutions Partner focused on business applications and digital transformation services, announced the successful upgrade of a South Carolina based recycling and materials recovery organization from Microsoft Dynamics NAV 2018 to Microsoft Dynamics 365 Business Central SaaS.   The project focused on replacing the organization's aging infrastructure with a cloud environment that improves inventory visibility, financial reporting, and operational scalability.   The recycling organization manages scrap metals, electronics, vehicles, and consumer recyclables while coordinating daily material intake, outbound shipments, procurement activities, and financial operations. Its previous on-prem NAV system created operational limitations related to reporting, system maintenance, scalability, and Microsoft 365 connectivity.   Dynamics Square USA implemented a full upgrade to Business Central SaaS covering finance, procurement, inventory management, warehouse activities, sales operations, approval workflows, and reporting capabilities. The engagement also prepared the organization for future Power BI reporting enhancements planned in the next phase of digital transformation.   The upgraded cloud environment now provides structured workflows, dependable inventory tracking, cleaner operational coordination, and improved reporting visibility across departments handling recycling operations. The implementation also reduced reliance on spreadsheets and eliminated several server-related maintenance concerns tied to the previous infrastructure.   "Recycling operations depend heavily on accurate inventory tracking and dependable financial processes," said Arish Siddiqui, Senior Manager, Business Development at Dynamics Square USA. "This upgrade helped the client move away from infrastructure limitations and adopt a cloud environment built for long term operational stability and future growth."   Following the implementation, the organization gained improved visibility into stock movement, faster access to operational information, structured approval processes, and more intuitive user experience for employees across departments. The cloud setup also established a stronger digital foundation for future expansion initiatives, including advanced reporting and customer-facing capabilities.   Dynamics Square USA continues to support organizations across manufacturing, distribution, professional services, nonprofit, and recycling industries with Microsoft business applications designed to modernize finance, supply chain, reporting, customer engagement, and operational management processes.  About Dynamics Square USA   Dynamics Square USA is a Microsoft Solutions Partner providing consulting, implementation, upgrade, and support services for Microsoft business applications. The company helps organizations modernize finance, operations, reporting, and customer management processes through cloud-based business solutions. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/535680/dynamics-square-usa-completes-microsoft-dynamics-365-business-central-upgrade-for-south-carolina-recycling-organization)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recycling-firm-upgrades-to-dynamics-365-business-central-saas/0d366ec5a9706cb0e0a715b9da94b768) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/266/11/facebpT9.webp)
