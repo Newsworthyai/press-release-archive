@@ -1,78 +1,40 @@
-# LataMed AI Initiates Strategic Process to Evaluate Installment-Based Healthcare Payment Integration With Cashea Platform
+# BOXABL Introduces Rego-Brix Lunar Radiation Shielding Concept
 
-CARACAS, VENEZUELA - June 11, 2026 (NEWMEDIAWIRE) - LataMed AI Corp. (OTC: LMED) (the “Company”), a development-stage digital health and artificial intelligence technology company focused on telehealth infrastructure, healthcare analytics, and care coordination solutions for emerging markets, today announced that it has initiated the operational, technical, and commercial evaluation process to support a potential integration of installment-based healthcare payment capabilities through Cashea, one of Venezuela’s leading buy-now-pay-later financial technology platforms.
+LOS ANGELES, CA - June 11, 2026 (NEWMEDIAWIRE) - BOXABL introduced Rego-Brix, a modular radiation-shielding concept designed to utilize lunar regolith to help protect future moon habitats from galactic cosmic radiation. Presented in the company’s video, “DON’T DIE ON THE MOON (Part 2) - Rego-Brix by BOXABL,” the concept features foldable, nestable components that can be transported efficiently and filled on-site with locally sourced lunar material to create protective barriers around living quarters, reducing the need to launch shielding materials from Earth.
 
- The proposed initiative is designed to evaluate ways to reduce upfront financial barriers for patients seeking access to private healthcare services, consultations, diagnostics, wellness programs, and other eligible healthcare offerings through the LataMed AI ecosystem.
+ Rego-Brix is envisioned as a companion system to BOXABL’s UFO foldable habitat concept, creating a potential framework for deployable off-world housing paired with locally sourced radiation shielding. BOXABL said it holds patents related to the Rego-Brix concept and intends to make the technology available on a royalty-free basis. The company is currently completing its merger with FG Merger II Corp. (NASDAQ: FGMC), which is expected to result in the combined company trading on Nasdaq under the ticker symbol BXBL.
 
- Management believes that improving payment accessibility may support greater patient engagement, increased healthcare utilization, stronger platform adoption, and broader access to private healthcare services. By addressing affordability challenges, the Company believes it can further strengthen its position as a technology-enabled healthcare marketplace serving patients, providers, and healthcare partners throughout Latin America.
+ To view the full press release, visit https://ibn.fm/1UwZm
 
- The Company expects that a potential Cashea-related payment integration, if successfully completed, could support LataMed AI’s broader strategy of combining artificial intelligence, telehealth infrastructure, care coordination tools, and digital payment accessibility to create a more scalable healthcare marketplace for patients and providers.
+ About BOXABL
 
- Dr. Kevin Rodan Levy, Chief Executive Officer of LataMed AI Corp., stated: “We believe financial accessibility is a critical component of healthcare delivery. Our objective is to evaluate solutions that may help patients obtain timely medical care while simultaneously expanding the reach and utility of our healthcare ecosystem. We believe initiatives such as this have the potential to strengthen patient acquisition, improve engagement, and support long-term platform growth.”
+ BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’S flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation-setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes.
 
- The Company has not entered into a definitive commercial agreement related to this initiative as of the date of this release. Completion of any integration remains subject to further commercial discussions, technical implementation requirements, regulatory review, and customary business conditions. LataMed AI intends to provide additional updates as material developments occur.
+ For more information, please visit https://www.boxabl.com/ir
 
- For additional information, please visit https://latamed.ai, follow the Company’s official social media channels, or review the Company’s filings with the U.S. Securities and Exchange Commission at www.sec.gov.
+ About FG Merger II Corp.
 
- About LataMed AI Corp.
+ FG Merger II Corp. is a blank check company, also commonly referred to as a special purpose acquisition company, or SPAC, formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses or entities.
 
- LataMed AI Corp. (OTC: LMED) is a development-stage digital health and artificial intelligence technology company focused on building telehealth infrastructure, healthcare coordination tools, analytics capabilities, and AI-enabled healthcare solutions for emerging markets. The Company’s strategy is centered on developing technology platforms designed to support healthcare access, patient engagement, provider coordination, emergency medical response, pharmacy integration, and data-driven healthcare operations, with an initial regional focus on Latin America.
+ For more information, visit https://fgmerger.com/
 
- Forward-Looking Statements
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- This press release contains forward-looking statements. Forward-looking statements include, but are not limited to, statements regarding the Company's business strategy, proposed healthcare payment integration initiatives, payment accessibility programs, healthcare technology initiatives, telehealth infrastructure development, artificial intelligence applications, commercialization initiatives, platform deployment, operational execution, strategic relationships, market opportunities, regional expansion plans, and future operations.
+ Forward Looking Statements
 
- These statements are based on current expectations and assumptions and are subject to significant risks and uncertainties that could cause actual results to differ materially from those expressed or implied. Investors are cautioned not to place undue reliance on forward-looking statements, which speak only as of the date of this press release.
-
- Actual results may differ materially due to various factors, including but not limited to: the Company's ability to successfully implement its business plan; the availability of financing; the Company's ability to obtain required regulatory authorizations; operational execution risks; technology deployment risks; risks associated with operations in emerging markets, including Venezuela; the Company's ability to successfully negotiate and implement any potential payment integration arrangements; and general economic and market conditions.
-
- The Company undertakes no obligation to update any forward-looking statements except as required by applicable law.
-
- Disclaimer
-
- This press release is provided for informational purposes only and does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company. Any investment decision should be made solely on the basis of information contained in the Company's filings with the U.S. Securities and Exchange Commission and other publicly available documents.
-
- The Company's securities involve a high degree of risk. Prospective investors are urged to carefully review all risk factors and disclosures contained in the Company's SEC filings before making any investment decision.
-
- No representation or warranty, express or implied, is made as to the accuracy or completeness of the information contained herein.
-
- Investor Relations Contact
-
- LataMed AI Corp.ir@latamed.ai+1 (787) 476-2350https://latamed.ai
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/latamed-ai-initiates-strategic-process-to-evaluate-installment-based-healthcare-payment-integration-with-cashea-platform-7087119)
+[Original/Source Press Release](https://www.newmediawire.com/news/boxabl-introduces-rego-brix-lunar-radiation-shielding-concept-7087123)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/latamed-ai-explores-cashea-pay-integration-for-affordable-healthcare/b8928c2242f676f70bfc0512ad6b61da) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-unveils-rego-brix-for-lunar-radiation-shielding/dff08fcc4403f00578344d2bee4fc883) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/latamed-ai-evaluates-installment-based-healthcare-payment-integration-with-cashea-platform)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/latamed-ai-evaluates-integration-of-installment-based-healthcare-payments-via-cashea-platform)
-
-Pickup - [https://burstable.news](https://burstable.news/news/latamed-ai-evaluates-integration-of-installment-based-payments-via-cashea-platform)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/latamed-ai-pruft-integration-von-ratenzahlungen-uber-cashea-plattform)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/latamed-ai-evalua-la-integracion-de-pagos-en-cuotas-a-traves-de-la-plataforma-cashea)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/latamed-ai-evalue-lintegration-des-paiements-fractionnes-via-la-plateforme-cashea)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/latamed-ai-avalia-integracao-de-pagamentos-parcelados-via-plataforma-cashea)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/latamed-ai-evaluates-integration-with-cashea-bnpl-platform-to-boost-healthcare-access-in-venezuela)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/latamed-ai-evaluates-installment-payment-integration-with-cashea-to-boost-healthcare-access-in-latin-america)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/latamed-ai-evaluates-integration-of-installment-payments-via-cas/202633409)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/11/wamcJ8kY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/11/leanTubK.webp)
