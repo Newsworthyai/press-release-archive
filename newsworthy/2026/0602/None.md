@@ -1,46 +1,65 @@
-# Service Excellence: 14 Years of Pioneering Home Service Training with PRESS PLAY
+# Green Choice Proteins Plans U.S. Expansion of Australian-Made Plant Nutrition Brand
 
-Service Excellence, a Buda, Texas-based business coaching and training company for Plumbing, HVAC, Electrical, and various home service businesses, is celebrating last month’s successful completion of another PRESS PLAY live training event.
+Green Choice Proteins, an Australian plant-based nutrition company, today announced plans to expand into the United States market with its line of clean-label plant protein products made using Australian-grown pulses and designed to support everyday wellness, active lifestyles, and convenient daily nutrition.
 
- The event marks another milestone in the 14-year history of PRESS PLAY, an on-premise live training experience designed to help technicians, salespeople, managers, and home service teams improve how they communicate, serve customers, and guide homeowners through important service decisions.
+ Founded in Victoria, Australia, Green Choice Proteins was created to address growing consumer demand for cleaner, more transparent nutrition products that fit modern lifestyles without unnecessary additives or overly complicated wellness routines. The company positions its products as functional daily nutrition solutions focused on ingredient transparency, taste, and everyday usability.
 
- PRESS PLAY was not built as a lecture. It was built as a working room. Attendees practice real conversations, real questions, real objections, and real customer moments they face in the field every day.
+ “At Green Choice Proteins, we believe people should not have to compromise between clean ingredients, great taste, and functional nutrition,” said Puneet Chawla, Founder of Green Choice Proteins. “Our mission has always been to create plant-based nutrition products that people genuinely enjoy using every day while also supporting their broader wellness goals through high-quality Australian-grown ingredients and thoughtful formulation.”
 
- “PRESS PLAY was built for the real world,” said Todd Liles, CEO of Service Excellence. “This is not training people sit through and forget. This is a live event where technicians and salespeople practice the words, the mindset, and the process that help them serve customers better. Seeing this event so successful after 14 years tells us the trades still want training that changes behavior, not just information.”
+ Green Choice Proteins formulations move beyond traditional single-purpose protein products by combining plant-based protein with functional nutrition benefits designed to support broader lifestyle and wellness goals. The company’s products are manufactured in Victoria, using Australian-grown pulses and emphasize ingredient transparency, manufacturing control, and sustainability-focused sourcing.
 
- Service Excellence also delivers PRESS PLAY for entire companies that want their teams trained together. Owners use the event to align technicians, salespeople, CSRs, dispatchers, managers, and leaders around one shared process, one shared language, and one higher standard for the customer experience.
+ The company’s initial U.S. product lineup is expected to include: Chocolate Flavored Protein Powder - Plant-Based Protein
 
- For 14 years, PRESS PLAY has helped home service teams improve the moments that matter most during service calls or sales appointments. The training focuses on listening, asking better questions, finding the real need, explaining options clearly, handling customer concerns, and helping homeowners make confident decisions without pressure.
+ * 35.3g plant protein per serving
+* Made with Australian-grown pea and faba
+* Features pure cocoa powder and coconut milk powder
+* Contains omega-3 from linseed
+* No artificial colours, flavours, or fillers
+* Developed to deliver rich chocolate flavor with clean-label nutrition
 
- “Homeowners do not want pressure,” Liles said. “They want clarity. They want respect. They want a professional who knows the work and knows how to communicate. PRESS PLAY teaches teams how to create that kind of experience on every call.”
+ Vanilla Flavored Protein Powder - Plant Based Protein
 
- “In one word, "Excellent." They always bring good training and content. I have been working with SE for about 5 years now, and my business has substantially leveled up due to the entire Service Excellence team. They do more than train, they partner with you where you are at to level up your service business.” - Kendall Cooper, Owner of Bowers Plumbing
+ * 34.9g plant protein per serving
+* Designed for smoothies, oats, baking, and everyday nutrition routines
+* Made using Australian-grown plant proteins
+* Includes omega-3 from linseed
+* Clean vanilla flavor profile without artificial additives
+* Created as a versatile daily nutrition option
 
- “Todd at Service Excellence is the real deal. My coworker and I got the genuine feeling that he wanted us to succeed and did everything he could to demonstrate that. 10/10 would recommend his service to others.” - Andrew Plamann, Steve’s Plumbing
+ Salted Caramel Flavored Protein Powder - Plant Based Protein
 
- The completion of this event highlights continued demand for practical, live training inside the residential service trades. Service Excellence continues to work with home service business owners who want stronger teams, better communication, more consistent sales, and healthier growth.
+ * 34.9g plant protein per serving
+* Combines caramel sweetness with balanced salted notes
+* Made using Australian-grown pea and faba
+* Includes omega-3 from linseed
+* No artificial colours, flavours, or fillers
+* Developed to offer indulgent flavor with clean-label plant nutrition
 
- “For 14 years, we have watched people change their careers through this training,” Liles said. “Better training creates better service. Better service creates better companies. Better companies create better lives for the people inside them.”
+ “Our goal is to help redefine what consumers expect from plant-based nutrition,” added Chawla. “Too often, consumers have been conditioned to believe plant protein products require compromises in taste, texture, or ingredient quality. We focused on creating products that combine complete plant-based nutrition with flavors and formulations people can confidently make part of their daily routines.”
 
- About Service Excellence Service Excellence is a business coaching and training company based in Buda, Texas. The company serves residential home service businesses, including Plumbing, HVAC, Electrical, and related trades. Service Excellence helps owners and teams improve leadership, sales, service, communication, operations, profitability, and customer experience through coaching, training, and live events.
+ Commitment to Sustainability Green Choice Proteins also highlights sustainability and responsible sourcing as central parts of the company’s philosophy. The company sources premium Australian-grown pulses and says its products are developed with a focus on transparency, environmentally conscious production practices, and supporting the Australian plant protein industry.
 
- Media Contact: Todd Liles, CEOService Excellence
+ The company says growing consumer interest in plant-based wellness, ingredient transparency, and functional daily nutrition continues creating new opportunities globally for premium Australian-made nutrition brands.
 
- Tel: (512) 333-4133Email: Email ContactWebsite: servextra.com 
+ For more information, visit Green Choice Proteins.
+
+ About [Green Choice Proteins](https://gcproteins.com.au/) Based in Victoria, Australia, Green Choice Proteins is a family-owned plant-based nutrition company focused on delivering clean, functional daily nutrition for modern lifestyles. Using premium Australian-grown pulses and manufacturing in a state-of-the-art facility in Victoria, the company combines high-quality plant protein with thoughtfully selected functional ingredients to support everyday wellness, performance, and recovery. Built on a philosophy of transparency, sustainability, and formulation integrity, Green Choice Proteins creates clean-label nutrition products with no artificial colours, flavours, or fillers, helping consumers simplify their wellness routines with trusted, Australian-made plant-based nutrition.
+
+ Follow Green Choice Proteins on Instagram and Facebook. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606022498/service-excellence-14-years-of-pioneering-home-service-training-with-press-play)
+[Original/Source Press Release](https://newsworthy.ai/news/202606022481/green-choice-proteins-plans-us-expansion-of-australian-made-plant-nutrition-brand)
                     
 
-[Newsramp.com TLDR](https://newsramp.comNone) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-choice-proteins-expands-to-u-s-with-clean-label-plant-protein/d69e7bb89d3ed247cf640baaaefb89e6) 
 
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/ZrFPjVWoxdw)
+Pickup - [https://x.com](https://twitter.com/i/status/2064815003526463621)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/2/mildIMFm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/2/joinmaoL.webp)

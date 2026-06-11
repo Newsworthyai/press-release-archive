@@ -1,42 +1,51 @@
-# Award Winners Announced for HR Excellence in Global Expansion in 2026
+# The Harvest Table Founders Featured in Citybiz Following Amazon Launch of Clean Collagen and Plant-Based Nutrition Line
 
-HR.com is pleased to announce the winners of the 2026 Global Expansion in HR Awards, which recognize organizations demonstrating excellence in supporting successful international growth. These award recipients have made a significant impact by effectively managing the complexities of global workforce expansion, including cross-border hiring, regulatory compliance, and the coordination of multi-country HR operations.
+The founders behind The Harvest Table, the South African wellness brand known for its clean-label collagen and whole-food nutrition products, were recently featured in a Q&A interview published by Citybiz, discussing the company’s growth, product philosophy, and expansion into the U.S. market. Citybiz is a digital business news platform that features executive interviews, company news, and market insights across major U.S. business communities.
 
- Global Expansion Solution of the Year: GCE Payroll Advisers Inc.
+ The feature highlights the journey of Founder Catherine Clark and CEO Sam Clark as they continue introducing The Harvest Table’s nutrient-dense wellness products to American consumers through Amazon and additional planned retail channels.
 
- GCE NEXUS by GCE Payroll Advisers Inc. simplifies and modernizes global workforce management through a unified, intelligent platform. By integrating global payroll, EOR, HR compliance, onboarding, and analytics, it reduces complexity, strengthens compliance, and enables more strategic HR operations across international markets. Its automation and AI-driven capabilities improve efficiency and scalability, supporting HR teams in managing global expansion with greater confidence and control.
+ In the interview, Catherine Clark discusses how her personal health journey following a Hodgkin’s Lymphoma diagnosis inspired the creation of The Harvest Table and shaped the company’s focus on simple, transparent nutrition.
 
- Best Global HR Expansion: Vensure Global
+ “The Harvest Table really began from a very personal place,” said Catherine Clark in the interview. “After my diagnosis with Hodgkin’s Lymphoma, I had to rethink everything about how I approached my health and nutrition.”
 
- Vensure Global is redefining international HR through an award-winning model that unifies Employer of Record (EOR), Agent of Record (AOR), and global payroll services on one technology-driven platform. Backed by local expertise, it enables faster hiring, seamless compliance, real-time workforce visibility, and confident global expansion across multiple markets.
+ The Citybiz feature also explores the company’s in-house manufacturing model, clean-label philosophy, and approach to expanding into the highly competitive U.S. wellness market.
 
- “Winning the HR.com Best Global HR Expansion Award is a powerful validation of how we’ve built Vensure’s global offering to support international growth,” said Anthony Falzone, Executive Vice President of Global Operations at Vensure HR. “For us, it reinforces that we are delivering a more reliable way to expand and manage a global workforce.”
+ “We’ve been very intentional about building the business around quality and control,” said Sam Clark. “That’s why we manufacture in-house and oversee every part of the process.”
 
- View All HR.com Awards: www.hr.com/awards
+ During the interview, the founders discuss the company’s recently launched Amazon U.S. storefront, the rollout of its initial four-product lineup, and the early response from American consumers.
 
- “Global expansion requires more than operational growth,” said Debbie McGrath, CEO of HR.com. “It demands strategic HR leadership, deep compliance expertise, and the ability to create positive employee experiences across multiple regions.”
+ The current U.S. product lineup available on Amazon includes:
 
- About HR.com
+ * Multi Collagen Radiance - 12.35 oz (350 g) Pouch
+* Multi Collagen Granules - 12.35 oz (350 g) Pouch
+* Bovine Collagen Granules - 12.35 oz (350 g) Pouch
+* Vegan Protein - 19.40 oz (550 g) Pouch
 
- HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
+ The products are designed for everyday use and reflect The Harvest Table’s commitment to clean-label formulations made without added fillers, preservatives, artificial flavors, or dyes.
 
- HR.com Newsroom 
+ The full Citybiz interview can be viewed here.
+
+ For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
+
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
+
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
+
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606032500/award-winners-announced-for-hr-excellence-in-global-expansion-in-2026)
+[Original/Source Press Release](https://newsworthy.ai/news/202606032501/the-harvest-table-founders-featured-in-citybiz-following-amazon-launch-of-clean-collagen-and-plant-b)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-2026-global-expansion-in-hr-awards-winners/999dc9455f48ae2e50026bc54fc1b9ff) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harvest-table-founders-share-clean-label-collagen-vision-in-citybiz-q-a/14cb372579454525742a84220a76cc21) 
 
 
-Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/999dc9455f48ae2e50026bc54fc1b9ff)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/999dc9455f48ae2e50026bc54fc1b9ff)
+Pickup - [https://x.com](https://twitter.com/i/status/2064811142187209071)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/3/tileRUGI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/3/zero7ilX.webp)

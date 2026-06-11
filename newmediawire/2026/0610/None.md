@@ -1,42 +1,65 @@
-# BOXABL and FG Merger II (FGMC) Stockholders Approve Business Combination
+# Kapsch TrafficCom AG Presents Preliminary Results for 2025/26 and Adapts Its Financial Calendar
 
-LOS ANGELES, CA - June 10, 2026 (NEWMEDIAWIRE) - BOXABL and FG Merger II Corp. (NASDAQ: FGMC) announced that stockholders of both companies approved the previously announced business combination at their respective special meetings held June 9, 2026. Upon completion of the transaction, FGMC will be renamed BOXABL Inc., with the combined company’s common stock expected to begin trading on the Nasdaq Stock Market under the ticker symbol BXBL.
+* Revenue of EUR 430.6 million, EBIT of EUR 7.6 million, and EBITDA of EUR 20.6 million
+* Key figures will be published on June 17 and the annual financial report on July 29
 
- BOXABL said its stockholders approved the business combination proposal, while FGMC stockholders approved all proposals required to complete the transaction, including the business combination, governance, stock issuance and director election proposals. Company executives said the combination will provide BOXABL with access to public capital markets to support expansion of its factory-built housing platform and accelerate growth as a publicly traded company.
+ VIENNA, AUSTRIA - June 10, 2026 (NEWMEDIAWIRE) - Kapsch TrafficCom AG announces that the preliminary results for the 2025/26 fiscal year are slightly above expectations. Accordingly, revenue amounted to EUR 430.6 million (expectations were around EUR 420 million) and EBIT to EUR 7.6 million (expectations were around EUR 7 million).
 
- To view the full press release, visit https://nnw.fm/vNtkY
+ The key financial figures for 2025/26 will be published on June 17, 2026, as announced, with the annual financial report to follow on July 29, 2026.
 
- About BOXABL
+ Kapsch TrafficCom is a globally renowned provider of transportation solutions for sustainable mobility, with successful projects in more than 50 countries. Innovative solutions in the areas of tolling and traffic management contribute to a healthier world without congestion.
 
- BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’S flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation-setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes.
+ With one-stop-shop solutions, the Company covers the entire value chain of customers, from components to design and implementation to the operation of systems.
 
- For more information, please visit https://www.boxabl.com/ir
+ Kapsch TrafficCom, headquartered in Vienna, has subsidiaries and branches in more than 25 countries and is listed in the Prime Market segment of the Vienna Stock Exchange (ticker symbol: KTCG). In its 2024/25 financial year, more than 3,000 employees generated revenues of EUR 530 million.
 
- About FG Merger II Corp.
+ Investor contact:Doris GstatterInvestor Relations OfficerKapsch TrafficCom AGAm Europlatz 21120 Vienna, AustriaT +43 50 811 1122IR.kapschtraffic@kapsch.net
 
- FG Merger II Corp. is a blank check company, also commonly referred to as a special purpose acquisition company, or SPAC, formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses or entities.
+ Press contact:Sandra BijelicHead of Corporate CommunicationsKapsch TrafficCom AG2 Europlatz1120 Vienna, AustriaT +43 50 811 1720sandra.bijelic@kapsch.net
 
- For more information, visit https://fgmerger.com/
+ 
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/boxabl-and-fg-merger-ii-fgmc-stockholders-approve-business-combination-7087108)
+[Original/Source Press Release](https://www.newmediawire.com/news/kapsch-trafficcom-ag-presents-preliminary-results-for-2025-26-and-adapts-its-financial-calendar-7087110)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-and-fg-merger-ii-stockholders-approve-business-combination/817347b9c04349810e5958056e5b0f78) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kapsch-trafficcom-beats-expectations-in-preliminary-fy-2025-26-results/98464717d77fdce1d21d3fddec24950e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/kapsch-trafficcom-reports-preliminary-revenue-of-eur-4306-million-for-202526-slightly-above-expectations)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/kapsch-trafficcom-ag-reports-slightly-above-expectations-preliminary-results-for-202526)
+
+Pickup - [https://burstable.news](https://burstable.news/news/kapsch-trafficcom-ag-reports-preliminary-results-above-expectations-for-202526)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kapsch-trafficcom-ag-meldet-vorlaufige-ergebnisse-uber-den-erwartungen-fur-202526)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/kapsch-trafficcom-ag-reporta-resultados-preliminares-por-encima-de-lo-esperado-para-202526)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/kapsch-trafficcom-ag-annonce-des-resultats-preliminaires-superieurs-aux-attentes-pour-202526)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/kapsch-trafficcom-ag-reporta-resultados-preliminares-acima-das-expectativas-para-202526)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/kapsch-trafficcom-preliminary-results-slightly-beat-market-expectations)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/kapsch-trafficcom-preliminary-results-slightly-beat-expectations-revised-financial-calendar-announced)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/kapsch-trafficcom-reports-preliminary-results-slightly-above-expectations-for-fy-202526)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/kapsch-trafficcom-ag-reports-preliminary-results-slightly-above/202633292)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/98464717d77fdce1d21d3fddec24950e)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/98464717d77fdce1d21d3fddec24950e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/yawnva5r.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/10/riceIWOg.webp)
