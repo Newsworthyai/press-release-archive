@@ -1,76 +1,80 @@
-# Lakeville Man Avoids Back Surgery, Goes from Walking to Running
+# Orthodontic Care Comes to Pinson and Dearfoot Families
 
-From Surgery List to Running Again: Lakeville Man’s Remarkable Recovery Journey
+Hometown Orthodontics Brings Braces and Invisalign Services to Pinson, AL
 
- Lakeville, United States - June 12, 2026 / ALIGN Integrated Health /
+ Pinson, United States - June 12, 2026 / Hometown Orthodontics /
 
- FOR IMMEDIATE RELEASE
+ Hometown Orthodontics has formally announced the expansion of its orthodontic services to families in Pinson, Alabama and the surrounding Dearfoot community, bringing accessible, technology-supported care to an area where dedicated orthodontic options have historically required longer commutes to neighboring cities.
 
-Lakeville Man Goes From Surgical Recommendation and Difficulty Walking to Running AgainLAKEVILLE, MN — A Lakeville-area man who once faced the possibility of back surgery and struggled to walk is now back to running after receiving care at ALIGN Integrated Health in Lakeville.
+A New Option for Families in Pinson and Dearfoot
 
-Rehan, who had been dealing with severe back pain and mobility limitations, says he felt like he was running out of options before coming to ALIGN Integrated Health.
+The practice now offers a full range of orthodontic treatment options to residents across Pinson and Dearfoot, including children, teenagers, and adults seeking straighter smiles and corrected bites. Families searching for an orthodontist in Pinson AL now have a local option that covers the spectrum of modern orthodontic care without requiring travel to larger metro areas.
 
-“I came over and got my results with Dr. Cody, and they explained that they had a plan for helping me get my health back,” said Rehan. “It was very different than any other chiropractor.”
+Hometown Orthodontics serves not only Pinson and Dearfoot but also surrounding communities including Trussville, Clay, Springville, Oneonta, and Blount County. The practice is positioned as a regional resource for families throughout this corridor of central Alabama.
 
-At the time, Rehan was reportedly facing significant physical limitations, including difficulty walking, and had concerns that surgery might be his next step. After undergoing a personalized treatment plan at ALIGN Integrated Health, his progress exceeded expectations.
+Braces, Invisalign, and Lingual Options Under One Roof
 
-Today, Rehan says he has regained his mobility and is back to running.
+The services available at Hometown Orthodontics reflect the full range of what patients across different age groups and lifestyles typically need. Braces in Pinson AL are offered in traditional formats suited for children and teens, while clear aligner therapy gives older teens and adults a less visible path to orthodontic correction. Lingual braces, which are placed on the inner surface of the teeth, round out the treatment menu for patients who prioritize aesthetics during treatment.
 
-According to Dr. Cody Rodewald of ALIGN Integrated Health, Rehan’s outcome reflects both a structured treatment approach and the patient’s commitment to recovery.
+Invisalign in Pinson AL is among the more requested services at the practice, particularly among adult patients and teens who prefer a removable, nearly invisible treatment option. The practice uses digital technology to map treatment plans and track progress, allowing for a more precise and personalized approach to each case rather than a one-size-fits-all protocol.
 
-“Rehan was very motivated to avoid surgery, and to his credit, he was compliant to the plan and worked hard for his health,” said Dr. Cody Rodewald. “We thought his case had a lot of promise to make a full recovery, and we’re proud of his results.”
+Research-Based Care Guided by Experienced Orthodontists
 
-ALIGN Integrated Health provides chiropractic, rehabilitation, and integrated healthcare services aimed at helping patients address pain, restore function, and improve quality of life.
+Hometown Orthodontics describes its clinical philosophy as grounded in research-based methods, with experienced orthodontists overseeing each treatment plan. Digital tools are integrated throughout the diagnostic and planning process, which allows the clinical team to model outcomes, set realistic timelines, and make adjustments as treatment progresses.
 
-For patients dealing with chronic back pain, mobility limitations, or seeking alternatives before considering surgery, cases like Rehan’s highlight the importance of exploring conservative treatment options.
+The practice is designed to accommodate the range of needs that families bring through the door - from early interceptive treatment in younger children to comprehensive alignment work in adults who may have delayed orthodontic care for years. By offering multiple treatment formats under one practice, Hometown Orthodontics reduces the logistical complexity that often discourages families from pursuing care.
 
-About ALIGN Integrated HealthALIGN Integrated Health, located in Lakeville, Minnesota, provides integrated chiropractic and rehabilitation care designed to help patients reduce pain, improve movement, and optimize long-term health outcomes.
+The Dearfoot community and broader Pinson area now have a dedicated orthodontic practice close to home, removing one of the most common barriers families cite when postponing orthodontic evaluations: the inconvenience of distance.
 
-Media Contact:ALIGN Integrated HealthPhone: 952-595-6337Website: https://www.alignlakeville.com
+About Hometown Orthodontics
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/UtTRfasYtV7hYfCd1SlkFKjGx5L34B1FFuwrxnWk.png) [](https://alignlakeville.com) Contact Information:
+Hometown Orthodontics is an established orthodontic practice serving families in Pinson, Dearfoot, Trussville, Clay, Springville, Oneonta, and Blount County, Alabama. The practice offers braces, Invisalign, and lingual braces for children, teens, and adults, supported by digital treatment planning technology and a care approach rooted in current orthodontic research.
 
- ALIGN Integrated Health
+Learn more at Hometown Orthodontics
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/n2W9fTx8gOutOlopYcqOegsMRmpcURTXtEQZ2bcV.jpg) [](https://hometownbraces.com) Contact Information:
+
+ Hometown Orthodontics
 
  
 
-16301 Kenrick Ave  Lakeville, MN 55044United States
+6840 Murray Drive  Pinson, AL 35126United States
 
- Dr. Cody Rodewald (952) 595-6337 https://alignlakeville.com 
+ Haleigh Murdoch +1-205-749-1242 https://hometownbraces.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/lakeville-man-avoids-back-surgery-goes-from-walking-to-running-434178)
+[Original/Source Press Release](https://mediawiretoday.com/orthodontic-care-comes-to-pinson-and-dearfoot-families-434691)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/from-surgery-list-to-running-lakeville-man-s-recovery/f33959e77c04e2f94d49abe7ae2f13c4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hometown-orthodontics-expands-braces-and-invisalign-to-pinson-al/c28e5a42df170821affdd02f4f7624d4) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/lakeville-man-avoids-back-surgery-returns-to-running-after-chiropractic-care)
+Pickup - [https://advos.io/en](https://advos.io/en/hometown-orthodontics-expands-services-to-pinson-and-dearfoot-offering-braces-and-invisalign)
 
-Pickup - [https://burstable.news](https://burstable.news/news/lakeville-man-avoids-back-surgery-returns-to-running-after-chiropractic-care)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/hometown-orthodontics-expands-braces-and-invisalign-services-to-pinson-and-dearfoot-families)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/lakeville-mann-vermeidet-ruckenoperation-und-lauft-wieder-nach-chiropraktischer-behandlung)
+Pickup - [https://burstable.news](https://burstable.news/news/hometown-orthodontics-expands-braces-and-invisalign-services-to-pinson-and-dearfoot-families)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hombre-de-lakeville-evita-cirugia-de-espalda-y-vuelve-a-correr-gracias-a-la-atencion-quiropractica)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hometown-orthodontics-erweitert-zahnspangen-und-invisalign-dienste-fur-familien-in-pinson-und-dearfoot)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-habitant-de-lakeville-evite-la-chirurgie-du-dos-et-retourne-a-la-course-apres-des-soins-chiropratiques)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hometown-orthodontics-expande-servicios-de-brackets-e-invisalign-para-familias-de-pinson-y-dearfoot)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/homem-de-lakeville-evita-cirurgia-nas-costas-e-volta-a-correr-apos-tratamento-quiropratico)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hometown-orthodontics-etend-ses-services-dappareils-dentaires-et-dinvisalign-aux-familles-de-pinson-et-dearfoot)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/lakeville-man-avoids-back-surgery-returns-to-running-after-chiropractic-care)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/hometown-orthodontics-expande-servicos-de-aparelhos-e-invisalign-para-familias-de-pinson-e-dearfoot)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/lakeville-man-avoids-back-surgery-returns-to-running-after-conservative-care-at-align-integrated-health)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hometown-orthodontics-expands-braces-and-invisalign-services-to-pinson-and-dearfoot-families)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/lakeville-man-avoids-back-surgery-returns-to-running-after-chiropractic-care)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/hometown-orthodontics-expands-braces-and-invisalign-services-to-pinson-and-dearfoot-families)
 
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/from-surgery-to-running-conservative-care-restores-mobility-for-lakeville-man)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hometown-orthodontics-expands-braces-and-invisalign-services-to/202633483)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lakeville-man-avoids-back-surgery-returns-to-running-after-chiro/202633478)
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/c28e5a42df170821affdd02f4f7624d4)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/12/rift4xi6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/12/wallKBWw.webp)

@@ -1,29 +1,45 @@
-# Curry and Dvorak Dissect Trump's Iran Ceasefire, SpaceX IPO and LA Mayoral Race 
+# From a Brooklyn Factory and an Empire State Building Showroom to the Halls of Walmart: How Three Generations of Family Grit Built America's Premier Distribution Platform
 
-Episode 1876 of the No Agenda Show, titled "Screwball," published June 11, 2026, finds hosts Adam Curry and John C. Dvorak broadcasting from the Texas Hill Country and Refinery Row as breaking news interrupts the show: President Trump has abruptly canceled the war with Iran, oil is collapsing, and the Dow surges 800 points. The timing, the hosts note, lines up suspiciously with Elon Musk's SpaceX IPO scheduled for the very next day, prompting a sharp media deconstruction of insurance markets, maritime risk, and the choreography behind a sudden peace announcement.
+Long before Mitch Gould revolutionized how global health and wellness brands enter the American marketplace, the blueprint for his success was being drawn on the streets of Brooklyn, New York - one generation at a time.
 
- Across two hours, Curry and Dvorak work through a dense news cycle with their signature skepticism:
+ Gould, founder and CEO of Nutritional Products International (NPI) and creator of the proprietary "Evolution of Distribution®" platform, grew up watching two generations of family entrepreneurs build something from nothing. His grandfather was the first - a Brooklyn manufacturer who owned a factory in Brooklyn and maintained a showroom in the Empire State Building, doing business at a time when hustle and handshakes were the currency of commerce. His father, Jerry Gould, carried the torch forward, expanding the family's footprint in manufacturing and distribution and deepening the family's roots in the retail trade.
 
- * Trump's claim that the U.S. quietly sank 22 Iranian oil tankers "with no lights" and the AXIS Capital CEO Vince Tizio's appearance with Maria Bartiromo on Fox Business
-* The Los Angeles mayoral race, where Nithya Raman edged out Spencer Pratt to face Karen Bass, with commentary from Bret Weinstein, Greg Gutfeld and Chris Hayes
-* Senator Elizabeth Warren's 12-page letter urging the SEC to delay the SpaceX IPO
-* The first New World Screwworm case confirmed in Gillespie County, Texas
-* Scott Pelley's tearful New York Times interview after his CBS firing
+ "I grew up seeing what it meant to build something real," said Mitch Gould. "My grandfather owned a factory in Brooklyn and had a showroom in the Empire State Building - that was his world. My father Jerry took that same spirit into manufacturing and distribution. By the time I was in middle school, I already understood that retail wasn't just a business - it was a legacy."
 
- The hosts apply their media deconstruction lens to Brett Weinstein's monologue on election integrity, playing his claim verbatim:
+ That foundation would prove unshakeable. A Brooklyn kid who came of age watching his family navigate the complexities of American commerce, Gould entered the retail industry in 1986 and never looked back - in no small part due to a pivotal relationship with a man the industry knew simply as R.D. Wells.
 
- "These elections are designed to allow fraud that cannot be detected and will not be prosecuted. And that's really the thing that we must focus on." Curry contrasts that with MSNBC's Chris Hayes calling the same argument "manifestly preposterous," while Dvorak dissects an NPR segment using a remote Alaskan village reachable only by dog sled to justify extended mail-in ballot deadlines ahead of a Supreme Court ruling on a Mississippi challenge.
+ Wells, a seasoned retail veteran and trusted mentor, recognized Gould's potential early and made an introduction that would help shape the trajectory of American retail history: he connected Gould with Bernie Marcus and Arthur Blank during the early days of Home Depot's national expansion. At the time, Home Depot was rewriting the rules of big-box retail, and Gould had a front-row seat.
 
- Deeper segments examine Maggie Haberman and Jonathan Swan's forthcoming book Regime Change, which alleges Vice President JD Vance floated having Tucker Carlson interview Ghislaine Maxwell in prison to exonerate Trump on the Epstein files, with Susie Wiles, Karoline Leavitt, Pam Bondi, Todd Blanche, Kash Patel and Dan Bongino present in the Situation Room. The hosts also cover Bill Gates' congressional testimony about Epstein's alleged blackmail attempt, Anthropic's rebranded "Mythos" model now called Fable 5, Palantir CEO Alex Karp's CNBC interview, the resignation of UK Defence Secretary John Healey under Keir Starmer, the collapse of the Franco-German fighter jet project between Airbus and Dassault, the Belfast riots following a Sudanese refugee's attempted murder charge, and New York's proposed shift from "mother" and "father" to "gestating parent" and "non-gestating parent."
+ "Between my father, my grandfather, and R.D. Wells, I couldn't ask for better mentors," said Gould. "I was at the right time, at the right place - and I listened."
 
- About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for sharp commentary, humor, and its value-for-value model, the show offers an irreverent alternative to conventional news analysis. Episode 1876 "Screwball" is available now wherever podcasts are heard. 
+ That combination of family legacy and hard-won mentorship set the stage for a career that would span virtually every major retail account in the country. Gould went on to represent some of the most recognized consumer brands in the world - Igloo, Rubbermaid, Sunbeam, and Miracle-Gro - alongside celebrity lines including Steven Seagal's Lightning Bolt Energy Drink, Hulk Hogan's Hogan Nutrition, and Chuck Liddell's Iceman RX, securing placements at Walmart, Costco, GNC, CVS, Walgreens, Amazon, and Home Depot, among others. His career also brought him into the orbit of martial arts legends Chuck Norris and Bob Wall, with whom he worked closely - a relationship that further cemented his standing at the intersection of celebrity, fitness, and consumer brands.
+
+ Perhaps one of his most consequential early achievements came through his partnership with Amazon. At a time when the e-commerce giant was still best known as an online bookstore, Gould recognized the untapped potential of selling nutritional supplements and health products online. Working directly with Amazon's buyers, he helped build the company's sports nutrition and health products category from concept to inception - ultimately growing it to more than $100 million in sales. That experience became one of the foundational inspirations for what would eventually become the "Evolution of Distribution®."
+
+ In 2007, Gould founded NPI and created the "Evolution of Distribution®" - a first-of-its-kind, turnkey platform that integrates FDA compliance, global logistics, retail introductions, sales, and marketing under one roof. What his grandfather built with a Brooklyn factory and an Empire State Building showroom, and Jerry Gould expanded through manufacturing and distribution, Mitch has scaled into a national infrastructure capable of taking a product from concept to store shelf across tens of thousands of retail doors.
+
+ "The Evolution of Distribution® is really the natural next chapter of what my family has always done," Gould said. "My grandfather manufactured it in Brooklyn and showcased it to the world from the Empire State Building. My father Jerry distributed it. And I built the system that does all of it at once - at scale, for brands all over the world."
+
+ Today, NPI stands as one of the most trusted brand launch and distribution firms in the United States. The company's proprietary platform continues to compress what once took global brands 18 to 24 months into a streamlined, efficient market entry - a reflection of the efficiency, resourcefulness, and competitive drive that have defined the Gould family across three generations.
+
+ Gould's story - from his grandfather's Brooklyn factory to the executive suites of America's largest retailers - is chronicled in his memoir, The Blonde, the Ferrari, and the Kwan: The Quintessential American Success Story, available now on Amazon.
+
+ About [Nutritional Products International (NPI)](https://nutricompany.com/) Nutritional Products International (NPI) is a U.S.-based retail consulting and distribution firm founded by retail distribution expert Mitch Gould. With more than three decades of experience, Gould has helped domestic and international brands successfully enter and expand within the U.S. market, representing high-profile brands and celebrities including Steven Seagal, Hulk Hogan, Ronnie Coleman, and Wayne Gretzky.
+
+ NPI works closely with manufacturers and major retailers to guide products from concept to shelf, providing strategic support across retail introductions, regulatory readiness, operations planning, and market visibility through its proprietary Evolution of Distribution® platform. The company is known for helping brands navigate the complexities of U.S. retail efficiently while building long-term, scalable growth.
+
+ About [Mitch Gould](https://nutricompany.com/team/mitch-gould/) Mitch Gould is a third-generation retail distribution and manufacturing expert with more than 25 years of experience launching and scaling consumer products across dietary supplements, sports nutrition, skincare, hardware, and beverages. He has worked with iconic consumer brands such as Igloo, Rubbermaid, Sunbeam, and Miracle-Gro, as well as high-profile celebrity brands.
+
+ Over the course of his career, Gould has played a key role in helping shape the growth of the U.S. sports nutrition category-supporting the expansion of performance-focused products across major retail and e-commerce platforms, including Amazon, Walmart, GNC, CVS, and Walgreens. His work has centered on bringing muscle-building, recovery, and performance-oriented products to a broader consumer audience.
+
+ Gould is known for his hands-on, execution-driven approach to building consumer brands at scale and for his deep understanding of what drives success in highly competitive categories such as sports nutrition and dietary supplements. He continues to focus on the evolving intersection of performance, wellness, and consumer demand for effective, results-driven products. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606122534/curry-and-dvorak-dissect-trumps-iran-ceasefire-spacex-ipo-and-la-mayoral-race)
+[Original/Source Press Release](https://newsworthy.ai/news/202606122518/from-a-brooklyn-factory-and-an-empire-state-building-showroom-to-the-halls-of-walmart-how-three-generations-of-family-grit-built-americas-premier-distribution-platform)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-screwball-trump-ends-iran-war-spacex-ipo-looms/53642c7a46e3686fe0f2d472e2e2703c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/from-brooklyn-factory-to-retail-empire-mitch-gould-s-three-generation-legacy/ab941607ce10e6d2331c52c00b7d8252) 
 
  
 
@@ -31,4 +47,4 @@ Episode 1876 of the No Agenda Show, titled "Screwball," published June 11, 2026,
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/12/healM1jY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/12/lambOJmk.webp)

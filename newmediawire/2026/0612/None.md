@@ -1,46 +1,72 @@
-# Central Asia Visit Momentum Continues as Alatau City Investment Promotion Event Held in Hong Kong
+# Ladybug Resource Group, Inc. Launches AI-Driven "Smart Supply Chain Hub," Redefining Global Sourcing for Non-Standard Industrial Components
 
-Businesses Seize Emerging Market Opportunities to Further Deepen Belt and Road Collaboration
+TULSA, OK - June 12, 2026 (NEWMEDIAWIRE) - Ladybug Resource Group, Inc. ("Ladybug" or the "Company") (OTC ID: LBRG) today announced the official launch of its proprietary "Smart Supply Chain Hub" (SSCH), a digitally-integrated platform designed to solve the chronic fragmentation of the global non-standard industrial parts market. By leveraging its self-developed "Non-standard Butler" software infrastructure, the Company is fundamentally transforming its business model from a standalone manufacturer into a scalable, platform-driven industrial ecosystem that bridges the gap between sophisticated engineering and decentralized production capacity.
 
- HONG KONG - June 11, 2026 (NEWMEDIAWIRE) - A business delegation led by the Chief Executive of the Hong Kong Special Administrative Region (HKSAR), John Lee, and organised by the Hong Kong Trade Development Council (HKTDC), visited Kazakhstan and Uzbekistan from 1 to 5 June, further strengthening economic and trade ties between Hong Kong, the Chinese Mainland and Central Asia. Following the successful conclusion of this visit, the Alatau City Authority, a state body of Kazakhstan, promptly held the Alatau City Investment Round Table in Hong Kong today (11 June). The event forms part of an official visit by a Kazakh delegation to Hong Kong and the Chinese Mainland. It reflects increasingly close ties between the two sides, while demonstrating proactive efforts to build on the outcomes of the recent visit and sustain the momentum of cooperation.
+ Transforming from a Standalone Manufacturer to a Scalable Industrial Platform
 
- The roundtable was attended by the Chief Executive of the HKSAR, John Lee, and the Deputy Prime Minister of Kazakhstan, Kanat Bozumbayev, and brought together representatives from government bodies, along with leading enterprises, financial institutions and investors from Kazakhstan, the Chinese Mainland and Hong Kong, as well as members of the business delegation who had participated in the Central Asia visit. Participants explored the latest developments, investment opportunities and key initiatives of Alatau City, a new greenfield project located near Almaty, across different sectors, including fintech, the low-altitude economy, smart city development and infrastructure.
+ For decades, the procurement of custom, non-standard components - such as specialized welding fixtures, robotic bases, and automated production lines - has been plagued by a lack of pricing transparency and extended lead times. The launch of the Smart Supply Chain Hub effectively centralizes this fragmented market into a single, high-efficiency digital interface. This transition allows global integration giants like Mino and international automotive OEMs to access a one-stop procurement gateway that integrates precision design, 100mm laser cutting, and 5-axis CNC machining into a unified, auditable workflow.
 
- John Lee, the Chief Executive of the HKSAR, said at the roundtable session: “Kazakhstan's ambitious reforms and its open, welcoming attitude towards international partners were both welcome and impressive. And Hong Kong is eager to build on this momentum, to explore wide-ranging business and investment co-operation with Kazakhstan - Alatau City very much included. I can tell you Hong Kong shares your commitment to openness and connectivity. Under the unique 'one country, two systems' principle, we are the only world city to combine the China advantage and the global advantage."
+ Maximizing Capital Velocity and Financial Resilience through Digital Auditability
 
- Silas Chu, Director of Exhibitions and Digital Business of HKTDC, said at the roundtable session: "The HKTDC's role is to promote Hong Kong as an international business platform through our global network of 51 offices. We attach huge importance to the Central Asian market. The fact that we opened our Almaty consultant office back in 2018 speaks for itself. And through our business platforms, including those we co-organise with the Hong Kong SAR government, such as the Belt and Road Summit and InnoEX, we can certainly help promote our city's vision and attract international investors and technology partners."
+ Beyond its operational impact, the SSCH platform serves as a powerful engine for financial optimization within the industrial supply chain. By digitizing every stage of order tracking and quality assurance, Ladybug Resource Group, Inc. has achieved a radical improvement in cash flow cycles for its partners. The platform has successfully reduced average payment cycles for secondary suppliers from the industry standard of six months down to just 30 days. This accelerated capital velocity not only enhances the overall health and resilience of the supply chain but also provides the Company with superior data integrity and negotiating leverage, creating a more transparent financial environment for global investors.
 
- Templewater Limited, one of the business delegates that joined the Chief Executive-led mission to Kazakhstan and Uzbekistan from 1 to 5 June, signed a Memorandum of Understanding (MoU) with DASCO Capital today to explore the establishment of a fund supporting the future development of Kazakhstan and Alatau City Project.
+ AI-Enhanced Resource Allocation and the Future of Decentralized Manufacturing
 
- The Central Asia visit delivered fruitful results, with a total of 96 memoranda of understanding (MoUs) and agreements signed, providing strong support for follow-up exchanges and collaboration. Of these, the business delegation signed 66 MoUs and agreements, covering areas such as trade, investment, finance, technology and aviation. In addition, 15 cooperation agreements were signed at the government level, while non-delegation members signed 15 MoUs in areas including academia and culture. These outcomes have laid a solid foundation for deeper economic and trade ties between Hong Kong, the Chinese Mainland, Kazakhstan and Uzbekistan, underscoring Hong Kong’s role as a key platform for Mainland enterprises to go global, while further promoting long-term collaboration with Central Asian markets.
+ The Smart Supply Chain Hub utilizes proprietary algorithms to synchronize complex engineering demands with optimized production slots across the Company’s network of facilities. In the 2026 manufacturing landscape, where embodied AI and advanced robotics require rapid prototyping and high-precision iteration, this system ensures that ultra-large-scale industrial equipment is utilized at peak efficiency. This intelligent allocation of resources minimizes downtime and maximizes output, providing the digital infrastructure necessary for global industrial leaders to iterate their production lines faster and at a significantly lower cost than traditional models.
 
- The HKTDC will continue to actively follow up on key projects initiated during the visit by providing professional business matching and support services to facilitate their implementation, assisting enterprises in exploring new international opportunities and, through major conferences, business missions and outreach initiatives, promoting collaboration between enterprises from Hong Kong and the Chinese Mainland and Belt and Road markets, enabling them to seize vast business opportunities.
+ Management Commentary"We are effectively building the 'Uber' for the high-precision industrial parts sector," stated Mr. Shicai Li, CEO of the manufacturing division. "The launch of the Smart Supply Chain Hub marks the definitive shift of Ladybug Resource Group, Inc. toward a high-multiple, technology-enhanced business model. We are no longer just producing physical components; we are providing the operational intelligence that powers global industry. This platform-based approach allows us to scale rapidly through acquisitions while delivering the consistent, high-efficiency financial results that today’s institutional capital markets demand."
 
- Photo download: https://bit.ly/3RX4Odi
+ About Ladybug Resource Group, Inc.Ladybug Resource Group, Inc. is a US-listed company focused on the intersection of advanced manufacturing and industrial AI. Through its acquisition of Guangzhou JingDiao, the Company provides digitally managed supply chain solutions for the global automotive and precision engineering industries, led by a management team with deep roots in world-class manufacturing excellence.
 
- Media enquiries
+ Stay connected:
 
- HKTDC’s Communications & Public Affairs Department:
+ * Website: Ladybug Resource Group Inc.
+* OTC Markets: LBRG Stock Quote
+* X (formerly Twitter)
+* LinkedIn
+* Instagram
 
- Johnny TsuiTel: (852) 2584 4395Email: johnny.cy.tsui@hktdc.org
+ Media & Investor Relations ContactWarren BoothLadybug Resource Group Inc.1408 S. Denver Avenue, Tulsa, OK 74119info@ladybuglbrg.com+1 918-727-7137
 
- Serena CheungTel: (852) 2584 4272Email: serena.hm.cheung@hktdc.org
+ Safe Harbor Statement
 
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. 
+ This news release contains forward-looking statements which are not statements of historical fact. Forward-looking statements include estimates and statements that describe the Company's future plans, objectives or goals, including words to the effect that the Company or management expects a stated condition or result to occur. Forward-looking statements may be identified by such terms as "believes," "anticipates", "expects", "estimates", "may", "could", "would", "will", or "plan". Since forward-looking statements are based on assumptions and address future events and conditions, by their very nature they involve inherent risks and uncertainties. Although these statements are based on information currently available to the Company, the Company provides no assurance that the actual results will meet management's expectations. Risks, uncertainties, and other factors involved with forward-looking information could cause actual events, results, performance, prospects, and opportunities to differ materially from those expressed or implied by such forward-looking information. Factors that could cause actual results to differ materially from such forward-looking information include but are not limited to changes in general economic and financial market conditions. Although the Company believes that the assumptions and factors used in preparing the forward-looking information in this news release are reasonable, undue reliance should not be placed on such information, which only applies as of the Date of this news release, and no assurance can be given that such events will occur in the disclosed time frames or at all. The Company disclaims any intention or obligation to update or revise any forward-looking information, whether as a result of new information, future events or otherwise, other than as required by law. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/central-asia-visit-momentum-continues-as-alatau-city-investment-promotion-event-held-in-hong-kong-7087129)
+[Original/Source Press Release](https://www.newmediawire.com/news/ladybug-resource-group-inc-launches-ai-driven-smart-supply-chain-hub-redefining-global-sourcing-for-non-standard-industrial-components-7087132)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-delegation-strengthens-belt-and-road-ties-with-central-asia/2b746ec2e8d3ba3b72634b65b7a8c43b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-launches-smart-supply-chain-hub-to-revolutionize-industrial-parts/358a129181c91c7bc105e0968389e9a6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ladybug-resource-group-launches-ai-driven-supply-chain-hub-for-non-standard-industrial-parts)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/ladybug-resource-group-launches-ai-driven-smart-supply-chain-hub-for-non-standard-industrial-components)
+
+Pickup - [https://burstable.news](https://burstable.news/news/ladybug-resource-group-launches-ai-driven-smart-supply-chain-hub-to-revolutionize-non-standard-industrial-parts-sourcing)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ladybug-resource-group-startet-ki-gesteuerten-smart-supply-chain-hub-zur-revolutionierung-der-beschaffung-nicht-standardisierter-industrie-teile)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ladybug-resource-group-lanza-un-centro-de-cadena-de-suministro-inteligente-impulsado-por-ia-para-revolucionar-el-abastecimiento-de-piezas-industriales-no-estandar)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ladybug-resource-group-lance-un-hub-intelligent-de-chaine-dapprovisionnement-base-sur-lia-pour-revolutionner-lapprovisionnement-en-pieces-industrielles-non-standard)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ladybug-resource-group-lanca-hub-inteligente-de-cadeia-de-suprimentos-com-ia-para-revolucionar-a-aquisicao-de-pecas-industriais-nao-padronizadas)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ladybug-resource-group-launches-ai-driven-smart-supply-chain-hub-to-revolutionize-non-standard-industrial-parts-sourcing)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ladybug-resource-group-launches-ai-driven-smart-supply-chain-hub-to-transform-non-standard-industrial-parts-sourcing)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ladybug-resource-group-launches-ai-driven-smart-supply-chain-hub/202633484)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/358a129181c91c7bc105e0968389e9a6)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/358a129181c91c7bc105e0968389e9a6)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/12/fondr0qk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/12/lamba4PB.webp)
