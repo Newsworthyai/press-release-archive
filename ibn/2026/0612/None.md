@@ -1,16 +1,14 @@
-# InvestorNewsBreaks – Tonix Pharmaceuticals Holding Corp. (NASDAQ: TNXP) to Participate in BTIG Infectious Disease Day 2026
+# InvestorNewsBreaks – Cardio Diagnostics Holdings Inc. (NASDAQ: CDIO) Harnesses AI, Genetics and Epigenetics to Advance Cardiovascular Risk Detection
 
-Tonix Pharmaceuticals (NASDAQ: TNXP), a fully integrated commercial-stage biotechnology company, announced that members of its management team will participate in one-on-one meetings at BTIG’s Infectious Disease Day 2026, which will be held virtually on June 16, 2026. Seth Lederman, M.D., president and chief executive officer of Tonix Pharmaceuticals, will represent the company during the event.
+Cardio Diagnostics Holdings (NASDAQ: CDIO) was featured in a recent article that discusses the urgent need for more effective tools to identify risk earlier and guide personalized intervention strategies for cardiovascular disease. The piece reads, “Cardio Diagnostics is rising to the challenge by developing a suite of clinical, population health and biopharma solutions designed to leverage artificial intelligence (‘AI’), epigenetics and genetics to improve cardiovascular disease prevention, detection and management… The company’s platform is built around the integration of genetic and epigenetic biomarkers with AI-driven analytics to provide personalized cardiovascular insights from blood-based testing. Cardio Diagnostics currently offers two clinical solutions, Epi+Gen CHD(TM) and PrecisionCHD(TM), as well as a population health and biopharma offerings, HeartRisk(TM) and CardioInnovate360(TM), respectively. Collectively, these solutions reflect a strategy aimed at addressing cardiovascular disease across multiple stages of care, from early detection and prevention to therapeutic development and population-level risk management.”
 
- To view the full press release, visit https://ibn.fm/38XUG
+ To view the full article, visit https://ibn.fm/Nfps9
 
- Tonix Pharmaceuticals Holding Corp.
+ About Cardio Diagnostics Holdings Inc.
 
- Tonix Pharmaceuticals is a fully-integrated, commercial-stage biotechnology company focused on central nervous system (CNS) and immunology treatments in areas of high unmet medical need. TONMYA(TM) (cyclobenzaprine HCl sublingual tablets 2.8mg), the Company’s recently approved flagship medicine, is the first new treatment for fibromyalgia in more than 15 years. Tonix’s CNS commercial infrastructure supports its marketed products, including its acute migraine products, Zembrace(R) SymTouch(R) and Tosymra(R). Tonix is maximizing the science behind TONMYA in Phase 2 clinical trials to evaluate its potential in major depressive disorder and acute stress disorder. In addition, the company’s CNS portfolio includes TNX-2900, which is Phase 2 ready for the treatment of Prader-Willi syndrome, a rare disease. Tonix is also advancing a pipeline of immunology programs, including monoclonal antibody TNX-4800 for Lyme disease prophylaxis and TNX-1500, a third-generation CD40 ligand inhibitor for the prevention of kidney transplant rejection.
+ Cardio Diagnostics is an artificial intelligence-powered precision cardiovascular medicine company that makes cardiovascular disease prevention, detection, and management more accessible, personalized, and precise. The company was formed to further develop and commercialize clinical tests by leveraging a proprietary artificial intelligence (“AI”)-driven Integrated Genetic-Epigenetic Engine (“Core Technology”) for cardiovascular disease to become one of the leading medical technology companies for improving prevention, detection, and treatment of cardiovascular disease.
 
- Tonix’s product development candidates are investigational new drugs or biologics; their efficacy and safety have not been established and have not been approved for any indication.
-
- NOTE TO INVESTORS: The latest news and updates relating to TNXP are available in the company’s newsroom at https://ibn.fm/TNXP
+ NOTE TO INVESTORS: The latest news and updates relating to CDIO are available in the company’s newsroom at https://ibn.fm/CDIO
 
  About InvestorWire
 
@@ -26,10 +24,10 @@ Tonix Pharmaceuticals (NASDAQ: TNXP), a fully integrated commercial-stage biotec
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-tonix-pharmaceuticals-holding-corp-nasdaq-tnxp-to-participate-in-btig-infectious-disease-day-2026/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-cardio-diagnostics-holdings-inc-nasdaq-cdio-harnesses-ai-genetics-and-epigenetics-to-advance-cardiovascular-risk-detection/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tonix-pharmaceuticals-to-present-at-btig-infectious-disease-day-2026/86f4af53533b39504d60ca28b8a23cc2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardio-diagnostics-combats-heart-disease-with-ai-driven-precision-medicine/6976dfbf13998d61c27f20aa949a1200) 
 
  
 
@@ -37,4 +35,4 @@ Tonix Pharmaceuticals (NASDAQ: TNXP), a fully integrated commercial-stage biotec
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/12/tallh1Wf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/12/joltlyJ1.webp)
