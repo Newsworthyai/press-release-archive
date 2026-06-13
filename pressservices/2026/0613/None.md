@@ -1,78 +1,78 @@
-# Brownie's THIRD LUNG™ Sea Lion Powers 3 Divers on One 18lb Battery
+# Champion of the Week Program Recognizes Arizona Students Ages 13 to 17
 
-How the Sea Lion Battery Powered Dive System Replaces 9 Scuba Tank Sets for Multi-Diver Operations
+12 News Partnership Puts Arizona Student Achievers on Air Every Two Weeks
 
- Davie, United States - June 13, 2026 / Brownie’s THIRD LUNG™ /
+ Scottsdale, United States - June 13, 2026 / Champion Air /
 
- Brownie's THIRD LUNG™ has formally highlighted the operational capabilities of its Sea Lion 3-Hour Floating Hookah Diving System, bringing renewed attention to how a single, self-contained unit can support three simultaneous divers to 33 feet for more than three hours -- all powered by an 18-pound battery. The announcement positions the system as a practical alternative to conventional scuba configurations for recreational diving, boat maintenance, and multi-diver excursions where portability and extended runtime are critical.
+ SCOTTSDALE, Ariz. - Champion Air, one of the Phoenix Valley's largest family-owned HVAC companies, is reinforcing its commitment to the local community through two active giving programs that celebrate exceptional young people and provide free air conditioning systems to deserving Valley families. The initiatives reflect a guiding principle the company has upheld since its founding in 1982: that business success comes with a responsibility to the people it serves.
 
-One Unit, Three Divers, Three HoursAt the core of the Sea Lion's performance is a 70Ah battery that delivers consistent power output throughout an extended dive session. A single sea lion diving system unit running on that battery can sustain three divers simultaneously at depths up to 33 feet for more than three hours of continuous operation. When measured against conventional scuba, that runtime and diver capacity translates to the functional equivalent of roughly nine full scuba tank sets -- a comparison that clarifies the operational efficiency the system offers for any multi-diver scenario.
+"We've been so fortunate with our success that we are able to give back in ways we never dreamed possible when we started," said a Champion Air spokesperson. "These programs aren't a marketing campaign - they're who we are."
 
-The battery itself weighs 18 pounds, which is a meaningful distinction for boat owners and marine professionals who already manage significant gear loads. Traditional scuba configurations require individual tanks, regulators, and buoyancy equipment for each diver. The Sea Lion battery powered dive system consolidates air supply into one floating unit, reducing the equipment footprint substantially while extending the time divers can remain productive underwater.
+Champion of the Week: Spotlighting Arizona's Rising Stars
 
-Purpose-Built for Boat Owners and Marine MaintenanceThe Sea Lion hookah dive system was designed with a specific operational profile in mind: users who need reliable, repeatable underwater access without the logistics of full scuba gear management. Lobster diving and fun with the family are among the most common use cases, where friends may plan to spend the entire day on the water diving from their boat.
+In partnership with 12 News, Champion Air's "Champion of the Week" program recognizes standout students between the ages of 13 and 17 across the Phoenix metro area. Honorees are selected every two weeks based on achievement in academics, athletics, or the arts, or for demonstrating notable resilience in the face of personal hardship.
 
-Because the system floats at the surface and delivers air through hoses to divers below, there is no requirement for each diver to carry a pressurized cylinder, except for the recommended Spare Air backup bottle. The floating air source also provides visibility and flotation at the surface throughout the dive. Diving from shore with a Brownie's tankless dive system is common as well, and users report enjoying that they can handle just one piece of gear rather than several sets of scuba gear.
+Each selected student receives $600 and on-air recognition on 12 News, giving their story a platform that reaches audiences throughout the Valley. Past recipients have included competitive debaters, varsity athletes, musicians, and student volunteers. Nominations are accepted year-round at ChampionAir.com.
 
-Portability Without Compromising CapacityThe 18-pound battery weight is a deliberate engineering outcome, not simply a specification. At that weight, the battery remains manageable for transport between vessels, docks, and storage facilities without requiring mechanical assistance. Competing surface-supplied systems that rely on gasoline-powered compressors introduce fuel storage requirements, noise output, and exhaust considerations that make them unsuitable for enclosed marina environments or noise-sensitive anchorages.
+"Champions come in all forms," the spokesperson added. "This program is our way of making sure Arizona's young people know that their community sees them and is proud of what they're doing."
 
-The Sea Lion's battery powered architecture eliminates those constraints. The system operates quietly, produces no exhaust, and can be recharged from standard shore power or onboard electrical systems. For yacht owners who conduct regular bottom cleaning between haul-outs, the ability to deploy three divers simultaneously from a single compact unit represents a direct reduction in the time and cost associated with each maintenance cycle.
+Brenda's Award: Free AC Systems for Families Who Give Back
 
-Position Within the Surface-Supplied Diving MarketSurface supplied air diving systems provide breathing air from equipment located at the surface rather than from tanks carried by the diver, making them popular for applications such as hull cleaning, underwater inspections, marine maintenance, and recreational diving.
+Brenda's Award is Champion Air's annual flagship giving initiative, created to honor community members who have made a meaningful difference for their Scottsdale neighbors and beyond. Nominated by fellow residents, recipients receive a complete air conditioning system - including equipment, professional installation, and the first year of ChampionCare maintenance - at no cost.
 
-Brownie's THIRD LUNG™ has been manufacturing surface supplied air diving systems for decades and now features a product line that includes battery powered, gasoline and AC electric configurations. The Sea Lion sits within the company's battery powered category and reflects the manufacturer's focus on extending dive time and diver count without increasing system weight or complexity.
+In a region where summer temperatures routinely exceed 110 degrees F, a functioning air conditioning system is not a luxury - it is a matter of safety. Champion Air's approach of gifting full systems, rather than offering partial assistance, reflects the company's position that meaningful support requires meaningful action. Community members can nominate a deserving family at ChampionAir.com/nominate.
 
-The hookah dive system category -- where air is supplied from the surface through hoses rather than from tanks carried by individual divers -- has historically served commercial diving, aquaculture, and marine inspection markets. Brownie's THIRD LUNG™ has developed the Sea Lion to bring that same operational model to recreational boat owners, charter operators, and independent marine maintenance professionals who require a dependable, high-capacity system in a format suited to smaller vessels and frequent transport.
+A Valley Business With Valley Values
 
-The Sea Lion combines a 70Ah battery platform with support for up to three divers from a single floating unit, providing extended runtime in a compact package designed for recreational and marine maintenance applications.
+Beyond its signature programs, Champion Air actively supports youth sports sponsorships, local charity events, and organizations throughout the Greater Phoenix area. The company also welcomes community members to share causes they feel deserve attention, maintaining a standing commitment to evaluate new opportunities to contribute.
 
-About Brownie's THIRD LUNG™Brownie's THIRD LUNG™ has been manufacturing surface supplied air diving systems for decades, producing a range of hookah and battery-powered dive products for recreational, commercial, and marine maintenance applications. The company's product line includes tankless diving systems for recreational diving, boat maintenance, underwater inspections, and marine service applications.
+Champion Air holds a BBB A+ rating, is a Lennox Premier Dealer and recipient of the Dave Lennox Award, and carries Pearl Certification. The company operates three Valley locations - in Scottsdale, Phoenix, and Sun City - and provides 24/7 emergency HVAC service with no overtime charges.
 
-Learn more at Brownie's THIRD LUNG™
+About Champion Air
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/GZVegcY4BkhJpBIEmCOKwTw5jBn6IbNSJzDmzhM4.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Px9vKW08WbVLt8CqfB0dQg7DFQNOoRMLiPgS1E8L.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/SrBBnhJN7N3lG8WC6aa1hvdkggye4hNKslLJDMtO.jpg) [](https://www.browniedive.com) Contact Information:
+Founded in 1982, Champion Air is one of Arizona's largest family-owned heating and cooling companies, serving the Greater Phoenix Valley from three locations. Licensed, bonded, and insured (ROC #328617), Champion Air provides installation, repair, and maintenance for air conditioning, heating, heat pumps, mini-splits, and indoor air quality systems. Learn more at ChampionAir.com or call (480) 748-4000.
 
- Brownie’s THIRD LUNG™
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/l4dRrwtdyZ4BJsfDrHb79cFF97SUR18XqZAh9NR8.jpg) [](https://www.championair.com) Contact Information:
+
+ Champion Air
 
  
 
-4061 Southwest 47th Avenue, Davie, FL, USA  Davie, FL 33314United States
+8989 E Vía Linda #117A  Scottsdale, AZ 85258United States
 
- Robert Carmichael +1-954-462-5570 https://www.browniedive.com 
+ Champion Air 14807484000 https://www.championair.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/brownies-third-lung-sea-lion-powers-3-divers-on-one-18lb-battery-434774)
+[Original/Source Press Release](https://mediawiretoday.com/champion-of-the-week-program-recognizes-arizona-students-ages-13-to-17-434836)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sea-lion-dive-system-one-battery-three-divers-three-hours/1cd4532fdb8ac6b162294af062b68b3d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/champion-air-launches-student-recognition-and-free-ac-programs/4be0673e5284e916773d7ee76023de9f) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/brownies-third-lungtm-sea-lion-system-supports-three-divers-for-over-three-hours-on-one-18-pound-battery)
+Pickup - [https://advos.io/en](https://advos.io/en/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/brownies-third-lung-sea-lion-system-powers-three-divers-on-one-18lb-battery-replacing-nine-scuba-tank-sets)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/champion-air-launches-two-community-programs-champion-of-the-week-and-brendas-award)
 
-Pickup - [https://news.buildingtexasshow.com/texas-news](https://news.buildingtexasshow.com/texas-news/brownies-third-lung-highlights-sea-lion-floating-hookah-diving-system-for-multi-diver-operations)
+Pickup - [https://burstable.news](https://burstable.news/news/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
 
-Pickup - [https://burstable.news](https://burstable.news/news/brownies-third-lung-sea-lion-system-powers-three-divers-with-one-18lb-battery-replacing-nine-scuba-tanks)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/champion-air-startet-jugendforderung-und-kostenlose-ac-programme-fur-familien-in-arizona)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/brownies-third-lung-sea-lion-system-versorgt-drei-taucher-mit-einer-18-pfund-batterie-und-ersetzt-neun-tauchflaschen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/champion-air-lanza-programas-de-reconocimiento-juvenil-y-aires-acondicionados-gratuitos-para-familias-de-arizona)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-sistema-sea-lion-de-brownies-third-lung-alimenta-a-tres-buceadores-con-una-bateria-de-18-libras-reemplazando-nueve-tanques-de-buceo)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/champion-air-lance-des-programmes-de-reconnaissance-des-jeunes-et-de-climatisation-gratuite-pour-les-familles-de-larizona)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-systeme-sea-lion-de-brownies-third-lung-alimente-trois-plongeurs-avec-une-batterie-de-18-lb-remplacant-neuf-bouteilles-de-plongee)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/champion-air-lanca-programas-de-reconhecimento-juvenil-e-ar-condicionado-gratuito-para-familias-do-arizona)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/sistema-sea-lion-de-brownies-third-lung-alimenta-tres-mergulhadores-com-uma-bateria-de-18-lb-substituindo-nove-tanques-de-mergulho)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/champion-air-launches-student-recognition-program-and-free-ac-initiative-for-arizona-families)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/brownies-third-lung-sea-lion-system-enables-three-divers-from-single-18-pound-battery)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/brownies-third-lung-sea-lion-system-powers-three-divers-on-one-18lb-battery-replacing-nine-scuba-tanks)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/brownies-third-lungtm-sea-lion-supports-three-divers-on-one-18lb/202633536)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/champion-air-launches-two-giving-programs-to-support-arizona-you/202633538)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/13/ellarKsw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/13/knobDsg1.webp)
