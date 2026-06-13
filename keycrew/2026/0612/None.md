@@ -1,38 +1,32 @@
-# The Agents Winning at the Highest Level Have Stopped Doing Their Own Work – Here Is What They’re Doing Instead.
+# The $5.75M Sharon Sale That Never Hit the Market – and What It Says About Today’s Luxury Market
 
-There is a ceiling that most real estate agents hit, and it has nothing to do with their market, their skills, or their work ethic. It has to do with what they spend their time on. The agent who is answering emails, scheduling showings, chasing paperwork, and managing their own calendar is the agent who will never have enough hours in the day to build the business they are actually capable of building.
+The luxury real estate market in Litchfield County, Connecticut, is running short on inventory and long on motivated buyers. That combination is pushing more high-end transactions away from public listings entirely, and toward the kind of quiet, relationship-driven deals that never show up on Zillow until after they close.
 
- The solution sounds simple. Delegate. But delegation done wrong is often worse than no delegation at all, and most agents who have tried to hand things off to a virtual assistant have a story about why it did not work.
+ A recent off-market sale in Sharon, Connecticut, illustrates exactly how this is playing out at the top of the market. The property at 338 Calkinstown Road, a custom-built Federal Georgian estate on 35 acres, sold for $5,750,000 without ever being publicly listed. Bill Melnick and Elyse Harney Morris of Elyse Harney Real Estate represented the transaction, approaching the seller on behalf of a buyer whose needs he already knew could not be met by what was currently on the market.
 
- Justin Nimergood, founder of Top Gun Team at Epique Realty in Southlake, Texas, took a different approach. He spent a full year training his own VA before making that resource available to a single agent on his team. Not a week. Not a month. A full year.
+ “We knew what the buyer needed, and it simply was not available,” Melnick said. “So we approached the seller directly and asked if they were open to a private sale. They were, and from there it came together.”
 
- Why Most VA Arrangements Fail The standard approach to virtual assistant support in real estate is to point agents toward a staffing agency, let them pick someone from a roster, and hope for the best. The problem, as Nimergood sees it, is the level of training those assistants typically arrive with.
+ Why Off-Market Works at This Price Point For buyers and sellers operating above $3 million in markets like Litchfield County, a private sale is often the preferred outcome, not a compromise. Sellers avoid the disruption of showings, open houses, and public price history. Buyers avoid the anxiety of competing offers and the risk of losing a property they have committed to emotionally. Both sides get a cleaner, more controlled process.
 
- “The level of training that a lot of these agencies get is very basic, very minimal,” he says. “They are task-oriented. High repetition, task-oriented things. And that is really offering very minimal lift in terms of the services they are providing.”
+ The Calkinstown Road property had originally been sold in March 2020, at the very beginning of the pandemic, before COVID pricing had taken hold. The sellers entered that transaction without the benefit of what was about to become a 30 percent run-up in county values. When they were approached about selling again, they were well positioned to capitalize on the property’s appreciation, and they did just that.
 
- What that means in practice is that agents end up with a VA who can do simple, repetitive work, but anything complex still lands back on the agent’s plate. The cognitive load does not actually decrease. The agent is still the bottleneck.
+ “Sellers who agree to a private sale want to know it is worth their while,” Melnick said. “The price has to be fair, the process has to be easy, and they need confidence that the buyer is serious. When all of that lines up, it can actually be a better outcome than going to market.”
 
- Nimergood wanted something categorically different. He wanted a VA capable of handling complex tasks, the kind that typically require judgment, context, and a deep understanding of how a high-performing real estate business actually operates.
+ What the Property Represents The house itself is the kind of property that sells the moment the right buyer sees it. Built in 2019 and designed in a traditional Federal Georgian style, it reads as historic without the maintenance burden of an actual historic home. Robert Fish, a local builder known throughout the county for quality and authenticity, constructed it with the kind of details that are almost impossible to source today: hand-carved fireplace mantles, antique wood library paneling, a slate roof, and copper gutters. Five wood-burning fireplaces, 6,280 square feet across three floors, five en-suite bedrooms, and a chef’s kitchen opening to a great room give it the scale to function as a full-time home.
 
- Training From the Inside Out The only way to get that, he concluded, was to train the VA himself, from scratch, using his own systems and his own standards.
+ The 35-acre setting includes a heated gunite pool and bluestone patio, stone walls, and professional landscaping. A detached garage sits alongside the attached four-car garage. The property borders one of the highest-recorded sales in Litchfield County history, a $10 million transaction on an adjacent parcel, also built by Fish.
 
- “I trained him because only I can train him the way that I want to operate my business,” Nimergood says. “I knew in order to have the best VA supporting the best team, I had to take the time to hand-hold him and teach him everything. Basically everything that I do, or was doing, so that he could do it.”
+ “Rob Fish’s houses are traditional in styling and very high quality,” Melnick said. “They tend to sit on exceptional building sites with big views or conservation land. When one comes available, it does not stay that way for long.”
 
- That process took a year. It required Nimergood to document his own workflows, articulate his standards clearly enough to teach them, and invest sustained time in someone who would not be generating a return on that investment for months. Most team leaders would not do that. Most team leaders also do not have a VA who can handle genuinely complex work.
+ What This Sale Signals for the Broader Market Litchfield County is in an unusual moment. Transaction volume has moderated from its pandemic peak, but dollar volume is holding or increasing, driven by movement at the top of the market. Cash buyers, many of them from the finance and technology sectors in New York City, are active in the $3 million and above tier in a way that makes mortgage rate headlines largely irrelevant to how this segment moves.
 
- What Full Delegation Actually Looks Like The outcome Nimergood is describing is not incremental. It is structural. Once the VA was trained to handle the tasks that previously required Nimergood’s direct involvement, his available time shifted entirely.
+ Off-market activity tends to increase when inventory is thin, and buyers are serious. Both conditions are present in Sharon and the surrounding towns right now. Agents with deep community relationships and an existing base of buyer clients are the ones facilitating these transactions, because the deals are built on trust and local knowledge rather than MLS access.
 
- “Now, unlike a lot of people who are unfortunately unable to offload complex tasks, I can totally focus on high-level strategic, executive-level activities on a daily basis,” he says. “If it is not a commission-generating activity, I am focused at the highest level. That is where someone who is a team lead should be.”
+ For sellers who are considering a move but reluctant to go through a full public listing process, the current environment may be worth a conversation. The right buyer may already exist in someone’s network. The transaction may be simpler, faster, and more private than anticipated.
 
- Commission-generating activities, in Nimergood’s framework, are the things only he can do: listing appointments, showings, negotiations, relationship-building conversations. Everything else that does not require his physical presence or his specific expertise is, by definition, delegable. And once the infrastructure exists to delegate it properly, every hour previously spent on administrative work becomes an hour available for the activities that actually grow the business.
+ Explore Sharon, CT listings and community information at Elyse Harney Real Estate.
 
- The Lesson for Team Leaders The broader principle Nimergood is pointing to is one that applies well beyond virtual assistants. It is about how a team leader thinks about their time and what they are willing to invest to protect it.
-
- Building the infrastructure to properly delegate takes longer upfront than most people want to spend. It requires documenting processes, tolerating imperfect early execution, and resisting the temptation to just do it yourself because it is faster right now. Those short-term costs are real. The long-term cost of not doing it is the ceiling.
-
- The agents who figure this out earlier are the ones who scale. The ones who keep doing everything themselves stay busy, but they do not build anything.
-
- Justin Nimergood is the founder of Top Gun Team at Epique Realty and principal of Nimergood Real Estate, specializing in residential real estate across the Dallas-Fort Worth metroplex and California. Learn more at thetopgunteam.com.
+ Bill Melnick is a luxury real estate specialist with Elyse Harney Real Estate, serving buyers and sellers across Litchfield County, Connecticut, and the surrounding region.
 
  This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
@@ -40,15 +34,35 @@ There is a ceiling that most real estate agents hit, and it has nothing to do wi
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/the-agents-winning-at-the-highest-level-have-stopped-doing-their-own-work-here-is-what-theyre-doing-instead/)
+[Original/Source Press Release](https://keycrew.co/journal/the-5-75m-sharon-sale-that-never-hit-the-market-and-what-it-says-about-todays-luxury-market/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/one-year-of-training-the-key-to-real-estate-delegation/79af01823631ee8170e92cb578591232) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-estate-sold-off-market-for-5-75m-in-sharon-ct/7e7b7099d0422d675c5b1250f24c24cd) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/off-market-sale-of-575m-estate-in-sharon-ct-highlights-shifts-in-luxury-real-estate-market)
+
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/off-market-luxury-deal-in-sharon-ct-highlights-tight-inventory-and-quiet-transactions-at-the-top)
+
+Pickup - [https://burstable.news](https://burstable.news/news/luxury-off-market-sale-in-sharon-connecticut-highlights-tight-inventory-and-buyer-demand-in-high-end-real-estate)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/luxurioser-off-market-verkauf-in-sharon-connecticut-unterstreicht-knappes-angebot-und-hohe-nachfrage-im-high-end-immobilienmarkt)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/venta-privada-de-lujo-en-sharon-connecticut-destaca-el-bajo-inventario-y-la-alta-demanda-en-el-mercado-inmobiliario-de-alta-gama)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/vente-confidentielle-dune-propriete-de-luxe-a-sharon-connecticut-souligne-la-rarete-des-stocks-et-la-demande-des-acheteurs-dans-limmobilier-haut-de-gamme)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/venda-privada-de-luxo-em-sharon-connecticut-destaca-estoque-apertado-e-demanda-de-compradores-no-mercado-imobiliario-de-alto-padrao)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/off-market-575m-sale-in-sharon-ct-highlights-luxury-market-trends-in-litchfield-county)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/off-market-575m-sale-in-sharon-ct-reveals-shifts-in-luxury-real-estate-market)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/off-market-sale-of-575m-sharon-estate-highlights-luxury-market-t/202633521)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/266/12/bakeCKia.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/266/12/ella5O3e.webp)
