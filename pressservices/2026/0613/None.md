@@ -1,78 +1,82 @@
-# Champion of the Week Program Recognizes Arizona Students Ages 13 to 17
+# Haddonfield Dentist Offers Botox and Dermal Filler Treatments
 
-12 News Partnership Puts Arizona Student Achievers on Air Every Two Weeks
+Why Dentists Like Monokian Dentistry Are Qualified to Administer Botox and Dermal Fillers
 
- Scottsdale, United States - June 13, 2026 / Champion Air /
+ Haddonfield, United States - June 13, 2026 / Monokian Dentistry /
 
- SCOTTSDALE, Ariz. - Champion Air, one of the Phoenix Valley's largest family-owned HVAC companies, is reinforcing its commitment to the local community through two active giving programs that celebrate exceptional young people and provide free air conditioning systems to deserving Valley families. The initiatives reflect a guiding principle the company has upheld since its founding in 1982: that business success comes with a responsibility to the people it serves.
+ Monokian Dentistry in Haddonfield, New Jersey has expanded its service offerings to include Botox and dermal filler treatments, positioning the dental practice as a provider of comprehensive facial aesthetics care for patients across South Jersey. The expansion reflects a broader shift in the dental field, where dentists are drawing on their foundational expertise in facial anatomy to offer cosmetic injectable treatments alongside traditional oral health services.
 
-"We've been so fortunate with our success that we are able to give back in ways we never dreamed possible when we started," said a Champion Air spokesperson. "These programs aren't a marketing campaign - they're who we are."
+Why Dental Training Translates to Injectable Expertise
 
-Champion of the Week: Spotlighting Arizona's Rising Stars
+Dentists complete extensive education and clinical training focused on the structures of the head, neck, and face. This includes a detailed understanding of facial muscles, nerve pathways, blood vessel locations, and soft tissue behavior -- the same anatomical knowledge required to safely administer injectable treatments like Botox and dermal fillers.
 
-In partnership with 12 News, Champion Air's "Champion of the Week" program recognizes standout students between the ages of 13 and 17 across the Phoenix metro area. Honorees are selected every two weeks based on achievement in academics, athletics, or the arts, or for demonstrating notable resilience in the face of personal hardship.
+Dental professionals routinely perform injections as part of standard care, including local anesthesia for procedures involving the jaw, gums, and surrounding facial tissue. This hands-on experience with precision injection techniques gives dentists a practical foundation that directly applies to cosmetic injectables. In many respects, a dentist performing a facial injection is working within a region of the body they interact with daily.
 
-Each selected student receives $600 and on-air recognition on 12 News, giving their story a platform that reaches audiences throughout the Valley. Past recipients have included competitive debaters, varsity athletes, musicians, and student volunteers. Nominations are accepted year-round at ChampionAir.com.
+For patients seeking Botox in Haddonfield NJ, this depth of anatomical familiarity is a meaningful factor when evaluating where to receive treatment. Proper placement of Botox requires accurate identification of muscle groups responsible for facial expression, and errors in placement can affect both appearance and function. Dentists trained in this area are equipped to navigate those considerations carefully.
 
-"Champions come in all forms," the spokesperson added. "This program is our way of making sure Arizona's young people know that their community sees them and is proud of what they're doing."
+How Botox and Dermal Fillers Differ -- and How Dentists Use Both
 
-Brenda's Award: Free AC Systems for Families Who Give Back
+Botox and dermal fillers are distinct treatments that address different aesthetic concerns. Botox is a neuromodulator that temporarily reduces muscle activity, smoothing the appearance of dynamic wrinkles -- those caused by repeated facial movements such as squinting, frowning, or raising the eyebrows. Dermal fillers, by contrast, use injectable substances to add volume, contour specific areas, or soften lines that are present even when the face is at rest.
 
-Brenda's Award is Champion Air's annual flagship giving initiative, created to honor community members who have made a meaningful difference for their Scottsdale neighbors and beyond. Nominated by fellow residents, recipients receive a complete air conditioning system - including equipment, professional installation, and the first year of ChampionCare maintenance - at no cost.
+Dentists are particularly well-suited to administer both types of treatment because their training covers the layered anatomy of the face in detail. Understanding where muscles attach, how nerves are distributed, and where vascular structures run beneath the skin is critical for avoiding complications and achieving consistent results. These are not abstract concepts for a practicing dentist -- they are applied knowledge used in clinical work every day.
 
-In a region where summer temperatures routinely exceed 110 degrees F, a functioning air conditioning system is not a luxury - it is a matter of safety. Champion Air's approach of gifting full systems, rather than offering partial assistance, reflects the company's position that meaningful support requires meaningful action. Community members can nominate a deserving family at ChampionAir.com/nominate.
+Monokian Dentistry offers dermal fillers in Haddonfield NJ as part of a patient care model that integrates facial aesthetics with dental services. Patients who already trust the practice for their oral health needs can access these treatments in a familiar clinical environment, with a provider who understands the face as a whole system rather than as isolated cosmetic zones.
 
-A Valley Business With Valley Values
+A Practical Option for South Jersey Patients
 
-Beyond its signature programs, Champion Air actively supports youth sports sponsorships, local charity events, and organizations throughout the Greater Phoenix area. The company also welcomes community members to share causes they feel deserve attention, maintaining a standing commitment to evaluate new opportunities to contribute.
+For patients in Haddonfield and the surrounding South Jersey area, receiving injectable aesthetic treatments at a dental practice offers a practical alternative to seeking out a separate specialist. The clinical setting, patient records, and provider familiarity are already established, which can streamline the process of discussing goals, reviewing health history, and planning treatment.
 
-Champion Air holds a BBB A+ rating, is a Lennox Premier Dealer and recipient of the Dave Lennox Award, and carries Pearl Certification. The company operates three Valley locations - in Scottsdale, Phoenix, and Sun City - and provides 24/7 emergency HVAC service with no overtime charges.
+Monokian Dentistry's approach treats facial aesthetics as a natural extension of overall oral and facial health care, rather than as an entirely separate category of service. The muscles and tissue of the lower face, in particular, are areas where dental health and cosmetic appearance intersect -- making the dental office a logical environment for treatments that address both.
 
-About Champion Air
+Patients interested in reducing the appearance of fine lines, restoring volume to areas affected by age-related changes, or exploring non-surgical facial refinement have the option to do so through a provider whose training was built around the anatomy of the face.
 
-Founded in 1982, Champion Air is one of Arizona's largest family-owned heating and cooling companies, serving the Greater Phoenix Valley from three locations. Licensed, bonded, and insured (ROC #328617), Champion Air provides installation, repair, and maintenance for air conditioning, heating, heat pumps, mini-splits, and indoor air quality systems. Learn more at ChampionAir.com or call (480) 748-4000.
+About Monokian Dentistry
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/l4dRrwtdyZ4BJsfDrHb79cFF97SUR18XqZAh9NR8.jpg) [](https://www.championair.com) Contact Information:
+Monokian Dentistry is a dental practice located in Haddonfield, New Jersey, serving patients throughout South Jersey. In addition to general and restorative dental care, the practice offers facial aesthetic services including Botox and dermal filler treatments administered by dental professionals with training in facial anatomy and injection techniques.
 
- Champion Air
+Learn more at Monokian Dentistry
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/2zbvideb7rSxbhv7GVl3tQyMDgZsgKMCGXxxNodn.jpg) [](https://www.monokiandentistry.com) Contact Information:
+
+ Monokian Dentistry
 
  
 
-8989 E Vía Linda #117A  Scottsdale, AZ 85258United States
+300 N Haddon Ave  Haddonfield, NJ 08033United States
 
- Champion Air 14807484000 https://www.championair.com 
+ Jessica Monokian +1-856-983-9620 https://www.monokiandentistry.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/champion-of-the-week-program-recognizes-arizona-students-ages-13-to-17-434836)
+[Original/Source Press Release](https://mediawiretoday.com/haddonfield-dentist-offers-botox-and-dermal-filler-treatments-434876)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/champion-air-launches-student-recognition-and-free-ac-programs/4be0673e5284e916773d7ee76023de9f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dentist-expertise-powers-new-botox-and-filler-services-in-haddonfield/78691681cff0ff35d7aa468e02401c65) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
+Pickup - [https://advos.io/en](https://advos.io/en/haddonfield-dentist-monokian-dentistry-now-offers-botox-and-dermal-fillers-leveraging-facial-anatomy-expertise)
 
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/champion-air-launches-two-community-programs-champion-of-the-week-and-brendas-award)
+Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/haddonfield-dentist-expands-services-to-include-botox-and-dermal-fillers-leveraging-facial-anatomy-expertise)
 
-Pickup - [https://burstable.news](https://burstable.news/news/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
+Pickup - [https://burstable.news](https://burstable.news/news/haddonfield-dentist-expands-services-to-include-botox-and-dermal-filler-treatments)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/champion-air-startet-jugendforderung-und-kostenlose-ac-programme-fur-familien-in-arizona)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/zahnarztpraxis-in-haddonfield-erweitert-angebot-um-botox-und-dermal-filler-behandlungen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/champion-air-lanza-programas-de-reconocimiento-juvenil-y-aires-acondicionados-gratuitos-para-familias-de-arizona)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/dentista-de-haddonfield-amplia-servicios-para-incluir-tratamientos-de-botox-y-rellenos-dermicos)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/champion-air-lance-des-programmes-de-reconnaissance-des-jeunes-et-de-climatisation-gratuite-pour-les-familles-de-larizona)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-dentiste-de-haddonfield-etend-ses-services-pour-inclure-les-traitements-au-botox-et-aux-combleurs-dermiques)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/champion-air-lanca-programas-de-reconhecimento-juvenil-e-ar-condicionado-gratuito-para-familias-do-arizona)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/dentista-de-haddonfield-expande-servicos-para-incluir-tratamentos-com-botox-e-preenchedores-dermicos)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/champion-air-launches-student-recognition-program-and-free-ac-initiative-for-arizona-families)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/monokian-dentistry-expands-services-to-include-botox-and-dermal-fillers-leveraging-dental-expertise-in-facial-anatomy)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/champion-air-launches-youth-recognition-and-free-ac-programs-for-arizona-families)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/haddonfield-dentist-expands-services-to-offer-botox-and-dermal-fillers-leveraging-facial-anatomy-expertise)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/champion-air-launches-two-giving-programs-to-support-arizona-you/202633538)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/haddonfield-dentist-expands-services-to-include-botox-and-dermal/202633540)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/13/knobDsg1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/13/gain1ugz.webp)
