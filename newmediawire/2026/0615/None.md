@@ -1,145 +1,109 @@
-# Western Star Resources Acquires the Past-Producing Eagle Point Tungsten Mine, New Mexico, Highlighting Historical Production and Untested Exploration Targets
+# Fitzroy Minerals Reports Channel Samples Averaging 2.96% Cu From Buen Retiro Historical Open Pit; Drilling Continues to Return Extensive Visible Copper Mineralization, Buen Retiro Copper Project, Chile
 
-VANCOUVER, BC - June 15, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE: WSR) (OTC: WSRIF) (FRA: 4K2) (the “Company” or “Western Star”) is pleased to announce that it has acquired a 100% interest in the past-producing Eagle Point Tungsten Mine (the “Property” or “Eagle Point”), located in the Granite Pass area of the Little Hatchet mining district, Hidalgo County, New Mexico, USA. The acquisition expands Western Star’s growing portfolio of past-producing United States tungsten assets into a new and highly prospective district.
+VANCOUVER, BC - June 15, 2026 (NEWMEDIAWIRE) - Fitzroy Minerals Inc. (TSXV: FTZ, OTCQX: FTZFF, FSE: C3Y) (“Fitzroy” or the “Company”) is pleased to provide an exploration update from its 100%-owned Buen Retiro Copper Project (the “Project” or “Buen Retiro”), located near Copiapo, Chile.
 
- The Eagle Point was advanced during periods of strategic tungsten demand during the 1950s, when the United States Government agreed to codevelop the property under a Defense Minerals Exploration Administration (“DMEA”) contract [1]. Historical records report approximately 1,800 tons of ore shipped during the Second World War at a grade of approximately 0.5% WO3 [1]
+ Drilling continues to intersect additional oxide and mixed (oxide-sulphide) copper mineralization that is expected to be incorporated into resource definition and the Heap Leach Development Plan. Three diamond drill (“DD”) rigs are at site and a Reverse Circulation (“RC”) rig will be added next week. Metallurgical test work is underway and initial column results are expected to be delivered in July. The Company will apply a “data cut-off” to resource drilling from the end of July to allow time for assaying, modelling, integration with metallurgical results, and inclusion in a Project Development Plan that will provide the basis of the Environmental Permit Application (scheduled for October 2026). The Pre-Feasibility Study is on track for completion in Q1 2027. The delivery of assay results from the laboratory continues to be disrupted and delayed. Results from channel sampling in the historical Buen Retiro Open Pit (“Pit Area”) are reported here.
 
- Surface trenching across multiple skarn bodies resulted in historical estimates of approximately 100,000 to 150,000 tons grading approximately 0.5% WO3 [1](1).The estimate is historical in nature and should not be relied upon. Recent sampling by the USGS returned grades of up to 27.6% WO3 [2], suggesting historical work significantly underestimated the grade potential.
+ Key Takeaways from this News Release:
 
- Key Highlights
+ * 21 one-metre channel samples collected from locations distributed throughout the historical Buen Retiro open pit returned an average grade of 2.96% Cu, with a maximum of 10.68% Cu. Historical drill hole BRT-DDH-013 returned 7 m @ 2.78% Cu from 130 m, and 30 m @ 3.52% Cu from 141 m downhole in intervals that are approximately 30-55 metres below the current pit floor.
+* Drill hole BRT-DDH099, located 70 m south of the historical Buen Retiro open pit, intersected 113 m of tenorite (CuO) mineralization from 3.5 m downhole which has been submitted directly to the lab for ‘over-limit’ analysis as the intercept is estimated to average approximately 1.0% Cu and exceed regular exploration assay limits of 1% Cu.
+* Exploration with three DD rigs continues to intersect wide zones of copper oxide and copper sulphide mineralization, and a RC rig will join soon. Fresh data will be incorporated into the Project Development Plan to enable the submission of the Environmental Permit Application to be made in October 2026.
 
- - 100% interest acquired in the past-producing Eagle Point tungsten project, comprising 24 lode mining claims (GP 1 to GP 24) in the Granite Pass area, Hidalgo County, New Mexico.
+ Merlin Marr-Johnson, President and CEO of Fitzroy, commented: "Channel sample results averaging around 3.0% Cu and historical drill results of 30 metres at 3.52% Cu showcase the type of copper mineralization that Fitzroy is targeting in the Pit Area. Historical production focused on Cu-oxide material only, and our analysis of historical drill data shows that a meaningful amount of mixed and transition copper material was left behind, that can be recovered with our planned chloride-leach process. The drilling campaign in the Southwest Area is finishing up, and our attention is now turning to the Pit Area where recent drilling has intersected highly encouraging and newly identified mineralized zones. With four rigs on site as of June 20th, we will complete around 5,000 m of drilling in the Pit Area for inclusion into the Project Development Plan ahead of submission of the Environmental Permit Application.
 
- - Past Production where approximately 1,800 tons of scheelite-bearing tactite-skarn were mined and shipped from the property.
+ Not all copper mineralization is equal, and the copper that Fitzroy is delineating at Buen Retiro has extraordinary advantages such as proximity to processing and transport infrastructure, low elevation, no human habitation, and being located at a brownfields site in Chile, which has a pro-mining legislation and a copper industry looking for new production. As Fitzroy takes Buen Retiro through the study phases and into production in 2028 we look forward to showcasing the high value nature of the development plan to the market.”
 
- - U.S. Government examinations estimated approximately 150,000 – 200,000 tons of scheelite-bearing material from surface trenching and outcrop sampling.
+ Channel Sampling Results, Historical Pit Area, Buen Retiro
 
- - Recent USGS sampling returned high-grade tungsten, headlined by a scheelite-bearing skarn sample assaying 27.6% WO3 (219,000 ppm W) and 0.98% Mo, confirming the very high-grade nature of the mineralisation at surface.
+ The Company has completed a program of 21 channel samples collected from mineralized outcrop within the historical Buen Retiro open pit. The arithmetic average of all 21 results is 2.96% Cu(1). Seventeen of the samples returned above 1.0% Cu, and four were more than 5.0% Cu (see Table 1, below).
 
- - The United States Government entered the DMEA Contract. The planned program was not executed, leaving its principal exploration objectives untested.
+ Table 1
 
- - Classic tungsten (scheelite) skarn-tactite deposit style – the same contact-metamorphic setting that hosts many of the world’s most significant tungsten deposits.
+ In addition to the channel samples, Fitzroy has access to the historical drill data collated by Pucobre S.A and Ptolemy Mining Ltd. Data shows that mining stopped at the base of predominantly Cu-oxide mineralization but that well-mineralized rock continues at depth in mixed, transitional material. For example, historical drill hole BRT-DDH-013 (drilled by Ptolemy Mining Ltd in 2024, see Table 2), intersected two high-grade intervals of typically leachable minerals: 7 m @ 2.78% Cu from 130-137 m, and 30 m @ 3.52% Cu from 141-171 m downhole which are located approximately 30-55 metres below the current open pit floor.
 
- - Tungsten is a designated United States critical mineral. The United States has no domestic commercial production, with approximately 85% of global supply controlled by China [3].
+ Table 2
 
- "Eagle Point is the kind of asset you build a company around. It brings together everything we look for in one place - high-grade tungsten, a documented production history, eight separate skarn bodies exposed at surface, and a tier-one U.S. jurisdiction - yet it has never once been touched by modern exploration," said Blake Morgan, CEO and President of Western Star. "Recent USGS work returned a sample grading more than 27% WO3, with a meaningful molybdenum credit on top, and the deposit was considered prospective enough that the U.S. Government approved and funded an exploration contract over it in the 1950s - one that was never drilled. We're acquiring 24 claims over a system that already produced tungsten and earned Federal backing, in a country with no domestic production and an urgent need to rebuild its supply chain. Assets that check every one of those boxes simply don't come along often, and Eagle Point anchors the U.S. critical-minerals platform we're building."
+ Drilling, Assay Laboratories, and Drilling Results Update
 
- The makings of a strategic asset at Eagle Point
+ Fitzroy has drilled 10,048 m at Buen Retiro to date in 2026, principally targeting Cu-oxide and mixed (Cu-oxide and sulphide) material for inclusion in the Heap Leach Development Plan. The original plan for 7,000 metres of drilling (infill, sterilization and geotechnical) has increased to 10,000 metres as Fitzroy continued to intersect shallow mineralized material, expanding the envelope of known mineralization. A further 5,000 m drilling program, targeting Cu-oxide and mixed material in the historical Pit Area, is underway.
 
- - Critical Mineral Status: Tungsten is indispensable for defence, aerospace, energy, and advanced manufacturing applications. The United States currently has no domestic commercial tungsten production and is highly dependent on imports, with approximately 85% of global supply controlled by China [3]
+ The ALS Global laboratory is still experiencing severe congestion, resulting in turnaround times for samples of 60-70 days. A further complication has arisen at the border between Chile and Peru. Sample preparation is done in Copiapo, Chile and the pulps are sent to Lima, Peru for assaying. Some pulp shipments have been stalled at the border by Peruvian customs, which means that not only are Fitzroy samples late, but their delivery is irregular.
 
- - Exploration Upside: Eagle Point has demonstrated high-grade mineralisation at surface and a documented production history, yet remains effectively unexplored using modern geophysical, geochemical and drilling techniques.
+ Fitzroy is mitigating the assay result delays in two ways. Firstly, samples from drilling in the Pit Area will be sent to SGS Laboratories in Santiago, Chile that has offered much shorter turnaround times. Secondly, the team of Fitzroy geologists have now built-up considerable experience in characterizing the Buen Retiro copper mineralization, and plans drill holes and requests ‘over-limit’ analysis (greater than 1.0% Cu) based on visual estimates of grade. Comparison of estimated grade versus actual grade (from the results to date) shows that the Fitzroy technical team tends to under-estimate intercepts of higher-grade copper by about 20-30%. On this basis Fitzroy can advise assay laboratories to send runs of mineralized samples with visual grade estimation averaging 0.9% Cu and above directly to ‘over-limit’ copper analysis, saving upwards of two weeks’ of time.
 
- - Alignment with United States Policy: Recent United States Government directives prioritise the fast-tracking of domestic tungsten projects, with Federal grants and defence-sector support available for qualifying critical-mineral assets.
+ Diamond drill hole BRT-DDH099, drilled 70 m south of the historical Buen Retiro open pit, is a good example of in-field copper grade estimation. Here, Fitzroy geologists recorded a core Quick Log estimate of 113 m with an average of almost 1.0% Cu (visual) from 3.5 m downhole. These results, plus the high tenor channel samples from the southern half of the historical pit, meant that the drilling plan was immediately adjusted to increase the drill hole density in this area. Furthermore, a large proportion of the 113 m intersection has been selected for immediate ‘over-limit’ analysis, corresponding with samples estimated to be 0.9% Cu and above.
 
- Property and Location
+ Fitzroy will publish drilling assay results in late June, but the mid-monthly routine of reporting will be regained for July and beyond.
 
- The Eagle Point Property comprises 24 unpatented lode mining claims covering the historic Eagle Point tungsten workings and prospective geology in the Granite Pass area on the south-western flank of the Little Hatchet Mountains, Hidalgo County, New Mexico. The Property lies in Section 22, Township 29 South, Range 16 West, at approximately 31.766°N, 108.457°W Figure 1.
+ Figure 1. Pit Area, channel sample and drill holes, Buen Retiro, Chile (UTM WGS84 Z19S).
 
- There is excellent access to the property with State Highway 81 passing within 4 miles and extensive gravel tracks throughout. It is located 11.5 miles south-west of Hachita, and approximately 100 miles from Silver City. Exploration can be conducted year-round, and there are no known restrictions on operating in the area. BLM manage the surface and mineral rights of the claims, and drilling is permitted under a standard BLM Notice of Intent.
+ Geophysics, Metallurgical Test Work, Other Work Streams
 
- Figure 1: Location of the Eagle Point Tungsten Project, Hidalgo County, New Mexico
+ The Fleet Space Technologies Ambient Noise Tomography (“ANT”) passive seismic infill survey was completed in May. The ANT technique identified zones of elevated fracturing and host-rock alteration, and these results will be integrated into our work and news-flow program.
 
- Regional Geological Setting
+ Since signing the Letter of Intent with Pucobre S.A. in April, Fitzroy continues to work on engineering and commercial aspects of the Heap Leach Development Plan, and data is being shared in a two-way process.
 
- The Little Hatchet Mountains form part of the Basin and Range province of south-western New Mexico (Figure 2) and expose a sequence of Palaeozoic and Mesozoic sedimentary rocks, dominantly limestone, intruded by Laramide-age granitic to granodioritic plutons. These intrusions developed extensive contact-metamorphic aureoles where they invaded carbonate host rocks, producing the garnet-rich skarn (“tactite”) zones that host tungsten mineralisation throughout the district. The region forms part of a broader belt of Laramide magmatic-hydrothermal mineral systems in south-western New Mexico and south-eastern Arizona that includes significant tungsten, molybdenum and porphyry-style occurrences.
+ Metallurgical test work is ongoing. Mini-column results will be ready in July and incorporated into the Project Development Plan that will be the basis of the Environment Permit Application. One-metre and three-metre columns test work results will be available in Q4 2026 and will be incorporated into the Pre-Feasibility Study.
 
- Figure 2: Regional geological setting of the Eagle Point Property, Little Hatchet mining district, Hidalgo County, New Mexico. Figure from Clinkscales et al (2017)
+ Buen Retiro Core Sampling Procedures, Laboratory and QA/QC
 
- Local Geology
+ Buen Retiro HQ drill core, in labelled and secured wooden core trays, is picked up from the drilling site by Company personnel and transported by truck from the drill rig to the core processing facility in Copiapo. Core lengths are checked, after which geotechnical logging is performed.
 
- At the Property scale, mineralisation is developed along the contact between a tongue of crystalline limestone and granite to granodiorite. The limestone strikes broadly east–west to north-east and dips moderately to steeply (approximately 60–70 degrees) to the south. Replacement of the limestone by garnet-dominant tactite is irregular and forms a series of lenticular, pod-like skarn bodies distributed over approximately 1,500 to 2,000 feet of strike along the northern limestone–granite contact. Individual tactite bodies range from a few feet to as much as 140 feet in length and from a few inches up to about 30 feet in width. Post-mineral porphyry and andesitic dikes cut the sequence. The limestone tongue is bounded and underlain by granite at relatively shallow depth, a key control on the geometry of mineralisation. The northern portion of the Property captures more of this prospective granite–limestone contact, as well as nine test pits that offer promising exploration potential.
+ Using an electric core cutting diamond blade saw, primary half-core samples are collected from HQ- or NQ-sized drill core, with the remaining half-core stored in the original wooden core trays at the rented core storage warehouse in Cuesta Cardones, south of Copiapo.
 
- Figure 3: Local geology and historical workings at the Eagle Point Property.
+ A silica blank is inserted every 20 samples (approximately every 20 m); a blank is always inserted immediately after a section that contains native copper. Pulp duplicates are randomly selected in proportion to the number of samples from each drill hole and inserted into the sample stream along with high-, medium-, and low-grade copper standards. Sample identifications are changed and coded by the Company.
 
- Mineralisation Style and Deposit Type
+ The Quality Assurance (QA) and Quality Control (QC) samples (“QA/QC”) prepared by the Company represent about 12% of the total primary core samples. The three certified copper standards (both oxide and sulphide), acquired from Chilean company Instituto Nacional de Tecnología Estandarizacion y Metrología Ltda. (“INTEM”), have international standard certification. The Certified Reference Material (“CRM”) is used to evaluate the accuracy (approximation versus true value) of the laboratory analysis. Blanks are used to evaluate the quality of the laboratory preparation and identify possible contamination. Pulp duplicates are used to test analytical accuracy (repeatability). No secondary laboratory (referee lab) samples were completed in this round of drilling; however, the next stage and subsequent stages of drilling will see a secondary laboratory introduced to replicate procedures.
 
- Eagle Point is a contact-metamorphic tungsten skarn (tactite-replacement) deposit. Tungsten occurs as scheelite, developed as both fine disseminations and coarser crystals within andradite-rich garnet tactite, and is concentrated where the tactite is finer-grained and has been fractured or sheared. The scheelite is molybdenian (carrying molybdenum in the scheelite–powellite series), imparting a characteristic golden-yellow fluorescence under ultraviolet light. Associated minerals include pyrite, magnetite, calcite and epidote.
+ Once prepared, the core samples are bagged, tagged, and transported to the laboratory by the project team. At the laboratory reception, the samples and their identification codes are verified and accepted once the physical inventory matches the assay request form.
 
- Molybdenum is regarded as a potential economic co-product of the Property. Modern USGS sampling returned molybdenum up to approximately 0.98% (9,820 ppm Mo) in the highest-grade tungsten sample, with several further skarn samples returning elevated molybdenum, consistent with the molybdenian character of the scheelite and the presence of molybdenum mineralisation within the system.
+ The pulps and rejects of crushed samples are collected from the ALS-Patagonia laboratory in Copiapo every 3 months. The rejects are stocked in closed drums, identified with the corresponding batches and sample ranges, while the pulps are stored in boxes and in shelves inside a container separated for this purpose. Both are located in the same Company warehouse facility in Copiapo.
 
- Recent USGS Sampling
+ A visual review of the QA/QC results from the standards and blanks inserted by the Company and the laboratory’s internal QA/QC information was completed by the Company and no significant issues were identified.
 
- Recent sampling at Eagle Point by the United States Geological Survey (USGS), reported via New Mexico Bureau of Geology and Mineral Resources (NMBGMR) data [2], returned high-grade tungsten from the skarn outcrops and dumps. A peak composite outcrop sample (LH705) graded 27.6% WO3 (219,000 ppm W), with multiple additional skarn samples returning anomalous to high-grade tungsten and elevated molybdenum. Results are summarised below.
-
- (1)WO3 calculated from elemental tungsten (W) using a conversion factor of 1.2611. The samples reported here are selective grab, dump-select and composite outcrop samples collected by the USGS / NMBGMR. Data source: USGS / NMBGMR (see reference)
-
- Historical Work, Production and Government Support
-
- The Property has a long history of examination, with a documented record of discovery, production, repeated Federal study and Government-backed exploration spanning nearly two decades.
-
- The Eagle Point project was discovered in 1940 by prospector J. H. Winslow while prospecting with an ultraviolet lamp, and the early claims were staked in 1941. Over the following sixteen years the Property was examined repeatedly by U.S. Bureau of Mines (USBM) and U.S. Geological Survey (USGS) geologists and engineers. These reviews were completed in 1941, 1942, 1943, 1951, 1955 and 1957 and the property was the subject of four separate Federal exploration-assistance applications (dockets DMA-1475, DMA-1476X, DMEA-3276 and DMEA-3701).
-
- Federal examiners were encouraged by what they saw. Following his 1942 sampling, USBM engineer James E. Bell reported that the results "gave reason to expect that bodies of ore of mineable grade could be found," noting the contact "is very extensive and the local bodies could aggregate a considerable tonnage" [4]. A decade later, mining engineer James I. Moore concluded that "a grade of 0.5% WO3 can be maintained from the Eagle Point mine," that mining could be by low-cost open pit, and that the mine "could maintain a production of 100 tons daily or more" - recommending it as a "principal producer" for a regional tungsten mill [5].
-
- Figure 4: Figure modified from DMEA docket 1476X showing the extent of historical workings that have not changed significantly in the last 50 years.
-
- The Property is a past producer with historical records indicating approximately 1,800 tons of scheelite material grading ~0.52% WO3 was mined and shipped to the U.S. Government's Deming stockpile during 1943–44 before the wartime purchase program was cancelled.
-
- Surface work was extensive and Figure 4 shows eight skarn bodies exposed as an open cut, numerous trenches and bulldozer cuts. The trenches in Figure 5 include 215 feet of trenching completed in 1954 from which Government examiners estimated a historical mineralized system on the order of 170,000 tons, comprising roughly 70,000 tons at 0.40% WO3 and ~100,000 tons at 0.25% WO3. That work was considered compelling enough that, in 1955, the U.S. Government drafted and signed a Defense Minerals Exploration Administration exploration contract (Idm-E783, Docket DMEA-3701), agreeing to fund 75% of a program of shaft sinking and diamond drilling on the Property. The contract was never executed, and the planned drilling was never carried out. The company considers this exceptionally promising and a starting point for the company’s maiden work programs.
-
- These historical estimates are presented solely as a recap of historical work and are not, and should not be construed as, current mineral resources or mineral reserves. They are historical in nature, were prepared prior to, and do not comply with, NI 43-101, have not been verified or classified by a Qualified Person as current mineral resources or reserves, and the Company is not treating them as current. A Qualified Person has not done sufficient work to classify the historical estimates as current mineral resources, and the Company is not treating the historical estimates as current mineral resources or reserves.
-
- Historical drilling was minimal, with only a few shallow holes concentrated in and around the main open cut. Those holes intersected scheelite-bearing garnet tactite at shallow depth, confirming mineralisation but testing only the near-surface portion of a single body. The prospect remains effectively untested at depth and along strike, and has never been evaluated using modern geophysical, geochemical and drilling techniques.
-
- Figure 5: Sketch showing results from the Eagle Point area, modified after a figure in DMEA docket 3276.
-
- Proposed Work Program
-
- Western Star intends to advance Eagle Point under its systematic exploration approach, consistent with the program being applied across the Company’s United States tungsten portfolio in Nevada. The proposed work program comprises:
-
- - A property-wide, high-resolution drone (UAV) magnetic geophysical survey to define the geometry and extent of the skarn–intrusive contact and associated magnetite-bearing tactite, and to generate drill targets.
-
- - Systematic rock-chip and soil geochemical sampling across the full extent of the Property, to characterise the distribution, grade and continuity of tungsten and molybdenum mineralisation and to follow up the high-grade USGS results.
-
- - Field mapping and verification of historical workings, supported by ultraviolet (UV) fluorescence surveying of outcrop and dumps to rapidly identify scheelite.
-
- The results of this work will be used to prioritise targets and to support subsequent drill testing and the drill-permitting process.
-
- Terms of the Acquisition
-
- Under the terms of the acquisition, Western Star has agreed to acquire a 100% interest in the Eagle Point Tungsten Property in consideration for a cash payment of C$150,000 and the issuance of 4,000,000 common shares of the Company to the vendors, payable on closing. In addition, the Company will grant the vendors a 1.5% net smelter returns (NSR) royalty on the Property. The Company may repurchase 1.0% of the NSR for a one-time cash payment of C$1,000,000, reducing the royalty to 0.5%. The closing of the transaction remains subject to the satisfaction of customary conditions, including the receipt of all necessary regulatory approvals.
-
- References
-
- [1] U.S. Bureau of Mines and U.S. Geological Survey, “Examination and production records, Eagle Point tungsten deposit, Hidalgo County, New Mexico (Dockets DMA‑1475, DMA‑1476X, DMEA‑3276, DMEA‑3701),” 1941–1957.
-
- [2] V. McLemore, "Earth MRI - Database of chemical analyses of critical minerals deposits in New Mexico," New Mexico Bureau of Geology and Mineral Resources, 2025.
-
- [3] USGS, "Mineral Commodity Summaries 2025: Tungsten," U.S. Geological Survey, 2025.
-
- [4] H. J. Sheridan and J. E. Bell, "War Minerals Memorandum: Eagle Point Claims, Hidalgo County, New Mexico, Tungsten. U.S. Department of the Interior, Bureau of Mines, Washington, D.C., 1942.
-
- [5] J. I. J. Moore, "Report of the Eagle Point Mine, Hidalgo County, New Mexico," New Mexico Bureau of Mines and Mineral Resources, Socorro, NM, 1952.
-
- [6] C. Clinkscales and T. F. Lawton, "Mesozoic–Paleogene structural evolution of the southern U.S. Cordillera as revealed in the Little and Big Hatchet Mountains, southwest New Mexico, USA," Geosphere, vol. 14, no. 1, pp. 162–186, 2017, doi: 10.1130/GES01539.1.
+ The Company and Qualified Person are independent of the assay laboratories disclosed in this news release.
 
  Qualified Person
 
- The scientific and technical information contained in this news release has been reviewed and approved by Jasper Mowatt, MIMMM (Membership No. 0486653) and MAusIMM (Membership No. 3178851), a Qualified Person as defined by National Instrument 43-101 – Standards of Disclosure for Mineral Projects.
+ Dr. Scott Jobin-Bevans (P.Geo., Ph.D., PMP), a QP as defined by NI 43-101 and independent geological consultant to the Company, has reviewed and approved the technical information provided in this news release and verified the data disclosed, including the sampling, analytical and test data underlying the technical information contained in this news release. Specifically, from time to time, the QP verifies selected laboratory assay results against the reported drill core intervals as well as drill core logs against the geology, as supplied by the Company.
 
- About Western Star Resources
+ Dr. Scott Jobin-Bevans has not been able to independently verify the Candelaria-type mineralization described herein and as such it is not necessarily indicative of the mineralization found on the Buen Retiro Copper Project.
 
- Western Star Resources is a mineral exploration and development company. The company’s objective is to increase shareholder value through the development of exploration properties using cost-effective exploration practices, acquiring further exploration properties and seeking partnerships by either joint venture or sale with industry leaders. The company currently owns nine non-surveyed contiguous mineral claims totalling 4,740 hectares, which are located within the Revelstoke mining division of British Columbia. The Western Star property group is located approximately 50 kilometres southeast of Revelstoke, B.C., and roughly 10 kilometres north of the abandoned community of Camborne.
+ About Fitzroy Minerals
 
- Contact Information:
+ Fitzroy Minerals is focused on exploring and developing copper-focused mineral assets with substantial upside potential in the Americas. The Company’s current property portfolio includes the Buen Retiro Copper Project located near Copiapo, Chile, the Caballos Copper and Polimet Gold-Copper-Silver projects located in Valparaiso, Chile, the Taquetren Gold Project located in Rio Negro, Argentina, and the Caribou Project in British Columbia, Canada. Fitzroy Minerals’ shares are listed on the TSX Venture Exchange under the symbol FTZ and on the OTCQX under the symbol FTZFF.
 
- Blake Morgan,Director, President and CEOblake@acvc.vcwww.westernstarresources.com
+ On behalf of the board of Fitzroy Minerals Inc.
 
- Neither the Canadian Securities Exchange nor its Regulation Services Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this press release.
+ Merlin Marr-JohnsonPresident and CEO
 
- Certain of the statements made and information contained herein may constitute “forward-looking information”. In particular references to the acquisition, future work programs or expectations on the quality or results of such work programs are subject to risks associated with operations on the property, exploration activity generally, equipment limitations and availability, as well as other risks that we may not be currently aware of. Accordingly, readers are advised not to place undue reliance on forward-looking information. Except as required under applicable securities legislation, the Company undertakes no obligation to publicly update or revise forward-looking information, whether as a result of new information, future events or otherwise.
+ For further information, please contact:
 
- (1)The historical estimate is based on historical surface trenching and sampling and is considered a historical estimate within the meaning of NI 43-101. A Qualified Person has not done sufficient work to classify the historical estimate as a current mineral resource or mineral reserve, and the Company is not treating the historical estimate as a current mineral resource or mineral reserve. The historical estimate should not be relied upon.
+ Merlin Marr-Johnson+447803712280
+
+ mmj@fitzroyminerals.com
+
+ For more information on Fitzroy Minerals, please visit the Company's website: www.fitzroyminerals.com
+
+ Neither Exchange nor its Regulation Services Provider (as that term is defined in the policies of the Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ CAUTIONARY STATEMENT REGARDING FORWARD-LOOKING INFORMATION
+
+ This news release includes certain statements and information that constitute forward-looking information within the meaning of applicable Canadian securities laws. All statements in this news release, other than statements of historical facts are forward-looking statements. Such forward-looking statements and forward-looking information specifically include, but are not limited to, statements that relate to the potential mineralization on the Company’s mineral properties, future exploration plans on the Company’s mineral properties and the timing and results of future exploration.
+
+ Statements contained in this release that are not historical facts are forward-looking statements that involve various risks and uncertainty affecting the business of the Company. Such statements can generally, but not always, be identified by words such as "expects", "plans", "anticipates", "intends", "estimates", "forecasts", "schedules", "prepares", "potential" and similar expressions, or that events or conditions "will", "would", "may", "could" or "should" occur. All statements that describe the Company's plans relating to operations and potential strategic opportunities are forward-looking statements under applicable securities laws. These statements address future events and conditions and are reliant on assumptions made by the Company's management, and so involve inherent risks and uncertainties, as disclosed in the Company's periodic filings with Canadian securities regulators, including without limitation, the dangers inherent in exploration, development and mining activities; actual exploration or development plans and costs differing materially from the Company’s estimates; the ability to obtain and maintain any necessary permits, consents or authorizations required for mining activities; environmental regulations or hazards and compliance with complex regulations associated with mining activities; climate change and climate change regulations; fluctuations in exchange rates; the availability of financing; operations in foreign and developing countries and the compliance with foreign laws, remote operations and the availability of adequate infrastructure; fluctuations in price and availability of energy and other inputs necessary for mining operations; shortages or cost increases in necessary equipment, supplies and labour; regulatory, political and country risks, including local instability or acts of terrorism and the effects thereof; the reliance upon contractors, third parties and joint venture partners; challenges to title or surface rights; the dependence on key personnel and the ability to attract and retain skilled personnel; the risk of an uninsurable or uninsured loss; adverse climate and weather conditions; litigation risk; and competition with other mining companies. As a result of these risks and uncertainties, and the assumptions underlying the forward-looking information, actual results could materially differ from those currently projected, and there is no representation by the Company that the actual results realized in the future will be the same in whole or in part as those presented herein. the Company disclaims any intent or obligation to update forward-looking statements or information except as required by law. Readers are referred to the additional information regarding the Company's business contained in the Company's reports filed with the securities regulatory authorities in Canada. Although the Company has attempted to identify important factors that could cause actual actions, events, or results to differ materially from those described in forward-looking statements, there may be other factors that could cause actions, events or results not to be as anticipated, estimated or intended. For more information on the Company and the risks and challenges of its business, investors should review the Company's filings that are available at www.sedarplus.ca.
+
+ (1)Channel samples are selective in nature and may not be representative of the average grade or continuity of mineralization within the deposit.
 
  View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/western-star-resources-acquires-the-past-producing-eagle-point-tungsten-mine-new-mexico-highlighting-historical-production-and-untested-exploration-targets-7087141)
+[Original/Source Press Release](https://www.newmediawire.com/news/fitzroy-minerals-reports-channel-samples-averaging-2-96-cu-from-buen-retiro-historical-open-pit-drilling-continues-to-return-extensive-visible-copper-mineralization-buen-retiro-copper-project-chile-7087143)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/western-star-acquires-high-grade-eagle-point-tungsten-mine-in-new-mexico/67fd06475dab4be20d1043cdd00d3a58) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fitzroy-reports-2-96-cu-channel-samples-at-buen-retiro-chile/81bfe3bf6e574ab706c9a997cdc4885a) 
 
  
 
@@ -147,4 +111,4 @@ VANCOUVER, BC - June 15, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE:
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/15/isleJJ0o.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/15/ruby2K5z.webp)
