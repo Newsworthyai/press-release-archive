@@ -1,42 +1,37 @@
-# PXG Tour Professional Gina Kim and Partner Win the LPGA Dow Championship
+# BOXABL Expands Into UK and Ireland Through TerraCaita Distribution Agreement
 
-Final-Round 62 Secures First LPGA Tour Victory for Gina Kim
+LOS ANGELES, CA - June 15, 2026 (NEWMEDIAWIRE) - BOXABL announced a representation, import and distribution agreement with Bristol, England-based TerraCaita Limited to support the introduction of its factory-built housing products across the United Kingdom, the Channel Islands, Northern Ireland and the Republic of Ireland. Under the agreement, TerraCaita will represent BOXABL products throughout the region, while BOXABL will provide two Casita units for display, demonstration and marketing activities.
 
-SCOTTSDALE, AZ - June 15, 2026 (NEWMEDIAWIRE) - PXG congratulates LPGA Tour professional Gina Kim and her partner on their victory at the Dow Championship, where a final-round 62 at Midland Country Club in Midland, Michigan secured the title. Finishing at 17-under par, the duo delivered a standout performance throughout the week to earn the championship. For Kim, the victory marks the first LPGA Tour title of her career and another milestone in a journey defined by perseverance, growth, and success at every level of the game.
+ The companies will collaborate on regulatory approvals, market development and customer engagement initiatives as BOXABL seeks to expand its international presence. BOXABL said the agreement supports future sales opportunities across multiple market segments and comes as the company continues preparations for its proposed business combination with FG Merger II Corp. (NASDAQ: FGMC) and anticipated public listing.
 
-"Winning on the LPGA Tour has been a dream of mine for a very long time," said PXG LPGA Tour Professional Gina Kim. "There have been a lot of lessons, a lot of hard work, and a lot of people who have supported me along the way. To earn my first LPGA Tour victory alongside an incredible partner makes this moment even more special. I'm grateful to my team, my family, and everyone at PXG for believing in me and helping me reach this goal."
+ To view the full press release, visit https://ibn.fm/yzF7X
 
-"Gina has worked tirelessly to get to this moment," said Bob Parsons, Founder and CEO of PXG. "She's a fierce competitor with an incredible attitude and determination. Watching her earn her first LPGA Tour victory is something we're all proud of. We couldn't be happier for Gina and her partner on this outstanding win."
+ About BOXABL
 
-Kim joined PXG's professional staff in 2022 and has continued to build momentum at the highest level of the game. Prior to earning her first LPGA Tour title, Kim captured three victories on the Epson Tour in 2025 and one in 2022, showcasing the talent and consistency that have made her one of the brightest rising stars in women's golf.
+ BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’S flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation-setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes.
 
-Kim's current bag setup includes:
+ For more information, please visit https://www.boxabl.com/ir
 
-* Driver: PXG Lightning Max 10K+ Driver  (10.5°)
-* Fairway: PXG Lightning Fairway Wood (5)
-* Hybrids: PXG Lightning Hybrids (22°, 25°, 28°)
-* Irons: PXG 0317 T Irons (7-W)
-* Wedges: PXG Sugar Daddy Wedges (50°, 54°, 58°)
-* Putter: PXG Battle Ready II Brandon Putter
+ About FG Merger II Corp.
 
-For more information about PXG's tour-winning golf clubs, apparel, and accessories, visit www.pxg.com.
+ FG Merger II Corp. is a blank check company, also commonly referred to as a special purpose acquisition company, or SPAC, formed for the purpose of effecting a merger, share exchange, asset acquisition, share purchase, reorganization or similar business combination with one or more businesses or entities.
 
-About PXG (Parsons Xtreme Golf)
+ For more information, visit https://fgmerger.com/
 
-Founded by American entrepreneur and self-proclaimed golf nut Bob Parsons, PXG embodies his belief that every new product - from clubs to apparel - should be markedly better. Every innovation should noticeably improve performance, and every moment of impact should elevate enjoyment.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
-Today, PXG offers a complete lineup of both right- and left-handed golf clubs, including drivers, fairway woods, hybrids, irons, wedges, and putters, engineered to be custom fit and built to every golfer’s unique specification. The company also designs and delivers high-performance golf apparel and accessories.
+ Forward Looking Statements
 
-PXG’s professional staff includes Christiaan Bezuidenhout, Eric Cole, Patrick Fishburn, Jake Knapp, David Lipsky, Marco Penge, Aldrich Potgieter, Chad Ramey, Mason Andersen, Christian Banke, Paul Barjon, Sebastian Cappelen, Patrick Cover, Cristobal Del Solar, Keven Dougherty, Joey Garber, Ryan McCormick, Henrik Norlander, Augusto Nunez, Nathan Petronzio, Garrett Reband, Shad Tuten, Céline Boutier, Olivia Cowan, Minji Kang, Megan Khang, Auston Kim, Christina Kim, Gina Kim, Mina Kreiter, Kaitlin Milligan, and Linnea Strom.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Contact:Leela BrennanPress@pxg.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pxg-tour-professional-gina-kim-and-partner-win-the-lpga-dow-championship-7087150)
+[Original/Source Press Release](https://www.newmediawire.com/news/boxabl-expands-into-uk-and-ireland-through-terracaita-distribution-agreement-7087155)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gina-kim-wins-first-lpga-title-with-final-round-62/cbe28bbd348190846d405fd9534f03fa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-expands-to-uk-and-ireland-via-terracaita-deal/42878cd828f54aa81d298507626ff75b) 
 
  
 
@@ -44,4 +39,4 @@ PXG’s professional staff includes Christiaan Bezuidenhout, Eric Cole, Patrick 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/15/quizyJaO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/15/echoHdm5.webp)

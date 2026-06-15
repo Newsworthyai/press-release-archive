@@ -1,42 +1,76 @@
-# Curry & Dvorak Analyze Trump's Iran Deal, Musk's SpaceX IPO, and AI Industry Shifts
+# AgeReverse Plans U.S. Expansion With Focus on Longevity and Healthy Aging
 
-Episode 1877 of the No Agenda Show, titled 'Flim Flam,' hosted by Adam Curry and John C. Dvorak and released June 14, 2026, takes aim at what the hosts describe as a week saturated with media misdirection. Broadcasting from the Texas Hill Country and Northern Silicon Valley, the duo opens with the U.S. men's 4-1 World Cup win over Paraguay before pivoting to the stalled Iran peace agreement, Elon Musk's ascent to trillionaire status following the SpaceX IPO, and a creeping censorship crisis inside the artificial intelligence industry.
+AgeReverse, a Canadian longevity wellness company focused on healthy aging and cellular vitality, today announced plans to expand into the United States as consumer interest in longevity, healthspan, and proactive wellness continues to grow.
 
- Listeners can expect the show's signature media deconstruction applied to several converging storylines:
+ The company believes a new generation of consumers is shifting its attention beyond traditional wellness categories and toward longevity-focused solutions designed to help maintain vitality, functionality, and quality of life with age.
 
- * President Trump's claim that an Iran memorandum of understanding would be signed Sunday, contradicted by Tehran and complicated by a fresh Israeli strike on Beirut
-* The scheduling of Ayatollah Ali Khamenei's funeral for July 4th, and what it signals about the timeline of the conflict
-* The SpaceX public offering, green-shoe mechanics, and the looming pop of the AI bubble
-* Anthropic's withdrawal of its Fable-5 and Mythos-5 models under a Trump administration directive
-* Tulsi Gabbard's disclosure of 120 U.S.-funded biolabs across 30 countries
+ Founded by Kubi Turkmen, a pharmaceutical industry veteran with more than 30 years of experience in anti-aging innovation and over 15 years focused specifically on telomere-based drug development, AgeReverse was created to help bring emerging longevity science and wellness technologies to everyday consumers.
 
- Curry frames the episode's title plainly, telling Dvorak, "There's a lot of flim-flam going on and it's getting on my nerves." The Book of Knowledge segment traces the word to 1530s Scandinavian roots meaning mockery. Dissecting CNN's coverage of Iran declaring victory, Curry objects to anonymous sourcing, noting a shipping executive quoted secondhand: "Unfortunately, the White House, they are losers." Dvorak counters with Fox Business analyst Phil Flynn's claim that tankers were quietly moved through the Strait of Hormuz under a shut-up order, comparing it to Washington crossing the Delaware.
+ “For decades, the conversation around aging focused largely on appearance or managing age-related concerns after they appeared,” said Kubi Turkmen, Founder and CEO of AgeReverse. “Today, consumers are becoming much more proactive. They are interested in supporting their healthspan, maintaining their vitality, and taking steps that may help them remain active and engaged throughout life.”
 
- The AI segment draws on commentary from the All-In podcast, featuring David Sacks, Chamath Palihapitiya, Jason Calacanis, and David Friedberg, who warn that Anthropic's prompt surveillance and CEO Dario Amodei's call for an FAA-style regulator could push enterprises toward open-source Chinese models like Qwen 3.6. Curry argues the centralized AI thesis is unraveling as Apple shifts inference on-device, citing remarks from Siri co-founder Adam Cheyer at WWDC. Other threads include Spencer Pratt's vendetta against Los Angeles Mayor Karen Bass, DHS Secretary Mullen's report of 300,000 missing migrant children, Mark Carney's New World Order speech pitching a Canada-Ireland-EU bloc, and a Swiss referendum capping population at 10 million.
+ Healthspan, a term increasingly used within longevity circles, refers to the number of years a person remains healthy, active, and functional rather than simply the number of years they live.
 
- About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for its sharp commentary, humor, and media deconstruction approach, the show offers an irreverent alternative to conventional news analysis. Episode 1877 is available now wherever podcasts are heard, including at noagendashow.net and through modern podcast apps listed at modernpodcastapps.com. 
+ According to AgeReverse, growing interest in longevity has helped create demand for wellness solutions that address multiple aspects of healthy aging rather than focusing on a single ingredient or isolated wellness goal.
+
+ The company plans to enter the U.S. market beginning with RESURGE, its flagship longevity formulation developed under the direction of founder Kubi Turkmen and formulated with scientific input focused on longevity and cellular wellness.
+
+ According to the company, RESURGE was developed around the concept of supporting the 12 Hallmarks of Aging, a scientific framework that examines biological processes associated with aging. The formulation combines multiple high-purity ingredients commonly associated with longevity and wellness protocols into a simplified daily regimen designed to support healthspan, vitality, and functional wellness as individuals age.
+
+ Key features and benefits of RESURGE include: * Designed to support all 12 Hallmarks of Aging through a comprehensive longevity-focused formulation
+* Combines ingredients including NMN, Resveratrol, Quercetin, Fisetin, CoQ10, Astragalus Extract, Hyaluronic Acid, Aronia Extract, and Noni Berry
+* Provides antioxidant support to help protect cells from oxidative stress and free radical damage
+* Supports nutrient metabolism and overall cellular health
+* Helps support cardiovascular health and immune system function
+* Supports collagen formation, connective tissue development, and skin quality
+* Helps maintain healthy joints, cartilage, bones, gums, and connective tissue
+* Includes herbal ingredients traditionally used as capillary and blood vessel protectants
+* Consolidates what the company describes as 15+ supplement protocols into a simplified 3-capsule daily routine
+* Manufactured in GMP-certified facilities in Ontario, Canada using vegan capsules
+* Registered as a Natural Health Product with Health Canada
+
+ “Our vision extends beyond a single product,” Turkmen added. “We believe longevity will become one of the defining wellness categories of the coming decades. AgeReverse is committed to developing solutions that help people pursue healthier aging and long-term vitality.”
+
+ As part of its long-term growth strategy, AgeReverse expects to expand beyond nutritional products into additional healthy aging categories, including skincare solutions, professional aesthetic technologies, injectable skin therapies, and non-invasive wellness technologies.
+
+ The company plans to introduce RESURGE to U.S. consumers later this year.
+
+ Visit the AgeReverse Website and follow the company on Instagram and LinkedIn.
+
+ About [AgeReverse](https://agereverse.ca/) AgeReverse is a Canada-based longevity wellness company focused on developing science-driven products designed to support healthy aging and cellular vitality. Founded by Kubi Turkmen, who has more than 30 years of experience in anti-aging innovation, the company’s approach combines longevity research, telomere science, and wellness innovation to create comprehensive healthy aging solutions. The company’s expanding AgeReverse platform includes longevity supplements and other wellness technologies designed to support multiple biological pathways associated with aging and long-term vitality. Products are manufactured in GMP-certified facilities in Ontario, Canada.
+
+ FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606152539/curry-and-dvorak-analyze-trumps-iran-deal-musks-spacex-ipo-and-ai-industry-shifts)
+[Original/Source Press Release](https://newsworthy.ai/news/202606152540/agereverse-plans-us-expansion-with-focus-on-longevity-and-healthy-aging)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1877-flim-flam-ai-censorship-and-iran-chaos/c1c6c5292483fc80ae8ec9c6d1fe5b7c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agereverse-brings-longevity-supplement-resurge-to-us-market/1af67f8fa813e8fbf602ebf748f34ee0) 
 
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/no-agenda-episode-flim-flam-dissects-iran-deal-spacex-ipo-and-ai-censorship-concerns)
+Pickup - [https://advos.io/en](https://advos.io/en/agereverse-plans-us-expansion-with-longevity-supplement-resurge)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/no-agenda-show-episode-1877-dissects-media-misdirection-ai-censorship-and-geopolitical-tensions)
+Pickup - [https://burstable.news](https://burstable.news/news/agereverse-announces-us-expansion-as-consumer-interest-in-longevity-and-healthspan-grows)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/no-agenda-show-episode-1877-dissects-iran-deal-spacex-ipo-and-ai/202633560)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/agereverse-kundigt-expansion-in-die-usa-an-da-das-verbraucherinteresse-an-langlebigkeit-und-gesundheitsspanne-wachst)
 
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/c1c6c5292483fc80ae8ec9c6d1fe5b7c)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/agereverse-anuncia-su-expansion-en-ee-uu-ante-el-creciente-interes-del-consumidor-por-la-longevidad-y-la-salud)
 
-Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/c1c6c5292483fc80ae8ec9c6d1fe5b7c)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/agereverse-annonce-son-expansion-aux-etats-unis-alors-que-linteret-des-consommateurs-pour-la-longevite-et-la-sante-augmente)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/agereverse-anuncia-expansao-nos-eua-a-medida-que-cresce-o-interesse-dos-consumidores-por-longevidade-e-saude)
+
+Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/agereverse-expands-to-us-market-with-longevity-supplement-resurge)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/agereverse-expands-to-us-with-longevity-supplement-resurge-as-consumer-interest-in-healthspan-grows)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/agereverse-expands-to-us-market-as-consumer-interest-in-longevity-grows)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/agereverse-announces-us-expansion-with-flagship-longevity-supplement-resurge)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/15/nukenMJ7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/15/keepvzBz.webp)
