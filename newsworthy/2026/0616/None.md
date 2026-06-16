@@ -1,103 +1,46 @@
-# Santos Muscle Nutrition Launches on OneLavi.com as U.S. Expansion Begins
+# Monkee's Expands in Texas: Veteran-Owned Boutique Brings Contemporary Fashion to Hill Country
 
-Santos Muscle Nutrition, the Netherlands-based sports nutrition brand focused on muscle growth and athletic performance, announced that three of its core products are now available to U.S. consumers through OneLavi.com, marking the company's first major retail expansion into the United States.
+When Kelli Hull moved back to Texas after almost two decades in Washington, D.C., she ran into a problem familiar to a lot of Hill Country women: there was nowhere nearby to buy contemporary designer clothing. A blazer, a pair of shoes, a dress for an evening event - any of it meant a 45-minute drive into San Antonio to La Cantera or a specialty boutique like Julian Gold. So Hull did something about it. She opened Monkee's of Fair Oaks Ranch, a locally owned, veteran-owned women's boutique now serving the Fair Oaks Ranch and Boerne communities from the Lemon Creek Ranch development.
 
- The launch represents an important milestone in Santos Muscle Nutrition's broader U.S. growth strategy, with additional expansion planned through Amazon and Walmart.com in the coming months.
+ "It was really apparent to me that we had a fairly substantive gap in the market," Hull said. "If you wanted to wear contemporary designers, there was nowhere to get it in this area. I kept hearing from other women that they had the same frustrations. So I decided to finally pull the trigger on what had been a bucket-list career path for me."
 
- "We are excited to officially begin our U.S. journey with OneLavi," said Mike de Groot, Founder of Santos Muscle Nutrition. "This launch gives American consumers their first opportunity to experience Santos products while we continue preparing for broader distribution."
+ Coming home to Texas A native Texan who grew up all over the state and graduated from Texas A&M University, Hull left for Washington, D.C. after college and spent nearly 20 years in government contracting, advising private companies on doing business with the special operations and intelligence communities. She met her husband, Chris, an Army Reserve officer, in D.C. About a year ago the family moved home to Texas, built a house, and sent a child off to college - and Hull eventually traded the weekly commute back to D.C. for a life fully rooted in the Hill Country.
 
- Three Core Products Now Available The initial OneLavi launch features three products designed to support active lifestyles, training routines, and sports nutrition goals:
+ What is Monkee's? Monkee's is a North Carolina-based franchise of locally owned women's boutiques known for carrying big contemporary designer names in small, personal, neighborhood storefronts. Hull discovered her first Monkee's eight years ago in Raleigh, North Carolina, and was struck by how a boutique of that size could carry such well-known brands.
 
- Santos Muscle Nutrition® Cookies & Cream Whey Protein - 900g A premium whey protein formula featuring a smooth Cookies & Cream flavor and easy-mixing profile.
+ The answer, she learned, is collective buying power. "Because we're a franchise, the buying power the franchisees have together is significant," Hull said. "Someone like me - my store wasn't even open yet - could walk into a major showroom in New York and buy for the season ahead. Without that, none of this would be possible."
 
- Key features include:
+ Monkee's of Fair Oaks Ranch is store #8 in Texas and roughly #67 across the country - placing Hull early in a growing national brand. At a little over 1,200 square feet, the boutique reflects the franchise's signature small footprint and curated, personal approach, carrying contemporary designers across a wide range of price points so customers can shop from day to night without leaving the Hill Country.
 
- * Premium whey protein formula
-* Rich Cookies & Cream flavor
-* Mixes easily into shakes and smoothies
-* Designed for convenient daily use
+ A different kind of shopping experience For Hull, the store is about more than clothes. Having navigated her own seasons of not knowing what to wear - including after having children - she wants every customer to leave feeling confident.
 
- View details on OneLavi.
+ "A lot of women just need someone to say, 'You're beautiful, that looks good on you - but I think we can do even better,'" Hull said. "When you look good, you feel good, and that projects out. It's my solemn vow that I'll never let anyone leave Monkee's of Fair Oaks Ranch in something that doesn't look phenomenal on them."
 
- Santos Muscle Nutrition Pre-Workout - Bubblegum Flavor A pre-workout formula developed for active individuals seeking support for energy, focus, and workout performance.
+ As a veteran-owned and operated business in the San Antonio area - Military City USA - Monkee's of Fair Oaks Ranch also plans to support the military community, with more details to come.
 
- Key features include:
+ Where to find Monkee's of Fair Oaks Ranch Monkee's of Fair Oaks Ranch is located in the Lemon Creek Ranch development near Fair Oaks Ranch and Boerne. Customers can follow along on Instagram at @monkeesoffairoaks for the latest brands, arrivals, and event news, with additional updates on Facebook and TikTok. The store's website, monkeesoffairoaks.com, offers store information, with online shopping planned to launch in 2027.
 
- * Supports workout energy
-* Promotes focus and drive during training
-* Designed to support workout consistency
-* Refreshing Bubblegum flavor
+ About Monkee's of Fair Oaks Ranch
 
- View details on OneLavi.
+ Monkee's of Fair Oaks Ranch is a locally owned, veteran-owned women's contemporary boutique serving the Fair Oaks Ranch and Boerne communities from the Lemon Creek Ranch development in Bexar County, Texas. Part of the North Carolina-based Monkee's franchise, the boutique brings nationally recognized contemporary designers and an elevated, personal shopping experience to the Texas Hill Country. Learn more at monkeesoffairoaks.com or follow @monkeesoffairoaks on Instagram.
 
- Santos Muscle Nutrition Creatine Monohydrate A straightforward creatine monohydrate formula designed for athletes and fitness enthusiasts.
-
- Key features include:
-
- * Pure creatine monohydrate
-* Easy-mixing formula
-* Convenient daily use
-* Designed to complement active lifestyles
-
- View details on OneLavi.
-
- Building a Foundation in the United States The launch on OneLavi.com provides Santos Muscle Nutrition with an initial platform to introduce its products and brand philosophy to U.S. consumers.
-
- As interest in sports nutrition, fitness, and active living continues to grow, the company sees significant opportunity to expand its presence in one of the world's largest supplement markets.
-
- "Our goal is to build Santos the right way in the United States," de Groot added. "OneLavi is an important first step as we work toward broader availability through additional major e-commerce platforms."
-
- Available Now on OneLavi.com U.S. consumers can now purchase Santos Muscle Nutrition products through OneLavi.com, including:
-
- * Santos Muscle Nutrition® Cookies & Cream Whey Protein - 900g
-* Santos Muscle Nutrition Pre-Workout - Bubblegum Flavor
-* Santos Muscle Nutrition Creatine Monohydrate
-
- Additional product launches and retail expansion announcements are expected in the coming months.
-
- About Santos Muscle Nutrition
-
- Santos Muscle Nutrition is a Netherlands-based sports nutrition company focused on developing supplements intended to support structured fitness routines, muscle development, and consistent training habits. The company offers a growing range of products and plans continuous expansion based on consumer interest and performance trends.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ Media Contact Kelli Hull(830) 368-4036Email Contact 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606162542/santos-muscle-nutrition-launches-on-onelavicom-as-us-expansion-begins)
+[Original/Source Press Release](https://newsworthy.ai/news/202606162544/monkees-expands-in-texas-veteran-owned-boutique-brings-contemporary-fashion-to-hill-country)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/santos-muscle-nutrition-enters-us-market-via-onelavi/59d8494028b6775b031daafa62afdcc8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monkee-s-of-fair-oaks-ranch-fills-hill-country-fashion-gap/9f58f92ecabfef005749e7e521bd1f23) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/santos-muscle-nutrition-enters-us-market-via-onelavicom)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/9f58f92ecabfef005749e7e521bd1f23)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/santos-muscle-nutrition-expands-to-us-via-onelavicom-plans-broader-e-commerce-push)
-
-Pickup - [https://burstable.news](https://burstable.news/news/santos-muscle-nutrition-makes-us-debut-on-onelavicom)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/santos-muscle-nutrition-feiert-us-debut-auf-onelavicom)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/santos-muscle-nutrition-debuta-en-estados-unidos-en-onelavicom)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/santos-muscle-nutrition-fait-ses-debuts-aux-etats-unis-sur-onelavicom)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/santos-muscle-nutrition-estreia-nos-eua-na-onelavicom)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/santos-muscle-nutrition-expands-to-us-market-via-onelavicom-launch)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/santos-muscle-nutrition-launches-three-core-products-in-the-us-via-onelavicom)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/santos-muscle-nutrition-expands-to-us-market-via-onelavicom)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/santos-muscle-nutrition-expands-to-us-market-via-onelavicom)
-
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/santos-muscle-nutrition-launches-first-us-products-on-onelavicom-eyes-amazon-and-walmart-expansion)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/santos-muscle-nutrition-enters-us-market-via-onelavicom-launch/202633615)
+Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/9f58f92ecabfef005749e7e521bd1f23)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/16/yawnkDaw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/16/jadeL1So.webp)

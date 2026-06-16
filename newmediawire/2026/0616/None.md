@@ -1,48 +1,96 @@
-# CHARBONE Announces the Addition of 22 New Helium Customers in Quebec and Continues the Expansion of Its Industrial Gas Platform
+# One World Products, Inc. Provides Update on SEC Reporting Process, Manufacturing Operations, and Ongoing Activities
 
-VARENNES, QUEBEC - June 16, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a vertically integrated industrial gases company focused on production, distribution and storage of clean ultra-high purity (“UHP”) hydrogen and other strategic industrial gases, is pleased to announce the addition of twenty-two (22) new helium customers across Quebec in recent months.
+TROY, MI - June 16, 2026 (NEWMEDIAWIRE) - One World Products, Inc. (OTCQB: OWPC) (www.oneworldproducts.com) (the “Company”), which will operate under the new name Isiah Enterprises, Inc. upon completion of the planned name change and FINRA approval, an advanced materials company focused on sustainable automotive and industrial compounds, today provided an update regarding its SEC reporting process, manufacturing operations, and ongoing commercialization activities.
 
- These new customers come from various industrial sectors, including advanced manufacturing, welding and metal processing, laboratories, specialized technical services, and other industrial applications requiring a reliable supply of helium.
+ The Company continues to work closely with its independent registered public accounting firm to complete the remaining audit and review procedures associated with its SEC reporting obligations. Management believes the remaining items primarily consist of documentation requests, information reconciliation, and standard audit review procedures.
 
- This commercial growth demonstrates CHARBONE's ability to meet the needs of the Quebec market while continuing the development of its Helium division, launched in 2025. The Company continues to expand its presence in the Canadian industrial gas market through a strategy focused on security of supply, close customer relationships, and operational excellence.
+ The Company has completed the acquisition and integration of manufacturing operations in Midland, Michigan, and has developed the EcoBlend™ family of compounds.
 
- “The arrival of 22 new clients represents an important step in the development of our Helium division and confirms the relevance of our diversification strategy,” said Dave Gagnon, Chairman & Chief Executive Officer of CHARBONE. “We are seeing growing demand for a reliable and agile alternative in the industrial gases sector. This growth demonstrates our ability to progressively build a North American industrial gases platform that perfectly complements our UHP hydrogen business.”
+ The Company’s Midland, Michigan operation includes production, compounding, pelletizing, and laboratory capabilities supporting the development and manufacture of sustainable material solutions for automotive and industrial applications.
 
- The Company is actively pursuing the development of its customer portfolio in Quebec, Ontario, the Atlantic provinces, and the United States, while expanding its product offering to include hydrogen, helium, oxygen, nitrogen, argon, and other UHP specialty industrial gases.
+ The Company’s EcoBlend™ platform currently includes:
 
- “Our vision is clear: to make CHARBONE a leading North American player in industrial gases and ultra-high-purity gases for the strategic sectors of tomorrow," added Dave Gagnon. “Each new customer increases our recurring revenue, our market presence, and the long-term value of our platform.”
+ • EcoBlend™ 1130 – Polycarbonate/Acrylonitrile Butadiene Styrene (PC/ABS)
 
- About CHARBONE CORPORATION
+ • EcoBlend™ 1140 – Thermoplastic Olefin (TPO)
 
- CHARBONE is a vertically integrated industrial gases company focused on developing and operating a network of supply hubs for the production, storage, and distribution of Ultra-High Purity (UHP) strategic industrial gases. The Company serves customers across sectors including semiconductors, artificial intelligence and data centers, advanced pharmaceuticals, and aerospace and defense technologies, where UHP gases are critical for high-precision manufacturing processes and operational performance. CHARBONE is advancing a network of clean UHP hydrogen production facilities across North America and selected international markets. The Company’s modular, decentralized, and demand-driven approach, combined with its integrated storage and distribution platform for all UHP gases, supports scalable growth, enhances operational flexibility, and enables more stable and diversified revenue generation. This model allows CHARBONE to efficiently serve mid-tier industrial gas customers with a reliable supply of UHP gases, including hydrogen, helium, oxygen, and any others that are in high-demand gases that are often difficult to source. The Company is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gases, while addressing supply gaps for underserved industrial customers and accelerating the shift towards localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47).
+ • EcoBlend™ 1150 Series – Polypropylene-based compounds, including talc-filled and fiberglass-filled formulations
 
- For more information, please visit: www.charbone.com.
+ The Company is supporting customer qualification activities involving EcoBlend™ formulations for automotive interior, exterior, and structural applications.
 
- For Further Information Contact Charbone Corporation
+ “Our team has focused on completing our SEC reporting requirements while integrating the Midland manufacturing operations and advancing the EcoBlend™ platform,” said Isiah Thomas, Chairman and Chief Executive Officer of One World Products, Inc. Mr. Thomas continued, “We believe the foundation established over the past year positions the Company to support customer commercialization efforts, expand manufacturing utilization, and pursue long-term growth opportunities within the automotive and industrial sectors.”
 
- Telephone: +1 450 678 7171Email: ir@charbone.comBenoit VeilleuxCFO and Corporate Secretary
+ Management remains focused on:
+
+ • Completing SEC reporting requirements
+
+ • Supporting ongoing customer qualification and commercialization programs
+
+ • Expanding automotive and industrial customer relationships
+
+ • Increasing utilization of the Midland manufacturing facility
+
+ • Strengthening the Company’s capital structure and operational capabilities
+
+ The Company will continue to provide updates through future SEC filings and public disclosures as material developments occur.
+
+ About One World Products, Inc.(to become Isiah Enterprises, Inc.)
+
+ One World Products, Inc. (OTCQB: OWPC), which will operate under the new name Isiah Enterprises, Inc. upon completion of the corporate name change and FINRA approval, is an advanced materials company focused on developing and manufacturing sustainable compounds and specialty material solutions for automotive and industrial applications. Through its EcoBlend™ platform and manufacturing operations in Midland, Michigan, the Company seeks to provide customers with high-performance materials incorporating recycled and sustainable content while maintaining required performance standards.
 
  Forward-Looking Statements
 
- This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Filing Statement dated March 31, 2022, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+ This press release contains “forward-looking statements” within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. These forward-looking statements are subject to the safe harbor provisions of the Private Securities Litigation Reform Act of 1995. Forward-looking statements may be identified by the use of words such as “expects,” “anticipates,” “intends,” “plans,” “believes,” “estimates,” “will,” “should,” “could,” “outlook,” “advance,” “expand,” “scale,” “convert,” “trial,” or similar expressions that predict or indicate future events or trends or that are not statements of historical matters. These forward-looking statements include, but are not limited to, statements regarding the Company’s expectations to advance EcoBlend trial programs and potential conversion activity, expand production capacity, complete its current audit, strengthen its operational and financial foundation, and scale manufacturing and commercial activities aligned with customer demand. Actual results could differ materially from those projected in any forward-looking statements due to a variety of risks, uncertainties and other factors.
 
- Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+ Such risks and uncertainties include, without limitation, those described under the heading “Risk Factors” and elsewhere in the Company’s most recent Annual Report on Form 10-K, Quarterly Reports on Form 10-Q, and other documents filed with the U.S. Securities and Exchange Commission (the “SEC”), as well as risks related to: the Company’s ability to successfully convert OEM programs and complete material trials and validations; the timing and outcome of customer evaluations and supplier negotiations (including with Stellantis and Tier 1 suppliers); the availability of sufficient working capital and financing on acceptable terms; execution risks associated with scaling manufacturing at the Eco Bio Plastics facility; regulatory and audit completion risks; supply chain and raw material cost volatility; competition in the sustainable materials sector; and general economic, market, and industry conditions.
 
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ Readers are cautioned not to place undue reliance on these forward-looking statements, which speak only as of the date of this press release. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required by applicable law.
+
+ Contact:
+
+ Brittany Carlsen LovePh: 1-800-605-3210E: bcarlsen@owpv.comOne World Products, Inc. (to become Isiah Enterprises, Inc.)www.oneworldproducts.com
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/charbone-announces-the-addition-of-22-new-helium-customers-in-quebec-and-continues-the-expansion-of-its-industrial-gas-platform-7087163)
+[Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-inc-provides-update-on-sec-reporting-process-manufacturing-operations-and-ongoing-activities-7087165)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-adds-22-new-helium-customers-expands-industrial-gas-platform-in-quebec/0d511c52f8a849d51af137986b164199) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-world-products-provides-update-on-sec-reporting-and-ecoblendtm-progress/fc5d208108ca46a9558fc786ef22fb8f) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2066868544826958140)
+
+Pickup - [https://advos.io/en](https://advos.io/en/one-world-products-updates-on-sec-reporting-manufacturing-operations-and-ecoblend-commercialization)
+
+Pickup - [https://burstable.news](https://burstable.news/news/one-world-products-provides-update-on-sec-reporting-manufacturing-operations-and-ecoblend-platform)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/one-world-products-gibt-update-zu-sec-berichterstattung-fertigungsbetrieb-und-ecoblend-plattform)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/one-world-products-proporciona-actualizacion-sobre-informes-sec-operaciones-de-fabricacion-y-plataforma-ecoblend)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/one-world-products-fait-le-point-sur-les-rapports-sec-les-operations-de-fabrication-et-la-plateforme-ecoblend)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/one-world-products-fornece-atualizacao-sobre-relatorios-a-sec-operacoes-de-fabricacao-e-plataforma-ecoblend)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/one-world-products-provides-update-on-sec-reporting-and-ecoblend-manufacturing-progress)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/fc5d208108ca46a9558fc786ef22fb8f)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/one-world-products-provides-update-on-sec-filings-manufacturing-progress-and-ecoblend-commercialization)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/one-world-products-provides-update-on-transition-to-advanced-materials-company)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/one-world-products-provides-update-on-sec-reporting-manufacturing-progress-and-ecoblend-commercialization)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/one-world-products-provides-update-on-sec-reporting-manufacturin/202633619)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/16/silkYtBw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/16/icon7K44.webp)
