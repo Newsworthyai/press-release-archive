@@ -1,66 +1,44 @@
-# AINewsBreaks – Nocera, Inc. (NASDAQ: NCRA) Acquires Stake in AI Analytics Company CampaignPulse.ai
+# TrillionDollarBreaks – Space Exploration Technologies Corp. (NASDAQ: SPCX) (SpaceX) Surpasses Amazon in Market Value as Post-IPO Rally Accelerates
 
-Nocera (NASDAQ: NCRA) announced the acquisition of a minority equity stake in CampaignPulse.ai, an emerging artificial intelligence company developing simulation-driven campaign intelligence, predictive analytics and decision-support technologies. The investment expands Nocera’s technology-focused portfolio as the company continues its transition to Nocera Holdings, targeting opportunities across artificial intelligence, digital infrastructure, robotics, biotech and digital assets.
+SpaceX (NASDAQ: SPCX) briefly surpassed Amazon.com in market capitalization on June 16 as investors continued piling into shares following the company’s record-setting initial public offering, according to a Reuters report. Reuters reported that shares of Elon Musk’s rocket, satellite and artificial intelligence company climbed as much as 10%, pushing its valuation above $2.7 trillion and, at one point, ahead of both Amazon and Microsoft among the world’s most valuable companies. The surge was fueled in part by the launch of options trading in SpaceX shares and growing investor enthusiasm surrounding the company’s expanding presence in space technology, communications and artificial intelligence.
 
- Nocera said CampaignPulse.ai is developing AI-powered tools designed to help organizations evaluate strategies, test messaging, analyze audience sentiment and improve decision-making before committing resources to real-world initiatives. The company said the investment aligns with its strategy of identifying innovative businesses operating in high-growth technology markets where artificial intelligence, automation and advanced analytics have the potential to improve efficiency and create long-term value.
+ Reuters noted that analysts expect additional buying pressure as SpaceX is positioned for inclusion in major equity indexes, including the Nasdaq-100, FTSE Russell and MSCI indexes later this month. The report was written by Echo Wang and Suzanne McGee. The stock’s rapid ascent follows last week’s historic IPO, which raised approximately $75 billion and valued the company at $1.77 trillion, the largest public offering on record.
 
- To view the full press release, visit https://ibn.fm/N6g56
+ As of 11:30 a.m. ET on June 16, 2026, SpaceX stock (NASDAQ: SPCX) was trading at approximately $211.63, up about 10%, with a market capitalization exceeding $2.7 trillion.
 
- About Nocera, Inc.
+ To view the full Reuters article by Echo Wang and Suzanne McGee, visit https://ibn.fm/zKmyi
 
- Nocera, Inc. (NASDAQ: NCRA) is a Nevada corporation pursuing a strategic transformation into a diversified holding company focused on identifying and expanding opportunities across high-growth sectors including artificial intelligence, AI infrastructure, data centers, robotics, biotech, blockchain and digital assets. The Company is focused on strategic acquisitions, partnerships, investments and operational platforms positioned to capitalize on emerging global technology trends.
+ About SpaceX
 
- Leveraging international relationships and market access across Asia and other emerging global markets, Nocera Holdings seeks to build long-term shareholder value through scalable businesses, infrastructure opportunities and next-generation technologies shaping the future digital economy.
+ SpaceX is a space technology, satellite communications and artificial intelligence company founded by Elon Musk. The company operates the Falcon launch vehicle family, the Starlink satellite internet network and a growing portfolio of AI initiatives. Following its historic public debut in 2026, SpaceX became one of the world’s largest publicly traded companies, with businesses spanning aerospace, communications, defense and advanced computing.
 
- The Company also continues to evaluate opportunities related to tokenization, blockchain infrastructure and digital asset strategies as part of its broader vision for technology-enabled growth.
+ About TrillionDollarClub
 
- For more information go to www.nocera.company
+ TrillionDollarClub (“TDC”) is a specialized communications platform with a focus on the biggest and brightest companies covered by IBN. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TDC is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TDC brings its clients unparalleled recognition and brand awareness.
 
- About AINewsWire
+ TDC is where breaking news, insightful content and actionable information converge.
 
- AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from TrillionDollarClub, text “Trillion” to 888-902-4192 (U.S. Mobile Phones Only)
 
- AINW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.TrillionDollarClub.net
 
- To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the TrillionDollarClub website applicable to all content provided by TDC, wherever published or re-published: https://www.TrillionDollarClub.net/Disclaimer
 
- For more information, please visit www.AINewsWire.com
+ TrillionDollarClubAustin, TXwww.TrillionDollarClub.net512.354.7000 OfficeEditor@TrillionDollarClub.net
 
- Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
-
- AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
-
- AINewsWire is powered by IBN 
+ TrillionDollarClub is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-nocera-inc-nasdaq-ncra-acquires-stake-in-ai-analytics-company-campaignpulse-ai/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tdc/trilliondollarbreaks-space-exploration-technologies-corp-nasdaq-spcx-spacex-surpasses-amazon-in-market-value-as-post-ipo-rally-accelerates/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nocera-invests-in-ai-company-campaignpulse-ai/93fe2635a62e656f55634e7997c17dcd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spacex-briefly-overtakes-amazon-in-market-cap-after-record-ipo/f282f1136b0aa87657ea379ef0e03c9f) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/nocera-acquires-stake-in-ai-analytics-firm-campaignpulseai)
-
-Pickup - [https://burstable.news](https://burstable.news/news/nocera-acquires-stake-in-ai-analytics-firm-campaignpulseai-as-part-of-broader-holding-company-transition)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/nocera-erwirbt-beteiligung-an-ki-analytikfirma-campaignpulseai-im-rahmen-der-breiteren-umstrukturierung-zur-holdinggesellschaft)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/nocera-adquiere-participacion-en-la-firma-de-analisis-de-ia-campaignpulseai-como-parte-de-una-transicion-mas-amplia-hacia-una-holding)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/nocera-acquiert-une-participation-dans-la-societe-danalyse-ia-campaignpulseai-dans-le-cadre-dune-transition-plus-large-vers-une-holding)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/nocera-adquire-participacao-em-empresa-de-ia-analytics-campaignpulseai-como-parte-de-transicao-para-holding)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/93fe2635a62e656f55634e7997c17dcd)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/nocera-acquires-stake-in-ai-startup-campaignpulseai-to-expand-technology-portfolio)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/93fe2635a62e656f55634e7997c17dcd)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/16/faceJcBx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/16/clubcO48.webp)
