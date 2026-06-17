@@ -1,54 +1,40 @@
-# One World Products, Inc. Provides Update on SEC Reporting Process, Manufacturing Operations, and Ongoing Activities
+# Annual General Meeting 2026: Sonova Shareholders Approve all Board of Directors' Motions
 
-TROY, MI - June 16, 2026 (NEWMEDIAWIRE) - One World Products, Inc. (OTCQB: OWPC) (www.oneworldproducts.com) (the “Company”), which will operate under the new name Isiah Enterprises, Inc. upon completion of the planned name change and FINRA approval, an advanced materials company focused on sustainable automotive and industrial compounds, today provided an update regarding its SEC reporting process, manufacturing operations, and ongoing commercialization activities.
+STAFA, SWITZERLAND - June 16, 2026 (NEWMEDIAWIRE) - Sonova Holding AG (SWX: SOON), the leading provider of innovative hearing care solutions, announces the results of its 41st Annual General Meeting (AGM), held today. The shareholders approved all motions submitted by the Board of Directors. 354 shareholders personally attended the AGM. In total, 67.84% of the share capital was represented.
 
- The Company continues to work closely with its independent registered public accounting firm to complete the remaining audit and review procedures associated with its SEC reporting obligations. Management believes the remaining items primarily consist of documentation requests, information reconciliation, and standard audit review procedures.
+The shareholders approved the Annual Report, the annual consolidated financial statements of the Group, the annual financial statements of Sonova Holding AG, and the report on non-financial matters for the 2025/26 financial year. They also approved the proposed appropriation of retained earnings and a gross dividend of CHF 4.70 per registered share, the highest in the company’s history and corresponding to a payout ratio of around 45%. Payment of the dividend is expected to take place from 23 June 2026. The shareholders formally approved the discharge of the members of the Board of Directors and the Group Executives for the 2025/26 financial year.
 
- The Company has completed the acquisition and integration of manufacturing operations in Midland, Michigan, and has developed the EcoBlend™ family of compounds.
+ The Compensation Report for the 2025/26 financial year was accepted by the shareholders in a non-binding advisory vote. In two separate binding votes, the shareholders approved the maximum aggregate amount of compensation of the Board of Directors covering the period from the AGM 2026 to the AGM2027 and the maximum aggregate amount of compensation for the Group Executives for the 2027/28 financial year.
 
- The Company’s Midland, Michigan operation includes production, compounding, pelletizing, and laboratory capabilities supporting the development and manufacture of sustainable material solutions for automotive and industrial applications.
+ All members of the Board of Directors standing for re-election and were confirmed individually for a further term of office. Ingrid Cotoros, Malina Man Lin Ngai and Hooi Ling Tan were newly elected as independent members of the Board of Directors. Roland Diggelmann (Chair), Gregory Behar and Julie Tay were re-elected to the Nomination & Compensation Committee. In addition, Malina Man Lin Ngai was newly elected as member of the Nomination & Compensation Committee.
 
- The Company’s EcoBlend™ platform currently includes:
+ Ernst & Young AG, Zurich, was re-elected as auditor for a period of one year and the Anwaltskanzlei Keller AG, Zurich, was re-elected as the independent proxy.
 
- • EcoBlend™ 1130 – Polycarbonate/Acrylonitrile Butadiene Styrene (PC/ABS)
+ The next AGM will be held on 15 June 2027.
 
- • EcoBlend™ 1140 – Thermoplastic Olefin (TPO)
+ The minutes of the 2026 AGM (in German), including detailed voting results, will be available shortly on the Sonova website: https://www.sonova.com/en/AGM.
 
- • EcoBlend™ 1150 Series – Polypropylene-based compounds, including talc-filled and fiberglass-filled formulations
+ Contacts:
 
- The Company is supporting customer qualification activities involving EcoBlend™ formulations for automotive interior, exterior, and structural applications.
+ Investor RelationsPeter Dickson+41 58 928 28 20Thomas Bernhardsgrutter +41 58 928 33 44ir@sonova.com
 
- “Our team has focused on completing our SEC reporting requirements while integrating the Midland manufacturing operations and advancing the EcoBlend™ platform,” said Isiah Thomas, Chairman and Chief Executive Officer of One World Products, Inc. Mr. Thomas continued, “We believe the foundation established over the past year positions the Company to support customer commercialization efforts, expand manufacturing utilization, and pursue long-term growth opportunities within the automotive and industrial sectors.”
+ Media RelationsKatarina Singer+41 58 928 28 13mediarelations@sonova.com
 
- Management remains focused on:
+ About Sonova
 
- • Completing SEC reporting requirements
+ Sonova is the global leader in innovative hearing care solutions, combining technology leadership, audiological expertise and a strong local presence to serve a growing number of people with hearing loss in more than 100 countries. The Group was founded in 1947 and is headquartered in Stafa, Switzerland. As a vertically integrated company across its wholesale, retail and cochlear implants businesses, Sonova operates through the brands Phonak, Unitron, AudioNova and Advanced Bionics as well as recognized regional brands.
 
- • Supporting ongoing customer qualification and commercialization programs
+ In the 2025/26 financial year, the Group generated sales of CHF 3.6 billion, with a net profit of CHF 546 million. Over 18,000 employees are working on achieving Sonova’s vision of a world where everyone enjoys the delight of hearing.
 
- • Expanding automotive and industrial customer relationships
+ Sonova has a long-standing commitment to innovation and was ranked no. 12 among the most innovative companies in Europe in 2025 by Fortune magazine, selected from 300 companies across 21 countries and 16 industries.
 
- • Increasing utilization of the Midland manufacturing facility
+ For more information please visit www.sonova.com.
 
- • Strengthening the Company’s capital structure and operational capabilities
+ DisclaimerThis Media Release contains forward-looking statements, which offer no guarantee with regard to future performance. These statements are made on the basis of management’s views and assumptions regarding future events and business performance at the time the statements are made. They are subject to risks and uncertainties including, but not confined to, future global economic conditions, exchange rates, legal provisions, market conditions, activities by competitors and other factors outside Sonova’s control. Should one or more of these risks or un-certainties materialize or should underlying assumptions prove incorrect, actual outcomes may vary materially from those forecasted or expected. Each forward-looking statement speaks only as of the date of the particular statement, and Sonova undertakes no obligation to publicly update or revise any forward-looking statements, except as required by law.
 
- The Company will continue to provide updates through future SEC filings and public disclosures as material developments occur.
+ Sonova shares (ticker symbol: SOON, Security no: 1254978, ISIN: CH0012549785) have been listed on the SIX Swiss Exchange since 1994. The securities of Sonova have not been and will not be registered under the U.S. Securities Act of 1933, as amended (the “U.S. Securities Act”), or under the applicable securities laws of any state of the United States of America, and may not be offered or sold in the United States of America except pursuant to an exemption from the registration requirements under the U.S. Securities Act and in compliance with applicable state securities laws, or outside the United States of America to non-U.S. Persons in reliance on Regulation S under the U.S. Securities Act.
 
- About One World Products, Inc.(to become Isiah Enterprises, Inc.)
-
- One World Products, Inc. (OTCQB: OWPC), which will operate under the new name Isiah Enterprises, Inc. upon completion of the corporate name change and FINRA approval, is an advanced materials company focused on developing and manufacturing sustainable compounds and specialty material solutions for automotive and industrial applications. Through its EcoBlend™ platform and manufacturing operations in Midland, Michigan, the Company seeks to provide customers with high-performance materials incorporating recycled and sustainable content while maintaining required performance standards.
-
- Forward-Looking Statements
-
- This press release contains “forward-looking statements” within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. These forward-looking statements are subject to the safe harbor provisions of the Private Securities Litigation Reform Act of 1995. Forward-looking statements may be identified by the use of words such as “expects,” “anticipates,” “intends,” “plans,” “believes,” “estimates,” “will,” “should,” “could,” “outlook,” “advance,” “expand,” “scale,” “convert,” “trial,” or similar expressions that predict or indicate future events or trends or that are not statements of historical matters. These forward-looking statements include, but are not limited to, statements regarding the Company’s expectations to advance EcoBlend trial programs and potential conversion activity, expand production capacity, complete its current audit, strengthen its operational and financial foundation, and scale manufacturing and commercial activities aligned with customer demand. Actual results could differ materially from those projected in any forward-looking statements due to a variety of risks, uncertainties and other factors.
-
- Such risks and uncertainties include, without limitation, those described under the heading “Risk Factors” and elsewhere in the Company’s most recent Annual Report on Form 10-K, Quarterly Reports on Form 10-Q, and other documents filed with the U.S. Securities and Exchange Commission (the “SEC”), as well as risks related to: the Company’s ability to successfully convert OEM programs and complete material trials and validations; the timing and outcome of customer evaluations and supplier negotiations (including with Stellantis and Tier 1 suppliers); the availability of sufficient working capital and financing on acceptable terms; execution risks associated with scaling manufacturing at the Eco Bio Plastics facility; regulatory and audit completion risks; supply chain and raw material cost volatility; competition in the sustainable materials sector; and general economic, market, and industry conditions.
-
- Readers are cautioned not to place undue reliance on these forward-looking statements, which speak only as of the date of this press release. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required by applicable law.
-
- Contact:
-
- Brittany Carlsen LovePh: 1-800-605-3210E: bcarlsen@owpv.comOne World Products, Inc. (to become Isiah Enterprises, Inc.)www.oneworldproducts.com
+ 
 
  
 
@@ -56,41 +42,17 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-inc-provides-update-on-sec-reporting-process-manufacturing-operations-and-ongoing-activities-7087165)
+[Original/Source Press Release](https://www.newmediawire.com/news/annual-general-meeting-2026-sonova-shareholders-approve-all-board-of-directors-motions-7087179)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/one-world-products-provides-update-on-sec-reporting-and-ecoblendtm-progress/fc5d208108ca46a9558fc786ef22fb8f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sonova-shareholders-approve-record-dividend-at-41st-agm/75bc12d2c058e50c1d866ab60facd95c) 
 
 
-Pickup - [https://x.com](https://twitter.com/i/status/2066868544826958140)
-
-Pickup - [https://advos.io/en](https://advos.io/en/one-world-products-updates-on-sec-reporting-manufacturing-operations-and-ecoblend-commercialization)
-
-Pickup - [https://burstable.news](https://burstable.news/news/one-world-products-provides-update-on-sec-reporting-manufacturing-operations-and-ecoblend-platform)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/one-world-products-gibt-update-zu-sec-berichterstattung-fertigungsbetrieb-und-ecoblend-plattform)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/one-world-products-proporciona-actualizacion-sobre-informes-sec-operaciones-de-fabricacion-y-plataforma-ecoblend)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/one-world-products-fait-le-point-sur-les-rapports-sec-les-operations-de-fabrication-et-la-plateforme-ecoblend)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/one-world-products-fornece-atualizacao-sobre-relatorios-a-sec-operacoes-de-fabricacao-e-plataforma-ecoblend)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/one-world-products-provides-update-on-sec-reporting-and-ecoblend-manufacturing-progress)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/fc5d208108ca46a9558fc786ef22fb8f)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/one-world-products-provides-update-on-sec-filings-manufacturing-progress-and-ecoblend-commercialization)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/one-world-products-provides-update-on-transition-to-advanced-materials-company)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/one-world-products-provides-update-on-sec-reporting-manufacturing-progress-and-ecoblend-commercialization)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/one-world-products-provides-update-on-sec-reporting-manufacturin/202633619)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/75bc12d2c058e50c1d866ab60facd95c)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/16/icon7K44.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/16/idea9NhU.webp)
