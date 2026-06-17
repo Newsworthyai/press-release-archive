@@ -1,63 +1,78 @@
-# HKTDC Celebrates 60th Anniversary With Forum and Cocktail Reception
+# Smartphone Apps, Wearable Trackers Helped People With Heart Disease Boost Physical Activity
 
-Multiple Former Chairmen Gather to Discuss Hong Kong's future opportunities
+Research Highlights:
 
- HONG KONG - June 17, 2026 (NEWMEDIAWIRE) - The Hong Kong Trade Development Council (HKTDC) is celebrating its 60th anniversary this year with a series of commemorative events. Two key events – the Next 60 Forum and 60th Anniversary Cocktail Reception – were held today, attracting over 1,000 guests from the political and business sectors. HKTDC Chairman Prof Frederick Ma personally invited several former Chairmen, including Dr Victor Fung, Peter Woo, Jack So and Vincent Lo, to serve as forum guests, while he himself served as the moderator. Together, they reviewed how the HKTDC has developed and looked ahead to future opportunities. Secretary for Justice of the Hong Kong Special Administrative Region (HKSAR), Paul Lam, officiated at the reception and joined leaders from various sectors in witnessing this important milestone.
+ * A review of 14 clinical trials including more than 1,000 adults found that people with cardiovascular disease who used smartphone apps and fitness trackers walked nearly 1,100 more steps and engaged in about four extra minutes of moderate-to-vigorous physical activity per day compared to people not using digital technologies.
+* Digital, wearable devices and apps can support people with heart disease in their daily lives because they’re practical, scalable and typically low-cost, making it possible to reach more people, the researchers said.
+* Long-term studies are needed to confirm if higher levels of physical activity and healthy habits are sustainable over time.
 
- Prof Frederick Ma, Chairman of the HKTDC, said: "This forum brings together an accumulated 480 years of experience and wisdom of several former Chairmen. We will build on the past and pave the way for the future, charting a new development outlook for Hong Kong. Under 'One Country, Two Systems', Hong Kong is guided by national development and is globally responsive, providing a strong foundation for progress. The HKTDC will continue to assist enterprises going global, deepen international exchange, strengthen industry connections, and facilitate substantive cooperation."
+ DALLAS - June 17, 2026 (NEWMEDIAWIRE) - Smartphone apps, fitness trackers and wearable devices help people with heart disease get more physical activity in their daily lives, according to an analysis of previous research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
 
- The Next 60 Forum centred on the theme of "Retrospect and Prospect". Former Chairman Baroness Dunn kicked off the forum with a pre-recorded address. Participants reviewed Hong Kong's economic transformation from a manufacturing base into an international financial and trading hub, and explored how Hong Kong can continue to play its role as a superconnector and super value-adder in an evolving global landscape.
+ Physical activity is crucial for preventing additional cardiovascular events among people with cardiovascular disease, however, “many people with cardiovascular disease can’t participate in traditional cardiac rehabilitation programs because of time, distance or financial barriers,” said Ajith Vemuri, Ph.D., the study’s lead author and a staff scientist in neurology at Penn State Health Milton S. Hershey Medical Center in Hershey, Pennsylvania.
 
- The 60th Anniversary Cocktail Reception held in the evening of the same day was attended by Secretary for Justice of the HKSAR Paul Lam, Deputy Commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs of the People’s Republic of China in the HKSAR Li Yongsheng, Director-General of the Economic Affairs Department of the Liaison Office of the Central People's Government in the HKSAR Xu Weigang, President of the Legislative Council Starry Lee, and a number of HKSAR government officials, including Deputy Financial Secretary Michael Wong, Secretary for Culture, Sports and Tourism Rosanna Law, and Acting Secretary for Financial Services and the Treasury Joseph Chan. Also in attendance were former HKTDC Chairmen Victor Fung, Peter Woo, Jack So and Vincent Lo, former Executive Directors Fred Lam and Margaret Fong, current Executive Director Sophia Chong, as well as current and former Council Members.
+ “Smartphones and wearables are already in people’s pockets and on their wrists. When we show that these devices can effectively support routine care, we can start designing cost-effective, personalized digital interventions that reach a much wider population,” he said.
 
- Prof Ma said: "Right before this reception, I had a lively dialogue with the HKTDC’s former Chairmen who shared their vision for the Council and Hong Kong in the coming decades. Let me tell you: the future looks bright. In spite of global challenges, I firmly believe that Hong Kong remains a beacon of hope. The HKTDC has always evolved alongside Hong Kong, our growth mirroring our city’s progress. And just like Hong Kong, the HKTDC has remained resilient, which I know will see us through the next 60 years."
+ Digital devices can set personalized daily step goals, generate reminders or motivational messages, give feedback on progress or link home-based rehabilitation programs to health care professionals to help guide and monitor treatment. Some of the applications also included gamification (such as quizzes or rewards), coaching and goal review, allowing people to track their progress and adjust their activity goals.
 
- Secretary for Justice of the HKSAR Paul Lam said in his address at the Reception: "For 60 years, the Government’s policy priorities coupled the steadfast support combined with the TDC’s global network and on-the-ground expertise. Together, we have advanced Hong Kong’s trade and economic development. And together, we are building Hong Kong’s flourishing future. In Chinese culture, 60 years represents the completion of a full cycle – it does not mark an end, but a beginning of new cycle. It reminds us that after six decades of growth, wisdom and achievements, the time has come to welcome a new, and even more successful chapter."
+ “These devices are not just gadgets,” added Ramin Zand, M.D., M.P.H., the study’s senior author and a professor of neurology and public health at Penn State College of Medicine in Hershey, Pennsylvania. “When included in a treatment plan, they can support routine care and help patients take small yet important steps toward better cardiovascular health.”
 
- Looking ahead, the HKTDC will seize opportunities arising from the country's 15th Five-Year Plan, support the Government's initiatives, and assist mainland enterprises in expanding overseas. It will also provide more comprehensive support tailored to the evolving needs of five major industry clusters, namely: Finance and Professional Services; Global Network and Supply Chain; Technology and Digital Innovation; Wellness and Creative Industries; and Consumer Goods and Lifestyle.
+ In this meta-analysis, researchers reviewed 14 clinical trials including more than 1,000 participants.
 
- Photo download: https://bit.ly/4otc10K
+ What are the key findings of this analysis?
 
- Websites
+ The analysis found that compared to peers who did not use digital tools, people using smartphone apps or wearable technologies:
 
- HKTDC’s 60th Anniversary Exhibition Zone: https://bit.ly/4ovwn9G
+ * walked nearly 1,100 more steps daily, and
+* engaged in about 4 more minutes of moderate-to-vigorous movement per day.
 
- HKTDC’s 60th Anniversary Celebration Activities: https://60.hktdc.com/en
+ “We noticed that these benefits occurred even though the tools varied and used simple behavior-change methods, such as self-monitoring, feedback and goal setting,” said Zand. “These tools did not significantly improve peak oxygen consumption or walking distance. This means that while digital programs can motivate patients to be more active, longer studies are needed to see if these changes lead to lasting improvement in fitness and overall health outcomes.”
 
- HKTDC Media Room: https://mediaroom.hktdc.com/en
+ An April 2021 American Heart Association scientific statement, Harnessing Mobile Health Technology for Secondary Cardiovascular Disease Prevention in Older Adults, noted that mobile health technology can encourage lifestyle behavior changes and medication adherence among adults with existing heart disease and those who are 60 years and older.
 
- Media enquiries
+ “Research has shown that fewer than one-third of people with cardiovascular disease are physically active,” said Damon L. Swift, Ph.D., FAHA, the immediate past-chair of the American Heart Association’s Lifestyle Physical Activity Committee and an associate professor of kinesiology at the University of Virginia in Charlottesville. “Combining mobile and wearable technologies with standard preventive measures provides a unique opportunity to potentially further reduce the risk of advanced cardiovascular disease or a second or third CVD event. There is a health benefit from going from inactive to somewhat active and there is reduced risk of death for even getting up to about 7,000 steps per day. Therefore, wearable technology may have a positive impact on cardiovascular disease by encouraging people to be a little more active.”
 
- HKTDC’s Communications & Public Affairs Department:
+ What are the study’s details, background, design and limitations?
 
- Stanley So
+ * Three electronic databases (PubMed, the Cochrane Central Register of Controlled Trials and Web of Science) were reviewed to identify relevant studies published between January 2000 and February 2025. The studies examined were focused on devices and apps promoting physical activity using wearable technology.
+* The analysis included 1,057 participants across 14 trials. Participants in 13 of the trials were adults 18 years or older, while one study’s participants included adolescents ages 12 and older. All participants reviewed for this analysis had diagnosed cardiovascular disease, such as coronary heart disease, heart failure or history of heart attack or stroke.
+* Limitations of the analysis include the lack of a clear picture about sustainability of healthy habits . Also, most people in the trials had coronary heart disease, which means the results may not apply to all cardiovascular conditions.
 
-Tel: (852) 2584 4049
+ Co-authors, disclosures and funding sources are listed in the manuscript.
 
-Email: stanley.hp.so@hktdc.org
+ Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
 
- Navin Law
+ Additional Resources:
 
-Tel: (852) 2584 4525
+ * Multimedia is available on the right column of release link.
+* Spanish news release
+* After June 17, 2026, view the manuscript online.
+* American Heart Association health information: What’s the Link Between Physical Activity and Health?
+* American Heart Association news release: Equitable access to digital technologies may help improve cardiovascular health (April 2025)
+* American Heart Association news release: Study finds people who need wearable health devices the most use them the least (Oct. 2022)
+* American Heart Association news release: Screen time for older adults: Mobile health tech can support seniors with heart disease (April 2021)
+* Follow American Heart Association/American Stroke Association news on X @HeartNews
+* Follow news from the Journal of the American Heart Association @JAHA_AHA
 
-Email: navin.cm.law@hktdc.org
+ About the American Heart Association
 
- Winnie Kan
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
-Tel: (852) 2584 4055
+ For Media Inquiries and AHA/ASA Expert Perspective: 214-706-1173
 
-Email: winnie.wy.kan@hktdc.org
+ Bridgette McNeill: bridgette.mcneill@heart.org
 
- About HKTDC
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. 
+ heart.org and stroke.org
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-celebrates-60th-anniversary-with-forum-and-cocktail-reception-7087180)
+[Original/Source Press Release](https://www.newmediawire.com/news/smartphone-apps-wearable-trackers-helped-people-with-heart-disease-boost-physical-activity-7087182)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hktdc-60th-former-chairmen-chart-hong-kong-s-next-chapter/29f34e676f39e3be186213514cdd8382) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smartphone-apps-help-heart-patients-walk-more/1258320018985b5218de0529eca93e16) 
 
  
 
@@ -65,4 +80,4 @@ Email: winnie.wy.kan@hktdc.org
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/17/plumd5TX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/17/hushfRXe.webp)
