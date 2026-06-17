@@ -1,0 +1,26 @@
+# VinDynamics and Skild AI form strategic partnership to advance humanoid ROBOTICS
+
+SAN MATEO/HANOI - [Media OutReach Newswire](https://www.media-outreach.com) - 8 June 2026 - VinDynamics, a robotics technology company within Vingroup, and Skild AI, a company developing foundation models for robotics, today announced the signing of a strategic Memorandum of Understanding (MOU) to collaborate on humanoid robotics and embodied AI. The move marks another step in VinDynamics' strategy to accelerate humanoid robotics development through global collaboration and advanced technology partnerships.    Under the MOU, the collaboration will focus on embodied AI research, robot manipulation, sim-to-real transfer, edge AI deployment, and validation of humanoid systems in real-world environments. Both companies will also explore opportunities to integrate The Skild Brain, Skild AI's omnibodied AI software, into VinDynamics' humanoid robots. The Skild Brain runs directly on robotic hardware and enhances the adaptability, efficiency, and reliability of humanoid systems in practical applications.   Additional areas under discussion may include knowledge exchange related to robot intelligence and real-world deployment, as well as potential cooperation in software, model, and hardware development, alongside the potential manufacturing of humanoid robots at scale.   The partnership brings together VinDynamics' robotics engineering, manufacturing capabilities, and real-world deployment ecosystem with Skild AI's foundation model technology. Together, the companies aim to accelerate the development and deployment of humanoid robots capable of operating in complex and dynamic environments, while supporting growing demand for intelligent robotic systems across industries including manufacturing, logistics, hospitality, and commercial services.   Prof. La Manh Hung, President, VinDynamics, said: "This partnership represents an important step for VinDynamics as we continue building scalable humanoid robotics platforms for real-world deployment. Skild AI brings the most exciting advances in embodied AI today. Combined with our robotics platform and manufacturing capabilities, we believe this partnership can accelerate the deployment of humanoid robots in complex environments."   Mr. Deepak Pathak, Co-Founder and CEO of Skild AI, said: "The future of robotics depends on combining scalable physical systems with adaptable, general-purpose intelligence. VinDynamics brings strong engineering capabilities, manufacturing scale, and access to real-world deployment environments through the Vingroup ecosystem. We are excited to work together to advance embodied AI for practical applications."   Established in September 2025, VinDynamics is a pioneering company in the field of humanoid robotics within Vingroup. The company is dedicated to developing versatile, human-centric robots capable of seamless integration into everyday life, with the scalability to support global deployment.  Hashtag: #VinDynamics The issuer is solely responsible for the content of this announcement.
+
+About VinDynamicsVinDynamics is a technology company under Vingroup, dedicated to the research, development, and manufacturing of advanced robotics and automation solutions, particularly in the field of humanoid robots. Leveraging cutting-edge technologies such as artificial intelligence, mechatronics, and motion control, VinDynamics aims to deliver intelligent, safe, and cost-effective robotic products that enhance productivity and improve quality of life.   Learn more at: https://vindynamics.net/en
+
+About Skild AIFounded in 2023, Skild AI builds a general-purpose foundation model for robotics. Backed by SoftBank Group, NVIDIA Ventures, Jeff Bezos, Lightspeed, Coatue, Sequoia Capital, Felicis, and others, the company is valued at over $14 billion. Offices in Pittsburgh, the San Francisco Bay Area, and Bengaluru.   Learn more at: https://www.skild.ai/
+
+![](//track.media-outreach.com/index.php/WebView/469226/279561) 
+
+---
+
+[Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/06/08/469226/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vindynamics-and-skild-ai-partner-on-humanoid-robotics-and-embodied-ai/151ea0ded776c4b0c6368473638c9b87) 
+
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/vindynamics-and-skild-ai-form-strategic-partnership-to-advance-humanoid-robotics)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/17/sage9HUh.webp)
