@@ -1,50 +1,48 @@
-# So You Want to Buy a Horse Farm in Ocala? Here’s What Nobody Tells You First.
+# Three Generations, One Property: The Buyers Reshaping Rural Real Estate
 
-Ocala has been the horse capital of the world for decades. The title is well earned. The region is home to professional breeding operations, elite training facilities, and some of the most productive equestrian land in the country. But the reputation can mislead. Every year, buyers arrive in Marion County with a dream of horse property ownership and a set of assumptions that do not survive contact with the reality of what owning and operating that land actually requires.
+Something shifted in the market for significant rural properties around three years ago. It was not the volume of inquiries, though that had already climbed sharply during the pandemic years. It was the composition of the buyer.
 
- Donna Knox has been helping people navigate that gap since 2003. A Realtor with RE/MAX Foxfire and one of the brokerage’s top producers, Knox grew up around standardbred racehorses, spent her formative years at the track, and brought that hands-on foundation directly into her real estate practice. In over two decades of working in the Ocala market, she has handled everything from mobile homes to working equestrian farms, and the through-line across all of it is the same: understanding what a buyer actually needs versus what they think they want.
+ Where earlier waves of out-of-market interest had been dominated by couples and young families seeking weekend retreats, a new pattern was emerging: multi-generational groups arriving together – sometimes three generations represented in a single showing – evaluating a property not as a retreat but as a long-term family compound.
 
- “My job is helping buyers understand not just what it looks like on paper, but what actually works for them and their goals,” she says.
+ Elyse Harney Morris has had a front-row seat to this shift. As principal broker at Elyse Harney Real Estate, an independent firm that has operated across Connecticut, New York, and Massachusetts since 1987, she works with buyers pursuing significant country properties in the Litchfield Hills, Hudson Valley, and Southern Berkshires.
 
- For anyone seriously considering equestrian property in Central Florida, Knox’s perspective is worth sitting with before a single listing is toured.
+ “What we started seeing, especially in the last three years, is families coming to a showing with grandparents, adult children, and grandchildren,” she says. “They are not buying a weekend house. They are buying something they intend to build a life around.”
 
- The Difference Between a Hobby Farm and a Working Operation It sounds like a simple distinction, but in practice it catches buyers off guard more often than almost anything else in this market. A hobby farm is built for lifestyle. A few horses, manageable acreage, a comfortable home nearby, a small barn. The priorities are personal enjoyment and ease of daily care. The scale is human-sized.
+ This is not a minor variation in buyer psychology. It changes what properties need to offer, how they need to be shown, and what questions agents must be prepared to answer. It also reflects something broader happening in American life: a recalibration of what family proximity looks like, and what it is worth.
 
- A working equestrian facility is a business operation, and it needs to function like one. That means proper barn infrastructure, multiple paddocks, durable and appropriate fencing, trailer and equipment access, staff or guest accommodations, feed and hay storage, a riding arena, drainage systems, and zoning that supports the intended use.
+ What Is Driving Multi-Generational Property Purchases The pandemic forced a re-examination of assumptions that had held for decades, among them the assumption that a geographically dispersed family was a normal and acceptable condition. When disruptions closed schools, cut access to medical care, and made cities feel suddenly precarious, the value of having family close became very concrete very quickly.
 
- “Many buyers don’t realize the difference until they’re deep into the process,” Knox says. The expectation mismatch tends to surface around the time they are trying to figure out where the horse trailer parks, how water flows across the property after a Florida rainstorm, or whether the zoning allows the animals they actually plan to bring.
+ Three years on, that recalibration has not fully reversed. What has changed is the sophistication with which families are acting on it. Rather than purchasing individual properties that happen to be near each other, more families are approaching the question architecturally: a main house that can accommodate extended gatherings, a guest structure for overflow, and land enough that a second dwelling could be added if needed.
 
- And she is careful to note that the complexity does not stop at horses. Some properties are zoned for horses only, which rules out cattle and other livestock. Buyers planning a mixed agricultural operation need to know that before they fall in love with a particular parcel.
+ The geographic markets attracting this buyer are specific. They tend to be within two to three hours of a major city – think New York or Boston – offering genuine four-season character, established school and cultural infrastructure, and enough land to support productive or recreational use. In the Northeast, markets like the Litchfield Hills, the Hudson Valley, and the Southern Berkshires fit squarely in that profile.
 
- What Knox Checks Before Anything Else When she is working with a buyer on equestrian or farm property, Knox has a specific set of questions she moves through before recommending a single showing. The size and layout of the barn matters, but so does the size of the house, because these priorities vary considerably between buyers. Some will put every dollar into the agricultural infrastructure and are happy with a modest home. Others need both.
+ What These Buyers Are Actually Evaluating A multi-generational showing is a fundamentally different event from a conventional property showing. The participants often have divergent priorities, and a skilled agent has to be present to all of them simultaneously – which is precisely why this kind of work demands a team approach rather than a single agent trying to be in two places at once.
 
- From there, the conversation turns to animals: how many, what kind, and what purpose. Then zoning. Then the land itself.
+ The grandparents may be asking about single-floor accessibility, proximity to medical facilities, and whether a property has the kind of cultivated garden that justifies the care it requires. The adult children are evaluating the main house’s capacity, whether the kitchen will function for large family gatherings, and how the land separates from neighboring properties. The grandchildren represent a set of questions about swimming, trails, proximity to camps and ski areas, and whether there is room to build a garden of their own.
 
- Soil condition is a point Knox returns to with particular emphasis, and it reflects exactly the kind of knowledge that only comes from years of working in this market. Florida has a lot of wet areas, and certain soil compositions are not suitable for horses standing in pasture. Poor drainage and the wrong soil chemistry can lead to serious hoof problems over time.
+ The land itself, in a property of significant acreage, requires its own dedicated attention. On a recent showing of a 150-acre Hudson Valley property, understanding the full scope of the land – twelve miles of trails, river frontage, pond access, siting options for future structures – required time and deliberate walking that could not be compressed. A showing of that complexity took five and a half hours. That is not unusual for a property of that scale and a buyer group of that composition.
 
- “There’s some areas where the soil isn’t really good for the horse’s feet,” she explains. “If they’re pasture standing, you want to make sure that soil is good and it’s not going to rot their feet out.”
+ The buyer group at that showing had spent two years searching across all three states. “A comprehensive experience of the property and the land is essential,” Morris says. “Understanding the architecture, the siting, the flow of the home and how it connects to the landscape – the excitement a client feels in that moment is something they experience, not just observe. That emotion is what moves them forward.”
 
- She has guided buyers away from properties they were otherwise enthusiastic about because of this single factor. The land looked right. The price was good. But the soil told a different story.
+ One example of the kind of generational property that draws this buyer: 250 Long Pond Road in Great Barrington, Massachusetts, currently available through Elyse Harney Real Estate.
 
- Details That Show Up in the Showing, Not the Listing There is a category of farm property knowledge that does not appear anywhere in a listing description and can only be caught by someone who knows what to look for in person. Knox has sold farms that looked functional on paper but had serious operational flaws once you walked the land.
+ The Productive Land Dimension Multi-generational buyers in this category are increasingly interested in land that does something. Not in the sense of a working farm requiring full-time management, but in the sense of land that supports a different kind of life: beehives, a kitchen garden, a small orchard, chickens, fishing access, hiking trails, or a woodlot managed across seasons. River frontage and pond access have become particularly sought-after features – water on a property anchors outdoor life for every generation in the group.
 
- She recalls one property where the only gate opened directly into a front pasture, with the barn situated at the back. Every time someone opened the gate, the horses at the front had a clear path out. The design was not just inconvenient; it was a containment problem waiting to happen.
+ This interest is not simply lifestyle signaling. It reflects a genuine concern with what children and grandchildren will actually do with their time on a rural property, and whether that time will feel meaningful rather than merely scenic. An agent who can speak to the agricultural and recreational potential of a property – who understands soil quality, trail systems, fishing rights, and where a productive garden sits relative to sun and drainage – is providing information that directly influences whether a family commits.
 
- Ventilation in the barn layout is another one. Florida’s heat and humidity make airflow in a horse barn a genuine welfare issue, not an aesthetic preference. Trailer access and turning radius matter more than most buyers anticipate until they are trying to load a horse in a tight space. The list goes on, and Knox moves through it systematically because buyers who discover these issues after closing are buyers who feel misled, even when the problems were hiding in plain sight.
+ Regional resources matter here too. Institutions like the Carey Institute in Millbrook represent the kind of educational and cultural infrastructure that resonates with this buyer – a signal that the community takes land stewardship and rural life seriously.
 
- Who Actually Buys Equestrian Property in Ocala Now The buyer mix has changed considerably since Knox entered the market in 2003. When she started, the transactions were largely driven by repeat local buyers, established trainers, and families who had been in the horse industry for generations. They already understood the land and what they were buying.
+ The farm-to-table culture that has developed strongly across the Litchfield Hills, Hudson Valley, and Berkshires over the past decade reinforces this further. Proximity to farmers markets, pick-your-own operations, and working farms matters to this buyer in a way that proximity to a particular restaurant might matter to a different profile. It is part of the life they are purchasing, and understanding it requires genuine immersion in the communities involved.
 
- Today the pool is considerably broader. Serious equestrian professionals remain, but Knox is also regularly working with out-of-state relocation buyers from the Northeast and Midwest, remote professionals, and retirees who want space, privacy, and lifestyle. For some of them, a few horses are part of the picture but not the primary point. The land, the quiet, and the sense of room to breathe are what they are actually after.
+ California Migration and What It Signals One notable source of multi-generational buyer interest in Northeast rural markets has been families relocating from California, particularly from the Bay Area and from Napa and Sonoma counties. The motivations are often practical. Wildfire risk has made property insurance in parts of California significantly more expensive and, in some areas, difficult to obtain at all. The cost of land relative to what a comparable budget purchases in Connecticut or the Berkshires is substantial.
 
- “Some of them, it’s just a fun thing to have a few horses when they’re retiring down here,” she says. That is not a criticism; it is an observation about what buyers need. A retiree with two horses and no interest in operating a business needs a fundamentally different property than a professional trainer setting up a competition facility. Knox’s first job in any new client relationship is figuring out which situation she is actually in.
+ What these buyers often find surprising is the community depth available in small Northeast towns. The prep school networks in particular – Hotchkiss, Salisbury School, Berkshire School, and the feeder schools that supply them – represent an educational infrastructure that draws families from California, Asia, and Europe to purchase property in towns that might otherwise be overlooked on a national map.
 
- The Question She Always Asks First Before Knox shows a single property, she asks buyers how they want to feel when they walk through the right one. It is a question that tends to cut through the checklist and reveal what is actually driving the decision.
+ Preparing for the Complexity This Buyer Requires Real estate professionals who serve multi-generational buyers successfully tend to share certain characteristics. They are deeply embedded in their communities: involved with land conservancies, school boards, and local civic organizations. They understand conservation restrictions and agricultural programs well enough to explain them accurately. They maintain relationships with attorneys, contractors, and land professionals that allow them to answer questions well beyond what any single showing can address.
 
- “Some people think they want one thing, but after a deep conversation, we uncover that that’s not what really matters most,” she says. Sometimes a couple comes in with different visions entirely. Part of Knox’s role is helping them figure out where those visions actually overlap, before they tour twenty properties that satisfy one partner and frustrate the other.
+ The multi-generational buyer is not the most efficient transaction in residential real estate. The decision-making process can be longer, the stakeholder group is larger, and the property criteria are more complex. But the buyer who finds the right property, with the right agent, tends to stay. And they tend to come back – with the next generation – when it is time to make the next decision.
 
- With 23 years at RE/MAX Foxfire and no interest in going anywhere else, Knox has earned the kind of fluency in this market that cannot be taught in a course or replicated by a tool. In a segment as specialized as equestrian real estate, that depth is exactly what a buyer needs on their side of the table.
-
- About RE/MAX Foxfire: RE/MAX Foxfire is a full-service real estate brokerage with over 50 years of history serving Ocala, The Villages, Summerfield, and the greater Central Florida region. The brokerage specializes in residential, 55-plus communities, equestrian and farm properties, and luxury acreage.
+ Elyse Harney Morris is a principal broker at Elyse Harney Real Estate, an independent brokerage founded in 1987 and operating across Connecticut, New York, and Massachusetts. She specializes in significant country estates, historic farms, and conservation properties across the Litchfield Hills, Hudson Valley, and Southern Berkshires.
 
  This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
@@ -52,17 +50,15 @@ Ocala has been the horse capital of the world for decades. The title is well ear
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/so-you-want-to-buy-a-horse-farm-in-ocala-heres-what-nobody-tells-you-first/)
+[Original/Source Press Release](https://keycrew.co/journal/three-generations-one-property-the-buyers-reshaping-rural-real-estate/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/navigating-ocala-s-equestrian-real-estate-expert-tips-from-donna-knox/2d9b3c5dfa6dd32f35b3ad53ae5e74c4) 
-
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/2d9b3c5dfa6dd32f35b3ad53ae5e74c4)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/multi-generational-families-drive-shift-in-rural-property-market/2bcf1e667dd2356b2f53471206ea09c5) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/13/hushtU74.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/266/18/kissV9uk.webp)

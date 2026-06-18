@@ -1,64 +1,45 @@
-# KeyCrew Media Names HOA Start’s Clayton Thompson as Verified Expert in Self-Managed HOA Software
+# KeyCrew Media Selects Yitzchak Pierson as Verified Expert for the I-35 Corridor Market
 
-TAMPA, FL, April 22, 2026 – KeyCrew Media, a real estate analytics and media network, has selected Clayton Thompson, Co-Founder and CEO of Membershine and its HOA product line HOA Start, as a KeyCrew Verified Expert. Thompson will contribute market intelligence and expert analysis on HOA software, self-managed homeowners association operations, and the adoption of digital tools in community governance.
+NEW BRAUNFELS, TX, April 25, 2026 – KeyCrew Media, a real estate analytics and media network, has selected Yitzchak Pierson, licensed real estate broker and DISC-certified advisor at eXp Realty, as a KeyCrew Verified Expert. Pierson will contribute analysis on new construction buyer representation, hyper-local market conditions, and real estate trends across the I-35 corridor between Austin and San Antonio.
 
- KeyCrew Verified Experts are selected for their depth of knowledge and hands-on experience in specific real estate sectors. They contribute market insights, expert perspectives, and forward-looking analysis to help audiences navigate complex industry topics.
+ KeyCrew Verified Experts are carefully selected as prolific market trend authorities who demonstrate exceptional insight and expertise in their fields. These distinguished professionals regularly contribute market insights, expert perspectives, and forward-looking analysis to help audiences navigate complex industry landscapes.
 
- Thompson brings deep operational expertise in community association technology to the KeyCrew platform. As Co-Founder and CEO of Membershine, he leads the development of HOA Start – an all-in-one HOA management software platform built for self-managed homeowners association boards. HOA Start serves thousands of communities nationwide, providing integrated online payments, board-to-member communication, document storage, online voting, violation tracking, and architectural request workflows in a single, affordable solution.
+ Based in New Braunfels, Pierson has built hyper-local expertise in one of Central Texas’s fastest-growing submarkets. A licensed broker with over 900 hours of continuing education, he has closed 120 plus transactions with builders such as Lennar, Centex, KB Homes, Coventry Homes, Meritage Homes, and many others. He works across the full spectrum of new construction and resale.
 
- Thompson’s focus is on self-managed HOA boards – the volunteer homeowners who run their communities without hiring a professional property management company. While competitors like AppFolio, Buildium, and Vantaca build primarily for professional property managers, HOA Start was designed for the roughly 75% of associations that are self-managed. The platform replaces paper checks, scattered spreadsheets, and disconnected email threads with a centralized system of record that carries forward through board turnover, so no community loses its institutional knowledge when leadership changes every two to three years.
+ He holds three coaching certifications – including Certified High Performance Coach through Brendon Burchard – and is certified in DISC personality assessment, credentials he applies directly to client communication. He serves on the board of directors of his local real estate board and on the Texas REALTORS® Professional Standards Committee.
 
- “When a board turns over, communities shouldn’t lose the history of every payment, every architectural request, every vendor contract they’ve ever managed,” said Thompson. “We built HOA Start around the idea that your association’s records belong to the community – not to whichever property manager or board president happens to be in the seat today. That continuity is what self-managed boards need to operate with confidence.”
+ Pierson has been named Best Real Estate Agent in New Braunfels by the New Braunfels Herald-Zeitung People’s Choice Awards for two consecutive years and ranked No. 33 individual residential agent by the San Antonio Business Journal’s Top 100 Real Estate Awards out of more than 15,000 agents. He holds ICON Agent status at eXp Realty and ranks in the top 50 agents in Texas and top 250 nationally within the brokerage.
 
- Thompson’s areas of expertise include:
+ “Buyers and sellers in this corridor deserve someone who actually lives and works here – not an agent driving in from an hour away,” said Yitzchak Pierson. “I’m excited to contribute analysis through KeyCrew that reflects what’s really happening on the ground in this market.”
 
- Self-Managed HOA Software – All-in-one HOA management software for volunteer boards, including online payments, communication tools, document storage, and community website hosting
+ Pierson’s areas of expertise include:
 
- HOA Board Governance & Operations – Best practices for board transitions, quorum challenges, online voting, and maintaining continuity across leadership changes in homeowners associations
+ * New Construction Buyer Representation – Builder processes, inspection timelines, lending incentives, and contract negotiation across the I-35 corridor
+* New Braunfels & I-35 Corridor Market Conditions – Hyper-local expertise covering New Braunfels, Canyon Lake, San Marcos, Seguin, and surrounding submarkets
+* Resale Market Strategy – Pricing, days-on-market trends, and seller positioning in a normalized inventory environment
+* Client Advocacy & Process Management – DISC-certified communication approach emphasizing education and transparency throughout the transaction
 
- HOA Accounting Software & Financial Transparency – How self-managed boards can digitize dues collection, streamline bookkeeping, and maintain auditable financial records that comply with state requirements
+ About Yitzchak Pierson
 
- HOA Legislative Compliance & Digital Requirements – Analysis of how state legislation such as Florida’s HB 1203 is changing HOA technology requirements, mandating online portals, document transparency, and electronic voting for community associations
+ Yitzchak Pierson is a licensed real estate broker and DISC-certified advisor at eXp Realty, specializing in new construction and resale transactions along the I-35 corridor between Austin and San Antonio. Website: www.yitzchakpierson.com
 
- HOA Software Comparison & Buyer Guidance – Expert perspective on evaluating HOA software platforms, avoiding the hidden costs of fragmented solutions, and selecting community association software that grows with a board’s needs
+ About KeyCrew Media
 
- About HOA Start HOA Start is the HOA management software product line of Membershine, built for self-managed homeowners association boards. The platform provides an all-in-one solution for online payments, board communication, document management, online voting, violation tracking, architectural requests, and community websites – serving thousands of associations nationwide. HOA Start is designed to be the financial platform of record for community continuity, ensuring that no board loses its history when leadership turns over. Learn more at hoastart.com.
+ KeyCrew Media is the next generation real estate intelligence platform that leverages AI-powered analytics and first-person reporting from verified experts to produce forward-looking insights across local markets and niche asset classes. Proprietary market reporting is delivered through KeyCrew’s growing portfolio of niche media properties – including KeyCrew Journal, NextAsset News, and other specialized publications – as well as selectively syndicated to media partners that influence industry decision-makers. Learn more at keycrew.co
 
- About KeyCrew Media KeyCrew Media is a real estate intelligence platform that uses AI-powered analytics and first-person reporting from verified experts to produce forward-looking insights across local markets and niche asset classes. Market reporting is delivered through KeyCrew’s portfolio of niche media properties – including KeyCrew Journal, NextAsset News, and other specialized publications – and selectively syndicated to media partners. Learn more at keycrew.co.
-
- Media Contact:Heather HookKeyCrew Mediaheather@keycrew.co
-
- This release is for informational purposes only and does not constitute investment advice or a solicitation to invest. Past performance is not indicative of future results. 
+ Media Contact:Heather HookKeyCrew Mediaheather@keycrew.co 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/keycrew-media-names-hoa-starts-clayton-thompson-as-verified-expert-in-self-managed-hoa-software/)
+[Original/Source Press Release](https://keycrew.co/journal/keycrew-media-selects-yitzchak-pierson-as-verified-expert-for-the-i-35-corridor-market/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hoa-start-ceo-named-keycrew-verified-expert/ff6a00d59e31b674b64051d0789babe1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/keycrew-media-selects-yitzchak-pierson-as-verified-expert-in-central-texas/65f02f350c1d5d1f48d806e2142ea67d) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hoa-start-ceo-clayton-thompson-named-keycrew-verified-expert-in-self-managed-hoa-software)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/keycrew-media-names-hoa-start-ceo-clayton-thompson-as-verified-expert-in-self-managed-hoa-software)
-
-Pickup - [https://burstable.news](https://burstable.news/news/keycrew-media-names-hoa-start-ceo-clayton-thompson-as-verified-expert-in-self-managed-hoa-software)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/keycrew-media-ernennt-hoa-start-ceo-clayton-thompson-zum-verifizierten-experten-fur-selbstverwaltete-hoa-software)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/keycrew-media-nombra-a-clayton-thompson-ceo-de-hoa-start-como-experto-verificado-en-software-de-hoa-autogestionadas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/keycrew-media-nomme-clayton-thompson-pdg-de-hoa-start-comme-expert-verifie-en-logiciels-pour-associations-de-copropriete-autogerees)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/keycrew-media-nomeia-ceo-da-hoa-start-clayton-thompson-como-especialista-verificado-em-software-para-associacoes-autogerenciadas)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/keycrew-media-names-hoa-start-ceo-clayton-thompson-as-verified-expert-in-self-managed-hoa-software)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/keycrew-media-names-hoa-starts-clayton-thompson-as-verified-expert-in-self-managed-hoa-software)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/264/29/milkkR9R.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/266/18/echo20yD.webp)

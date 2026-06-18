@@ -1,54 +1,48 @@
-# Building for Generations: Yuval Shram of TAY Investments on Long-Term Vision and Wellness-Driven Development
+# KeyCrew Media Names Elyse Harney Morris as Verified Expert in Tri-State Country Real Estate
 
-When Yuval Shram, founder and CEO of TAY Investments, appeared on the Mr. Deed Podcast, he brought with him more than 15 years of hard-won experience building a multifamily real estate portfolio across New Jersey and beyond. What emerged from the conversation was a masterclass in patient, principled development – and a clear-eyed vision for where the rental housing market is headed.
+SALISBURY, CT, May 7, 2026 – KeyCrew Media, a real estate analytics and media network, has selected Elyse Harney Morris, Principal Broker of Elyse Harney Real Estate, as a KeyCrew Verified Expert. Morris will contribute market intelligence and expert analysis on significant country estates, historic farms, conservation-minded landholdings, and lifestyle-driven buyer migration across the Litchfield Hills, Hudson Valley, and Southern Berkshires.
 
- From the Financial Crisis to 1,500+ Units Shram’s entry into real estate wasn’t exactly planned. Fresh out of business school, he found himself navigating the wreckage of the 2008 financial crisis, when jobs were scarce and property prices had bottomed out. Rather than waiting on the sidelines, he saw opportunity. Starting with small residential properties – duplexes, triplexes, fourplexes – he began building his knowledge base alongside his portfolio, one deal at a time.
+ KeyCrew Verified Experts are carefully selected as prolific market trend authorities who demonstrate exceptional insight and expertise in their fields. These distinguished professionals regularly contribute market insights, expert perspectives, and forward-looking analysis to help audiences navigate complex industry landscapes.
 
- “Step by step,” he reflected. “Just step by step.” That disciplined, incremental approach has since grown TAY Investments into a private equity real estate company with over 1,550 residential units and a market value exceeding $475 million across North America and Europe.
+ Elyse Harney Morris brings nearly four decades of independent brokerage leadership and an unmatched generational connection to the tri-state region. As Principal Broker of Elyse Harney Real Estate – founded in 1987 by her mother, Elyse Harney, and independently operated ever since – Morris leads a team of 30 agents representing buyers and sellers across Connecticut, New York, and Massachusetts at a time when many regional firms have aligned with national brands.
 
- Don’t Time the Market – Be In It One of Shram’s most emphatic pieces of advice is one that runs counter to the instincts of many ambitious investors: stop trying to time the market. In his view, the developers who struggle are often those chasing the perfect entry point rather than staying consistently active.
+ Her transaction record includes some of the most significant deals in the region, among them the highest residential sale in Litchfield County history: the sale of tennis legend Ivan Lendl’s 445-acre Cornwall estate. Morris also brings expertise in complex conservation transactions spanning thousands of acres across multiple states, and serves as a founding member of REALM Global, connecting exceptional regional properties with qualified buyers worldwide.
 
- “Sometimes the waves are high, sometimes the waves are low,” he said. “You just got to be in the water. If you’re in the water long enough, you’ll catch the right wave.” His philosophy is grounded in simplicity – if a location is desirable, the unit is affordable relative to the market, and the numbers work for long-term profitability, that’s enough. No need to overcomplicate it.
+ Morris’s roots in the region are as distinctive as her professional record. She is a member of the Harney family behind Harney & Sons Tea – an internationally recognized brand whose teas have been served at royal palaces for more than 20 years – and grew up working in the White Hart Inn in Salisbury, CT, where her parents were innkeepers for 23 years before each founding their own companies at age 50. A graduate of Cornell’s School of Hotel Administration, Morris refined her approach to client service at five-star resorts across the Caribbean, Hawaii, and Aspen before returning home to join the family brokerage in 2005.
 
- Building to Hold – Forever Central to TAY’s strategy is what Shram calls the “forever hold” mentality. Unlike private equity firms that operate on five-to-seven-year flip cycles, Shram evaluates every acquisition through a multigenerational lens. Would he be comfortable leaving this building to his children and grandchildren? If not, he walks away.
+ “Being an independent, locally based company is a huge storyline in itself,” said Morris. “We are the experts in the area. We have the relationships – and those relationships outlast every transaction.”
 
- This mindset directly shapes how TAY builds. The company invests in quality materials, maintains its properties proactively, and avoids the short-term cost-cutting that can erode a building’s value over time. “When you’re building for yourself,” Shram noted, “every corner you cut is going to bite you eventually.”
+ Morris’s areas of expertise include:
 
- The Sanctuary: Wellness as a Competitive Edge Perhaps the most forward-looking element of TAY’s recent work is its signature “Sanctuary” amenity concept, most prominently featured at Hue Soul, the company’s 116-unit development in East Orange, New Jersey. Inspired by a hotel experience during a family trip to Thailand, Shram envisioned a ground-floor wellness hub combining a state-of-the-art gym, dry and wet sauna, cold plunge, and outdoor pool – all in a single cohesive space.
+ Significant Country Estates & Historic Farms – Representation of distinctive rural properties, legacy landholdings, and architecturally notable homes across the tri-state region
 
- The idea is simple but powerful: give tenants everything they need to take care of their physical and mental health without leaving the building. Shram believes that a healthy, happy tenant is also a long-term tenant – and that community-building through shared wellness spaces reduces turnover and strengthens the building’s overall culture.
+ Litchfield Hills, Hudson Valley & Southern Berkshires Market Dynamics – Deep local knowledge across 117+ towns in Connecticut, New York, and Massachusetts, with specialized insight into lifestyle-driven buyer demand from New York City and Boston
 
- “You wake up, you take care of yourself, you go to work as a better version of yourself,” he said. “Everybody wins.”
+ Conservation & Land Stewardship – Expertise in conservation easements, agricultural programs, and large rural transactions, supported by active involvement with the Columbia Land Conservancy, Dutchess Land Conservancy, Housatonic Valley Association, and Scenic Hudson
 
- Walk Your Own Path When asked what single piece of advice he would offer aspiring entrepreneurs, Shram didn’t hesitate: walk your own path. Resist the urge to copy competitors, chase trends, or second-guess your strategy every time someone else appears to be winning. Know what you’re doing, do it well, and trust that consistency compounds over time.
+ Multi-Generational Client Relationships – A relationship-first approach that has produced loyal, multi-generational clientele and consistent referral-driven growth over nearly four decades
 
- It’s a philosophy that has served Yuval Shram – and TAY Investments – remarkably well.
+ Lifestyle Buyer Migration Trends – Insight into the growing movement of buyers from California, New York, and Boston into the four-season country markets of the Northeast, including vacation home buyers and prep school parent buyers with ties to institutions such as Hotchkiss, Salisbury School, and Berkshire School
 
- Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
+ About Elyse Harney Real Estate: Elyse Harney Real Estate is an independent brokerage founded in 1987, specializing in country estates, historic farms, and significant landholdings across the Litchfield Hills, Hudson Valley, and Southern Berkshires. Operating across Connecticut, New York, and Massachusetts, the firm’s 29-agent team is guided by a tradition of trust, deep community roots, and a relationship-driven approach to every transaction. Learn more at harneyrealestate.com.
+
+ About KeyCrew Media: KeyCrew Media is the next generation real estate intelligence platform that leverages AI-powered analytics and first-person reporting from verified experts to produce forward-looking insights across local markets and niche asset classes. Proprietary market reporting is delivered through KeyCrew’s growing portfolio of niche media properties – including KeyCrew Journal, NextAsset News, and other specialized publications – as well as selectively syndicated to media partners that influence industry decision-makers. Learn more at keycrew.co.
+
+ Media Contact:Heather HookKeyCrew Mediaheather@keycrew.co
+
+ This release is for informational purposes only and does not constitute investment advice or a solicitation to invest. Past performance is not indicative of future results. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/building-for-generations-yuval-shram-of-tay-investments-on-long-term-vision-and-wellness-driven-development/)
+[Original/Source Press Release](https://keycrew.co/journal/keycrew-media-names-elyse-harney-morris-as-verified-expert-in-tri-state-country-real-estate/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/from-crisis-to-475m-tay-investments-patient-real-estate-strategy/3754ebbb7bd225b9d8be3c52deb1d175) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/keycrew-media-taps-elyse-harney-morris-as-verified-expert/3edf3f961a3f4f902071d32031b8160b) 
 
-
-Pickup - [https://citybuzz.co](https://citybuzz.co/2026/05/06/tay-investments-yuval-shram-advocates-long-term-wellness-focused-development-in-multifamily-real-estate/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/tay-investments-ceo-advocates-long-term-wellness-focused-development-in-multifamily-real-estate)
-
-Pickup - [https://boostifypr.com/curated-news](https://boostifypr.com/curated-news/tay-investments-ceo-yuval-shram-advocates-long-term-wellness-driven-development-in-multifamily-real-estate)
-
-Pickup - [https://burstable.news](https://burstable.news/news/tay-investments-founder-yuval-shram-advocates-long-term-vision-and-wellness-focused-development-in-multifamily-real-estate)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/patient-capital-and-wellness-amenities-tay-investments-long-term-vision-for-multifamily-real-estate)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/3754ebbb7bd225b9d8be3c52deb1d175)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/265/13/lilyvwdw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/266/18/urgeHpy8.webp)
