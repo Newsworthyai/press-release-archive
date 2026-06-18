@@ -1,16 +1,16 @@
-# 
+# 6th Chief Patient Officer Summit Returns to Boston to Focus on Patient-Centered Decisions and Development
 
-Disseminated on behalf of Redwood AI Corp. (CSE: AIRX) (OTCQB: RDWCF) (Frankfurt: Y0N) and may include paid advertising.
+Date: July 23-24, 2026
 
- Redwood AI (CSE: AIRX) (OTCQB: RDWCF) (Frankfurt: Y0N) develops AI-powered platforms focused on accelerating chemistry research and development across pharmaceutical, defense, public safety, and industrial applications. “The company is working at the intersection of AI and chemistry, building tools intended to help organizations navigate increasingly complex scientific and development challenges,” reads a recent article. “Redwood AI’s platforms are built on proprietary AI models and analytical infrastructure that improve as datasets and platform usage expand.”
+ Venue: Boston, MA
 
- To view the full article, visit https://ibn.fm/1uqAl
+ Dynamic Global Events (“DGE”) will host the 6th Chief Patient Officer Summit on July 23–24, 2026, at the Sheraton Boston Hotel in Boston, Massachusetts.
 
- About Redwood AI Corp.
+ The 6th Chief Patient Officer Summit provides a unique opportunity to discuss in detail how organizations can better integrate patient perspectives into decision-making and clinical development. The event will gather senior executives to focus on strengthening patient integration, ensuring patient needs are…
 
- Redwood AI uses advanced artificial intelligence to accelerate chemistry R&D, with the aim of assisting in drug discovery and development, and furthering defense and safety solutions. The company combines expertise in chemistry, AI, and manufacturing to streamline drug synthesis and scale-up. Redwood AI’s platform is designed to enable faster, more efficient development of new therapies and chemistry-driven applications.
+ Read More>>
 
- NOTE TO INVESTORS: The latest news and updates relating to RDWCF are available in the company’s newsroom at https://ibn.fm/RDWCF
+ To learn more, please visit https://ibn.fm/0xhba.
 
  About InvestorWire
 
@@ -26,15 +26,19 @@ Disseminated on behalf of Redwood AI Corp. (CSE: AIRX) (OTCQB: RDWCF) (Frankfurt
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/183110/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/6th-chief-patient-officer-summit-returns-to-boston-to-focus-on-patient-centered-decisions-and-development/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/redwood-ai-accelerates-chemistry-r-d-with-ai-powered-platforms/40f16d6e298be8f2173e04f869827707) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chief-patient-officer-summit-returns-to-boston-in-2026/36229d907427759d82a99b9c619247ef) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2067352799076053020)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/36229d907427759d82a99b9c619247ef)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/17/bakeMZJU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/17/riceBLDR.webp)

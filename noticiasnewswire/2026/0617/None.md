@@ -1,40 +1,38 @@
-# Claro USA and reVolver Podcasts Unveil Claro Música Pulso, a Reimagined Entertainment Platform Featuring Podcasts, Music, Video, Radio and More
+# One Park Financial Gains Access to a $45.5 Million Investment-Grade 7 Year Corporate Note to Support Small Business Growth in The United States
 
-DALLAS, TX — June 17, 2026 — (NOTICIAS NEWSWIRE) — Claro USA and reVolver Podcasts today announced the evolution of its entertainment platform with the launch of Claro Música Pulso, a redesigned and enhanced digital destination that brings together music, podcasts, radio, video, and future multimedia experiences within a single, intuitive ecosystem.
+COCONUT GROVE, FL — June 17, 2026 — (NOTICIAS NEWSWIRE) — One Park Financial, one of America’s leading business funding providers, is set to significantly expand its reach after its parent company, Fund Street Technologies LLC, closed a $45.5 million investment-grade corporate note. The seven-year note, placed exclusively through Brean Capital LLC, is designed to fuel the growth of One Park Financial’s origination capacity and deepen its impact on small business owners across the country.
 
- Building on the success of Claro Música’s existing subscriber base of more than 500,000 users, Claro Música Pulso introduces improved navigation, enhanced content discovery, and a modern user experience designed to connect audiences with the entertainment that moves them most.
+ For the millions of small and medium-sized businesses that have been shut out of traditional bank financing, One Park Financial has long been the bridge to working capital. Now, with this significant institutional backing, OPF is poised to reach even more business owners who need fast, flexible, and working capital solutions. Since 2010, One Park Financial has helped deploy more than $1.5 billion in small business financing and serviced over 100,000 businesses nationwide, affecting the lives of millions of people across the US.
 
- The platform’s next phase includes premium podcast programming through a partnership with reVolver Podcasts, the largest Hispanic podcast network in the United States. Future releases are expected to expand beyond audio with additional video and multimedia offerings, creating a more comprehensive entertainment destination for consumers worldwide.
+ One Park Financial operates as the flagship merchant facing brand of Fund Street Technologies, a vertically integrated fintech platform that manages the full client lifecycle from origination and business analysis to documentation and merchant servicing. While Fund Street provides the financial infrastructure and capital, it is One Park Financial that directly connects business owners with the financing their business needs to grow.
 
- The new ‘Pulso’ identity reflects the platform’s mission to serve as the heartbeat of entertainment and culture, connecting users to the latest music, conversations, stories, sports, and experiences across multiple formats.
+ CEO and Co-Founder John Lie-Nielsen underscored how this capital raise translates directly into greater support for small business owners. “This transaction positions us to fully utilize our proven technology infrastructure and support business owners across the US,” Lie-Nielsen said. “We have built our platform to handle significant scale, and now we can deploy these resources toward expanding our origination capacity and market reach.”
 
- As audiences increasingly seek seamless access to a variety of content formats, Claro Música Pulso represents a significant step forward in delivering a richer entertainment experience, for its rapidly expanding base of over 500,000 users, said Jack Hobbs, President & CEO of reVolver Podcasts. We are excited to bring reVolver’s extensive catalog of premium podcasts to the platform and help create an ecosystem where music, spoken word, culture, and storytelling come together in one destination.
+ CFO Marcus Holland highlighted the institutional confidence behind the raise. “We welcome the participation of institutional partners who recognize our strong track record and long-term vision,” Holland said. “This transaction strengthens our balance sheet by providing liquidity and flexible financing to diversify our capital structure.”
 
- Through the partnership, Claro Música Pulso users gain access to a growing library of podcasts spanning news, sports, entertainment, business, lifestyle, health, comedy, and culture, including flagship programs such as Erazno y La Chokolata, El Show de Piolín, El Panda Show, and Don Cheto Al Aire.
+ The closing of a seven-year investment-grade note reflects growing conviction among institutional investors in technology-driven funding providers like One Park Financial, companies that have proven both the demand and the operational capacity to serve a segment of the market that traditional banks continue to overlook. To learn more visit oneparkfinancial.com
 
- reVolver Podcasts is a leading force in digital audio content, dedicated to providing diverse, innovative, and engaging podcasts across various genres. With a commitment to inclusivity and accessibility, reVolver Podcasts continues to shape the future of digital storytelling, programming is free to millions of listeners in the U.S. and around the world across Apple Podcasts, Spotify, Pandora, Deezer, iHeartRadio app, Amazon Music, also available for download on the reVolver Podcasts App through the Samsung Galaxy Store available in the reVolver Podcasts App on Roku streaming devices and at www.revolverpodcasts.com.
+ About One Park Financial One Park Financial is a leading business growth services and business financing company headquartered in Miami, FL, dedicated to helping small and mid-sized businesses access the funding they need to grow. Guided by its mission to invest in dreams, the company also prioritizes community engagement, education, and employee-driven service initiatives across the United States and Puerto Rico.
 
- About reVolver Podcasts reVolver Podcasts is the leading multicultural, audio-on-demand content creator and distributor in the U.S. Home to Erazno y La Chokolata, El Show de Piolín, The Shoboy Show, Panda Show – Picante, and Don Cheto Al Aire, plus more than 70 additional programs spanning sports, music, finance, entertainment, lifestyle, health and wellness, inspiration, news, branded content, and live events, distributed across Apple Podcasts, Spotify, Deezer, Pandora, iHeartRadio app, Amazon Music, also available for download on the reVolver Podcasts App through the Samsung Galaxy Store and on Roku streaming devices and at reVolverPodcasts.com. For more information about the company, visit www.revolverpodcasts.com.
-
- About Claro Música Pulso Claro Música Pulso is Claro USA’s next-generation entertainment platform, bringing together music, podcasts, radio, and future video experiences in a single destination. Designed to deliver a seamless and engaging user experience, the platform connects audiences with the content, culture, and conversations that matter most.
-
- CONTACT: revolverpodcastspr@gmail.com 
+ CONTACT: media@oneparkfinancial.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/claro-and-revolver-unveil-claro-musica-pulso/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/one-park-financial-gains-access/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/claro-usa-and-revolver-podcasts-launch-claro-musica-pulso/6ebbbec908db9da2113745da86ebd220) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-park-financial-secures-45-5m-to-boost-small-business-lending/5df51dc5e3d9d405de5481696e0c0c0b) 
 
 
-Pickup - [https://x.com](https://twitter.com/i/status/2067230922747810078)
+Pickup - [https://x.com](https://twitter.com/i/status/2067351993320960219)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/claro-usa-and-revolver-podcasts-launch-claro-musica-pulso-integrating-podcasts-music-and-video-into-a-unified-platform)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/5df51dc5e3d9d405de5481696e0c0c0b)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/5df51dc5e3d9d405de5481696e0c0c0b)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/266/17/warp_DTL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/266/17/quay7did.webp)
