@@ -4,16 +4,14 @@ HANOI, VIETNAM - [Media OutReach Newswire](https://www.media-outreach.com/) – 
 
 About VinRoboticsVinRobotics is a technology company under Vingroup, specializing in the research, development, and application of next-generation robotics and automation platforms. With the vision of becoming a world-leading robotics company, VinRobotics is committed to developing advanced technology solutions that enhance productivity, improve work quality, elevate quality of life, and contribute to building a prosperous and sustainable future.
 
-About Infineon Infineon Technologies AG is a global semiconductor leader in power systems and IoT. Infineon drives decarbonization and digitalization with its products and solutions. The Company had around 57,000 employees worldwide (end of September 2025) and generated revenue of about €14.7 billion in the 2025 fiscal year (ending 30 September). Infineon is listed on the Frankfurt Stock Exchange (ticker symbol: IFX) and in the USA on the OTCQX International over-the-counter market (ticker symbol: IFNNY).
-
-![](//track.media-outreach.com/index.php/WebView/469646/279561) 
+About Infineon Infineon Technologies AG is a global semiconductor leader in power systems and IoT. Infineon drives decarbonization and digitalization with its products and solutions. The Company had around 57,000 employees worldwide (end of September 2025) and generated revenue of about €14.7 billion in the 2025 fiscal year (ending 30 September). Infineon is listed on the Frankfurt Stock Exchange (ticker symbol: IFX) and in the USA on the OTCQX International over-the-counter market (ticker symbol: IFNNY). 
 
 ---
 
 [Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/06/09/469646/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinrobotics-and-infineon-partner-to-build-next-gen-intelligent-robots/30467c26669a9507124af4291905d27a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vinrobotics-and-infineon-partner-to-build-next-gen-robots/30467c26669a9507124af4291905d27a) 
 
 
 Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/vinrobotics-partners-with-infineon-to-advance-core-technologies-for-next-generation-robotics)
@@ -23,4 +21,4 @@ Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/vinrob
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/17/cool1S4I.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/18/beanET4w.webp)

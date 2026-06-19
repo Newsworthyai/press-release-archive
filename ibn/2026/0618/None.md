@@ -1,49 +1,54 @@
-# Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) Identifies High-Priority Rare Earth Targets at Ontario’s Hopkins Project as Global Demand for Critical Minerals Accelerates
+# RockBreaks – Numa Numa Resources Inc. Advancing Responsible Mining Strategy in Bougainville
 
-Disseminated on behalf of Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) and may include paid advertising.
+Disseminated on behalf of Numa Numa Resources Inc. and may include paid advertisements.
 
- * Powermax Minerals has completed a desktop study identifying multiple high-priority rare earth element (“REE”) exploration targets at its Hopkins REE Project in northeastern Ontario.
-* The study integrated geological, geophysical, geochemical, and historical datasets to define structurally controlled areas that may host REE mineralization.
-* Powermax plans a phased exploration program including mapping, sampling, airborne surveys, and potentially drilling, subject to exploration results and permits.
-* The company continues to build a North American portfolio of rare earth assets across Canada and the United States as rise in demand for REEs used in electric vehicles, renewable energy systems, and defense technologies, drives growing call for domestic critical mineral supply chains.
+ Numa Numa Resources was featured in a recent article that discussed its efforts to advance mining development in Bougainville in a way that aligns with local priorities and long-term economic goals. “Small islands with large mineral reserves often face a defining question: Can the wealth beneath the ground help fund political and economic independence above it? In Bougainville, Numa Numa Resources is working within this dynamic, positioning itself in a region where resource development and aspirations for self-determination are closely intertwined,” reads the publication.
 
- Powermax Minerals (CSE: PMAX) (OTCQB: PWMXF), a Canadian mineral exploration company focused on rare earth projects, has identified several priority exploration targets at its Hopkins Rare Earth Element Project in Ontario following completion of a comprehensive desktop study designed to guide future field activities (https://nnw.fm/mIHT1).
+ “Numa Numa emphasizes collaboration with landowners and adherence to Bougainville’s legal and cultural framework, particularly the recognition of customary land rights. This approach reflects lessons from the region’s history, where tensions over land and resource ownership played a central role in past conflict… By focusing on responsible development, Numa Numa Resources aims to help unlock Bougainville’s mineral potential while supporting economic foundations that could contribute to greater self-sufficiency. The company’s engagement with local stakeholders is intended to ensure that any future mining activities provide tangible benefits to communities, including infrastructure, employment, and revenue generation.”
 
- The study provides a technical framework for the next phase of exploration at the Hopkins property, highlighting multiple areas where geological, geochemical, and geophysical indicators converge to…
+ To view the full article, visit https://ibn.fm/WHNTZ
 
- Read More>>
+ About Numa Numa Resources Inc.
 
- NOTE TO INVESTORS: The latest news and updates relating to PWMXF are available in the company’s newsroom at https://nnw.fm/PWMXF
+ Numa Numa is a mining and infrastructure development company focused on unlocking transformational opportunities in the Autonomous Region of Bougainville, where the company is headquartered and where its management has lived and worked for 10 years.
 
- Exploration Target Cautionary Statement
+ Bougainville, a resource-rich archipelago in the South Pacific, is perhaps best known as the home of the Panguna Mine. Developed by Rio Tinto, the Panguna Mine was the largest open cut copper and gold mine in the world when it operated from 1972 to 1989 before being shuttered due to a civil war, called “the Crisis,” between Bougainville and its parent government Papua New Guinea. In 2001, the Bougainville Peace Agreement ended the war and awarded Bougainville limited autonomy, including its own constitution, by which ownership of the mine reverted to its customary landowners. A majority of the Panguna Mine’s copper, gold, and silver ore resources remain within its walls, making the fully explored and developed Panguna Mine one of the largest ore bodies in the world, today worth approximately $100 billion. Most geologists who have studied Bougainville believe that other nearby locations such as Mainoki and Karato are highly prospective and may contain ore deposits similar in size and scale to those of the Panguna Mine.
 
- The exploration targets discussed are conceptual, and there is currently not enough data to confirm a mineral resource. Further exploration may not yield successful results.
+ NOTE TO INVESTORS: The latest news and updates relating to Numa Numa are available in the company’s newsroom at https://ibn.fm/NUMA
 
- About NetworkNewsWire
+ About Rocks & Stocks
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ R&S is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.NetworkNewsWire.com
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ For more information, please visit https://RocksAndStocks.news
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
 
- NetworkNewsWire is powered by IBN 
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/powermax-minerals-inc-cse-pmax-otcqb-pwmxf-identifies-high-priority-rare-earth-targets-at-ontarios-hopkins-project-as-global-demand-for-critical-minerals-accelerates/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-numa-numa-resources-inc-advancing-responsible-mining-strategy-in-bougainville/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/powermax-minerals-identifies-high-priority-rare-earth-targets-at-hopkins-project/06f63b9755e72ab5aa9cc0114c305918) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/numa-numa-resources-drives-responsible-mining-in-bougainville/82a1bdcd7e29046ed1e38f736e865d05) 
 
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/rockbreaks-numa-numa-resources-inc-advancing-responsible-mining-strategy-in-bougainville)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/82a1bdcd7e29046ed1e38f736e865d05)
+
+Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/82a1bdcd7e29046ed1e38f736e865d05)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/18/ninaKskJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/18/ulnaTdfc.webp)

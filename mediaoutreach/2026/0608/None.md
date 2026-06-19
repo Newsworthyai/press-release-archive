@@ -4,23 +4,19 @@ SAN MATEO/HANOI - [Media OutReach Newswire](https://www.media-outreach.com) - 8 
 
 About VinDynamicsVinDynamics is a technology company under Vingroup, dedicated to the research, development, and manufacturing of advanced robotics and automation solutions, particularly in the field of humanoid robots. Leveraging cutting-edge technologies such as artificial intelligence, mechatronics, and motion control, VinDynamics aims to deliver intelligent, safe, and cost-effective robotic products that enhance productivity and improve quality of life.   Learn more at: https://vindynamics.net/en
 
-About Skild AIFounded in 2023, Skild AI builds a general-purpose foundation model for robotics. Backed by SoftBank Group, NVIDIA Ventures, Jeff Bezos, Lightspeed, Coatue, Sequoia Capital, Felicis, and others, the company is valued at over $14 billion. Offices in Pittsburgh, the San Francisco Bay Area, and Bengaluru.   Learn more at: https://www.skild.ai/
-
-![](//track.media-outreach.com/index.php/WebView/469226/279561) 
+About Skild AIFounded in 2023, Skild AI builds a general-purpose foundation model for robotics. Backed by SoftBank Group, NVIDIA Ventures, Jeff Bezos, Lightspeed, Coatue, Sequoia Capital, Felicis, and others, the company is valued at over $14 billion. Offices in Pittsburgh, the San Francisco Bay Area, and Bengaluru.   Learn more at: https://www.skild.ai/ 
 
 ---
 
 [Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/06/08/469226/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vindynamics-and-skild-ai-partner-on-humanoid-robotics-and-embodied-ai/151ea0ded776c4b0c6368473638c9b87) 
-
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/vindynamics-and-skild-ai-form-strategic-partnership-to-advance-humanoid-robotics)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vindynamics-and-skild-ai-join-forces-for-humanoid-robotics/151ea0ded776c4b0c6368473638c9b87) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/17/sage9HUh.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/18/lineh8qs.webp)

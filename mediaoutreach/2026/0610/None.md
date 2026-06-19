@@ -4,23 +4,23 @@ HONG KONG SAR - [Media OutReach Newswire](https://www.media-outreach.com/) - 10 
 
 About YesAsia Holdings Limited (02209.HK)Established in 1997, YesAsia Holdings is a leading e-commerce platform operator recognized for its expertise in identifying and procuring quality Asian beauty, fashion, lifestyle and entertainment products. Headquartered in Hong Kong, the Group deliver products promptly and efficiently to a global audience through its strong ties with over 400 leading Asian beauty brand and supplier partners. The Group operates three major platforms: YesStyle, an e-commerce B2C platform for serving the increasingly popular Asian beauty, fashion and lifestyle products, particularly Korean beauty products; AsianBeautyWholesale, a B2B platform for Asian beauty products; and YesAsia, an e-commerce retail platform for entertainment products. YesAsia Holdings is a constituent of the MSCI Hong Kong Micro Cap Index.   For more information, please visit the Group's official website: https://www.yesasiaholdings.com/
 
-About YesStyleYesStyle, a global B2C online retailer under YesAsia Holdings Limited. (02209.HK), is the go-to destination for the largest selection of authentic Asian beauty, fashion, and lifestyle products. As an authorized retailer of 400+ premium K-beauty brands, YesStyle aims to help everyone find their 'yes!' through innovative beauty inspired by Asia, friendly guidance and smart prices since 2006.
-
-![](//track.media-outreach.com/index.php/WebView/469730/279561) 
+About YesStyleYesStyle, a global B2C online retailer under YesAsia Holdings Limited. (02209.HK), is the go-to destination for the largest selection of authentic Asian beauty, fashion, and lifestyle products. As an authorized retailer of 400+ premium K-beauty brands, YesStyle aims to help everyone find their 'yes!' through innovative beauty inspired by Asia, friendly guidance and smart prices since 2006. 
 
 ---
 
 [Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/06/10/469730/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/yesstyle-opens-first-us-store-bringing-k-beauty-to-bay-area/82273fd7f6c14b8a64f1d62866de5565) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yesstyle-opens-first-us-store-in-bay-area-boosting-o2o-and-b2b-synergy/82273fd7f6c14b8a64f1d62866de5565) 
 
 
 Pickup - [https://lametrowire.com](https://lametrowire.com/pr/lametrowire/yesasia-holdings-advances-dual-engine-strategy-with-first-yesstyle-concept-store-in-the-us)
+
+Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/82273fd7f6c14b8a64f1d62866de5565)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/17/yogaFTdQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/18/silkPGYh.webp)
