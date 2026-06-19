@@ -1,70 +1,58 @@
-# Falcon Announces Results of Annual General Meeting
+# Lenzing Group Highlights Scalable, Bio-based Nonwovens Solutions at Leading Global Industry Fairs
 
-ABU DHABI, UNITED ARAB EMIRATES - June 18, 2026 (NEWMEDIAWIRE) - Falcon Energy Materials plc (TSX-V: FLCN) (“Falcon” or the “Company”) today announces that all nominees listed in the management proxy circular were elected as directors of the Company at its annual general meeting of shareholders (“AGM”) held on Thursday, June 18, 2026.
+* Lenzing Group at CIDPEX China, TECHTEXTIL Frankfurt and INDEX Geneva
+* INDEX™ 26 Award for LENZING™ DualWipe
+* LENZING™ Nonwoven Technology as platform for scalable, bio-based nonwoven solutions
 
- A total of 38,944,710 ordinary shares or 22.90 % of the Company’s issued and outstanding ordinary shares as of the record date were represented in person or by proxy at the AGM.
+ LENZING, AUSTRIA - June 18, 2026 (NEWMEDIAWIRE) - From CIDPEX in China to Techtextil in Frankfurt and INDEX in Geneva, the Lenzing Group showcases ready-for-market, bio-based nonwoven solutions and receives industry recognition for LENZING™ Nonwoven Technology.
 
- 1. Election of Directors
+ The Lenzing Group, a leading global producer of regenerated cellulose fibers for the nonwovens and textiles industries, further strengthened the positioning of its nonwovens business during a series of major international industry fairs in the first half of 2026. From CIDPEX in China to Techtextil in Frankfurt and INDEX in Geneva, Lenzing demonstrated how its nonwovens fiber portfolio and LENZING™ Nonwoven Technology (LNT) enable scalable, bio-based alternatives to fossil-based nonwoven materials.
 
- The eight nominees listed in the Management Proxy Circular dated May 7, 2026, were elected as directors of the Company for the ensuing year, receiving the following votes:
+ Global presence across key nonwovens markets
 
- Table 1
+ The year began with CIDPEX 2026 in Nanjing, China, the world’s largest exhibition for tissue and disposable hygiene products. As a key industry platform in Asia, CIDPEX played an important role in strengthening Lenzing’s regional presence and increasing the global visibility of VEOCEL™ branded fibers, particularly for absorbent hygiene and wipes applications.
 
- 2. Appointment of External Auditors
+ At Techtextil 2026 in Frankfurt and INDEX 2026 in Geneva, Lenzing further engaged with European and international customers. At both events, LENZING™ Nonwoven Technology was presented through interactive touch and feel stations that attracted strong industry interest. These hands-on demonstrations allowed visitors to experience the performance, versatility, and material benefits of Lenzing’s cellulosic nonwoven solutions in an application-oriented context.
 
- In addition, Pricewaterhouse Coopers LLP, chartered accountants, in accordance with applicable Canadian legal requirements, and Grant Thornton Audit and Accounting Limited in accordance with Abu Dhabi Global Market legal requirements, were approved as External Auditors of the Company for the ensuing year and authorized the Directors to fix their respective remuneration for the next year.
+ INDEX™ 26 Award for LENZING™ DualWipe
 
- Table 2
+ A central highlight was the recognition of LENZING™ DualWipe with the prestigious INDEX™ Award in the Nonwovens Roll Goods category at the INDEX fair in Geneva. This innovative wipe, enabled by the LENZING™ Nonwoven Technology, integrates two functional surfaces within a single wipe: an abrasive side for effective removal of dirt and residues, and a soft, highly absorbent side for wiping and finishing. DualWipe contains no synthetic fibers, binders, or finishing chemicals, eliminating the risk of microplastic shedding typically associated with conventional synthetic wipes.
 
- 3. Ratification and Approval of Security Based Compensation Plans
+ Patricia Sargeant, Executive Vice President Commercial Nonwovens at Lenzing Group says: “We would like to thank EDANA and the independent INDEX Award jury for recognizing LENZING™ DualWipe with the INDEX™ 26 Award. This underlines the relevance of cellulose based, fossil free technologies for the future of the nonwovens industry. With LENZING™ Nonwoven Technology, we provide a scalable, high-performance alternative to fossil-based materials by combining renewable raw materials and advanced fiber and web technologies. Lenzing supports customers in meeting increasing regulatory, brand, and consumer expectations and enables the industry’s transition toward more sustainable products.”
 
- Shareholders passed an ordinary resolution to ratify and approve the Company’s Amended and Restated Security Based Compensation Plans which provides for the number of ordinary shares reserved being increased from 22,764,466 ordinary shares to 34,016,078 ordinary shares issuable under Amended and Restated Stock Option Plan, Amended and Restated Deferred Share Units Plan and Amended and Restated Restricted Units Plan combined. The information circular disclosing the terms of the amendments have been filed on SEDAR+ under the Company’s profile. The Amended and Restated Security Based Compensation Plans are subject to the final approval of the TSX Venture Exchange.
+ Lenzing’s nonwovens solutions are aligned with the EU Bioeconomy Strategy, which emphasizes the use of bio-based materials to reduce dependence on fossil resources and strengthening sustainable industrial value chains. Lenzing translates these strategic ambitions into industrial-scale solutions that are already available for applications in hygiene, wipes and technical nonwovens.
 
- Table 3
+ Innovation partner for the nonwovens industry
 
- About Falcon
+ Across all fairs, Lenzing demonstrated how its fibers and technologies add value to diverse end applications, with a particular focus on absorbent hygiene products and advanced nonwoven solutions. By combining fiber innovation, application expertise, and close collaboration along the value chain, Lenzing is well-positioned as an innovation and solution provider to the global nonwovens industry.
 
- Falcon Energy Materials (TSX-V: FLCN, OTCQB: FLCNF) is aiming to be the premier provider of natural Coated Spheroidized Purified Graphite (“CSPG”), a critical component for energy storage solutions. As a dedicated chemical refiner of natural graphite concentrate, Falcon is working diligently towards the development of a state-of-the-art 26 ktpa CSPG production facility in Morocco.
+ Photo download:
 
- Strategically partnered with leading Chinese technology firms and Tier One Moroccan partners, Falcon benefits from advanced technological expertise, access to high-quality raw materials and chemicals, and a prime geographical location, factors that will enable it to deliver consistent, high-quality supply to global markets.
+ CELUM Content
 
- With a clear focus on sustainable growth and innovation, Falcon aims to become the go-to producer of natural CSPG, supporting widespread adoption in energy storage and other emerging industries.
+ Your contact for  Media Relations: Corporate CommunicationsPR & Media TeamLenzing AktiengesellschaftWerkstraBe 2, 4860 Lenzing, Austria Phone +43 664 6112534E-mail media@lenzing.comWeb www.lenzing.com
 
- For additional information, please visit Falcon’s website at www.falconem.net.
+ About the Lenzing Group The Lenzing Group stands for the responsible production of specialty and premium fibers based on regenerated cellulose. As an innovation leader, Lenzing is a partner of global textile and nonwoven manufacturers and drives many new technological developments. The Lenzing Group’s high-quality fibers are the raw material for a wide range of textile applications – ranging from functional, comfortable, and fashionable clothing through to durable and sustainable home textiles. TUV-certified biodegradable and compostable Lenzing fibers are also ideal for demanding use in everyday hygiene applications. The Lenzing Group’s business model extends far beyond that of a traditional fiber producer. Together with its customers and partners, Lenzing develops innovative products along the value chain, adding value for consumers. The Lenzing Group strives for efficient utilization and processing of all raw materials and offers solutions for the transition of the textile industry from the current linear economic system to a circular economy. In order to align its commitment to limiting man-made climate change with the goals of the Paris Agreement, Lenzing has a clear, science-based climate action plan that provides for a significant reduction in greenhouse gas emissions (Scopes 1, 2, and 3) by 2030 and a net-zero target by 2050. Key Facts & Figures Lenzing Group 2025Revenue: EUR 2.60 bnNominal capacity (fibers): 1,110,000 tonnesEmployees (full-time equivalents): 7,738 TENCEL™, LENZING™ ECOVERO™, VEOCEL™, LENZING™, and REFIBRA™ are trademarks of Lenzing AG.
 
- Contact:
+ 
 
- Matthieu Bos Matt JohnstonPresident & CEO IR AdvisorEmail: m.bos@falconem.net Email: m.johnston@falconem.net Telephone: +971 2307 4013
+ 
 
- Neither the TSX-V nor its Regulation Services Provider (as that term is defined in the policies of the TSX-V) accepts responsibility for the adequacy or accuracy of this release.
-
- Forward-Looking Statements
-
- This press release contains "forward-looking information" within the meaning of Canadian securities legislation and other statements that are not historical facts. Forward-looking statements are included to provide information about management’s current expectations and plans that allows investors and others to have a better understanding of the Company’s business plans and financial performance and condition.
-
- All information contained herein that is not clearly historical in nature may constitute forward-looking information. Generally, such forward-looking information can be identified by the use of forward-looking terminology such as ““advancement”, “position”, “directed”, “continued”, “working”, “towards”, “development”, “enable”, “aims” or variations of such words and phrases or state that certain actions, events or results "may", "could", “will”, "would" or "might". In particular and without limitation, this news release contains forward-looking statements pertaining to (i) its aim to become the premier provider of natural CSPG; (ii) the development of a CSPG production facility in Morocco; (iii) factors that will enable it to deliver consistent, high-quality supply to global markets, including having partnered with leading Chinese technology firms and Tier One Moroccan partners and; (iv) its aim to become the go-to producer of natural CSPG that will support widespread adoption in energy storage and other emerging industries. .
-
- Forward-looking information is based upon certain assumptions and other important factors that, if untrue, could cause the actual results, performance or achievements of the Company to be materially different from future results, performance or achievements expressed or implied by such information or statements. There can be no assurance that such information or statements will prove to be accurate. Key assumptions upon which the Company’s forward-looking information is based include, without limitation: (i) the Company’s ability to successfully advance the development and construction of its proposed production facility; (ii) the availability of financing and other resources necessary for the construction and operation of the proposed facility on acceptable terms; (iii) the continued availability and performance of technology partners, suppliers and other strategic counterparties; (iv) the ability of the Company to obtain all necessary regulatory approvals, permits and authorizations in a timely manner for the financing, construction and operation of the proposed production facility; (v) anticipated demand for the CSPG in energy storage and other emerging industries; (vi) favourable market conditions; (vii) the ability to achieve projected production capacity, operational efficiencies and product quality standards; and (viii) general economic, market and industry conditions. .
-
- Readers are cautioned that the foregoing list is not exhaustive of all factors and assumptions which may have been used. Forward-looking information is subject to known and unknown risks, uncertainties and other factors that may cause the actual results, level of activity, performance or achievements of the Company to be materially different from those expressed or implied by such forward-looking information, including but not limited to: (i) volatile stock price; (ii) the general global markets and economic conditions; (iii) the possibility of write-downs and impairments; (iv) the risk associated with exploration, development and operations of mineral deposits and mine plans for the Company’s mining operations; (v) the risk associated with establishing title to mineral properties and assets including permitting, development, operations and production from the Company’s operations being consistent with expectations and projections; (vi) fluctuations in commodity prices, finding offtake takers and potential clients or enforcing such agreements against same, (vii) prices for diesel, process reagents, fuel oil, electricity and other key supplies being approximately consistent with current levels; (viii) production and cost of sales forecasts meeting expectations; (ix) the accuracy of the mineral reserve and mineral resource estimates of the Company; (x) labour and materials costs increasing on a basis consistent with the Company's current expectations; (xi) there being no significant disruptions affecting the operations of the Company whether due to artisanal miners, access to water, extreme weather events and other or related natural disasters, labour disruptions, supply disruptions, power disruptions, damage to equipment or otherwise; (xii) asset impairment (or reversal) potential, being consistent with the Company's current expectations; (xiii) risks associated to the accuracy of projections provided in a preliminary economic study which are preliminary in nature and which include significant of uncertainties; (xiv) risks associated with the availability and performance of strategic partners, suppliers and contractors; and (xv) other risks and uncertainties described or referred to in the section entitled “Risk and Uncertainties” in the Company’s management’s discussion and analysis for the year ended December 31, 2025, as updated from time to time in the Company’s interim management’s discussion and analysis for its quarterly financial periods, each of which is filed on SEDAR+ at www.sedarplus.ca.
-
- Although the Company believes its expectations are based upon reasonable assumptions and has attempted to identify important factors that could cause actual actions, events or results to differ materially from those described in forward-looking statements, there may be other factors that cause actions, events or results not to be as anticipated, estimated or intended. There can be no assurance that such forward-looking information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such forward-looking information. Such forward-looking information has been provided for the purpose of assisting investors in understanding the Company's business, operations and exploration plans and may not be appropriate for other purposes. Accordingly, readers should not place undue reliance on forward-looking information. Forward-looking information is given as of the date of this press release, and the Company does not undertake to update such forward-looking information except in accordance with applicable securities laws. The Company qualifies all of its forward-looking statements by these cautionary statements.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/falcon-announces-results-of-annual-general-meeting-7087227)
+[Original/Source Press Release](https://www.newmediawire.com/news/lenzing-group-highlights-scalable-bio-based-nonwovens-solutions-at-leading-global-industry-fairs-7087232)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/falcon-energy-materials-elects-directors-approves-compensation-plans-at-agm/1477b598110d068d8c54eac64c46e2c5) 
-
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/1477b598110d068d8c54eac64c46e2c5)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lenzing-wins-index-award-showcases-bio-based-nonwovens-at-global-fairs/82d11577232c2c12e968c1b9a4b733d6) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/18/seekNbaG.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/19/seekXAdW.webp)
