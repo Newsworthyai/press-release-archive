@@ -1,64 +1,47 @@
-# Carmed Pharmaceuticals Shares Tips for Maintaining Wellness During Summer Travel
+# The Midwife in Vienna Highlights the Return to Simplicity in Newborn Care
 
-Summer often brings changes to daily routines as families take vacations, professionals travel for business, and many people spend more time away from home. According to Carmed Pharmaceuticals, maintaining consistent wellness habits during these periods of disruption can help support long-term wellness and lifestyle goals.
+As modern parents navigate an overwhelming marketplace of baby products, many are embracing a different approach: simplicity.
 
- The Turkey-based company, which specializes in standardized carvacrol-based formulations and is expanding throughout the United States, says that consistency is often overlooked when people think about wellness.
+ According to Austrian midwife Sarah Lares, founder of The Midwife in Vienna, more families are seeking products with fewer ingredients, clearer sourcing, and a more intentional approach to newborn care.
 
- "Many people work hard to establish healthy routines throughout the year, but travel can quickly disrupt those habits," said Mustafa Can, Founder of Carmed Pharmaceuticals. "The key is not perfection. It is maintaining consistency through simple, sustainable practices that can travel with you."
+ "For many years, the trend was to offer parents more choices, more features, and more products," said Lares. "Today, many mothers and fathers are looking for something different. They want to understand what they are using, why it was made, and whether it truly belongs in their baby's daily routine."
 
- Five Ways to Stay Consistent While Traveling Plan Ahead
+ Drawing on nearly two decades of hands-on experience supporting women through pregnancy, birth, and postpartum recovery, Lares says the shift reflects a growing desire for trust and transparency.
 
- Preparing for travel before departure can make it easier to maintain healthy routines. Whether traveling for a weekend or an extended vacation, a little planning can help reduce disruptions.
+ A Return to Traditional Care Principles Long before newborn care became a global industry, families relied on simple routines and carefully selected products. Those traditions continue to influence maternity care throughout much of Europe today.
 
- Focus on Daily Habits
+ At The Midwife in Vienna, that philosophy guides every aspect of product development, from ingredient selection to packaging decisions. The company's formulations are intentionally minimalist and designed to support mothers and babies without unnecessary additives, synthetic fragrances, or overly complicated ingredient lists.
 
- Small actions performed consistently often have a greater long-term impact than occasional bursts of effort. Travelers can benefit from maintaining simple wellness practices that fit easily into changing schedules.
+ "We often tell parents that they don't need dozens of products," Lares said. "What they need are a few thoughtfully chosen products they can trust."
 
- Prioritize Rest and Recovery
+ Why Glass Packaging Matters One example of this trend is the growing interest in alternatives to plastic packaging, particularly for products used during a newborn's earliest days.
 
- Travel often involves early mornings, late nights, time zone changes, and packed itineraries. Making time for adequate rest can help support overall wellness and daily performance.
+ While plastic remains common throughout the baby care industry, glass continues to be widely used and trusted across Europe because of its durability, recyclability, and purity. Many parents appreciate glass as a simple, traditional packaging choice that aligns with a more natural approach to newborn care.
 
- Stay Active Throughout the Day
+ This philosophy is reflected in Baby's First Bath, one of The Midwife in Vienna's newest products available in the United States. Packaged in glass and inspired by traditional European newborn bathing practices, the product was created to help parents approach one of their baby's earliest milestones with calm, confidence, and care.
 
- Long flights, road trips, and conference schedules can lead to extended periods of inactivity. Incorporating movement throughout the day can help travelers maintain healthy routines while away from home.
+ "Glass has long been a trusted choice in Europe, especially for products intended for babies and young children," said Lares. "It reflects the same values that guide our formulations: simplicity, quality, and thoughtful design."
 
- Choose Consistency and Quality
+ Supporting Families Through Every Stage The Midwife in Vienna's growing collection of products is designed to support both mothers and babies during some of life's most important moments.
 
- Consumers are increasingly looking for wellness products developed with quality control, standardization, and transparency in mind. Carmed believes consistency in formulation is an important factor when selecting products intended to support long-term wellness goals.
+ In addition to Baby's First Bath, families can also find Baby's Bottom Ointment, created to provide gentle care for delicate skin, and Nipple SOS, a maternity ointment inspired by traditional European midwifery care.
 
- A Research-Driven Approach to Wellness Carmed Pharmaceuticals combines traditional botanical knowledge with modern pharmaceutical methodology to develop standardized formulations designed around reproducibility, quality control, and scientific evaluation.
+ All three products are currently available on OneLavi.com, the online destination for beauty, health, and wellness products.
 
- The company's approach is supported by ongoing collaboration with researchers, laboratories, healthcare institutions, and scientific advisors. Carmed formulations have also been evaluated in multiple peer-reviewed scientific publications examining botanical bioactives and formulation science.
+ As the company continues its U.S. expansion, Lares believes the trend toward simplicity is only beginning.
 
- "We believe wellness should be viewed as a long-term commitment rather than a seasonal trend," said Ceren Can, Global Brand Director of Carmed Pharmaceuticals. "Summer travel is a great reminder that maintaining simple, consistent habits can often be more valuable than pursuing short-term solutions."
+ "Parents today are incredibly thoughtful," she said. "They are asking better questions, reading labels more carefully, and making decisions that align with their values. We believe simplicity, transparency, and trust will continue to shape the future of newborn care."
 
- Available Now on OneLavi.com Carmed states that consistency applies not only to daily habits, but also to the quality and standardization of the wellness products consumers choose.
+ Follow The Midwife in Vienna’s new USA Instagram channel.
 
- U.S. consumers can now purchase the following Carmed Pharmaceuticals formulations on OneLavi.com:
-
- * Vacrol® Kids Spray - A carvacrol-based spray formulated to support upper respiratory wellness and microbial balance for children ages 4-11.
-* S-Mix® - A synergy-driven formulation designed to support immune function and healthy cellular activity.
-* Vacrol® Capsule - A standardized carvacrol formulation developed to support microbial balance and immune resilience.
-* Vacrol-M® Capsule - A multi-component botanical formulation designed to support immune function and respiratory wellness.
-
- Vacrol® Kids Spray and S-Mix® are gluten-free, non-GMO, sugar-free, preservative-free, and halal-certified.
-
- According to Carmed, all formulations are developed using standardized processes designed to support reproducibility, consistency, and quality control.
-
- About [Carmed Pharmaceuticals](https://carmedilac.com.tr/en/hakkimizda/) Carmed Pharmaceuticals is a research-driven company specializing in standardized, mechanism-based botanical formulations rooted in Anatolia’s rich botanical heritage. Integrating traditional plant knowledge with modern pharmaceutical technology, Carmed focuses on analytical validation, quality control, and reproducible formulation design.
-
- Officially established in 2019 following years of focused research and development, the company operates with nearly 15 years of industry experience. All products are manufactured in accordance with Good Manufacturing Practice (GMP) principles and relevant regulatory standards, emphasizing safe production, environmental awareness, and continuous quality improvement.
-
- Carmed develops standardized formulations designed to support preventive wellness, immune resilience, and cellular health through science-informed, quality-controlled processes.
-
- For more information, visit Carmed Pharmaceuticals online and follow the company on Instagram. 
+ About [The Midwife in Vienna](https://www.diehebammeinwien-shop.at/) Founded by Austrian midwife Sarah Lares, The Midwife in Vienna is a wellness brand inspired by nearly 20 years of hands-on birth and postpartum experience. The company crafts organic, minimalist products for mothers and babies, blending time-honored midwifery knowledge with modern sustainability. Every product is made in Austria using certified organic ingredients-many vegan and food-grade-reflecting the brand’s core values of simplicity, trust, and natural care. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606222559/carmed-pharmaceuticals-shares-tips-for-maintaining-wellness-during-summer-travel)
+[Original/Source Press Release](https://newsworthy.ai/news/202606222562/the-midwife-in-vienna-highlights-the-return-to-simplicity-in-newborn-care)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/summer-travel-tips-for-consistent-wellness-from-carmed-pharmaceuticals/e49bdae85ad5b4fdd3a2d0592f596b69) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/midwife-led-simplicity-trend-reshapes-baby-care/2eff3905c2bb04a6c0ae47450559a7ab) 
 
  
 
@@ -66,4 +49,4 @@ Summer often brings changes to daily routines as families take vacations, profes
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/22/numbjQeV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/22/pave6gdt.webp)
