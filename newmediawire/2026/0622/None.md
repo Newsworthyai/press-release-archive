@@ -1,36 +1,56 @@
-# VERAXA Biotech (VRXA) Showcases BiTAC Cancer Platforms Ahead of BIO International Convention
+# NAGRAVISION Launches NAGRA Venturi, Intelligence-Led Streaming Security for the AI EraTitle
 
-LOS ANGELES, CA - June 22, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) is highlighting partnering opportunities for its proprietary BiTAC(TM)-ADC and BiTAC-TCE technology platforms ahead of the BIO International Convention, taking place June 22-25 in San Diego. The company recently reported new proof-of-concept data supporting its BiTAC-ADC platform, which is designed to improve cancer treatment precision through tumor-restricted activation of therapeutic agents while minimizing off-target toxicity.
+New Offer Nnifies NAGRAVISION's Streaming Security Capabilities Into a Single Intelligence-led Model, Turning Fragmented Piracy Data Into Prioritized, Decisive Action as Piracy Becomes Faster, Automated and Increasingly AI-driven
 
- VERAXA said the findings, together with previously presented BiTAC-TCE data unveiled at the American Association for Cancer Research Annual Meeting in April 2026, support the potential of two differentiated cancer therapy platforms that may be applicable across multiple solid tumor indications. Management plans to discuss partnering opportunities for both technologies at the BIO International Convention, scheduled for June 22-25, 2026, in San Diego.
+ CHESEAUX-SUR-LAUSANNE, SWITZERLAND and PHOENIX, AZ - June 22, 2026 (NEWMEDIAWIRE) - NAGRAVISION, a Kudelski Group (SIX:KUD.S) company and the world’s leading independent provider of content protection and media and entertainment solutions, today announced the launch of NAGRA Venturi, intelligence-led streaming security that helps service providers and rights holders detect threats, combat piracy, and safeguard revenue - faster and with greater precision. NAGRA Venturi brings NAGRAVISION’s streaming security capabilities together under a single intelligence-led model, shifting anti-piracy from fragmented, reactive tools to coordinated, data-driven action.
 
- To view the full press release, visit https://ibn.fm/r8zEz
+ Piracy has industrialized. Today’s pirate operations are automated and increasingly AI-assisted, scaling illegal services globally within minutes and targeting live sports during the narrow window when content is most valuable. Operators and rights holders are left managing growing volumes of data and alerts, without clarity on which actions will make the biggest difference.
 
- About VERAXA Biotech AG
+ NAGRA Venturi answers that challenge by transforming security data into prioritized, decisive action. It aggregates and analyzes data from across the streaming ecosystem to create a real-time view of piracy activity, identifies the highest-value threats, and coordinates targeted intervention where it will have the greatest business impact. Rather than reacting to every signal, teams can focus on the threats that matter most to their business.
 
- At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
+ “With AI in the hands of pirates, the market has reached an inflection point,” said Morten Solbakken, EVP & COO at NAGRAVISION. “As piracy becomes faster, more automated, and increasingly intelligent, the industry needs a new approach. NAGRA Venturi is built to fight AI with AI, giving operators and rights holders the ability to move faster and with greater precision, providing the clarity to see the full picture, the focus to target the threats that matter, and the impact to protect revenue and the audience experience.”
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Clarity, focus, and impact are the three principles of NAGRA Venturi. Clarity turns fragmented data from multiple sources into a single, real-time view of piracy activity. Focus prioritizes high-value, time-sensitive threats so teams can act decisively during critical moments such as live sporting events. Impact ties every intervention to measurable business outcomes, reducing revenue loss, preserving the audience experience, and coordinating disruption across the ecosystem rather than in isolation.
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ Through its managed service option, NAGRA Venturi includes NEXUS, the NAGRA Anti-Piracy Center, where analysts coordinate monitoring, intelligence, investigation, and enforcement against a global view of piracy activity. Because NAGRAVISION tracks the wider ecosystem rather than a single network, it can uncover pirate infrastructure and leakedcontent that individual operators may never see, then coordinate disruption across multiple points at once to maximize impact. Individual solutions, including forensic watermarking and multi-DRM, remain available as standalone solutions within the NAGRA Venturi portfolio.
 
- Forward Looking Statements
+ “For more than 30 years, NAGRAVISION has protected the world’s most valuable content,” adds Solbakken. “Built on that heritage - and informed by decades of front-line anti-piracy intelligence - NAGRA Venturi moves content protection from a reactive, tool-based model to a proactive, intelligence-led one designed for today’s piracy landscape. NAGRAVISION is proud to be leading the charge to help its customers demonstrate the impact of their anti-piracy strategy - one that proves its value in commercial terms, not just technical ones.”
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ To learn more about NAGRA Venturi, visit nagra.vision or contact us.
+
+ About NAGRAVISION
+
+ NAGRAVISION, the media and entertainment technology division of the Kudelski Group (SIX:KUD.S), enables content creators, providers and operators worldwide to launch, monetize and scale services at speed, offering their subscribers compelling, personalized user experiences. Its portfolio of award-winning products and services spans traditional video security, cybersecurity, cloud-based video and streaming solutions, turnkey direct-to-consumer solutions for the sports industry, and rich personalization services that drive subscriber loyalty. For more information, visit nagra.vision or follow us on Linkedin and X.
+
+ Media contacts
+
+ Gary CrosillaSenior Corporate Communication ManagerNAGRAVISIONKudelski Group+41 79 593 93 25gary.crosilla@nagra.com
+
+ Alex CrabbCaster Communications for NAGRAVISION+1 (401) 318-2229nagravision@castercomm.com
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-showcases-bitac-cancer-platforms-ahead-of-bio-international-convention-7087271)
+[Original/Source Press Release](https://www.newmediawire.com/news/nagravision-launches-nagra-venturi-intelligence-led-streaming-security-for-the-ai-eratitle-7087279)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-showcases-bitac-cancer-platforms-at-bio-convention/2e9cb0ccba34ea9583f3e0f144729823) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nagravision-launches-nagra-venturi-ai-fueled-security-against-piracy/11682217154e1fd7837ce2c6a5793c9d) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/11682217154e1fd7837ce2c6a5793c9d)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/11682217154e1fd7837ce2c6a5793c9d)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/22/wamcAD2w.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/22/lunawV7M.webp)
