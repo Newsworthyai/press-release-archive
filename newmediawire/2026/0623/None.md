@@ -1,107 +1,64 @@
-# Generation Uranium Integrates MMT Survey Into Historic Targets and Investigates AI Targeting
+# Ladybug Resource Group, Inc. Expands Market Reach as JingDiao's Precision Technology Transitions Into Medical and Aerospace Automation
 
-VANCOUVER, BC - June 23, 2026 (NEWMEDIAWIRE) - Generation Uranium Inc. (TSXV: GEN, OTCQB: GENRF, FRA: W85) (“Generation” or the “Company”) is pleased to provide an update on exploration planning for the 2026 field season.
+TULSA, OK - June 23, 2026 (NEWMEDIAWIRE) - Ladybug Resource Group, Inc. ("Ladybug" or the "Company") (OTC ID: LBRG) today announced a strategic expansion of its market focus, leveraging the proven high-precision manufacturing model of its JingDiao division to capture high-margin opportunities beyond the automotive sector. Following the successful deployment of JingDiao’s proprietary operational intelligence in the Electric Vehicle (EV) supply chain, the Company is now scaling these capabilities to serve the surging global demand in medical instrumentation, aerospace structural components, and advanced semiconductor packaging infrastructure.
 
- As the Company awaits approval of its drill permit and prepares for the upcoming field program, Generation is focused on refining and recalibrating historic targets through integration of the 2024 MMT survey results and the evaluation of artificial intelligence as an additional target ranking and optimization tool.
+ The Portability of JingDiao’s Operational Intelligence across Global Sectors
 
- 2024–2025 MMT Survey Integration
+ The Company’s strategic move beyond the automotive sector is driven by the demonstrated portability of JingDiao’s digital management models. The same high-efficiency systems that manage complex EV production lines at the JingDiao facility have shown exceptional performance when applied to other precision-intensive industries that require zero-defect integrity. By utilizing its Smart Supply Chain Hub, JingDiao can now rapidly re-allocate its 5-axis CNC capacity and AI-driven inspection systems to fulfill orders for high-end medical device frames and aerospace components, providing the same level of auditable transparency and precision that has made it a leader in the automotive world.
 
- In 2025, Generation received the results of the Expert Geophysics Mobile Magnetotellurics (MMT) survey completed on the Yath Project. The survey covered the majority of the property, with only a small block left incomplete due to deteriorating weather conditions. In total, 810 line kilometres were flown over an area of approximately 120 km2.
+ Capitalizing on Global Manufacturing Trends through JingDiao’s Scalability
 
- (see Figure 1 below)
+ As Western economies prioritize the reshoring of critical manufacturing and the building of resilient supply chains, there is a substantial global deficit in facilities capable of delivering both extreme precision and large-scale output. JingDiao is filling this void by acting as a decentralized manufacturing partner for global technology firms that require rapid prototyping and localized production of high-precision automation hardware. This diversification strategy, powered by JingDiao’s engineering expertise, significantly increases the Company’s Total Addressable Market (TAM), reducing exposure to any single industry’s cyclicality while ensuring a consistent pipeline of high-value engineering contracts throughout 2026 and beyond.
 
- MMT surveys targeting unconformity style uranium systems focus on three key elements:
+ Management Commentary"JingDiao’s technological moat is fundamentally industry-agnostic," stated Mr. Shicai Li, CEO of the manufacturing division. "While the global transition to sustainable transportation remains a core pillar of our growth, the precision and digital transparency perfected at JingDiao are universal requirements for the next generation of intelligent industry. By expanding JingDiao’s footprint into the medical and aerospace automation sectors, we are unlocking new high-margin revenue streams and demonstrating the immense scalability of the Ladybug model. We are building an industrial ecosystem designed for long-term capital appreciation across multiple global growth sectors."
 
- - Graphitic Conductor Fault Zones - High grade unconformity uranium deposits globally are associated with basement fault zones enriched in graphite, which is highly conductive.
+ About Ladybug Resource Group, Inc.Ladybug Resource Group, Inc. is a US-listed company focused on the intersection of advanced manufacturing and industrial AI. Through its acquisition of Guangzhou JingDiao, the Company provides digitally managed supply chain solutions for the global automotive and precision engineering industries, led by a management team with deep roots in world-class manufacturing excellence.
 
- - Hydrothermal Alteration Halos - Uranium bearing acidic fluids alter surrounding sandstone or host rocks, producing conductivity highs (clay alteration) or resistivity highs (silicification).
+ Stay connected:
 
- - Deep Structural Controls - Understanding the architecture of deep structures helps identify pathways for uranium bearing fluid migration.
+ * Website: Ladybug Resource Group Inc.
+* OTC Markets: LBRG Stock Quote
+* X (formerly Twitter)
+* LinkedIn
+* Instagram
 
- Integration of conductive and resistive MMT corridors with historic mapping and sampling has significantly narrowed the footprint of known targets and, importantly, improved the understanding of structural orientations beneath overburden. Targets historically defined at the scale of hundreds of metres can now be constrained to zones only tens of metres wide.
+ Media & Investor Relations ContactWarren BoothLadybug Resource Group Inc.1408 S. Denver Avenue, Tulsa, OK 74119info@ladybuglbrg.com+1 918-727-7137
 
- The MMT data has refined the interpreted orientation of key uranium targets including BOG, VGR, Embryo, FOX, and Lucky Break, revealing that conductive and resistive trends are oblique to earlier interpretations.
+ Safe Harbor Statement
 
- Advancing Toward Drill‑Ready Targets
-
- The Company continues to integrate the MMT dataset with historic results from the Yath Project, including:
-
- - Surface samples up to 9.8% U3O8 at the Embryo target
-
- - 1.0 m at 0.224% U3O8 from 25.5 m in drillhole BOG‑8‑80
-
- This work is advancing the definition and prioritization of the most prospective drill targets for discovery.
-
- AI Target generation and Ranking
-
- Generation recognizes that Yath is a target‑rich project with a substantial volume of both historic and modern data. To enhance target ranking and improve discovery success, the Company has engaged several AI‑driven geological service providers and is evaluating which group is best suited to support advanced target analysis on the project.
-
- CEO Michael Collins stated:
-
- “The MMT data represents a major leap forward for buried uranium targeting. This exploration concept has already been validated by Atha Energy’s five new discoveries(*) in 2025 on their Angilak Project to the south. Generation has a real opportunity to shorten the discovery cycle at Yath while maximizing exploration dollars and drilling effectiveness.”
-
- * Atha Energy press release, May 5, 2026. Mineralization hosted on an adjacent property is not necessarily indicative of mineralization hosted on Generation’s property.
-
- Figure 1 Conductors and Resistors derived from Mobile Magnetotellurics survey conducted in 2024 by Expert Geophysics
-
- Qualified Person
-
- Michael Collins, P. Geo., President, CEO and Director of Generation Uranium, and a Qualified Person as defined by National Instrument 43‑101 (Standards of Disclosure for Mineral Projects), has reviewed and approved the scientific and technical information contained in this news release.
-
- About Generation Uranium
-
- Generation Uranium is a Canadian exploration company focused on advancing high‑quality uranium assets in premier jurisdictions. Its flagship Yath Project is located in Nunavut’s Angilak district, one of Canada’s most active and rapidly emerging uranium camps. With a growing portfolio of high‑priority targets in a well‑understood uranium district, Generation is well positioned to make discoveries that contribute meaningfully to the future global supply of clean nuclear energy.
-
- For Further Information
-
- Michael Collins, P.Geo., CEO+1(778) 819-7881admin@generationuranium.com
-
- Roger Leschuk, VP Corporate Developmentrleschuk@generationuranium.com+1(604) 720-4544
-
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release. The TSX Venture Exchange has neither approved nor disapproved of the contents of this news release.
-
- Uranium Outlook 2026
-
- The uranium market in 2026 continues to strengthen, supported by a widening structural supply deficit and accelerating global demand. Spot prices surpassed US$100/lb early in the year as mine production struggles to keep pace with reactor requirements. Demand growth is being driven by the rapid expansion of AI‑powered data centers, alongside significant increases in nuclear generation capacity in China, India, and the United States. Long‑term contract prices have now moved above spot, reflecting a healthy and sustained trend as utilities secure supply in an increasingly competitive environment.
-
- A comprehensive sector report(2) released by Shaw and Partners in February 2026 forecasts the potential for a multi‑year uranium price spike toward US$200/lb. The report highlights tightening fuel contracting cycles, accelerating nuclear demand, and persistent supply shortfalls as the foundation for a powerful re‑rating across the uranium sector.
-
- The report also underscores a growing disconnect between uranium supply and long‑term reactor demand. Global nuclear capacity currently consumes approximately 180 million pounds (Mlb) of U3O8 annually, while existing mine production delivers only about 150 Mlb. According to the World Nuclear Association’s reference scenario(3), global nuclear capacity could expand significantly by 2040, pushing annual uranium consumption toward 390 Mlb.
-
- Shaw and Partners’ modelling further indicates:
-
- * New mine supply requirements this decade could exceed 350 Mlb, once depletion of existing operations is included.
-* Structural supply deficits could surpass 200 Mlb per year in the coming decades unless new large‑scale uranium projects are brought into production.
-
- Overall, the uranium market is expected to remain tight, with low inventories and rising demand driving utilities toward increasingly aggressive long‑term contracting strategies. This environment continues to strengthen the outlook for exploration‑stage companies positioned in proven and emerging uranium districts.
-
- References
-
- 1 https://athaenergy.com/atha-energy-completes-mobilization-commences-diamond-drilling-operations-as-part-of-the-2026-angilak-exploration-program-fully-funded-and-largest-to-date-at-the-project/
-
- 2 https://widget.medianet.com.au/uranium-super-cycle-emerging-as-shaw-and-partners-lifts-price-forecast-to-us200lb/1044683?WebsiteId=104
-
- 3 https://world-nuclear.org/our-association/publications/global-trends-reports/world-nuclear-fuel-report-2025#:~:text=The%20World%20Nuclear%20Association's%20biennial%20report%20on,including%20targets%20to%20achieve%20net%2Dzero%20carbon%20emissions
-
- 
-
- 
-
- 
-
-View the original release on www.newmediawire.com 
+ This news release contains forward-looking statements which are not statements of historical fact. Forward-looking statements include estimates and statements that describe the Company's future plans, objectives or goals, including words to the effect that the Company or management expects a stated condition or result to occur. Forward-looking statements may be identified by such terms as "believes," "anticipates", "expects", "estimates", "may", "could", "would", "will", or "plan". Since forward-looking statements are based on assumptions and address future events and conditions, by their very nature they involve inherent risks and uncertainties. Although these statements are based on information currently available to the Company, the Company provides no assurance that the actual results will meet management's expectations. Risks, uncertainties, and other factors involved with forward-looking information could cause actual events, results, performance, prospects, and opportunities to differ materially from those expressed or implied by such forward-looking information. Factors that could cause actual results to differ materially from such forward-looking information include but are not limited to changes in general economic and financial market conditions. Although the Company believes that the assumptions and factors used in preparing the forward-looking information in this news release are reasonable, undue reliance should not be placed on such information, which only applies as of the Date of this news release, and no assurance can be given that such events will occur in the disclosed time frames or at all. The Company disclaims any intention or obligation to update or revise any forward-looking information, whether as a result of new information, future events or otherwise, other than as required by law. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/generation-uranium-integrates-mmt-survey-into-historic-targets-and-investigates-ai-targeting-7087283)
+[Original/Source Press Release](https://www.newmediawire.com/news/ladybug-resource-group-inc-expands-market-reach-as-jingdiao-s-precision-technology-transitions-into-medical-and-aerospace-automation-7087289)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/generation-uranium-integrates-mmt-survey-and-ai-to-sharpen-yath-project-targets/2d5dfabbc500c0f2265789cddf6c3f2f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-resource-group-expands-jingdiao-precision-manufacturing-beyond-automotive/d18594165540666d84ea46a321b52588) 
 
+
+Pickup - [https://burstable.news](https://burstable.news/news/ladybug-resource-group-expands-jingdiaos-precision-manufacturing-into-medical-and-aerospace-sectors)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ladybug-resource-group-erweitert-prazisionsfertigung-von-jingdiao-auf-medizin-und-luftfahrtsektoren)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ladybug-resource-group-expande-la-fabricacion-de-precision-de-jingdiao-hacia-los-sectores-medico-y-aeroespacial)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ladybug-resource-group-etend-la-fabrication-de-precision-de-jingdiao-aux-secteurs-medical-et-aerospatial)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ladybug-resource-group-expande-manufatura-de-precisao-da-jingdiao-para-os-setores-medico-e-aeroespacial)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ladybug-resource-group-expands-jingdiaos-precision-technology-into-medical-and-aerospace-automation)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ladybug-resource-group-expands-jingdiao-precision-technology-into-medical-and-aerospace-automation)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/ladybug-resource-group-expands-jingdiao-precision-technology-into-medical-and-aerospace-markets)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/d18594165540666d84ea46a321b52588)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/d18594165540666d84ea46a321b52588)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/23/coolxfkb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/23/ideajGU7.webp)
