@@ -1,37 +1,29 @@
-# Times Square Pride Comedy Nights: Celebrate Laughter and Love
+# Nathan Macintosh Brings Two Nights of Stand-Up Comedy to Milwaukee Improv July 2 and 3
 
-Comedy Village NYC, Times Square’s home for live stand-up comedy, is proud to announce two special Pride Month comedy events celebrating laughter, identity, community, and New York City nightlife. The shows, “People Be Gay... and Hilarious!” on Wednesday, June 24 at 8PM and “Celebrate Pride Feat” on Thursday, June 25 at 8PM, will take place at Comedy Village, located at 352 West 44th Street in Times Square.
+Experience Nathan Macintosh's high-energy stand-up comedy live at Milwaukee Improv for two unforgettable nights this summer.
 
- The Pride Month comedy events will feature a lineup of standout comedians, including Harrison Greenbaum, Jaye McBride, Akeem Woods, Paula J. Leon and Oscar Aydin, bringing audiences a high-energy night of live comedy in the heart of Midtown Manhattan. Located steps from Broadway and the Theater District, Comedy Village continues to grow as one of New York City’s most exciting destinations for live stand-up comedy, nightlife, group outings, date nights, birthday celebrations, and visitors searching for comedy shows in NYC tonight.
+ The Halifax-born, New York-based comedian will perform at Milwaukee Improv in Brookfield, Wisconsin, on Thursday, July 2, 2026, and Friday, July 3, 2026. Both shows begin at 7 p.m.
 
- “These shows are about celebrating Pride with laughter, visibility, and community,” said a Comedy Village representative. “New York City has always been a place where comedy, culture, and identity meet. Pride Month is the perfect time to bring people together for a night of big laughs, great energy, and unforgettable live entertainment in Times Square.”
+ Known for his sharp delivery, fast pace, and loud, direct stage presence, Macintosh has captivated audiences nationwide with his performances on late-night TV, at top comedy festivals, and through acclaimed albums and specials.
 
- Harrison Greenbaum brings sharp writing, fast-paced delivery, and a polished stage presence to the Comedy Village Pride lineup. A New York comedian and host, Greenbaum has performed at major comedy clubs and has appeared on programs including America’s Got Talent, Conan, and Last Comic Standing. His background also includes comedy and magic, making his performance style highly engaging for live audiences.
+ Macintosh has performed three times on The Tonight Show Starring Jimmy Fallon. He has also appeared on The Late Show with Stephen Colbert, Conan, and multiple Just For Laughs Galas. His sharp wit resonates across SiriusXM and CBC’s The Debaters, expanding his reach.
 
- Jaye McBride adds a powerful and authentic voice to the Pride Month celebration. McBride is widely recognized as a trailblazing transgender comedian and has been noted as the first openly transgender American comedian to perform at Madison Square Garden. She was also named to Vulture’s “Comedians You Should and Will Know” list in 2022, further establishing her as one of the important voices in modern stand-up comedy.
+ The Milwaukee Improv shows give Wisconsin comedy fans two chances to see Macintosh live during a busy stretch of 2026 tour dates.
 
- Akeem Woods brings charisma, rhythm, and a crowd-friendly comedy style to the stage. His performance energy makes him a strong fit for Comedy Village’s Times Square audience, where tourists, locals, and nightlife crowds come together for fast-moving, live stand-up comedy. Woods adds personality and presence to the lineup, helping create a show that feels celebratory, inclusive, and built for the room.
+ Macintosh’s work has earned strong media attention in recent years. His special Money Never Wakes was named Best YouTube Special of 2023 by The New York Times. His special Down With Tech was also recognized by Vulture as one of five stand-up specials to watch. Variety named Macintosh one of its Top Ten Comics To Watch in 2024.
 
- Oscar Aydin rounds out the lineup with a bold stage presence and high-energy comedy voice. Aydin’s performance style connects well with audiences looking for a fun, lively night out in New York City. As part of the “Celebrate Pride Feat” event, he helps bring together the spirit of Pride Month with the excitement of live comedy in one of the busiest entertainment districts in the world.
+ Catch Nathan Macintosh live on July 2 and 3 at Milwaukee Improv, 20110 Lower Union Street, Brookfield, Wisconsin.
 
- The two-night Pride comedy celebration is designed for locals, tourists, LGBTQ+ audiences, allies, Broadway visitors, nightlife fans, and anyone searching for fun things to do in NYC at night. Guests can expect live stand-up comedy, surprise moments, great drinks, food, and Comedy Village’s signature slogan: “You never know who’ll stop by.”
+ Tickets and event details are available through Milwaukee Improv.
 
- Comedy Village’s Pride Month shows also highlight the venue’s growing role as a Times Square comedy club supporting diverse voices, new audiences, and NYC’s vibrant stand-up comedy scene. From comedy shows near Broadway to late-night entertainment in Midtown Manhattan, Comedy Village continues to position itself as a must-visit destination for live comedy in New York City.
-
- Event Details:People Be Gay... and Hilarious!Wednesday, June 24, 20268:00 PM
-
- Celebrate Pride FeatThursday, June 25, 20268:00 PM
-
- Location:Comedy Village NYC352 West 44th StreetNew York, NY 10036
-
- For tickets and more information, visit ComedyVillage.com. 
+ Nathan Macintosh is a comedian and writer originally from Halifax, Nova Scotia, now based in New York. Known for his loud, energetic, and direct style, Macintosh has appeared on The Tonight Show Starring Jimmy Fallon, The Late Show with Stephen Colbert, Conan, and multiple Just For Laughs Galas. His specials include Money Never Wakes and Down With Tech. He has also written and starred in Trapped and can be heard on SiriusXM and CBC’s The Debaters. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606232563/times-square-pride-comedy-nights-celebrate-laughter-and-love)
+[Original/Source Press Release](https://newsworthy.ai/news/202606232566/nathan-macintosh-brings-two-nights-of-stand-up-comedy-to-milwaukee-improv-july-2-and-3)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-nyc-celebrates-pride-with-hilarious-lineup/7404dc88a25bf8921dcee4538ca7094d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-macintosh-brings-high-energy-comedy-to-milwaukee-improv-this-july/9aac692679e089140c9911fad8524391) 
 
  
 
@@ -39,4 +31,4 @@ Comedy Village NYC, Times Square’s home for live stand-up comedy, is proud to 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/23/leanQCtM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/23/evenwlQq.webp)
