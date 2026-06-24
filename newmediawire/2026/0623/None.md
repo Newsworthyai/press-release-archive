@@ -1,40 +1,57 @@
-# Greenland Energy (GLND) Advances Jameson Project as Greenland Pursues Greater Economic Self-Sufficiency
+# Blue Cap AG: Annual General Meeting Approves Record Dividend of EUR 1.60 per Share
 
-LOS ANGELES, CA - June 23, 2026 (NEWMEDIAWIRE) - Greenland Energy (NASDAQ: GLND) is positioning itself at the intersection of one of the Arctic’s most compelling economic opportunities. Through the company’s Jameson Project in East Greenland, it is pursuing resource exploration in an area that has long attracted geological interest but has seen only limited development. As Greenland seeks to improve its economic future and cut down dependence on external financial support, projects like Jameson highlight the critical role responsible resource development can play in building long-term prosperity.
+* Total dividend of EUR 1.60 per share approved, including a special dividend of EUR 0.95 per share
+* All agenda items approved by a large majority
+* Successful con-pearl exit and Janoschka acquisition mark the beginning of the next growth phase
+* Strong liquidity position continues to provide flexibility for value-enhancing acquisitions
 
- * GLND is advancing exploration at the Jameson Project, one of Greenland’s most prospective yet historically underexplored resource regions
-* The company is focused on unlocking economic opportunities that could support job creation, infrastructure development, and long-term revenue generation
-* These developments align with a broader vision: empowering Greenland’s path toward greater economic independence through responsible resource development
+ MUNICH, GERMANY - June 23, 2026 (NEWMEDIAWIRE) - At today’s Annual General Meeting, the shareholders of Blue Cap AG (“Blue Cap”) approved all proposals submitted by the Management Board and Supervisory Board with a large majority. In total, 64.7% of the company’s voting share capital was represented.
 
- The company’s focus on the Jameson Basin highlights a broader opportunity emerging across Greenland. Despite having significant natural resource potential, much of the country’s resource base is still underexplored relative to other energy-producing regions globally. Advances in exploration…
+ Record dividend following successful value realization
 
- Read More
+ Shareholders approved the distribution of a total dividend of EUR 1.60 per share (previous year: EUR 1.10 per share). The dividend consists of a base dividend of EUR 0.65 per share and a special dividend of EUR 0.95 per share. The distribution is primarily based on the successful sale of portfolio company con-pearl during the 2025 financial year.
 
- Forward-Looking Statements
+ “The renewed record dividend reflects the strength of our business model. We are allowing our shareholders to participate directly in the value realized from the sale of con-pearl while still maintaining sufficient financial resources to actively shape Blue Cap’s next phase of growth,” said Dr. Henning von Kottwitz, CEO of Blue Cap AG.
 
- This communication contains “forward-looking statements” within the meaning of the “safe harbor” provisions of the United States Private Securities Litigation Reform Act of 1995 and within the meaning of Section 27A of the Securities Act of 1933, as amended (the “Securities Act”), and Section 21E of the Securities Exchange Act of 1934, as amended. All statements contained herein other than statements of present or historical fact, including, without limitation, statements regarding Greenland Energy Company’s (the “Company”) future financial performance, business strategy, operations, financial position, estimated revenues and losses, projected costs, prospects, plans, objectives of management, and expected benefits of the Company’s recent business combination, are forward-looking statements. Forward-looking statements are generally identified by the use of words such as “believe,” “may,” “will,” “estimate,” “continue,” “anticipate,” “intend,” “expect,” “should,” “would,” “plan,” “project,” “forecast,” “potential,” “predict,” or the negative of these terms or similar expressions, although not all forward-looking statements contain such identifying words.
+ Part of the Exit proceeds invested in Janoschka – significant financial flexibility remains
 
- These forward-looking statements are based on management’s current expectations, assumptions and beliefs regarding future events and are based on information currently available to the Company. These statements involve a number of risks and uncertainties, many of which are difficult to predict and are beyond the Company’s control, and actual results may differ materially from those expressed or implied by these forward-looking statements. Factors that could cause actual results to differ materially include, among others: (i) Exploration and Geological Risks, including the Company’s status as a development-stage company with no operating history, revenues, or proved reserves; the inherent uncertainty in prospective resource estimates, including that the 13 billion barrel estimate is based on undiscovered accumulations with no certainty of discovery or commercial viability; geological complexity arising from limited seismic data coverage, pervasive igneous intrusions, faulting patterns, and significant Tertiary uplift creating thermal maturity uncertainty; the fact that the basin has never produced a commercial discovery despite decades of study dating back to the 1970s, and a 2008 USGS report stating less than a 10% chance of containing a technically recoverable hydrocarbon accumulation; and high-cost frontier exploration with estimated well costs of $40 million for the first well and $20 million for subsequent wells; (ii) Operational and Environmental Risks, including the challenges of operating in a remote Arctic location with extreme climate, harsh weather, limited daylight, no existing infrastructure, and seasonal access windows for equipment and personnel; drilling hazards such as blowouts, equipment failures, well control events, environmental releases, and accidents inherent in oil and gas operations; reliance on third-party contractors; and climate change scrutiny, as operations in Greenland face increasing opposition from environmental groups and institutional investors due to Arctic drilling concerns; (iii) Regulatory and Political Risks, including the 2021 Greenland drilling moratorium, and while licenses are grandfathered, future regulatory changes could jeopardize operations; geopolitical tensions, including U.S. interest in acquiring Greenland and Greenland’s internal independence movements that could affect operations; permit requirements, as drilling requires Environmental Impact Assessment approval and Field Activities Application approval from Greenlandic authorities; and forfeiture risk, as failure to meet drilling milestones could result in loss of the Company’s right to earn working interests; (iv) Financial and Capital Risks, including significant capital requirements and the need for substantial funding beyond current resources to complete the drilling program; commodity price volatility, as oil, gas, and NGL prices are highly volatile and will heavily influence project viability; a long development timeline during which market conditions may change significantly before potential production, unlike short-cycle shale projects; going concern uncertainty and substantial doubt about the Company’s ability to continue as a going concern without additional financing; and energy transition risk, as global demand for oil may decline due to electric vehicle adoption, renewable energy policies, and changing consumer preferences; and other risks and uncertainties as set forth in the Company’s Prospectus filed with the Securities and Exchange Commission pursuant to Rule 424(b)(4) under the Securities Act on April 29, 2026, in the section titled “Risk Factors”.
+ In its report to the Annual General Meeting, the Management Board looked back on an eventful year 2025. With the sale of con-pearl, Blue Cap once again demonstrated the successful execution of its Buy-Transform-Sell strategy. The company achieved an attractive exit proceeds and further strengthened its balance sheet.
 
- Forward-looking statements speak only as of the date they are made. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by applicable law.
+ In addition, the acquisition of Janoschka AG in early 2026 marked an important milestone in Blue Cap’s growth strategy. The internationally active provider of prepress solutions for the packaging industry expands the investment portfolio with an established company that has a global presence and attractive development opportunities.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ “The sale of con-pearl once again demonstrated how we create and realize sustainable value through active transformation. At the same time, with Janoschka we have acquired an investment that is an excellent strategic fit and offers significant value creation potential,” said Henning Eschweiler, COO of Blue Cap AG.
 
- Forward Looking Statements
+ The detailed voting results of the Annual General Meeting and the Management Board presentation will be published at www.blue-cap.de/annual-general-meeting.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ About Blue Cap AG
+
+ Blue Cap AG is a publicly listed investment company headquartered in Munich, Germany, founded in 2006. The company acquires medium-sized B2B companies in special situations and actively supports their operational development with the aim of selling them profitably at a later stage. The acquired companies are headquartered in the DACH region, generate revenues between EUR 20 million and EUR 200 million, and operate sustainable and resilient core businesses. Blue Cap generally holds majority stakes in six companies operating in the industries of Adhesives & Coating Technology, Plastics Technology, Prepress, Life Sciences, and Business Services. The Group currently employs around 2,000 people in Germany and other countries. Blue Cap AG is listed on the Open Market (Scale segment of the Frankfurt Stock Exchange and m of the Munich Stock Exchange; ISIN: DE000A0JM2M1; Stock ticker: B7E). www.blue-cap.de
+
+ Contact:
+
+ Blue Cap AGAnnika KuppersCorporate Affairs ManagerTel. +49 89 288909-24akueppers@blue-cap.de
+
+ 
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/greenland-energy-glnd-advances-jameson-project-as-greenland-pursues-greater-economic-self-sufficiency-7087298)
+[Original/Source Press Release](https://www.newmediawire.com/news/blue-cap-ag-annual-general-meeting-approves-record-dividend-of-eur-1-60-per-share-7087305)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-advances-jameson-project-for-arctic-economic-growth/17d0ed0ad7e3e6b2ef0cc743d957096f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-cap-ag-shareholders-approve-record-dividend-of-eur-1-60-per-share/3e00f7bd44311a4461ac92cbc0a00ab9) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3e00f7bd44311a4461ac92cbc0a00ab9)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/23/lush47Vb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/23/duneatt_.webp)
