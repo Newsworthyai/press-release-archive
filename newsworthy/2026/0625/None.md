@@ -1,47 +1,38 @@
-# ORGANA International Explores Why Nutrient Absorption Matters as Much as Nutrient Intake
+# Kim Pollok's Rise to CEO: Insights on Modern HR Challenges and AI
 
-Most nutrition conversations begin with what people eat. ORGANA International says a growing number of consumers are also becoming interested in a related topic: how nutrient absorption fits into the broader picture of wellness.
+Episode 79 of Rock Solid: Round Rock Business Leaders Podcast, titled "Kim Pollok | From Layoff to CEO," hosted by Bryan Eisenberg, traces an unlikely climb from a December 31 call-center shutdown to the corner office at SWBC Payroll & HR. Published June 23, 2026, the conversation arrives as employers wrestle with hybrid work, multigenerational teams, and the breakneck arrival of AI inside HR and payroll systems. Pollok, who advanced her career without a college degree, provides a candid guide for leaders on developing talent, keeping clients, and ensuring compliance in an ever-changing environment.
 
- While many people focus on calories, vitamins, minerals, and ingredient lists when evaluating foods and wellness products, nutrition experts increasingly recognize that nutrient intake is only one part of the nutrition equation. Discussions about nutrition today often include topics such as food quality, dietary diversity, and bioavailability.
+ Across roughly an hour, Pollok and Eisenberg unpack several threads pulled directly from her 16-year run in the industry:
 
- ORGANA International, a wellness company specializing in plant-derived minerals and natural wellness formulations, says consumers are becoming more informed about the many factors that contribute to healthy lifestyle choices.
+ * Saying "yes" through the SWBC PEO acquisition, when no one on the team knew what a PEO was.
+* Finding and asking for mentors, including SWBC Mortgage CEO Susan Stewart and FI division CEO Mark Hine.
+* Managing baby boomers, Gen X, and Gen Z under one roof without abandoning fairness.
+* Implementing a secure, private AI system for research and workflows, ensuring client and financial data remain protected.
+* Why SWBC sponsored the Round Rock Chamber's Women Who Mean Business event featuring Olympian Cat Osterman.
 
- “As wellness education continues to evolve, consumers are looking beyond simple nutrition facts panels and asking deeper questions about food quality, nutrient density, and overall wellness,” said Larry Mills, CEO of ORGANA International. “The conversation today is not only about what nutrients people consume, but also about the broader factors that influence nutritional well-being.”
+ Pollok's voice is plainspoken and practitioner-first. On the mentor lesson that reshaped how she leads, she tells Eisenberg:
 
- Looking Beyond What's on the Label Modern nutrition discussions often focus on nutrient intake, but wellness experts increasingly acknowledge that nutrition is influenced by a variety of factors, including food quality, dietary diversity, lifestyle habits, and overall wellness practices.
+ "Stop letting people give you dead birds. Don't allow people to just give you their problem and then you are taking on everybody's problem without some solutions, because you're collecting everyone's dead birds and you can't do anything with it." She credits Susan Stewart with the framing, and now uses it with her own team alongside a second mandate: "You have a seat at the table, you've earned a seat at the table, use your voice."
 
- Consumers today are paying closer attention to:
+ The deeper context is a company built on relationships. SWBC Payroll & HR, privately held by Charlie Amato and Gary Dudley, serves clients from five employees to 7,000 across roughly 42 states, with a typical book between 40 and 300 employees and industries ranging from hospitals and urgent cares to construction, property management, nonprofits, train-car refurbishers, and pig farms. Pollok describes the firm as an essential back-office partner for small and mid-sized businesses, providing over 70 specialists at a cost-effective rate. She joined after her prior call-center employer, with over 2,000 workers, gave staff the choice to relocate to El Paso or be laid off; SWBC ran the closing job fair, then offered her an entry-level benefits coordinator role at $10,000 less than her HR-manager salary. Pollok accepted the offer that very afternoon.
 
- * Nutrient density and food quality
-* Whole-food and minimally processed dietary choices
-* Plant-derived nutrition sources
-* Wellness habits that support healthy lifestyles
-
- According to ORGANA International, this growing interest reflects a broader shift toward understanding nutrition as part of an overall wellness strategy rather than focusing exclusively on calories or individual nutrients.
-
- “People are becoming increasingly interested in where nutrients come from and how they fit into a healthy lifestyle,” Mills added. “That curiosity is helping drive a more informed conversation around nutrition and wellness.”
-
- ORGANA Fulvic Acid Trace Mineral Drink - Available on Amazon ORGANA's Fulvic Acid Trace Mineral Drink contains plant-derived fulvic minerals and naturally occurring trace minerals that align with the company's long-standing focus on nutrient quality and wellness education. ORGANA also offers Liquid Oxygen and Essiac Tea as part of its broader portfolio of wellness products.
-
- Consumers can explore and purchase ORGANA products through the company's Amazon storefront and learn more about the company's wellness philosophy at organa.net.
-
- Since 1997, ORGANA International has focused on developing natural wellness products rooted in plant-derived minerals, nutritional awareness, and everyday wellness support.
-
- About [ORGANA International](https://organa.net/) Founded in 1997, ORGANA International is a wellness company committed to delivering natural, bioavailable products that help people live healthier lives. From trace minerals and liquid oxygen to magnesium creams and detoxification teas, ORGANA’s product line is designed to restore vital elements often missing in modern lifestyles. Headquartered in Springville, Utah, ORGANA is a customer-first company with a 5-star BBB rating and nearly three decades of dedication to natural wellness.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits, and large employers shaping Round Rock, Texas. Each episode brings the community's most interesting operators directly to listeners who can't make every chamber lunch or evening event. Episode 79 with Kim Pollok is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606252560/organa-international-explores-why-nutrient-absorption-matters-as-much-as-nutrient-intake)
+[Original/Source Press Release](https://newsworthy.ai/news/202606252574/kim-polloks-rise-to-ceo-insights-on-modern-hr-challenges-and-ai)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-calories-organa-highlights-nutrient-absorption-in-wellness/b9c5f23936d0747b75c87ae213f1cb04) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/from-layoff-to-ceo-kim-pollok-s-journey-on-rock-solid-podcast/8cd7b1af0dafbabdea0f47026465eac5) 
 
+
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/8cd7b1af0dafbabdea0f47026465eac5)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/8cd7b1af0dafbabdea0f47026465eac5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/25/coolR3GR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/25/echoncwK.webp)
