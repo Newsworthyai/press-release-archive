@@ -1,34 +1,39 @@
-# Veraxa Biotech (VRXA) Expands Heidelberg R&D Facilities to Support Drug Development Pipeline
+# Nabaltec AG: Annual General Meeting Once Again Resolves to Distribute a Dividend of EUR 0.29 per Share
 
-LOS ANGELES, CA - June 24, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA), an emerging developer of novel cancer therapies, announced it has expanded its laboratory footprint at its existing research and development site in Heidelberg, Germany, under a previously executed long-term lease agreement. The additional space will support planned growth of the company’s R&D team, installation of new laboratory equipment and completion of infrastructure needed to advance future development activities.
+* Total distribution of EUR 2.6 million
+* Approval of anticipatory resolutions and all agenda items
 
- VERAXA said the expansion aligns with efforts to advance its growing portfolio of proprietary and partnered oncology programs from discovery-stage research toward early clinical development. The company’s pipeline is centered on its BiTAC platform, including BiTAC-TCE and BiTAC-ADC candidates, which are designed to enable tumor-restricted activation of cancer therapies through the use of complementary precursor molecules.
+ SCHWANDORF and AMBERG, GERMANY - June 24, 2026 (NEWMEDIAWIRE) - At today's Annual General Meeting, held in person in Amberg, the Management Board and Supervisory Board of Nabaltec AG once again received broad shareholder support for the company's operational direction and corporate strategy.
 
- To view the full press release, visit https://ibn.fm/n3t6U
+ Shareholders followed the joint profit appropriation proposal of the Management Board and Supervisory Board and resolved to distribute a dividend totaling EUR 2.6 million, or EUR 0.29 per share. The remaining distributable profit of EUR 66.6 million will be carried forward to new account and will continue to serve to strengthen the company's equity base. The dividend will be paid out on 29 June 2026.
 
- About VERAXA Biotech AG
+ “Once again, we have received strong approval from our shareholders for the direction of Nabaltec AG. Against the backdrop of a challenging market environment – particularly in the chemical industry – this vote of confidence is of great importance,” said Johannes Heckmann, CEO of Nabaltec AG. “We are especially pleased to be able to give our shareholders a share in the company's success, particularly given the overall more cautious dividend policy across the chemicals sector.”
 
- At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
+ In addition to the profit appropriation, shareholders approved the discharge of the Management Board and Supervisory Board, as well as the proposal for the election of the auditor for the 2026 Financial Year and various anticipatory resolutions. These include the authorization to acquire treasury shares, the creation of new authorized capital, and the option to issue convertible bonds and/or bonds with warrants, including the creation of new contingent capital.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Note: The voting results of Nabaltec AG's 2026 Annual General Meeting will be available for download from the Investor Relations/Annual General Meeting section of www.nabaltec.de/en, shortly.
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ About Nabaltec AG:
 
- Forward Looking Statements
+ Nabaltec AG, with registered office in Schwandorf, a chemicals business which has received multiple awards for innovativeness, manufactures, develops and distributes highly specialized products based on aluminum hydroxide and aluminum oxide on an industrial scale through its two product segments, “Functional Fillers” and “Specialty Aluminas.” The company's product range includes eco-friendly flame retardant fillers and functional additives for the plastics industry. Flame retardant fillers are used e.g. in cables in tunnels, airports, high-rise buildings and electronic devices, while additives have applications in catalysis and in electric vehicles. Nabaltec also produces specialty oxides for use in technical ceramics, the refractory and polishing industries. Nabaltec maintains production sites in Germany and the US and plans to continue to develop its market position by expanding capacity, further optimizing processes and quality and making strategic extensions to its product range. On the strength of its specialty products, the company strives to attain the market leadership in each segment.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Contact:Heidi Wiendl-SchnellerNabaltec AGPhone: +49 9431 53-202E-mail: InvestorRelations@nabaltec.de
+
+ Vera Muller/Frank OstermairIR4value GmbHPhone: +49 156 78409459E-mail: Vera.Mueller@ir4value.de 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-expands-heidelberg-r-d-facilities-to-support-drug-development-pipeline-7087323)
+[Original/Source Press Release](https://www.newmediawire.com/news/nabaltec-ag-annual-general-meeting-once-again-resolves-to-distribute-a-dividend-of-eur-0-29-per-share-7087334)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-expands-lab-in-heidelberg-to-boost-cancer-pipeline/7336ec201faedc026561611a21ce3711) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nabaltec-ag-wins-shareholder-backing-distributes-eur-2-6m-dividend/b5805504c15fcb1eea3e99d4c66c0899) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/b5805504c15fcb1eea3e99d4c66c0899)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/24/fondJUDf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/24/bake88qy.webp)
