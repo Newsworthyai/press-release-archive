@@ -1,20 +1,18 @@
-# NetworkNewsBreaks – Nicola Mining Inc. (NASDAQ: NICM) (TSXV: NIM) (FSE: HLIA) Reports Encouraging Results From Initial Jotun Drill Hole
+# NetworkNewsBreaks – CMX Gold &amp; Silver Corp. (CSE: CXC) (OTC: CXXMF) Focuses on Long-Term Opportunity as Market Dynamics Evolve
 
-This article has been disseminated on behalf of Nicola Mining Inc. and may include paid advertising.
+Disseminated on behalf of MindBio Therapeutics Corp. (CSE: MBIO) (OTCQB: MBQIF) and may include paid advertising.
 
- Nicola Mining (NASDAQ: NICM) (TSXV: NIM) (FSE: HLIA) announced that its first-ever drill hole at the newly identified Jotun target within the New Craigmont Copper Project in British Columbia confirmed geological characteristics consistent with a prospective porphyry copper system. The 840-meter drill hole intersected multiple hydrothermal alteration styles, structurally controlled native copper mineralization and bornite-bearing veins, supporting the company’s evolving exploration model and identifying Jotun as a priority target for additional drilling.
+ MindBio Therapeutics (CSE: MBIO) (OTCQB: MBQIF) is a biotechnology company commercializing AI-driven voice technology for drug and alcohol intoxication detection. The company was featured in a recent article that discussed its efforts to broaden the scope of its platform with the development of a fatigue prediction model designed for high-risk workplace environments. “The fatigue detection capability is expected to become an additional feature within MindBio’s planned Edge AI Intoxication Detection Kiosks, which are being designed to identify signs of alcohol, drug impairment and fatigue from short voice samples,” the publication reads.
 
- The company also completed a property-wide Mobile Magnetotelluric geophysical survey and an extensive Mobile Metal Ion soil sampling program over the Draken target as part of its 2026 exploration campaign. Nicola said the integrated drilling, geochemical and geophysical data will refine future drill targets and support an expanded exploration program in 2027, while additional geochemical analyses from the Jotun drill hole are expected later this year.
+ “The announcement reflects a broader strategy by MindBio to position voice analytics as a scalable alternative to conventional impairment screening methods such as breathalyzers, saliva tests, urine analysis and laboratory-based toxicology testing. Rather than relying on physical samples, the company’s platform analyzes speech characteristics captured through a microphone and processes the audio using machine learning models trained on large voice datasets.”
 
- To view the full press release, visit https://nnw.fm/CQfwb
+ To view the full article, visit https://nnw.fm/5DDUT
 
- About Nicola Mining
+ About MindBio Therapeutics Corp.
 
- Nicola Mining Inc. is a junior mining company listed on the Exchange and Frankfurt Exchange that maintains a 100% owned mill and tailings facility, located near Merritt, British Columbia. It has signed Mining and Milling Profit Share Agreements with high grade gold projects. Nicola’s fully permitted mill can process both gold and silver mill feed via gravity and flotation processes.
+ MindBio is a biotechnology company that is commercialising AI prediction technologies for drug and alcohol intoxication detection via voice analysis. The AI prediction model uses over 50 million data points to predict alcohol intoxication with remarkable accuracy, just by using the human voice. The company is developing an enterprise platform including Edge-AI kiosks integrating bespoke hardware and software for the detection of drug and alcohol intoxication using the human voice and AI in a range of enterprise environments including the mining industry, aviation, construction and law enforcement.
 
- The Company owns 100% of the New Craigmont Project, a high-grade copper property, which covers an area of 10,913 hectares along the southern end of the Guichon Batholith and is adjacent to Highland Valley Copper, Canada’s largest copper mine. The Company also owns 100% of the Treasure Mountain Property, which includes 30 mineral claims and a mineral lease, spanning an area exceeding 2,200 hectares.
-
- NOTE TO INVESTORS: The latest news and updates relating to NICM are available in the company’s newsroom at https://nnw.fm/NICM
+ NOTE TO INVESTORS: The latest news and updates relating to MBQIF are available in the company’s newsroom at https://nnw.fm/MBQIF
 
  About NetworkNewsWire
 
@@ -32,10 +30,10 @@ This article has been disseminated on behalf of Nicola Mining Inc. and may inclu
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-nicola-mining-inc-nasdaq-nicm-tsxv-nim-fse-hlia-reports-encouraging-results-from-initial-jotun-drill-hole/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nicola-mining-confirms-porphyry-copper-at-jotun-target/c3e87b9105770098383f01d02d434a11) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mindbio-expands-ai-voice-tech-to-detect-fatigue-in-high-risk-jobs/20e9e968133badce25aaf5d34405da72) 
 
  
 
@@ -43,4 +41,4 @@ This article has been disseminated on behalf of Nicola Mining Inc. and may inclu
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/26/markG759.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/26/yogaOA5S.webp)
