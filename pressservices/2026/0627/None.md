@@ -1,56 +1,57 @@
-# 4-Pillar Framework Targets Small Business Lead Generation
+# Minerva DMC Adds AI Search Visibility Alongside Local SEO Suite
 
-Wills Point Agency Adds Generative Engine Optimization to Small Business SEO Model
+Minerva DMC Expands Into AI Search Visibility for Law Firms and Healthcare Providers
 
- Wills Point, United States - June 27, 2026 / Morrow Marketing LLC /
+ Minneola, United States - June 27, 2026 / Minerva Digital Marketing Consultants /
 
  FOR IMMEDIATE RELEASE
 
-Media Contact:Daniela Morrow, FounderMorrow Marketing LLC+1 (903) 508-4319dani@morrow-marketing.comwww.morrow-marketing.com
+MINNEOLA, FL - June 2026 - Minerva Digital Marketing Consultants, a Minneola, Florida-based digital marketing agency specializing in affordable, results-driven marketing for local businesses, has announced the launch of its new AI search visibility service - a dedicated offering designed to help local businesses appear in AI-generated search results across platforms including ChatGPT, Google Gemini, and Perplexity.
 
-Morrow Marketing Unveils Data-Driven Client Acquisition Framework for Small Businesses and Service ContractorsNorth East Texas digital marketing agency introduces a structured growth methodology designed to help local businesses compete online and convert qualified leads at scale
+Artificial intelligence is reshaping how consumers discover businesses, with a growing share of searches now answered directly by AI platforms rather than traditional search engine results pages. For local businesses - including law firms, healthcare providers, and small to mid-sized enterprises - this shift presents both a meaningful challenge and a largely untapped opportunity. Without proper optimization for AI-driven discovery, even well-established local businesses risk losing visibility to an entirely new generation of search behavior.
 
-WILLS POINT, Texas - June 25, 2026 - Morrow Marketing LLC, a North East Texas-based digital marketing agency, has announced the launch of a comprehensive, data-driven client acquisition framework built specifically for small businesses, contractors, and service-based companies pursuing measurable online growth.
+Minerva's AI search visibility service addresses this gap directly. Drawing on data-driven strategies and personalized attention that have defined the agency's approach, the service helps local businesses build the digital signals, structured content, and brand authority that AI platforms rely on when generating answers and recommendations. The offering is designed to be accessible and actionable for businesses of all sizes - not only enterprise brands with large marketing budgets.
 
-The framework brings together custom website development, high-converting funnel architecture, small business SEO, and generative engine optimization (GEO) - a discipline focused on securing brand visibility within AI-powered search environments such as Google AI Overviews, ChatGPT, and Perplexity. The methodology is designed to move clients away from fragmented digital tactics and toward a unified, performance-oriented online presence.
+"The advancements in AI have created a real opportunity for local businesses, and there was no reason it should remain out of reach for them," said Margarita Grisales, founder of Minerva Digital Marketing Consultants. "Search behavior is evolving fast - the way people discover a new attorney, a healthcare provider, or a local service is no longer just a Google search. Businesses that don't adapt risk becoming invisible to an entirely new generation of customers, and AI Search Visibility was built to make sure our clients are never in that position."
 
-"Most small businesses are investing in marketing without a clear system connecting their website, their search visibility, and their lead pipeline," said Daniela Morrow, Founder, Morrow Marketing LLC. "What we've built is a framework that treats every digital asset as part of a single conversion engine - so that when someone finds a client online, whether through Google, an AI assistant, or a social platform, there's a clear path from discovery to a qualified conversation."
+The service is now available to new and existing Minerva clients. It complements the agency's existing suite of offerings, which includes local SEO, Google Ads Management, Local Services Ads (LSA) Management, Social Media Management, and Performance Marketing. Together, these services give local businesses an integrated path to visibility across both traditional and AI-powered search - including platforms where ChatGPT local business recommendations are increasingly influencing consumer decisions.
 
-A Structured Approach to Local Market DominanceThe framework is organized around four core pillars:
+Local businesses interested in learning how the AI search visibility service can support their growth are encouraged to schedule a consultation. Learn more at Minerva Digital Marketing Consultants or book directly at crm.minervadmc.com/widget/bookings/minervadmc.
 
-1. Foundation - Custom-built websites and funnel pages engineered for conversion, not just aesthetics. Each site is structured to capture leads, communicate authority, and support long-term SEO performance.
-2. Visibility - A dual-track small business SEO and generative engine optimization strategy that targets traditional search rankings while simultaneously building the brand entity signals required for AI-generated search results.
-3. Authority - Ongoing content strategy and social media management that positions clients as recognized experts within their local market and service category.
-4. Exclusivity - Morrow Marketing operates on a one-client-per-industry-per-service-area model, ensuring each client's competitive advantage is protected and that the agency's full strategic focus is directed toward their growth.
+About Minerva Digital Marketing Consultants
 
-Serving the Underserved: Small Businesses and ContractorsThe agency's target market - small businesses, home service contractors, and local service providers - has historically been underserved by digital marketing firms that prioritize enterprise accounts. Morrow Marketing's model is structured around the operational realities of owner-operated businesses: clear deliverables, transparent pricing, and a direct relationship with the strategist executing the work.
+Minerva Digital Marketing Consultants is a Minneola, FL digital marketing agency dedicated to helping local businesses compete and grow in an increasingly digital world. Combining Fortune 500-level expertise with the personal attention that local businesses deserve, Minerva delivers customized, data-driven marketing strategies across SEO, Google Ads, Local Services Ads, Social Media Management, and AI Search Visibility. For more information, visit minervadmc.com.
 
-With more than 30 years of combined business and marketing experience, the agency applies enterprise-level strategic thinking to clients who have traditionally had access only to generalist freelancers or templated marketing packages.
+Media Contact:
 
-Generative Engine Optimization: Preparing for the Next Search ParadigmA defining element of the new framework is its formal inclusion of generative engine optimization - a practice that structures brand content and entity data for retrieval by large language models and AI-powered search engines. As AI-generated answers increasingly appear in response to commercial queries, businesses that have not prepared their digital presence for machine-readable retrieval risk losing visibility to competitors who have.
+Margarita Grisales
 
-Morrow Marketing is among a limited number of firms serving the small business segment that has established GEO as a standard service offering rather than an experimental add-on.
+Minerva Digital Marketing Consultants
 
-AvailabilityThe client acquisition framework is available to new clients on a market-exclusive basis. Interested businesses can request a discovery consultation at www.morrow-marketing.com.
+Minneola, FL
 
-About Morrow Marketing LLCMorrow Marketing LLC is a digital marketing agency headquartered in Wills Point, Texas, serving small businesses, contractors, and service-based companies across North East Texas and beyond. The agency specializes in custom website design, high-converting funnel pages, SEO, local business growth strategy, social media management, content strategy, and generative engine optimization (GEO). Morrow Marketing operates on an exclusive partnership model - working with only one business per industry per service area - to ensure each client receives undivided strategic focus and a protected competitive position. Learn more.
+Phone: +1 (352) 459-3772
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/BcNYM83FgIYosO6IRnxdW45gmOcLpyR1hWOqN9xM.jpg) [](https://www.morrow-marketing.com) Contact Information:
+Email: margarita@minervadmc.com
 
- Morrow Marketing LLC
+Website: https://minervadmc.com
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/xiCH0qY007EJ1IEmzbQLiFkHYXJh5yjnoeQywqFD.jpg) [](minervadmc.com) Contact Information:
+
+ Minerva Digital Marketing Consultants
 
  
 
-10041 Jacobs Ln  Wills Point, Texas 75169United States
+692 Big Pine Ave, Minneola, FL, 23715  Minneola, FL 34715United States
 
- Daniela Morrow +1-903-508-4319 https://www.morrow-marketing.com 
+ Margarita Grisales +1 (352) 459-3772 minervadmc.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/4-pillar-framework-targets-small-business-lead-generation-437323)
+[Original/Source Press Release](https://mediawiretoday.com/minerva-dmc-adds-ai-search-visibility-alongside-local-seo-suite-437473)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/morrow-marketing-launches-geo-powered-growth-framework-for-smbs/faf4c5733236f1cdcdae2435a499e6a2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minerva-dmc-launches-ai-search-visibility-for-local-businesses/e22867bdc87d8c415e28f118d9b2af6c) 
 
  
 
@@ -58,4 +59,4 @@ About Morrow Marketing LLCMorrow Marketing LLC is a digital marketing agency hea
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/frogOX02.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/sageOy3O.webp)
