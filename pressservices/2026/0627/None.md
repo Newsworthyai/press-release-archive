@@ -1,73 +1,56 @@
-# Forum Ventures 2026 Cohort: 64% of Founders Reach Early Revenue
+# 4-Pillar Framework Targets Small Business Lead Generation
 
-Forum Ventures Releases 2026 Cohort Data: 64% of Founders Hit Early Revenue During the Program
+Wills Point Agency Adds Generative Engine Optimization to Small Business SEO Model
 
- Westport, United States - June 26, 2026 / Forum Ventures /
+ Wills Point, United States - June 27, 2026 / Morrow Marketing LLC /
 
- Forum Ventures, the early-stage B2B venture studio, accelerator, and pre-seed fund that has backed 550+ companies since 2014, today released performance data from its most recent accelerator cohort. The data offers a detailed look at revenue outcomes, founder backgrounds, and team composition across the program.
+ FOR IMMEDIATE RELEASE
 
-"Most accelerators are subconsciously filtering out the founders who need them most. Solo founders, first-timers, founders without a product yet - those are exactly the people we built Forum for. The data shows they can deliver." - Michael Cardamone, CEO & Managing Partner, Forum Ventures
+Media Contact:Daniela Morrow, FounderMorrow Marketing LLC+1 (903) 508-4319dani@morrow-marketing.comwww.morrow-marketing.com
 
-The Data
+Morrow Marketing Unveils Data-Driven Client Acquisition Framework for Small Businesses and Service ContractorsNorth East Texas digital marketing agency introduces a structured growth methodology designed to help local businesses compete online and convert qualified leads at scale
 
-Across Forum's most recent accelerator cohort, three findings stand out:
+WILLS POINT, Texas - June 25, 2026 - Morrow Marketing LLC, a North East Texas-based digital marketing agency, has announced the launch of a comprehensive, data-driven client acquisition framework built specifically for small businesses, contractors, and service-based companies pursuing measurable online growth.
 
-* 64.1% of founders in the most recent cohort reached early revenue during the program
-* 58.3% of founders in the most recent cohort are first-time founders
-* 25.6% of founders in the most recent cohort are solo-founder led
+The framework brings together custom website development, high-converting funnel architecture, small business SEO, and generative engine optimization (GEO) - a discipline focused on securing brand visibility within AI-powered search environments such as Google AI Overviews, ChatGPT, and Perplexity. The methodology is designed to move clients away from fragmented digital tactics and toward a unified, performance-oriented online presence.
 
-These three data points are independent findings from the same cohort. They are not presented as causally linked - each reflects a different dimension of who is in the program and what they achieved during it.
+"Most small businesses are investing in marketing without a clear system connecting their website, their search visibility, and their lead pipeline," said Daniela Morrow, Founder, Morrow Marketing LLC. "What we've built is a framework that treats every digital asset as part of a single conversion engine - so that when someone finds a client online, whether through Google, an AI assistant, or a social platform, there's a clear path from discovery to a qualified conversation."
 
-Why This Matters
+A Structured Approach to Local Market DominanceThe framework is organized around four core pillars:
 
-The narrative around early-stage funding has long assumed that the safest bets are repeat founders, co-founding teams, and companies with demonstrated traction before the program begins. Forum's 2026 cohort data offers a different perspective on each of these assumptions.
+1. Foundation - Custom-built websites and funnel pages engineered for conversion, not just aesthetics. Each site is structured to capture leads, communicate authority, and support long-term SEO performance.
+2. Visibility - A dual-track small business SEO and generative engine optimization strategy that targets traditional search rankings while simultaneously building the brand entity signals required for AI-generated search results.
+3. Authority - Ongoing content strategy and social media management that positions clients as recognized experts within their local market and service category.
+4. Exclusivity - Morrow Marketing operates on a one-client-per-industry-per-service-area model, ensuring each client's competitive advantage is protected and that the agency's full strategic focus is directed toward their growth.
 
-Solo founders can deliver.
+Serving the Underserved: Small Businesses and ContractorsThe agency's target market - small businesses, home service contractors, and local service providers - has historically been underserved by digital marketing firms that prioritize enterprise accounts. Morrow Marketing's model is structured around the operational realities of owner-operated businesses: clear deliverables, transparent pricing, and a direct relationship with the strategist executing the work.
 
-25.6% of Forum's most recent cohort are solo-founder led. Many accelerators and early-stage funds favour co-founding teams during evaluation - the perception that solo founders are a higher risk is widespread across the industry. Forum's approach of pairing each company with a dedicated Managing Director who works 1:1 weekly means solo founders receive the operational support and accountability that a co-founder would typically provide.
+With more than 30 years of combined business and marketing experience, the agency applies enterprise-level strategic thinking to clients who have traditionally had access only to generalist freelancers or templated marketing packages.
 
-First-time founders are not a risk factor.
+Generative Engine Optimization: Preparing for the Next Search ParadigmA defining element of the new framework is its formal inclusion of generative engine optimization - a practice that structures brand content and entity data for retrieval by large language models and AI-powered search engines. As AI-generated answers increasingly appear in response to commercial queries, businesses that have not prepared their digital presence for machine-readable retrieval risk losing visibility to competitors who have.
 
-58.3% of Forum's most recent cohort had never founded a company before. Prior startup experience is often favoured by investors and accelerators at the evaluation stage, and can influence how a founder's application is read. Yet the cohort's revenue and follow-on outcomes are consistent with Forum's 3-year averages: a 65% fund-through rate and an 80+ NPS score across the portfolio. First-time founders who receive structured, hands-on support - 15 hours minimum of 1:1 Managing Director time, 40+ investor introductions per showcase - perform.
+Morrow Marketing is among a limited number of firms serving the small business segment that has established GEO as a standard service offering rather than an experimental add-on.
 
-Revenue during the program is the real traction benchmark.
+AvailabilityThe client acquisition framework is available to new clients on a market-exclusive basis. Interested businesses can request a discovery consultation at www.morrow-marketing.com.
 
-64.1% of founders in the most recent cohort reached early revenue during the 16-week accelerator. The Forum model - focused on go-to-market, customer traction, and fundraise readiness from week one - is designed to produce this outcome regardless of what traction a founder had when they joined.
+About Morrow Marketing LLCMorrow Marketing LLC is a digital marketing agency headquartered in Wills Point, Texas, serving small businesses, contractors, and service-based companies across North East Texas and beyond. The agency specializes in custom website design, high-converting funnel pages, SEO, local business growth strategy, social media management, content strategy, and generative engine optimization (GEO). Morrow Marketing operates on an exclusive partnership model - working with only one business per industry per service area - to ensure each client receives undivided strategic focus and a protected competitive position. Learn more.
 
-"The $100k is nice... but the real value comes from having the MDs on your team. Their perspective, energy, and introductions as you grow are worth the investment. Especially for first-time founders who need someone to walk the journey with. I know in 4 years I can still call up my MD and he'll jump on a sales call or help me wordsmith messaging." - Kory Kelly, Founder, Legal Karma (raised $6.8M to date)
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/BcNYM83FgIYosO6IRnxdW45gmOcLpyR1hWOqN9xM.jpg) [](https://www.morrow-marketing.com) Contact Information:
 
-About the Forum Ventures Accelerator
-
-Forum's accelerator is a 16-week program investing $100K for 7.5% equity via post-money SAFE. Each company receives a dedicated Managing Director - a former founder or operator - who works with them 1:1 weekly. The program is focused on go-to-market, customer traction, and fundraise readiness. Forum does not run a curriculum; it meets founders where they are.
-
-The accelerator is best suited for founders who have raised less than $500K and are pre- or post-MVP. Applications are reviewed individually. Forum answers every pitch.
-
-Program terms at a glance: $100K for 7.5% equity · Post-money SAFE · 16 weeks · 15 hours minimum 1:1 MD time · 40+ investor introductions per showcase · $100K+ in year-one perks
-
-About Forum Ventures
-
-Forum Ventures is an early-stage B2B venture studio, accelerator, and pre-seed fund that invests in founders from zero to one. Founded in 2014 and headquartered in New York City, with offices in San Francisco and Toronto, Forum partners with a small number of founders at a time to co-build, validate, and scale B2B software businesses across North America. Forum has backed 550+ portfolio companies and 1,000+ founders, with $1B+ in follow-on funding raised across the portfolio.
-
-Forum's three investment strategies - the AI Venture Studio ($250K at formation), the Accelerator ($100K, 16 weeks), and the Pre-Seed Fund ($250K-$1M) - make it the only early-stage firm investing from pre-idea through early growth.
-
-Learn more at forumvc.com.
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rRAVm1zovlpkqZyj5vpPbBXaJfuGDU7xblWUAen7.jpg) [](https://forumvc.com) Contact Information:
-
- Forum Ventures
+ Morrow Marketing LLC
 
  
 
-55 Post Rd W, 2nd Floor  Westport, CT 06880United States
+10041 Jacobs Ln  Wills Point, Texas 75169United States
 
- Alexis Clarfield-Henry +1 1647889599 https://forumvc.com 
+ Daniela Morrow +1-903-508-4319 https://www.morrow-marketing.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/forum-ventures-2026-cohort-64-of-founders-reach-early-revenue-437022)
+[Original/Source Press Release](https://mediawiretoday.com/4-pillar-framework-targets-small-business-lead-generation-437323)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/forum-ventures-2026-cohort-64-hit-early-revenue-defying-startup-norms/b38fd6a7da5edb340c42b6a711866a20) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morrow-marketing-launches-geo-powered-growth-framework-for-smbs/faf4c5733236f1cdcdae2435a499e6a2) 
 
  
 
@@ -75,4 +58,4 @@ Learn more at forumvc.com.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/kiteT3w8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/frogOX02.webp)
