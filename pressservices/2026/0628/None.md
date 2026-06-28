@@ -1,49 +1,49 @@
-# Richmond Ave Dealer Adds Watch-to-Diamond Exchanges in 2026
+# licehappensga.com Serves 16 Georgia Locations After 10 Years
 
-Houston Dealer Now Lets Sellers Trade Pre-Owned Rolex Equity Directly for GIA Diamonds
+10 Years In, Atlanta Mobile Lice Removal Service Has Treated Over 10,000 Households
 
- Houston, United States - June 28, 2026 / Jonathan's Fine Jewelers /
+ Atlanta, United States - June 28, 2026 / Lice Happens Atlanta /
 
- Jonathan's Fine Jewelers, the independent pre-owned luxury watch and wholesale diamond specialist located on Richmond Avenue in Houston, has formalized a lab-grade physical verification protocol that now applies as standard practice to every timepiece entering its inventory or submitted for appraisal. The decision responds to a documented shift in Houston's secondary watch market: the increasing presence of high-precision counterfeit timepieces - commonly referred to as "super-clones" - that replicate the visual and physical characteristics of genuine references with enough accuracy to pass surface-level inspection. For anyone buying or selling a pre-owned Rolex Houston dealers handle daily, or for families managing estate liquidations, the practical consequence is a meaningful gap between perceived and actual asset value. JFJCO has operated from the same Richmond Avenue address since 1991, specializing in the outright purchase of pre-owned luxury watches, GIA-certified wholesale diamond sales, and estate jewelry appraisals for Houston-area clients.
+ licehappensga.com, the Atlanta-based mobile lice removal service founded by Tracey Fudge, has announced that it has now treated more than 10,000 families across the Atlanta metro area - a milestone that reflects over a decade of consistent, community-centered care. The announcement marks a significant chapter for the company, which has built its reputation on bringing professional lice treatment directly to Georgia households, eliminating the need for families to travel to a clinic during an already stressful time.
 
-The Authentication Protocol: Physical Verification as Standard PracticeJFJCO's updated intake process applies a five-layer physical verification to every watch the firm evaluates - whether for purchase, sale, or appraisal. The protocol is structured to move beyond visual inspection, which the firm considers insufficient given current market conditions in Houston.
+A Mission Rooted in Compassion and ConvenienceWhen Tracey Fudge launched licehappensga.com, the goal was straightforward: make lice treatment accessible, judgment-free, and effective. Lice infestations are common among school-age children, yet they carry an outsized social stigma that can leave families feeling embarrassed and isolated. Fudge built the business around a simple but powerful philosophy - "No Shame. No Blame." - designed to normalize the experience and remove the anxiety that often accompanies a lice diagnosis.
 
-* XRF Spectrometry: Non-destructive X-ray fluorescence analysis confirms the atomic composition of case and bracelet alloys - verifying 904L Oystersteel and 18k gold purity without causing damage to the watch. Results are produced in under 60 seconds.
-* Caliber Analysis: Movement inspection under professional magnification. Beat rate, amplitude, and power reserve are measured against manufacturer specifications for the specific caliber.
-* Optical Inspection: High-powered loupe examination of laser-etched security features, dial printing depth, cyclops magnification accuracy, and luminova application consistency.
-* Rehaut and Serial Verification: Alignment and engraving depth analysis of the internal bezel ring, cross-referenced against reference standards built from decades of authenticated inventory.
-* Pressure Testing: Case seal integrity is verified using a professional pressure tank - particularly relevant in Houston's Gulf Coast climate, where humidity accelerates gasket degradation in unverified timepieces.
+That philosophy has shaped every aspect of how licehappensga.com operates. From the first phone call to the final comb-through, the service is structured to be discreet, supportive, and efficient. Technicians arrive at the client's home, treating the family in a familiar, comfortable environment rather than a clinical setting. This approach has proven particularly valuable for parents managing young children, individuals with sensory sensitivities, and households where scheduling a clinic visit presents logistical challenges.
 
-"In 2026, a visual inspection is not enough. Super-clones have reached a level of precision where the difference between a genuine Rolex and a high-end fake lives inside the case and inside the metal itself. Our clients are making five and six-figure decisions. They deserve a verification process that goes all the way to the atomic level."
+"We know how overwhelming it can feel when lice show up, and we want every family to know there is nothing to be ashamed of," said Tracey Fudge, Founder of licehappensga.com. "Our job is to take care of the problem quickly, safely, and with complete respect for every family we serve."
 
-- Sergio Nuncio, Lead Specialist, Jonathan's Fine Jewelers
+Mobile Lice Removal Atlanta Families Have Relied On for Over a Decadelicehappensga.com has operated for more than 10 years, expanding its mobile lice removal Atlanta coverage to 16 locations across Georgia. The service model - where trained technicians travel to the client rather than requiring the client to come in - has distinguished the company in a market where brick-and-mortar clinics remain the more common option.
 
-Serving Houston Heirs and Estate Executors: Watch Appraisal for Estate PurposesA significant share of JFJCO's clientele consists of Houston families managing estate liquidations - heirs who have inherited luxury timepieces and require both reliable luxury watch authentication Houston professionals can stand behind and a credible valuation before committing to a sale. A key practical consideration for heirs: the condition of an inherited watch at the time of sale directly determines its market value. JFJCO advises against cleaning, polishing, or servicing a vintage or pre-owned timepiece prior to a professional evaluation. Those actions can permanently reduce market value, particularly for references where original case condition and unserviced components carry a premium.
+The treatments themselves are non-toxic and formulated to be safe for all ages, from young children to adults. This has been a consistent priority for licehappensga.com, reflecting the understanding that many families dealing with lice include infants, pregnant mothers, or individuals with health sensitivities for whom chemical-based treatments are not appropriate.
 
-"The most expensive mistake I see heirs make is taking a watch to a generic shop for a buff and polish before they call us. On a vintage Submariner or a rare GMT reference, that single decision can reduce the value by 30 percent or more. We tell everyone the same thing: bring it to us exactly as you found it."
+The company holds a BBB A+ accreditation and has earned the #1 rating on Yelp in its category - recognition that reflects the steady feedback from the more than 10,000 families served across the Atlanta region.
 
-- Sergio Nuncio, Jonathan's Fine Jewelers
+Serving Georgia Communities With a Consistent Standard of CareThe reach of licehappensga.com extends well beyond a single neighborhood or zip code. By operating across 16 Georgia locations, the company has made professional lice treatment Georgia families can depend on available to a broad and geographically diverse population. Whether a family is located in a suburban Atlanta community or in a surrounding county, the same standard of care - non-toxic products, trained technicians, and a stigma-free approach - applies.
 
-Houston Market Context: Buying and Selling Pre-Owned Rolex in 2026Houston's pre-owned luxury watch market carries characteristics that distinguish it from national averages. The city's energy-sector wealth base, cultural preference for physical assets, and geographic concentration of high-net-worth buyers in neighborhoods including River Oaks, Memorial, The Woodlands, and Sugar Land sustain consistent local demand for authenticated, documented timepieces. As a trusted Rolex buyer Houston collectors and estate representatives have relied on for over three decades, JFJCO operates on a direct-purchase model: the firm acquires pre-owned Rolex watches outright using its own capital, providing sellers with immediate payment rather than a consignment arrangement. The firm's dual position as a wholesale diamond importer and a pre-owned watch dealer also allows clients to exchange watch equity directly against GIA-certified diamond inventory - a single-session transaction that eliminates the cost and friction of two separate dealer visits. For buyers, JFJCO's Richmond Avenue inventory provides access to pre-owned Rolex references - including Submariner, GMT-Master II, and Datejust models - each of which has passed the firm's full five-layer authentication protocol before being offered for sale.
+Reaching the 10,000-family milestone illustrates how consistently the mobile model has resonated with Georgia residents. The lice removal service Atlanta communities have come to rely on has grown primarily through word of mouth and the kind of trust that develops when families feel genuinely supported during a difficult moment.
 
-About Jonathan's Fine JewelersEstablished in 1991, Jonathan's Fine Jewelers is an independent pre-owned luxury watch dealer and wholesale diamond specialist located at 6222 Richmond Avenue, Suite 435, Houston, TX 77057. The firm has operated continuously from the same Richmond Avenue address for over 35 years under the leadership of Sergio Nuncio. JFJCO's services include outright purchase of pre-owned luxury watches at immediate cash value, GIA-certified loose diamond sales at wholesale pricing, direct watch-to-diamond equity exchanges, and physical authentication for private collectors and estate representatives. The firm's in-house diagnostic capability includes XRF spectrometry, professional pressure testing, and caliber-grade timing instrumentation. JFJCO serves clients across the greater Houston area, including River Oaks, Memorial, The Woodlands, Sugar Land, and Montrose. Walk-in consultations are welcome at the Richmond Avenue showroom. Learn more.
+The milestone also reflects the operational infrastructure licehappensga.com has developed over its years in service - trained staff who understand both the technical and emotional dimensions of lice treatment, and a scheduling process designed to minimize wait times when urgency matters most.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zSCxITVnU8GfKMcWKJjYOTFJfO1QhKRgxqjwkNpO.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/X8wfEj8TmtosrMBwkkG2cbouXolegwAvSHxCNvmM.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/xPQPZI1GFKakTrfW9HlELHihbPRQqkBG5aohxr2H.jpg) [](https://www.jfjco.com/) Contact Information:
+About licehappensga.comlicehappensga.com is a mobile lice removal service founded by Tracey Fudge and based in the Atlanta metro area. The company provides non-toxic, professional lice treatment across 16 Georgia locations, serving clients in their homes with a focus on discretion, safety, and compassion. licehappensga.com holds a BBB A+ accreditation, is rated #1 on Yelp, and has treated more than 10,000 families since its founding. Its core philosophy, "No Shame. No Blame.", guides every aspect of its service delivery.
 
- Jonathan's Fine Jewelers
+Learn more at Lice Happens Atlanta
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rqFiNs4trBTYaozzuKMsZ5vUtuUKtgdPC9gKyFel.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/FFeh7NCXNimxAgr4ZYH5HcTToNskpb7XDYFCgHww.jpg) [](https://licehappensga.com) Contact Information:
+
+ Lice Happens Atlanta
 
  
 
-6222 Richmond Ave #435  Houston, Texas 77057United States
+1 Palace Green Place  Atlanta, GA 30318United States
 
- Sergio Nuncio +1-713-977-9885 https://www.jfjco.com/ 
+ Tracey Fudge +1-770-776-7913 https://licehappensga.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/richmond-ave-dealer-adds-watch-to-diamond-exchanges-in-2026-437613)
+[Original/Source Press Release](https://mediawiretoday.com/licehappensgacom-serves-16-georgia-locations-after-10-years-437707)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/houston-jeweler-fights-rolex-super-clones-with-atomic-level-verification/3377c85cba815d76ff754c66a4f773f1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlanta-lice-removal-service-reaches-10000-families-served/ce23681c9e22d1f16ce771380c5b5291) 
 
  
 
@@ -51,4 +51,4 @@ About Jonathan's Fine JewelersEstablished in 1991, Jonathan's Fine Jewelers is a
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/28/daveZeOE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/28/navyRPLX.webp)
