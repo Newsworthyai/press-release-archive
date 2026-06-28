@@ -1,57 +1,55 @@
-# Minerva DMC Adds AI Search Visibility Alongside Local SEO Suite
+# Family Orthodontic Care Now Available in Hillsboro, OR
 
-Minerva DMC Expands Into AI Search Visibility for Law Firms and Healthcare Providers
+Vibe Orthodontics Brings Braces and Invisalign to Hillsboro Families with Free Consultations
 
- Minneola, United States - June 27, 2026 / Minerva Digital Marketing Consultants /
+ Hillsboro, United States - June 27, 2026 / Vibe Orthodontics /
 
- FOR IMMEDIATE RELEASE
+ Vibe Orthodontics, a family-oriented orthodontic practice serving the Hillsboro, Oregon community, has announced the launch of free consultations for new patients seeking braces, Invisalign, or customized treatment planning. The offer is available to patients of all ages and is designed to give families a clear, no-pressure starting point on their path to a healthier smile.
 
-MINNEOLA, FL - June 2026 - Minerva Digital Marketing Consultants, a Minneola, Florida-based digital marketing agency specializing in affordable, results-driven marketing for local businesses, has announced the launch of its new AI search visibility service - a dedicated offering designed to help local businesses appear in AI-generated search results across platforms including ChatGPT, Google Gemini, and Perplexity.
+A Practice Built Around Families in Hillsboro
 
-Artificial intelligence is reshaping how consumers discover businesses, with a growing share of searches now answered directly by AI platforms rather than traditional search engine results pages. For local businesses - including law firms, healthcare providers, and small to mid-sized enterprises - this shift presents both a meaningful challenge and a largely untapped opportunity. Without proper optimization for AI-driven discovery, even well-established local businesses risk losing visibility to an entirely new generation of search behavior.
+Vibe Orthodontics has positioned itself as a go-to orthodontist in Hillsboro OR by focusing on personalized care for children, teens, and adults alike. Rather than applying a one-size-fits-all approach, the practice develops tailored treatment plans that account for each patient's unique dental needs, goals, and lifestyle. This commitment to individualized care is at the heart of how the practice operates.
 
-Minerva's AI search visibility service addresses this gap directly. Drawing on data-driven strategies and personalized attention that have defined the agency's approach, the service helps local businesses build the digital signals, structured content, and brand authority that AI platforms rely on when generating answers and recommendations. The offering is designed to be accessible and actionable for businesses of all sizes - not only enterprise brands with large marketing budgets.
+Families in the Hillsboro area now have access to a full range of orthodontic services under one roof. Whether a parent is exploring braces in Hillsboro OR for a school-age child or an adult is weighing their options for straighter teeth, Vibe Orthodontics offers the clinical expertise and range of treatment options to support that decision.
 
-"The advancements in AI have created a real opportunity for local businesses, and there was no reason it should remain out of reach for them," said Margarita Grisales, founder of Minerva Digital Marketing Consultants. "Search behavior is evolving fast - the way people discover a new attorney, a healthcare provider, or a local service is no longer just a Google search. Businesses that don't adapt risk becoming invisible to an entirely new generation of customers, and AI Search Visibility was built to make sure our clients are never in that position."
+Braces and Invisalign Under One Roof
 
-The service is now available to new and existing Minerva clients. It complements the agency's existing suite of offerings, which includes local SEO, Google Ads Management, Local Services Ads (LSA) Management, Social Media Management, and Performance Marketing. Together, these services give local businesses an integrated path to visibility across both traditional and AI-powered search - including platforms where ChatGPT local business recommendations are increasingly influencing consumer decisions.
+The two primary treatment pathways available at Vibe Orthodontics are traditional braces and Invisalign clear aligners. Both options are suited to a variety of orthodontic cases, and the practice works closely with each patient to determine which approach aligns best with their needs.
 
-Local businesses interested in learning how the AI search visibility service can support their growth are encouraged to schedule a consultation. Learn more at Minerva Digital Marketing Consultants or book directly at crm.minervadmc.com/widget/bookings/minervadmc.
+For patients who prefer a more discreet treatment path, Invisalign in Hillsboro OR offers a removable, nearly invisible alternative to metal brackets and wires. Invisalign uses a series of custom-fitted clear aligners that gradually shift teeth into alignment, making it a popular choice among working adults and older teens who want flexibility during treatment.
 
-About Minerva Digital Marketing Consultants
+Traditional braces remain a highly effective option for a wide range of cases, including more complex tooth movement. Vibe Orthodontics offers braces in Hillsboro OR as a proven solution backed by decades of orthodontic advancement, suitable for patients across different age groups.
 
-Minerva Digital Marketing Consultants is a Minneola, FL digital marketing agency dedicated to helping local businesses compete and grow in an increasingly digital world. Combining Fortune 500-level expertise with the personal attention that local businesses deserve, Minerva delivers customized, data-driven marketing strategies across SEO, Google Ads, Local Services Ads, Social Media Management, and AI Search Visibility. For more information, visit minervadmc.com.
+Free Consultations Remove the Barrier to Getting Started
 
-Media Contact:
+The newly announced free consultations give prospective patients the opportunity to meet with the practice, discuss their treatment goals, and understand what their options look like before making any commitment. This approach reflects the practice's focus on transparency and patient education from the very first appointment.
 
-Margarita Grisales
+By eliminating the cost barrier associated with an initial visit, Vibe Orthodontics makes it easier for families to gather the information they need. The consultation is structured to help each person understand their current orthodontic situation, review the available treatment paths, and ask questions in a relaxed setting.
 
-Minerva Digital Marketing Consultants
+The practice welcomes patients across age groups, meaning a single family can consolidate their orthodontic care in one location. From early childhood evaluations to adult treatment, the team at Vibe Orthodontics is equipped to support patients at every stage of life.
 
-Minneola, FL
+About Vibe Orthodontics
 
-Phone: +1 (352) 459-3772
+Vibe Orthodontics is a family-oriented orthodontic practice located in Hillsboro, OR. The practice provides braces, Invisalign, and personalized treatment plans for children and adults. Free consultations are available for new patients exploring their orthodontic options.
 
-Email: margarita@minervadmc.com
+Learn more at Vibe Orthodontics
 
-Website: https://minervadmc.com
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/jrVfTX75kJZfBaq4hxOAS1uDd01Ks4R5mWuYzWBd.jpg) [](https://vibebraces.com) Contact Information:
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/xiCH0qY007EJ1IEmzbQLiFkHYXJh5yjnoeQywqFD.jpg) [](minervadmc.com) Contact Information:
-
- Minerva Digital Marketing Consultants
+ Vibe Orthodontics
 
  
 
-692 Big Pine Ave, Minneola, FL, 23715  Minneola, FL 34715United States
+5625 NE Elam Young Pkwy, Ste 300  Hillsboro, OR 97124United States
 
- Margarita Grisales +1 (352) 459-3772 minervadmc.com 
+ Dr. Brandon Zegarowski +1-503-924-2248 https://vibebraces.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/minerva-dmc-adds-ai-search-visibility-alongside-local-seo-suite-437473)
+[Original/Source Press Release](https://mediawiretoday.com/family-orthodontic-care-now-available-in-hillsboro-or-437537)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/minerva-dmc-launches-ai-search-visibility-for-local-businesses/e22867bdc87d8c415e28f118d9b2af6c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vibe-orthodontics-offers-free-consultations-for-braces-and-invisalign-in-hillsboro/380ba1b380482224a8c5d23a3a065a02) 
 
  
 
@@ -59,4 +57,4 @@ Website: https://minervadmc.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/sageOy3O.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/27/gulfsqq5.webp)
