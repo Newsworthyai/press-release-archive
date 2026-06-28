@@ -1,49 +1,49 @@
-# licehappensga.com Serves 16 Georgia Locations After 10 Years
+# Moses Lake Lawn Care Provider Adds Online Quote Tool for All Seasons
 
-10 Years In, Atlanta Mobile Lice Removal Service Has Treated Over 10,000 Households
+Year-Round Landscaping in Moses Lake Now Includes a Free Online Quote Option
 
- Atlanta, United States - June 28, 2026 / Lice Happens Atlanta /
+ Moses Lake, United States - June 28, 2026 / Tatum Lawn Care /
 
- licehappensga.com, the Atlanta-based mobile lice removal service founded by Tracey Fudge, has announced that it has now treated more than 10,000 families across the Atlanta metro area - a milestone that reflects over a decade of consistent, community-centered care. The announcement marks a significant chapter for the company, which has built its reputation on bringing professional lice treatment directly to Georgia households, eliminating the need for families to travel to a clinic during an already stressful time.
+ Tatum Lawn Care in Moses Lake, WA has announced that homeowners and businesses can now request free estimates directly through the company website, giving local property owners a straightforward way to explore outdoor maintenance options without any upfront commitment. The update reflects the company's effort to provide Moses Lake residents with accessible, professional outdoor care across every season of the year.
 
-A Mission Rooted in Compassion and ConvenienceWhen Tracey Fudge launched licehappensga.com, the goal was straightforward: make lice treatment accessible, judgment-free, and effective. Lice infestations are common among school-age children, yet they carry an outsized social stigma that can leave families feeling embarrassed and isolated. Fudge built the business around a simple but powerful philosophy - "No Shame. No Blame." - designed to normalize the experience and remove the anxiety that often accompanies a lice diagnosis.
+A Full Range of Services for Moses Lake PropertiesTatum Lawn Care serves both residential and commercial clients in the Moses Lake area with a broad selection of outdoor services. From regular lawn mowing and seasonal fertilization to irrigation setup, pest control, and winter snow removal, the company handles a wide scope of property needs under one roof.
 
-That philosophy has shaped every aspect of how licehappensga.com operates. From the first phone call to the final comb-through, the service is structured to be discreet, supportive, and efficient. Technicians arrive at the client's home, treating the family in a familiar, comfortable environment rather than a clinical setting. This approach has proven particularly valuable for parents managing young children, individuals with sensory sensitivities, and households where scheduling a clinic visit presents logistical challenges.
+Property owners searching for landscaping Moses Lake options can view past projects directly on the company website before making any decisions. This gives prospective clients a concrete look at the type of work the company delivers, ranging from routine lawn maintenance to more detailed outdoor care assignments.
 
-"We know how overwhelming it can feel when lice show up, and we want every family to know there is nothing to be ashamed of," said Tracey Fudge, Founder of licehappensga.com. "Our job is to take care of the problem quickly, safely, and with complete respect for every family we serve."
+The service offerings are structured around the understanding that properties require different types of attention depending on the time of year. Spring and summer typically call for lawn mowing, fertilization, and irrigation work, while fall and winter bring a shift toward pest control management and snow removal. This year-round approach means clients do not need to find a new provider each time the season changes.
 
-Mobile Lice Removal Atlanta Families Have Relied On for Over a Decadelicehappensga.com has operated for more than 10 years, expanding its mobile lice removal Atlanta coverage to 16 locations across Georgia. The service model - where trained technicians travel to the client rather than requiring the client to come in - has distinguished the company in a market where brick-and-mortar clinics remain the more common option.
+Free Estimates Make It Simple to Get StartedA practical addition Tatum Lawn Care has introduced is the ability to request a free estimate online. Rather than placing a phone call or waiting for a callback, property owners in Moses Lake can visit the company website, review available services, and submit a request at their own convenience.
 
-The treatments themselves are non-toxic and formulated to be safe for all ages, from young children to adults. This has been a consistent priority for licehappensga.com, reflecting the understanding that many families dealing with lice include infants, pregnant mothers, or individuals with health sensitivities for whom chemical-based treatments are not appropriate.
+This is particularly useful for businesses and homeowners comparing lawn care Moses Lake providers who want to understand pricing before making any commitments. Receiving a clear estimate upfront removes a common obstacle that often slows people down when evaluating outdoor maintenance options.
 
-The company holds a BBB A+ accreditation and has earned the #1 rating on Yelp in its category - recognition that reflects the steady feedback from the more than 10,000 families served across the Atlanta region.
+The free estimate option applies to all services the company offers, including irrigation installation, which tends to be one of the more involved projects property owners inquire about. Having a direct way to request a quote online simplifies the process from the very beginning.
 
-Serving Georgia Communities With a Consistent Standard of CareThe reach of licehappensga.com extends well beyond a single neighborhood or zip code. By operating across 16 Georgia locations, the company has made professional lice treatment Georgia families can depend on available to a broad and geographically diverse population. Whether a family is located in a suburban Atlanta community or in a surrounding county, the same standard of care - non-toxic products, trained technicians, and a stigma-free approach - applies.
+Serving Moses Lake Year-RoundTatum Lawn Care has established itself as a consistent resource for tatum lawn care Moses Lake WA residents who need outdoor services throughout the full calendar year, not only during peak growing season. Snow removal during winter months is one practical example of how the company extends its availability beyond the warmer parts of the year.
 
-Reaching the 10,000-family milestone illustrates how consistently the mobile model has resonated with Georgia residents. The lice removal service Atlanta communities have come to rely on has grown primarily through word of mouth and the kind of trust that develops when families feel genuinely supported during a difficult moment.
+Pest control is another service that distinguishes the company from providers focused solely on mowing and landscaping Moses Lake properties. Maintaining a healthy lawn involves more than cutting grass, and addressing pest-related issues early can prevent more significant problems from developing over time.
 
-The milestone also reflects the operational infrastructure licehappensga.com has developed over its years in service - trained staff who understand both the technical and emotional dimensions of lice treatment, and a scheduling process designed to minimize wait times when urgency matters most.
+For Moses Lake property owners who want to keep their outdoor spaces in consistent condition without coordinating multiple vendors, Tatum Lawn Care covers the range of needs that arise across all four seasons. The availability of online estimates gives new clients a low-effort starting point to explore what options are available for their specific property.
 
-About licehappensga.comlicehappensga.com is a mobile lice removal service founded by Tracey Fudge and based in the Atlanta metro area. The company provides non-toxic, professional lice treatment across 16 Georgia locations, serving clients in their homes with a focus on discretion, safety, and compassion. licehappensga.com holds a BBB A+ accreditation, is rated #1 on Yelp, and has treated more than 10,000 families since its founding. Its core philosophy, "No Shame. No Blame.", guides every aspect of its service delivery.
+About Tatum Lawn CareTatum Lawn Care is a Moses Lake, WA-based outdoor services company offering lawn mowing, fertilization, irrigation, pest control, and snow removal to homeowners and businesses in the area. The company provides free estimates through its website, where visitors can also view past projects and explore the full list of available services.
 
-Learn more at Lice Happens Atlanta
+Learn more at Tatum Lawn Care
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rqFiNs4trBTYaozzuKMsZ5vUtuUKtgdPC9gKyFel.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/FFeh7NCXNimxAgr4ZYH5HcTToNskpb7XDYFCgHww.jpg) [](https://licehappensga.com) Contact Information:
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/9FIf3zmtIPB7apea4beyvkWMIiCvcwMeVK1K6DpL.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/9vE3kcgBLjnTUhlVnC6mUYeeHKZcWZ3EmD2f4J7t.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/0wlLpQTQXxKIAFgiEKiYSbhr1FezpENrRdBpfiAq.jpg) [](https://www.tatumlawncarewa.com) Contact Information:
 
- Lice Happens Atlanta
+ Tatum Lawn Care
 
  
 
-1 Palace Green Place  Atlanta, GA 30318United States
+9160 Harris Rd NE  Moses Lake, Washington 98837United States
 
- Tracey Fudge +1-770-776-7913 https://licehappensga.com 
+ Matthew Gencarella +1-509-765-4000 https://www.tatumlawncarewa.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/licehappensgacom-serves-16-georgia-locations-after-10-years-437707)
+[Original/Source Press Release](https://mediawiretoday.com/moses-lake-lawn-care-provider-adds-online-quote-tool-for-all-seasons-437745)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/atlanta-lice-removal-service-reaches-10000-families-served/ce23681c9e22d1f16ce771380c5b5291) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tatum-lawn-care-in-moses-lake-now-offers-free-online-estimates-for-year-round-services/45dcc2d3e2b3e5d5fc25d9d68186f452) 
 
  
 
@@ -51,4 +51,4 @@ Learn more at Lice Happens Atlanta
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/28/navyRPLX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/266/28/takeWIKT.webp)
