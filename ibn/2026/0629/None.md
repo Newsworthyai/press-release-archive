@@ -1,45 +1,41 @@
-# BioMedNewsBreaks — Oncotelic Therapeutics, Inc. (OTCQB: OTLC) Publishes Peer-Reviewed Validation of Deciparticle(TM) Platform
+# MiningNewsBreaks – Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) Expands Portfolio to Support Critical Defense, Industrial Supply Chains
 
-Oncotelic Therapeutics (OTCQB: OTLC), together with Sapu Nano, announced the publication of a peer-reviewed manuscript in the International Journal of Molecular Sciences validating its proprietary Deciparticle(TM) nanoparticle platform through the development of Sapu003, an investigational intravenous everolimus formulation currently being evaluated in an ongoing Phase 1b clinical trial. The publication details the platform’s formulation design, scalable cGMP manufacturing process, product stability and preclinical performance, while demonstrating its potential to enable intravenous delivery of poorly water-soluble therapeutic compounds.
+Disseminated on behalf of Powermax Minerals Inc. (CSE: PMAX) (OTCQB: PWMXF) and may include paid advertising.
 
- The company said the research also supports broader applications for the Deciparticle(TM) platform beyond everolimus, including additional hydrophobic drug candidates. Sapu003 is currently being evaluated in a Phase 1b dose-escalation study in patients with advanced mTOR-sensitive solid tumors to assess its safety, pharmacokinetics and preliminary antitumor activity in combination with exemestane.
+ Powermax Minerals (CSE: PMAX) (OTCQB: PWMXF) is expanding its North American rare earth element (“REE”) exploration portfolio across Canada and the United States to address the significant dependence on China for processed rare earth materials supporting key defense and industrial applications. “The company’s portfolio includes the Cameron REE property in British Columbia, the Atikokan and Pinard projects in Ontario, and the Ogden Bear Lodge Project in Wyoming… Recently, Powermax also announced an option agreement to acquire a 100% interest in the Hopkins Rare Earths Project in northern Ontario,” reads an article discussing the move.
 
- To view the full press release, visit https://ibn.fm/gECtl
+ “These developments come as global demand for rare earth elements is projected to rise sharply over the coming decade, driven by electrification, renewable energy deployment, artificial intelligence infrastructure, robotics and military modernization. Industry forecasts cited by the company suggest global REE demand could triple from approximately 59,000 tonnes in 2022 to roughly 176,000 tonnes by 2035.”
 
- About Oncotelic Therapeutics
+ To view the full article, visit https://ibn.fm/DgxhL
 
- Oncotelic Therapeutics, Inc. is a clinical-stage biopharmaceutical company focused on the development of oncology and immunotherapy products. The Company’s mission is to address high-unmet-need cancers and rare pediatric indications with innovative, late-stage therapeutic candidates.
+ About Powermax Minerals Inc.
 
- In addition to its directly owned and developed drug pipeline, Oncotelic benefits from the robust portfolio of inventions created by its CEO, Dr. Vuong Trieu, who has filed over 500 patent applications and holds 75 issued U.S. patents. Beyond its internal programs, the Company also licenses and co-develops select drug candidates through joint ventures. Currently, Oncotelic owns 45% of GMP Bio, a joint venture under Dr. Trieu’s leadership and guidance, which is advancing its own pipeline of drug candidates that further complement and strengthen Oncotelic’s strategic position in oncology and rare disease therapeutics.
+ Powermax Minerals Inc. is a Canadian mineral exploration company focused on advancing rare earth element projects. The company holds options to acquire the Cameron REE Property in British Columbia and the Atikokan, Pinard and Hopkins REE properties in Ontario, and owns a 100% interest in the Ogden Bear Lodge REE project in Crook County, Wyoming.
 
- Oncotelic also develops PDAOAI, its proprietary AI platform for drug discovery, lab automation, and AI-assisted GMP manufacturing. Through Oncotelic’s relationship with SAPU Bio — an OEB-5 sterile injectable cGMP manufacturing facility — PDAOAI underpins the Platform and its ongoing joint development work with TechForce Robotics, Oncotelic’s strategic robotics and automation partner.
+ NOTE TO INVESTORS: The latest news and updates relating to PWMXF are available in the company’s newsroom at https://ibn.fm/PWMXF
 
- For more information, please visit www.oncotelic.com
+ About MiningNewsWire
 
- NOTE TO INVESTORS: The latest news and updates relating to OTLC are available in the company’s newsroom at https://ibn.fm/OTLC
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
 
- About BioMedWire
+ MNW is where breaking news, insightful content and actionable information converge.
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
 
- BMW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.MiningNewsWire.com
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
 
- For more information, please visit https://www.BioMedWire.com
+ MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
 
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
-
- BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
-
- BioMedWire is powered by IBN 
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-oncotelic-therapeutics-inc-otcqb-otlc-publishes-peer-reviewed-validation-of-deciparticletm-platform/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-powermax-minerals-inc-cse-pmax-otcqb-pwmxf-expands-portfolio-to-support-critical-defense-industrial-supply-chains/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/oncotelics-deciparticle-platform-validated-for-iv-drug-delivery/6a02e1d936ff5a6e222b8b2082cfe187) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powermax-minerals-expands-ree-portfolio-to-counter-china-dependence/391d1f61317663c99cdef844dd427f14) 
 
  
 
@@ -47,4 +43,4 @@ Oncotelic Therapeutics (OTCQB: OTLC), together with Sapu Nano, announced the pub
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/29/lark5lJU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/29/zest6Xt1.webp)

@@ -1,59 +1,29 @@
-# HKTDC's Fashion Hong Kong Paris Promotion Concludes Successfully
+# Quantum BioPharma (QNTM) Reaches Key Midpoint Milestone in Multiple Sclerosis Imaging Study
 
-Cross-Sector Collaboration Strengthens International Exchange and Supports Hong Kong Brands in Expanding Globally
+* Before any new drug or diagnostic technology can be used widely, it must pass through a series of structured studies designed to answer specific questions.
+* The milestone highlighted in Quantum BioPharma’s announcement is that patient enrollment in a key pilot study has reached its halfway mark.
+* Preliminary analyses show a robust signal in acute MS lesions, along with potential sensitivity to gray matter lesions.
 
- HONG KONG - June 29, 2026 (NEWMEDIAWIRE) - Organised by the Hong Kong Trade Development Council (HKTDC) with Hong Kong Air Cargo Terminals Limited (Hactl) as strategic partner, the Fashion Hong Kong promotion in Paris concluded successfully yesterday on the final day of Paris Men’s Fashion Week Spring/Summer 2027 (24-28 June). Through a series of focused activities, including a professional showroom and networking reception, the campaign showcased the dynamism of Hong Kong design to the international fashion community, while creating opportunities for local brands to expand globally and reinforcing Hong Kong’s role as an East-meets-West centre for cultural exchange.
+ LOS ANGELES, CA - June 29, 2026 (NEWMEDIAWIRE) - Clinical studies are among the most demanding and consequential undertakings in medicine. They require years of planning, careful patient selection, rigorous data collection and ongoing regulatory oversight, all in pursuit of a single goal - generating reliable evidence that a new drug, device or diagnostic tool is both safe and effective. Without this structured process, promising laboratory discoveries would never make the leap to treatments that physicians can confidently prescribe and patients can trust. Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company focused on neurodegenerative and metabolic disorders, recently announced in its collaborative imaging study with Massachusetts General Hospital (“MGH”) that the study has reached the halfway point in patient enrollment and early imaging results could support development of its multiple sclerosis drug candidate: Lucid-MS.
 
- Held at Paris’s renowned fashion landmark Rue de la Paix, the showroom featured Hong Kong designer brands presenting their Spring/Summer 2027 collections, covering apparel and fashion accessories. The showcase attracted buyers, media and industry professionals from Europe and around the world, facilitating business matching and partnership discussions to help brands tap into international market opportunities. Hong Kong designer labels MARCCH and Matter Matters also unveiled pieces created in collaboration with Paris-based artist Yaz Bukey, highlighting the creative exchange between Hong Kong and French designers.
+ Studies of this kind sit at the center of how medicine advances. Before any new drug or diagnostic technology can be used widely, it must pass through a series of structured studies designed to answer specific questions: Does the approach work as intended? Is it safe? And can it reliably detect or…
 
- The networking reception held on 27 June attracted around 200+ fashion industry professionals, buyers and media representatives, sparking vibrant conversations and providing valuable opportunities for Hong Kong designers to expand their international networks. A “Hong Kong Fashion Night dinner” held on the same day further strengthened connections with the global fashion community, laying a solid foundation for brands to expand into overseas markets.
+ Read More
 
- Cross-sector collaboration supporting Hong Kong brands to go global
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- This promotion marked the first cross-sector collaboration between the HKTDC and Hactl. Recognised as a leader in sustainability and innovation in Hong Kong, Hactl not only provided strong backing for this creative campaign but also lent its expertise in air cargo logistics and sustainability. Together with the HKTDC’s global network, the partnership empowers Hong Kong brands to expand internationally and explore new opportunities worldwide.
+ The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
 
- Amid global trends emphasising speed, connectivity and sustainability in the fashion industry, this collaboration demonstrates how Hong Kong adopts innovative approaches to integrate creativity, commerce and professional services, supporting local brands in expanding their international footprint while responding to global expectations for sustainable development. The collaboration also reflects the strong support of Hong Kong enterprises for emerging design talent, and, under the leadership of the HKTDC, helps Hong Kong design go global and capture international opportunities.
+ Forward Looking Statements
 
- Mr Chris Lo, Regional Director, Europe, Central Asia & Israel, HKTDC, said: “This collaboration reflects Hong Kong’s unique strengths in combining creativity with connectivity. By partnering with Hactl, we are not only showcasing our designers’ talent but also demonstrating how Hong Kong’s logistics excellence and sustainability leadership can support the global fashion industry in new and meaningful ways.”
-
- Mr Frosti Lau, Chief Executive of Hactl, said: “Fashion is global, fast-moving, and increasingly driven by sustainability. Our collaboration with the HKTDC at Paris Fashion Week highlights how air cargo supports the fashion industry, celebrates the innovation and creativity of Hong Kong designers, as well as promotes sustainability in both the fashion and air cargo industries. At Hactl, we drive energy efficiency, reduce emissions, and promote circular practices through zero-waste uniform upcycling and the use of eco-friendly materials across our operations.”
-
- Launched in 2015, Fashion Hong Kong is dedicated to promoting Hong Kong designers’ participation in major fashion events across cities including New York, London, Paris, Copenhagen, Tokyo, Seoul and Shanghai. Through promotions across different markets, the initiative supports local brands to connect with global buyers and industry players, expand into Chinese Mainland and overseas markets, and strengthen their international presence.
-
- Photo download: https://bit.ly/44Cl7z2
-
- Websites
-
- Fashion Hong Kong: www.fashionhongkong.com
-
- Fashion Hong Kong Instagram: @hktdcfashionhk
-
- HKTDC Newsroom: http://mediaroom.hktdc.com/en
-
- Media enquiries
-
- HKTDC's Communications and Public Affairs Department:
-
- Navin Law
-
-Tel: (852) 2584 4525
-
-Email: navin.cm.law@hktdc.org
-
- About Fashion Hong Kong
-
- Fashion Hong Kong is a series of international promotional events organised by the Hong Kong Trade Development Council (HKTDC) to promote Hong Kong fashion designers and labels in the global fashion arena. Since 2015, Fashion Hong Kong has actively participated in international fashion weeks and renowned events to showcase Hong Kong's unique and diverse designs. Previous event locations include New York, London, Milan, Paris, Copenhagen, Tokyo, Seoul and Shanghai.
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-s-fashion-hong-kong-paris-promotion-concludes-successfully-7087403)
+[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-reaches-key-midpoint-milestone-in-multiple-sclerosis-imaging-study-7087413)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-fashion-shines-at-paris-men-s-fashion-week-with-cross-sector-collaboration/49ea1577127eaf15f80de3c190c0afd1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-hits-halfway-enrollment-in-ms-imaging-study/b45833b94ddc1830c614231a3fe8dbe2) 
 
  
 
@@ -61,4 +31,4 @@ Email: navin.cm.law@hktdc.org
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/29/hikeewAk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/29/camcA3RS.webp)
