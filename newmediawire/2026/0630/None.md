@@ -1,81 +1,31 @@
-# Klarify Launches AI Operating System for Therapists as Mental Health Industry Faces Workforce and Insurance Crisis
+# SS Innovations International (SSII) Wins 2026 Surgical Robotics Industry Outstanding Company Award
 
-Backed by Y Combinator, Klarify Launches Publicly With 8,300 Therapists Across Five Countries as Therapists Face Rising Burnout, Administrative Overload, and a Growing AI Imbalance Against Insurers
+LOS ANGELES, CA - June 30, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII) announced it has been named the winner of the Outstanding Company category at the 2026 Surgical Robotics Industry Awards, which recognizes a company demonstrating excellence in innovation, commercial success, industry leadership and positive societal impact. The company said the award reflects growing adoption of its SSi Mantra surgical robotic system, which it believes is gaining traction for its advanced technology, user-friendly design, training capabilities and cost efficiency.
 
- SAN FRANCISCO - June 30, 2026 (NEWMEDIAWIRE) - Therapists have become one of the most operationally overwhelmed professions in healthcare. Demand for mental health services has surged, reimbursement pressure continues to intensify, and clinicians increasingly spend as much time operating small businesses as treating patients.
+ As of June 22, 2026, SS Innovations reported that 11,719 multi-specialty procedures had been performed using the SSi Mantra system, including 612 cardiac procedures, 175 telesurgeries and 212 pediatric surgeries. The company also said approximately 2,100 physicians have been trained on the platform, which has been used for more than 170 procedure types and has received regulatory approval in 14 countries.
 
- Klarify today launched publicly, unveiling an AI native operating system built specifically for therapists. At launch, Klarify boasts more than 8,300 therapists across five countries and is part of Y Combinator’s Spring 2026 batch.
+ To view the full press release, visit https://ibn.fm/XWdRe
 
- Klarify’s position is intentionally firm: AI should not replace therapy. Instead, the platform is designed to handle the operational, administrative, and financial work surrounding therapy, including clinical documentation, treatment plans, insurance workflows, assessment reports, between-session resources, and practice growth.
+ About SS Innovations
 
- “The therapy itself stays human. Always,” said Moody Abdul, co-founder and CEO of Klarify. “AI should handle the operational burden around therapy so therapists can spend more time actually helping people.”
+ SS Innovations International, Inc. develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of surgical robotic procedures including cardiac surgery. An American company headquartered in India, SS Innovations plans to expand the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions.
 
- Klarify enters the market during a worsening mental health access crisis. According to the American Psychological Association’s 2024 Practitioner Pulse Survey, 53% of psychologists report having no openings for new patients, while 32% report active burnout, rising to 51% among early-career psychologists. Outpatient mental health utilization grew roughly 40% from Q1 2019 to Q4 2023.
+ Visit the Company’s website at ssinnovations.com for more information and updates.
 
- Despite overwhelming demand for care, many therapists spend only 20 to 25 hours per week in direct client sessions, with the rest consumed by documentation, billing, compliance, scheduling, marketing, and administrative work. Klarify estimates that many solo practitioners unknowingly spend nearly $26,000 annually across fragmented operational infrastructure required to run a modern practice.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Klarify estimates that therapists collectively sit at the center of a $22 billion operational economy today across the US, Canada, UK, Australia, and New Zealand, spanning reimbursement infrastructure, compliance systems, documentation software, scheduling platforms, outsourced billing services, and administrative labor. The company believes the addressable market could grow to over $50 billion at maturity as the platform expands into client-side experiences, institutional contracts, and adjacent infrastructure.
+ Forward Looking Statements
 
- The company says one of the largest emerging problems in mental healthcare is what it describes as a growing “AI imbalance” between insurers and practitioners.
-
- Klarify argues that insurers operationalized automated reimbursement infrastructure years before therapists had access to comparable tooling. As insurance companies increasingly use automation to evaluate, delay, reduce, or deny claims, many therapists still rely on fragmented billing systems, outsourced services, or manual administrative workflows.
-
- Klarify recently launched AI-supported claims preparation, CPT coding optimization, eligibility verification, and denial appeal drafting. The company says the platform is designed to help practitioners respond to increasingly automated reimbursement systems with AI infrastructure of their own.
-
- “Therapists are entering an increasingly automated reimbursement environment badly outgunned,” Abdul said. “We think therapists deserve modern infrastructure on their side too.”
-
- The financial stakes are significant. According to the Heard 2025 Financial State of Private Practice Report, average private-pay therapy sessions reimburse at approximately $159, compared to roughly $111 through insurance. Additional industry revenue-cycle analysis cited by Klarify estimates therapists may lose between $1,000 and $2,500 per clinician each month through missed or denied reimbursement opportunities tied to administrative complexity and underbilling.
-
- At the center of Klarify is Klara, the AI assistant inside the platform. Klara drafts clinical notes, generates treatment plans, prepares clinical letters and assessment reports, develops between-session resources, supports 104 languages, and produces visual session mindmaps that help therapists identify recurring themes and patterns across care.
-
- Klarify says therapists increasingly use AI not as a replacement for care, but as infrastructure surrounding care delivery. Internal product analysis found that 71% of in-product Klara usage now occurs outside traditional note-taking workflows, including insurance support, treatment planning, operational tasks, letters, and other therapist workflows.
-
- “Klarify gave me something I didn’t realize I had lost: time and energy,” said Kelly Copeland, M.Ed., Registered Counselling Therapist. “It has changed not only how I work, but how I live.”
-
- Klarify believes therapy represents one of the clearest early examples of a true vertical AI category. The profession combines high documentation burden, reimbursement complexity, fragmented tooling, regulatory sensitivity, and emotionally intensive human work, creating conditions where AI can dramatically expand practitioner capacity without replacing the practitioner.
-
- “Pre-AI, software had to solve one problem for many people,” Abdul said. “Post-AI, software can solve many problems for one specific profession. We believe the next generation of category-defining software companies will own a single professional workflow end to end.”
-
- Klarify also sees emotional and professional isolation as part of the operational burden therapists carry. Many therapists work alone, even inside clinics, and the company says supervisors have increasingly begun recommending Klara to younger practitioners as a form of operational and intellectual reinforcement during emotionally demanding clinical work.
-
- Klarify believes mental healthcare may become one of the first major professions where AI significantly expands human capacity while preserving the central role of the human practitioner.
-
- Klarify’s user base currently spans five countries, with U.S. adoption accelerating significantly in recent months. The company is also supported by an 103,000-subscriber audience built through The Future of Therapy podcast and newsletter ecosystem.
-
- About Klarify
-
- Klarify is building the AI native operating system for therapists, designed to manage the operational, administrative, and financial infrastructure surrounding modern mental healthcare practices. The platform helps therapists handle documentation, treatment planning, insurance workflows, practice growth, clinical letters, assessment reports, and between-session resources while keeping therapy itself fundamentally human. The platform is HIPAA, PHIPA, Quebec Law 25, and UK GDPR compliant, and is contractually bound not to train AI on clinical data. Klarify currently serves more than 8,3000 therapists across five countries and is part of Y Combinator’s Spring 2026 batch.
-
- Klarify was co-founded by Moody Abdul (CEO) and Alexander Bergholm (CTO). Abdul is a second-time founder who previously co-founded Circleback.ai, an AI meeting notes platform, and led $20M in enterprise contracts at LinkedIn. He hosts The Future of Therapy podcast, with an audience of 103,000 mental health professionals. Bergholm previously worked on self-driving cars at the University of British Columbia, was selected for Finnish military special forces where he conducted deep learning research in signal processing and network modeling, and most recently led machine learning infrastructure at Workday.
-
- Additional Resources
-
- * Klarify Website
-* Y Combinator Launch Page
-* YC Launch Video
-* YC Launch LinkedIn Post
-* Platform Demo Video
-* Klara AI Assistant + Mindmap Demo
-* Privacy and Security Documentation
-
- Recent Press Coverage
-
- * Apple News
-* Dallas Morning News
-* TechCrunch
-* Tech Times
-* International Business Times
-
- Contact: Jonathan PhillipsKlarify@PhillComm.Global
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/klarify-launches-ai-operating-system-for-therapists-as-mental-health-industry-faces-workforce-and-insurance-crisis-7087430)
+[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-wins-2026-surgical-robotics-industry-outstanding-company-award-7087441)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/y-combinator-backed-klarify-launches-ai-os-for-therapists-to-fight-burnout/4f3aa5e43431da324859d96f29b3235a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-wins-2026-surgical-robotics-outstanding-company-award/016e677b12b8c11137bc8e8752a0c5c8) 
 
  
 
@@ -83,4 +33,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/yogaP7RC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/zestk1yx.webp)
