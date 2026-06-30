@@ -1,90 +1,83 @@
-# Final MMT Survey to be Flown on Generation Uranium's Yath Project Kivalliq Region, Nunavut
+# One World Products, Inc. and Los Gatos Tomato Products Announce Proposed Strategic Collaboration to Expand AgriBlend™ and Accelerate Sustainable Materials Innovation
 
-VANCOUVER, BRITISH COLUMBIA - June 30, 2026 (NEWMEDIAWIRE) - Generation Uranium Inc. (TSX.V: GEN, OTCQB: GENRF, FRA: W85) (“Generation” or the “Company”) is pleased to announce that Expert Geophysics Ltd. will be flying an MMT survey over the center and Western aspects of the Yath project in the month of July.
+Companies Intend to Develop Next-Generation Engineered Materials Utilizing Renewable Agricultural Feedstocks Across Multiple Commercial Markets
 
- The company expects this survey to cover the gap in the middle of Generation’s existing MMT coverage as well as some aspects of the west side of the Yath claim block. (see Figure 1 below)
+ TROY, MI and HURON, CA - June 30, 2026 (NEWMEDIAWIRE) - One World Products, Inc. (OTCQB: OWPC) (www.oneworldproducts.com) (the “Company”), an advanced sustainable materials company, and Los Gatos Tomato Products, one of California’s leading tomato processors, today announced their intention to enter into a strategic collaboration to expand AgriBlend™, the Company’s agricultural biomaterials platform, through the development of advanced engineered materials utilizing renewable agricultural feedstocks.
 
- * The Central Gap Zone is very important to the understanding of the geological trend projecting northwest from the LAC 50 Uranium Deposit located to the south of the Yath project on Atha Energy’s ground*.
-* The Central Gap Zone also encompasses several northeast trending structures that relate to the known uranium mineralization at BOG, MP-25, Amy’s OC and Lucky Break
-* On the West side of the Yath Claims the VGR-NORM trend presents an extensive deep seated, clay altered and uranium mineralized structure that is not well understood.
+ The companies have agreed in principle to establish a strategic joint venture that combines Los Gatos Tomato Products agricultural expertise, renewable feedstock resources, and processing capabilities with the Company’s advanced materials engineering, compounding, manufacturing, and commercialization capabilities.
 
- * Mineralization hosted on an adjacent property is not necessarily indicative of mineralization hosted on Generation’s property.
+ The collaboration represents a further step in the Company’s long-term strategy of transforming recycled and renewable resources into advanced engineered materials serving the automotive, infrastructure, agriculture, packaging, logistics, industrial, and consumer markets.
 
- These two MMT surveys will fill in key holes in our current uranium mineralization system at Yath and improve our ability to target drill holes in an effective and efficient manner.
+ AgriBlend™ represents the Company’s agricultural biomaterials platform, bringing together the Company’s existing work in renewable biocomposites with an expanding portfolio of agricultural feedstocks. The collaboration with Los Gatos Tomatoes significantly broadens that platform by adding tomato pomace and almond byproducts.
 
- MMT surveys targeting unconformity style uranium systems focus on three key elements:
+ The AgriBlend™ platform currently encompasses work with:
 
- • Graphitic Conductor Fault Zones - High grade unconformity uranium deposits globally are associated with basement fault zones enriched in graphite, which is highly conductive.
+ * Tomato pomace
+* Almond byproducts
+* Rice hulls
+* Corn fiber
+* Soy fiber
+* Jute
+* Agricultural cellulose feedstocks
 
- • Hydrothermal Alteration Halos - Uranium bearing acidic fluids alter surrounding sandstone or host rocks, producing conductivity highs (clay alteration) or resistivity highs (silicification).
+ The companies also intend to evaluate additional renewable agricultural feedstocks as the platform continues to expand.
 
- • Deep Structural Controls - Understanding the architecture of deep structures helps identify pathways for uranium bearing fluid migration.
+ The Company’s goal through this collaboration is to build upon its established portfolio of sustainable material technologies. The Company previously commercialized hemp-based biocomposite materials, including reusable industrial containers, while developing advanced engineered compounds for automotive and industrial applications. The Company’s intended expansion of AgriBlend™ reflects the Company’s continuing strategy of broadening its renewable feedstock capabilities across multiple agricultural resources.
 
- Integration of conductive and resistive MMT corridors with historic mapping and sampling has significantly narrowed the footprint of known targets and, importantly, improved the understanding of structural orientations beneath overburden. Targets historically defined at the scale of hundreds of metres can now be constrained to zones only tens of metres wide.
+ Today, the Company’s advanced sustainable materials portfolio includes:
 
- CEO Michael Collins stated:
+ * EcoBlend™ - Engineered polymer platform
+* AgriBlend™ - Agricultural biomaterials platform
+* Advanced polypropylene compounds
+* Natural fiber composite technologies
+* Recycled rubber material technologies
+* Cellulose-based material technologies
+* Circular economy material solutions
 
- “Generation Uranium is pleased to see the final MMT package being flown through the middle and west side of the Yath Project. We view this as a critical piece of the puzzle that will illuminate how the North-East and North-West structures interact as they converge in the center of the Yath claims, and a better understanding of structures on the VGR clay altered zones. All in all, we are pleased with the way the exploration model and drill targeting is evolving this summer.”
+ The Company believes that these capabilities position it as a diversified advanced sustainable materials company capable of transforming recycled polymers, renewable agricultural feedstocks, natural fibers, recycled rubber, and cellulose into high-performance engineered materials.
 
- Qualified Person
+ “Our objective is to build a platform company that transforms recycled and renewable resources into high-performance engineered solutions for the world’s largest industries,” said Isiah Thomas, Chairman and Chief Executive Officer of the Company.
 
- Michael Collins, P. Geo., President, CEO and Director of Generation Uranium, and a Qualified Person as defined by National Instrument 43‑101 (Standards of Disclosure for Mineral Projects), has reviewed and approved the scientific and technical information contained in this news release.
+ Mr. Thomas continued, “For years, we have demonstrated that renewable feedstocks can perform in demanding commercial applications. Beginning with hemp-based biocomposites and expanding through EcoBlend™, we have steadily broadened our capabilities into agricultural biomaterials, natural fibers, recycled rubber, and cellulose-based technologies. Our intended collaboration with Los Gatos Tomatoes significantly expands AgriBlend™ by adding new renewable feedstocks and strengthening our ability to develop innovative material solutions for customers across multiple industries.”
 
- Grant of Incentive Stock Options
+ Dan Green, President and Chief Executive Officer of Los Gatos Tomato Products, said, “Los Gatos Tomato Products has always believed innovation creates opportunity. This proposed collaboration enables us to create additional value from tomato pomace and agricultural resources while partnering with an organization that shares our commitment to sustainability, advanced materials, and long-term commercial growth. Together, we believe we can develop innovative products that benefit agriculture, industry, and the environment.”
 
- The Company announces that, in accordance with the Company’s Stock Option Plan, it has granted to Officers and Consultants of the Company incentive stock options to purchase up to 500,000 common shares of the Company at a price of $0.08 for a term of two years expiring June 30, 2028.
+ Beyond product development, the companies intend to collaborate on research, manufacturing, commercialization, and future technology development while evaluating additional agricultural feedstocks and engineered material applications.
 
- Finder Fee Correction
+ Additional information regarding the proposed joint venture and related commercial initiatives will be announced following completion of definitive agreements.
 
- The Company also announces that, further to its news release of June 15, 2026, the Company paid an additional $1,500 and issued 21,429 finder warrants at a price of $0.12 per finder warrant share for a period of two years expiring June 15, 2028. All securities issued are subject to a four month hold period expiring October 16, 2026.
+ About One World Products, Inc.(to become Isiah Enterprises, Inc.)
 
- About Generation Uranium
+ One World Products, Inc. (OTCQB: OWPC) (the “Company”), which will operate under the new name Isiah Enterprises, Inc. upon completion of its corporate name and symbol change with FINRA approval, is building a platform company for advanced sustainable materials. Through EcoBlend™, AgriBlend™, and its portfolio of engineered material technologies, the Company develops high-performance materials utilizing recycled polymers, renewable agricultural feedstocks, natural fibers, recycled rubber, and cellulose-based materials for the automotive, infrastructure, agriculture, industrial, logistics, packaging, and consumer markets.
 
- Generation Uranium is a Canadian exploration company focused on advancing high‑quality uranium assets in premier jurisdictions. Its flagship Yath Project is located in Nunavut’s Angilak district, one of Canada’s most active and rapidly emerging uranium camps. Historic work has reported with historic results surface samples up to 9.8% U3O8 and 1.0 m at 0.224% U3O8 from 25.5 m in drillhole BOG-8-80.
+ By transforming recycled and renewable resources into value-added engineered materials, the Company is creating scalable technologies that support the global transition to a more circular and sustainable economy.
 
- With a growing portfolio of high‑priority targets in a well‑understood uranium district, Generation Uranium is well positioned to make discoveries that contribute meaningfully to the future global supply of clean nuclear energy.
+ About Los Gatos Tomato Products
 
- For Further Information
+ Los Gatos Tomato Products is one of California’s leading tomato processors. Located in the most productive tomato growing region in the world, Los Gatos Tomato Products is rooted in a tradition of agricultural excellence. Generations of farming expertise combined with unmatched growing conditions allow us to deliver tomato products of superior quality, season after season. The company is recognized for its commitment to agricultural innovation, sustainability, and responsible stewardship of agricultural resources while continuously developing new opportunities to maximize the value of renewable feedstocks.
 
- Michael Collins, P.Geo., CEO+1(778) 819-7881admin@generationuranium.com
+ Forward-Looking Statements
 
- Roger Leschuk, CIM, FCSI -VP Corporate Developmentrleschuk@generationuranium.com+1(604) 720-4544
+ This press release contains “forward-looking statements” within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. These forward-looking statements are subject to the safe harbor provisions of the Private Securities Litigation Reform Act of 1995. Forward-looking statements may be identified by the use of words such as “expects,” “anticipates,” “intends,” “plans,” “believes,” “estimates,” “will,” “should,” “could,” “outlook,” “advance,” “expand,” “scale,” “convert,” “trial,” or similar expressions that predict or indicate future events or trends or that are not statements of historical matters.
 
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release. The TSX Venture Exchange has neither approved nor disapproved of the contents of this news release.
+ These forward-looking statements include, but are not limited to, statements regarding the proposed strategic collaboration with Los Gatos Tomatoes, the anticipated joint venture, product development, commercialization plans, expansion of the AgriBlend™ platform, market opportunities, and expected business outcomes. Actual results could differ materially from those projected in any forward-looking statements due to a variety of risks, uncertainties and other factors.
 
- Uranium Outlook 2026
+ Such risks and uncertainties include, without limitation, those described under the heading “Risk Factors” and elsewhere in the Company’s most recent Annual Report on Form 10-K, Quarterly Reports on Form 10-Q, and other documents filed with the U.S. Securities and Exchange Commission (the “SEC”), as well as risks related to: the Company’s ability to successfully negotiate and complete definitive agreements with Los Gatos Tomatoes; the timing and outcome of product development and customer validation activities; the availability of sufficient working capital and financing on acceptable terms; execution risks associated with scaling manufacturing and new material platforms; regulatory and audit completion risks; supply chain and raw material cost volatility; competition in the sustainable materials sector; and general economic, market, and industry conditions.
 
- The uranium market in 2026 continues to strengthen, supported by a widening structural supply deficit and accelerating global demand. Spot prices surpassed US$100/lb early in the year as mine production struggles to keep pace with reactor requirements. Demand growth is being driven by the rapid expansion of AI‑powered data centers, alongside significant increases in nuclear generation capacity in China, India, and the United States. Long‑term contract prices have now moved above spot, reflecting a healthy and sustained trend as utilities secure supply in an increasingly competitive environment.
+ Readers are cautioned not to place undue reliance on these forward-looking statements, which speak only as of the date of this press release. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required by applicable law.
 
- A comprehensive sector report(2) released by Shaw and Partners in February 2026 forecasts the potential for a multi‑year uranium price spike toward US$200/lb. The report highlights tightening fuel contracting cycles, accelerating nuclear demand, and persistent supply shortfalls as the foundation for a powerful re‑rating across the uranium sector.
+ Contact:
 
- The report also underscores a growing disconnect between uranium supply and long‑term reactor demand. Global nuclear capacity currently consumes approximately 180 million pounds (Mlb) of U3O8 annually, while existing mine production delivers only about 150 Mlb. According to the World Nuclear Association’s reference scenario(3), global nuclear capacity could expand significantly by 2040, pushing annual uranium consumption toward 390 Mlb.
-
- Shaw and Partners’ modelling further indicates:
-
- * New mine supply requirements this decade could exceed 350 Mlb, once depletion of existing operations is included.
-* Structural supply deficits could surpass 200 Mlb per year in the coming decades unless new large‑scale uranium projects are brought into production.
-
- Overall, the uranium market is expected to remain tight, with low inventories and rising demand driving utilities toward increasingly aggressive long‑term contracting strategies. This environment continues to strengthen the outlook for exploration‑stage companies positioned in proven and emerging uranium districts.
-
- References
-
- 1 https://athaenergy.com/atha-energy-completes-mobilization-commences-diamond-drilling-operations-as-part-of-the-2026-angilak-exploration-program-fully-funded-and-largest-to-date-at-the-project/
-
- 2 https://widget.medianet.com.au/uranium-super-cycle-emerging-as-shaw-and-partners-lifts-price-forecast-to-us200lb/1044683?WebsiteId=104
-
- 3 https://world-nuclear.org/our-association/publications/global-trends-reports/world-nuclear-fuel-report-2025#:~:text=The%20World%20Nuclear%20Association's%20biennial%20report%20on,including%20targets%20to%20achieve%20net%2Dzero%20carbon%20emissions
-
- 
+ Brittany Carlsen LovePh: 1-800-605-3210E: bcarlsen@owpv.comOne World Products, Inc. (to become Isiah Enterprises, Inc.)
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/final-mmt-survey-to-be-flown-on-generation-uranium-s-yath-project-kivalliq-region-nunavut-7087422)
+[Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-inc-and-los-gatos-tomato-products-announce-proposed-strategic-collaboration-to-expand-agriblend-tm-and-accelerate-sustainable-materials-innovation-7087423)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/generation-uranium-to-fly-mmt-survey-over-yath-projects-central-gap/6e29573bd99226b5febec76af6f0cd67) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-world-products-and-los-gatos-tomato-products-join-forces-to-expand-agriblendtm-platform/9db88d11e26bc324ce562f44330beb5d) 
 
  
 
@@ -92,4 +85,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/zealsTsJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/gluegNN8.webp)
