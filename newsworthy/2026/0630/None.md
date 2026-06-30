@@ -1,83 +1,68 @@
-# Carmed Pharmaceuticals Highlights Science Behind Its Botanical Wellness Formulations Ahead of Walmart.com Expansion
+# Dinosaur Capital Glen Rose Features July 4th Fireworks & Reckless Kelly Concert this Summer
 
-Carmed Pharmaceuticals, a research-driven company specializing in standardized carvacrol-based formulations, announced that four of its flagship wellness formulations are expected to become available soon through Walmart.com, expanding consumer access as the company continues its U.S. growth strategy.
 
- The upcoming Walmart.com launch follows Carmed's recent introduction on OneLavi.com and reflects the company's continued focus on making its research-driven wellness formulations available to the U.S.marketplace through leading online retail channels.
 
- As consumer interest in science-informed wellness continues to grow, Carmed says its product development philosophy has remained consistent from the beginning: combining traditional botanical knowledge with modern pharmaceutical methodology to develop plant-based wellness formulations through analytical validation, quality control, and reproducible formulation design.
+Glen Rose kicks off its biggest summer events with consecutive celebrations this July: a hometown Fourth of July festival featuring fireworks and live music, followed by Texas country favorite Reckless Kelly performing at the newly remodeled Texas Amphitheater on July 18. Both events offer the perfect reason to plan an overnight stay in the ‘Dinosaur Capital of Texas’ this summer.
 
- "Our objective has always been to approach botanical formulation development with scientific discipline," said Mustafa Can, Founder of Carmed Pharmaceuticals. "We focus on standardization, reproducibility, and analytical validation so our formulations are developed through a consistent and research-driven process."
+ "July is the perfect time to discover everything Glen Rose has to offer," said Traci Niedziela, Tourism Director for Explore Glen Rose. "Whether you're celebrating Independence Day with fireworks and live music or enjoying a world-class country concert at our beautifully renovated amphitheater, we invite visitors to make it a weekend getaway and explore why we're known as the Dinosaur Capital of Texas.”
 
- Research Supporting Product Development Officially established in 2019 following years of focused research and development, Carmed combines botanical science with modern pharmaceutical technology to develop formulations designed to support preventive wellness, immune resilience, microbial balance, respiratory wellness, and cellular health.
+ Fourth of July Celebrations Across Glen Rose
 
- The company's development philosophy is supported through ongoing collaboration with researchers, laboratories, healthcare institutions, and scientific advisors.
+ Glen Rose welcomes visitors for a full day of all-American celebration on July 4, 2026:
 
- In 2026, research involving Carmed formulations was published in two peer-reviewed scientific journals. A study published in Plants in January examined Vacrol® and S-Mix® in preclinical laboratory and in ovo models, contributing to the broader scientific investigation of carvacrol-based formulations and multicomponent botanical interactions. A second study, published in Antioxidants in May, further evaluated Vacrol® and S-Mix® in laboratory and preclinical experimental models, examining formulation characteristics, biological activity, and antimicrobial properties. The researchers concluded that the formulations demonstrated distinct biological profiles and warranted further mechanistic and translational investigation.
+ 8:00 AM - Pancake Breakfast at Senior Citizen Center
 
- Carmed emphasizes that these publications represent scientific investigation into formulation science and botanical bioactivity and are not presented as evidence that its consumer products diagnose, treat, cure, or prevent any disease.
+ 10:00 AM - Hometown Independence Day ParadeFestivities start with a vibrant parade around the historic downtown square. Free registration is available for community participants who want to join the celebration.
 
- "We believe scientific publication is an important part of transparency and long-term credibility," said Ceren Can, Global Brand Director of Carmed Pharmaceuticals. "Publishing in peer-reviewed journals reflects our commitment to advancing scientific understanding while continuing to refine our formulations through ongoing research and collaboration."
+ 12:00 PM - 2:00 pm - Dinosaur World CelebrationFamilies can enjoy live music, hot dog eating contests, giveaways and explore hundreds of life-sized dinosaur exhibits at this family-friendly daytime event.
 
- Coming Soon to Walmart.com Carmed Pharmaceuticals expects the following formulations to become available soon on Walmart.com:
+ 2:00 PM Ceremony at the Creation Evidence Museum
 
- * Vacrol® Kids Spray - A carvacrol-based spray formulated to support upper respiratory wellness and microbial balance for children ages 4-11.
-* S-Mix® - A synergy-driven formulation designed to support immune function and healthy cellular activity.
-* Vacrol® Capsule - A standardized carvacrol formulation developed to support microbial balance and immune resilience.
-* Vacrol-M® Capsule - A multi-component botanical formulation designed to support immune function and respiratory wellness.
+ 7:00 PM - Wheeler Branch Park FireworksHosted by the Somervell County Water District, the evening celebration features fireworks and free live music by the Brady Hulsey Band at Wheeler Branch Park.
 
- Vacrol® Kids Spray and S-Mix® are gluten-free, non-GMO, sugar-free, preservative-free, and halal-certified.
+ Reckless Kelly Takes the Stage at Texas Amphitheater On Saturday, July 18, 2026, Texas country music fans can experience Reckless Kelly live at the Texas Amphitheater, a historic open-air venue recently acquired by the MSAS family and completely reimagined with state-of-the-art lighting and sound systems. The amphitheater's signature water moat creates a one-of-a-kind concert experience under the Texas stars.
 
- The Walmart.com launch follows the recent availability of Carmed formulations on OneLavi.com as part of the company's broader U.S. expansion strategy focused on scientific credibility, educational outreach, and expanding consumer access to its research-driven botanical wellness formulations.
+ Event Details:
 
- U.S. consumers can purchase Vacrol® Kids Spray, S-Mix® ,Vacrol® Capsule and Vacrol-M® Capsule on OneLavi.com today.
+ * Date: Saturday, July 18, 2026
+* Time: 7:00 PM to 11:00 PM
+* Venue: Texas Amphitheater, 5000 Texas Dr, Glen Rose, TX 76043
+* Tickets: Available on Eventbrite starting at $55
 
- About [Carmed Pharmaceuticals](https://carmedilac.com.tr/en/hakkimizda/) Carmed Pharmaceuticals is a research-driven company specializing in standardized, mechanism-based botanical formulations rooted in Anatolia’s rich botanical heritage. Integrating traditional plant knowledge with modern pharmaceutical technology, Carmed focuses on analytical validation, quality control, and reproducible formulation design.
+ Make It a Weekend Getaway in the Dinosaur Capital of Texas
 
- Officially established in 2019 following years of focused research and development, the company operates with nearly 15 years of industry experience. All products are manufactured in accordance with Good Manufacturing Practice (GMP) principles and relevant regulatory standards, emphasizing safe production, environmental awareness, and continuous quality improvement.
+ Glen Rose offers visitors the rare opportunity to combine summer events with unique outdoor adventures and family attractions. The town is home to 98 custom-painted dinosaurs placed throughout the community, each sponsored by local businesses. With options varying from a range of accommodations including luxurious boutique hotels, charming inns, affordable motels, B&Bs, riverside cabins and vacation getaways; giving visitors plenty of options when planning their trip.
 
- Carmed develops standardized formulations designed to support preventive wellness, immune resilience, and cellular health through science-informed, quality-controlled processes.
+ Free Dino Crawl Scavenger HuntThe Glen Rose Dinosaur Pass, available on the Bandwango app, is Bandwango's #1 pass by volume nationwide. The free scavenger hunt guides explorers to 35 of the town's 98 hand-painted dinosaurs. Visitors who complete all 35 stops earn one free entry pass to Fossil Rim Wildlife Center. Stop by the Visitors Center to meet "Rexanne," the animatronic dinosaur, and scan the QR code to start your hunt.
 
- For more information, visit Carmed Pharmaceuticals online and follow the company on Instagram. 
+ Explore Glen Rose Attractions Glen Rose offers a full lineup of family-friendly destinations perfect for a summer weekend getaway:
+
+ * Dinosaur Valley State Park - Explore real dinosaur tracks preserved in the Paluxy River bed
+* Fossil Rim Wildlife Center - Drive-through safari park where visitors can feed giraffes and exotic animals
+* Dinosaur World - Hundreds of life-sized dinosaur exhibits
+* Paluxy River Walk - A scenic walking path along the Paluxy River connecting two downtown parks, ideal for evening strolls
+* Big Rocks Park - Natural limestone formations and river access
+* Paluxy Heritage Park - Picnic areas and green space
+* Historic Town Square - Charming downtown with local shops and restaurants surrounding a postcard-perfect courthouse
+* Barnard's Mill and Art Museum - Historic mill
+
+ About Glen Rose, Texas Glen Rose, known as the "Dinosaur Capital of Texas," is a charming small-town Texas destination located approximately 75 miles southwest of Dallas-Fort Worth and 90 miles north of Austin. Nestled in the rolling limestone hills along the Paluxy River, Glen Rose offers visitors a rare blend of natural wonder, outdoor adventure and small-town hospitality. The town's picturesque historic downtown square, featuring a stunning courthouse and locally owned shops and restaurants, serves as the heart of a community rich in paleontological history and natural beauty. From real dinosaur tracks preserved in Dinosaur Valley State Park to the drive-through safari experience at Fossil Rim Wildlife Center, Glen Rose provides families and adventure seekers an authentic Texas Hill Country getaway. With diverse lodging options, year-round events and attractions that appeal to all ages, Glen Rose is the perfect weekend escape for those seeking to trade the ordinary for the extraordinary. For more information, visit exploreglenrose.com.
+
+ Traci NiedzielaTourism DirectorGlen Rose, Texas(254) 243-0029 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202606302584/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmar)
+[Original/Source Press Release](https://newsworthy.ai/news/202606302581/dinosaur-capital-glen-rose-features-july-4th-fireworks-and-reckless-kelly-concert-this-summer)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/carmed-pharmaceuticals-brings-science-backed-botanicals-to-walmart-com/e075a43023c0d5965e57d21282ddfde2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/glen-rose-july-events-fourth-of-july-reckless-kelly-concert/52750954968ac67fd7cff3b79d813540) 
 
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/carmed-pharmaceuticals-highlights-science-behind-its-botanical-wellness-formulations-ahead-of-walmartcom-expansion)
-
-Pickup - [https://advos.io/en](https://advos.io/en/carmed-pharmaceuticals-to-launch-four-botanical-wellness-products-on-walmartcom)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/52750954968ac67fd7cff3b79d813540)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/30/healZ95t.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/266/30/zestiobJ.webp)

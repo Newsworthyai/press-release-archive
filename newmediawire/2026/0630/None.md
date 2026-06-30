@@ -1,83 +1,81 @@
-# One World Products, Inc. and Los Gatos Tomato Products Announce Proposed Strategic Collaboration to Expand AgriBlend™ and Accelerate Sustainable Materials Innovation
+# Klarify Launches AI Operating System for Therapists as Mental Health Industry Faces Workforce and Insurance Crisis
 
-Companies Intend to Develop Next-Generation Engineered Materials Utilizing Renewable Agricultural Feedstocks Across Multiple Commercial Markets
+Backed by Y Combinator, Klarify Launches Publicly With 8,300 Therapists Across Five Countries as Therapists Face Rising Burnout, Administrative Overload, and a Growing AI Imbalance Against Insurers
 
- TROY, MI and HURON, CA - June 30, 2026 (NEWMEDIAWIRE) - One World Products, Inc. (OTCQB: OWPC) (www.oneworldproducts.com) (the “Company”), an advanced sustainable materials company, and Los Gatos Tomato Products, one of California’s leading tomato processors, today announced their intention to enter into a strategic collaboration to expand AgriBlend™, the Company’s agricultural biomaterials platform, through the development of advanced engineered materials utilizing renewable agricultural feedstocks.
+ SAN FRANCISCO - June 30, 2026 (NEWMEDIAWIRE) - Therapists have become one of the most operationally overwhelmed professions in healthcare. Demand for mental health services has surged, reimbursement pressure continues to intensify, and clinicians increasingly spend as much time operating small businesses as treating patients.
 
- The companies have agreed in principle to establish a strategic joint venture that combines Los Gatos Tomato Products agricultural expertise, renewable feedstock resources, and processing capabilities with the Company’s advanced materials engineering, compounding, manufacturing, and commercialization capabilities.
+ Klarify today launched publicly, unveiling an AI native operating system built specifically for therapists. At launch, Klarify boasts more than 8,300 therapists across five countries and is part of Y Combinator’s Spring 2026 batch.
 
- The collaboration represents a further step in the Company’s long-term strategy of transforming recycled and renewable resources into advanced engineered materials serving the automotive, infrastructure, agriculture, packaging, logistics, industrial, and consumer markets.
+ Klarify’s position is intentionally firm: AI should not replace therapy. Instead, the platform is designed to handle the operational, administrative, and financial work surrounding therapy, including clinical documentation, treatment plans, insurance workflows, assessment reports, between-session resources, and practice growth.
 
- AgriBlend™ represents the Company’s agricultural biomaterials platform, bringing together the Company’s existing work in renewable biocomposites with an expanding portfolio of agricultural feedstocks. The collaboration with Los Gatos Tomatoes significantly broadens that platform by adding tomato pomace and almond byproducts.
+ “The therapy itself stays human. Always,” said Moody Abdul, co-founder and CEO of Klarify. “AI should handle the operational burden around therapy so therapists can spend more time actually helping people.”
 
- The AgriBlend™ platform currently encompasses work with:
+ Klarify enters the market during a worsening mental health access crisis. According to the American Psychological Association’s 2024 Practitioner Pulse Survey, 53% of psychologists report having no openings for new patients, while 32% report active burnout, rising to 51% among early-career psychologists. Outpatient mental health utilization grew roughly 40% from Q1 2019 to Q4 2023.
 
- * Tomato pomace
-* Almond byproducts
-* Rice hulls
-* Corn fiber
-* Soy fiber
-* Jute
-* Agricultural cellulose feedstocks
+ Despite overwhelming demand for care, many therapists spend only 20 to 25 hours per week in direct client sessions, with the rest consumed by documentation, billing, compliance, scheduling, marketing, and administrative work. Klarify estimates that many solo practitioners unknowingly spend nearly $26,000 annually across fragmented operational infrastructure required to run a modern practice.
 
- The companies also intend to evaluate additional renewable agricultural feedstocks as the platform continues to expand.
+ Klarify estimates that therapists collectively sit at the center of a $22 billion operational economy today across the US, Canada, UK, Australia, and New Zealand, spanning reimbursement infrastructure, compliance systems, documentation software, scheduling platforms, outsourced billing services, and administrative labor. The company believes the addressable market could grow to over $50 billion at maturity as the platform expands into client-side experiences, institutional contracts, and adjacent infrastructure.
 
- The Company’s goal through this collaboration is to build upon its established portfolio of sustainable material technologies. The Company previously commercialized hemp-based biocomposite materials, including reusable industrial containers, while developing advanced engineered compounds for automotive and industrial applications. The Company’s intended expansion of AgriBlend™ reflects the Company’s continuing strategy of broadening its renewable feedstock capabilities across multiple agricultural resources.
+ The company says one of the largest emerging problems in mental healthcare is what it describes as a growing “AI imbalance” between insurers and practitioners.
 
- Today, the Company’s advanced sustainable materials portfolio includes:
+ Klarify argues that insurers operationalized automated reimbursement infrastructure years before therapists had access to comparable tooling. As insurance companies increasingly use automation to evaluate, delay, reduce, or deny claims, many therapists still rely on fragmented billing systems, outsourced services, or manual administrative workflows.
 
- * EcoBlend™ - Engineered polymer platform
-* AgriBlend™ - Agricultural biomaterials platform
-* Advanced polypropylene compounds
-* Natural fiber composite technologies
-* Recycled rubber material technologies
-* Cellulose-based material technologies
-* Circular economy material solutions
+ Klarify recently launched AI-supported claims preparation, CPT coding optimization, eligibility verification, and denial appeal drafting. The company says the platform is designed to help practitioners respond to increasingly automated reimbursement systems with AI infrastructure of their own.
 
- The Company believes that these capabilities position it as a diversified advanced sustainable materials company capable of transforming recycled polymers, renewable agricultural feedstocks, natural fibers, recycled rubber, and cellulose into high-performance engineered materials.
+ “Therapists are entering an increasingly automated reimbursement environment badly outgunned,” Abdul said. “We think therapists deserve modern infrastructure on their side too.”
 
- “Our objective is to build a platform company that transforms recycled and renewable resources into high-performance engineered solutions for the world’s largest industries,” said Isiah Thomas, Chairman and Chief Executive Officer of the Company.
+ The financial stakes are significant. According to the Heard 2025 Financial State of Private Practice Report, average private-pay therapy sessions reimburse at approximately $159, compared to roughly $111 through insurance. Additional industry revenue-cycle analysis cited by Klarify estimates therapists may lose between $1,000 and $2,500 per clinician each month through missed or denied reimbursement opportunities tied to administrative complexity and underbilling.
 
- Mr. Thomas continued, “For years, we have demonstrated that renewable feedstocks can perform in demanding commercial applications. Beginning with hemp-based biocomposites and expanding through EcoBlend™, we have steadily broadened our capabilities into agricultural biomaterials, natural fibers, recycled rubber, and cellulose-based technologies. Our intended collaboration with Los Gatos Tomatoes significantly expands AgriBlend™ by adding new renewable feedstocks and strengthening our ability to develop innovative material solutions for customers across multiple industries.”
+ At the center of Klarify is Klara, the AI assistant inside the platform. Klara drafts clinical notes, generates treatment plans, prepares clinical letters and assessment reports, develops between-session resources, supports 104 languages, and produces visual session mindmaps that help therapists identify recurring themes and patterns across care.
 
- Dan Green, President and Chief Executive Officer of Los Gatos Tomato Products, said, “Los Gatos Tomato Products has always believed innovation creates opportunity. This proposed collaboration enables us to create additional value from tomato pomace and agricultural resources while partnering with an organization that shares our commitment to sustainability, advanced materials, and long-term commercial growth. Together, we believe we can develop innovative products that benefit agriculture, industry, and the environment.”
+ Klarify says therapists increasingly use AI not as a replacement for care, but as infrastructure surrounding care delivery. Internal product analysis found that 71% of in-product Klara usage now occurs outside traditional note-taking workflows, including insurance support, treatment planning, operational tasks, letters, and other therapist workflows.
 
- Beyond product development, the companies intend to collaborate on research, manufacturing, commercialization, and future technology development while evaluating additional agricultural feedstocks and engineered material applications.
+ “Klarify gave me something I didn’t realize I had lost: time and energy,” said Kelly Copeland, M.Ed., Registered Counselling Therapist. “It has changed not only how I work, but how I live.”
 
- Additional information regarding the proposed joint venture and related commercial initiatives will be announced following completion of definitive agreements.
+ Klarify believes therapy represents one of the clearest early examples of a true vertical AI category. The profession combines high documentation burden, reimbursement complexity, fragmented tooling, regulatory sensitivity, and emotionally intensive human work, creating conditions where AI can dramatically expand practitioner capacity without replacing the practitioner.
 
- About One World Products, Inc.(to become Isiah Enterprises, Inc.)
+ “Pre-AI, software had to solve one problem for many people,” Abdul said. “Post-AI, software can solve many problems for one specific profession. We believe the next generation of category-defining software companies will own a single professional workflow end to end.”
 
- One World Products, Inc. (OTCQB: OWPC) (the “Company”), which will operate under the new name Isiah Enterprises, Inc. upon completion of its corporate name and symbol change with FINRA approval, is building a platform company for advanced sustainable materials. Through EcoBlend™, AgriBlend™, and its portfolio of engineered material technologies, the Company develops high-performance materials utilizing recycled polymers, renewable agricultural feedstocks, natural fibers, recycled rubber, and cellulose-based materials for the automotive, infrastructure, agriculture, industrial, logistics, packaging, and consumer markets.
+ Klarify also sees emotional and professional isolation as part of the operational burden therapists carry. Many therapists work alone, even inside clinics, and the company says supervisors have increasingly begun recommending Klara to younger practitioners as a form of operational and intellectual reinforcement during emotionally demanding clinical work.
 
- By transforming recycled and renewable resources into value-added engineered materials, the Company is creating scalable technologies that support the global transition to a more circular and sustainable economy.
+ Klarify believes mental healthcare may become one of the first major professions where AI significantly expands human capacity while preserving the central role of the human practitioner.
 
- About Los Gatos Tomato Products
+ Klarify’s user base currently spans five countries, with U.S. adoption accelerating significantly in recent months. The company is also supported by an 103,000-subscriber audience built through The Future of Therapy podcast and newsletter ecosystem.
 
- Los Gatos Tomato Products is one of California’s leading tomato processors. Located in the most productive tomato growing region in the world, Los Gatos Tomato Products is rooted in a tradition of agricultural excellence. Generations of farming expertise combined with unmatched growing conditions allow us to deliver tomato products of superior quality, season after season. The company is recognized for its commitment to agricultural innovation, sustainability, and responsible stewardship of agricultural resources while continuously developing new opportunities to maximize the value of renewable feedstocks.
+ About Klarify
 
- Forward-Looking Statements
+ Klarify is building the AI native operating system for therapists, designed to manage the operational, administrative, and financial infrastructure surrounding modern mental healthcare practices. The platform helps therapists handle documentation, treatment planning, insurance workflows, practice growth, clinical letters, assessment reports, and between-session resources while keeping therapy itself fundamentally human. The platform is HIPAA, PHIPA, Quebec Law 25, and UK GDPR compliant, and is contractually bound not to train AI on clinical data. Klarify currently serves more than 8,3000 therapists across five countries and is part of Y Combinator’s Spring 2026 batch.
 
- This press release contains “forward-looking statements” within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended. These forward-looking statements are subject to the safe harbor provisions of the Private Securities Litigation Reform Act of 1995. Forward-looking statements may be identified by the use of words such as “expects,” “anticipates,” “intends,” “plans,” “believes,” “estimates,” “will,” “should,” “could,” “outlook,” “advance,” “expand,” “scale,” “convert,” “trial,” or similar expressions that predict or indicate future events or trends or that are not statements of historical matters.
+ Klarify was co-founded by Moody Abdul (CEO) and Alexander Bergholm (CTO). Abdul is a second-time founder who previously co-founded Circleback.ai, an AI meeting notes platform, and led $20M in enterprise contracts at LinkedIn. He hosts The Future of Therapy podcast, with an audience of 103,000 mental health professionals. Bergholm previously worked on self-driving cars at the University of British Columbia, was selected for Finnish military special forces where he conducted deep learning research in signal processing and network modeling, and most recently led machine learning infrastructure at Workday.
 
- These forward-looking statements include, but are not limited to, statements regarding the proposed strategic collaboration with Los Gatos Tomatoes, the anticipated joint venture, product development, commercialization plans, expansion of the AgriBlend™ platform, market opportunities, and expected business outcomes. Actual results could differ materially from those projected in any forward-looking statements due to a variety of risks, uncertainties and other factors.
+ Additional Resources
 
- Such risks and uncertainties include, without limitation, those described under the heading “Risk Factors” and elsewhere in the Company’s most recent Annual Report on Form 10-K, Quarterly Reports on Form 10-Q, and other documents filed with the U.S. Securities and Exchange Commission (the “SEC”), as well as risks related to: the Company’s ability to successfully negotiate and complete definitive agreements with Los Gatos Tomatoes; the timing and outcome of product development and customer validation activities; the availability of sufficient working capital and financing on acceptable terms; execution risks associated with scaling manufacturing and new material platforms; regulatory and audit completion risks; supply chain and raw material cost volatility; competition in the sustainable materials sector; and general economic, market, and industry conditions.
+ * Klarify Website
+* Y Combinator Launch Page
+* YC Launch Video
+* YC Launch LinkedIn Post
+* Platform Demo Video
+* Klara AI Assistant + Mindmap Demo
+* Privacy and Security Documentation
 
- Readers are cautioned not to place undue reliance on these forward-looking statements, which speak only as of the date of this press release. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required by applicable law.
+ Recent Press Coverage
 
- Contact:
+ * Apple News
+* Dallas Morning News
+* TechCrunch
+* Tech Times
+* International Business Times
 
- Brittany Carlsen LovePh: 1-800-605-3210E: bcarlsen@owpv.comOne World Products, Inc. (to become Isiah Enterprises, Inc.)
+ Contact: Jonathan PhillipsKlarify@PhillComm.Global
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-inc-and-los-gatos-tomato-products-announce-proposed-strategic-collaboration-to-expand-agriblend-tm-and-accelerate-sustainable-materials-innovation-7087423)
+[Original/Source Press Release](https://www.newmediawire.com/news/klarify-launches-ai-operating-system-for-therapists-as-mental-health-industry-faces-workforce-and-insurance-crisis-7087430)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/one-world-products-and-los-gatos-tomato-products-join-forces-to-expand-agriblendtm-platform/9db88d11e26bc324ce562f44330beb5d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/y-combinator-backed-klarify-launches-ai-os-for-therapists-to-fight-burnout/4f3aa5e43431da324859d96f29b3235a) 
 
  
 
@@ -85,4 +83,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/gluegNN8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/266/30/yogaP7RC.webp)
