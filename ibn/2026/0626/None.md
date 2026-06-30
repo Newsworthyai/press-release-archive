@@ -1,18 +1,16 @@
 # NetworkNewsBreaks – CMX Gold &amp; Silver Corp. (CSE: CXC) (OTC: CXXMF) Focuses on Long-Term Opportunity as Market Dynamics Evolve
 
-Disseminated on behalf of MindBio Therapeutics Corp. (CSE: MBIO) (OTCQB: MBQIF) and may include paid advertising.
+Disseminated on behalf of CMX Gold & Silver Corp. (CSE: CXC) (OTC: CXXMF) and may include paid advertising.
 
- MindBio Therapeutics (CSE: MBIO) (OTCQB: MBQIF) is a biotechnology company commercializing AI-driven voice technology for drug and alcohol intoxication detection. The company was featured in a recent article that discussed its efforts to broaden the scope of its platform with the development of a fatigue prediction model designed for high-risk workplace environments. “The fatigue detection capability is expected to become an additional feature within MindBio’s planned Edge AI Intoxication Detection Kiosks, which are being designed to identify signs of alcohol, drug impairment and fatigue from short voice samples,” the publication reads.
+ CMX (CSE: CXC) (OTC: CXXMF) is an exploration-stage company advancing the wholly owned Clayton Silver Project in Idaho. The company was featured in a recent article that discussed its positioning to navigate increasing volatility in precious metals markets driven in part by the growing influence of derivatives trading. While derivatives can improve liquidity and provide hedging opportunities, they can also contribute to heightened leverage and skewed prices. Against this backdrop, the company remains focused on advancing its historic Clayton Silver Mine, which it believes could benefit from long-term demand for physical silver. CMX has also adopted semi-annual financial reporting in place of quarterly reporting, a move designed to reduce administrative costs and free management to devote more time and resources to advancing the Clayton Silver Project.
 
- “The announcement reflects a broader strategy by MindBio to position voice analytics as a scalable alternative to conventional impairment screening methods such as breathalyzers, saliva tests, urine analysis and laboratory-based toxicology testing. Rather than relying on physical samples, the company’s platform analyzes speech characteristics captured through a microphone and processes the audio using machine learning models trained on large voice datasets.”
+ To view the full article, visit https://nnw.fm/Whcur
 
- To view the full article, visit https://nnw.fm/5DDUT
+ About CMX Gold & Silver Corp.
 
- About MindBio Therapeutics Corp.
+ CMX’s 100%-owned Clayton Silver Property is located in the mining-friendly state of Idaho, USA. The property comprises approximately 684 acres in Custer County in south-central Idaho, including the former Clayton silver- lead-zinc mine. The Clayton Mine was developed on eight levels to a depth of 1,100 feet below surface and is comprised of approximately 19,690 feet of underground development. Two major ore bodies, including the “South Ore Body” and the “North Ore Body,” were partially mined.
 
- MindBio is a biotechnology company that is commercialising AI prediction technologies for drug and alcohol intoxication detection via voice analysis. The AI prediction model uses over 50 million data points to predict alcohol intoxication with remarkable accuracy, just by using the human voice. The company is developing an enterprise platform including Edge-AI kiosks integrating bespoke hardware and software for the detection of drug and alcohol intoxication using the human voice and AI in a range of enterprise environments including the mining industry, aviation, construction and law enforcement.
-
- NOTE TO INVESTORS: The latest news and updates relating to MBQIF are available in the company’s newsroom at https://nnw.fm/MBQIF
+ NOTE TO INVESTORS: The latest news and updates relating to CXXMF are available in the company’s newsroom at https://nnw.fm/CXXMF
 
  About NetworkNewsWire
 
@@ -30,15 +28,17 @@ Disseminated on behalf of MindBio Therapeutics Corp. (CSE: MBIO) (OTCQB: MBQIF) 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mindbio-expands-ai-voice-tech-to-detect-fatigue-in-high-risk-jobs/20e9e968133badce25aaf5d34405da72) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cmx-gold-silver-positions-to-capitalize-on-silver-demand-amid-market-volatility/520127cd07811faf0da3b101737a6bdc) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/26/yogaOA5S.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/29/dualejPS.webp)

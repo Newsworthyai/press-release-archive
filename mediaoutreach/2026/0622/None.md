@@ -8,16 +8,14 @@ HONG KONG / PARIS, FRANCE - [Media OutReach Newswire](https://www.media-outreach
 
   The annual showcase put a spotlight on enabling founders to connect with the local I&T community, explore market access, and forge global partnerships via pitching and matching sessions, networking mixers, and investor engagement. Compared with VivaTech 2025, this year's delegation achieved even stronger momentum with over 50% growth in opportunities, totalling more than 200 potential business leads worth HK$70M in total.   HKSTP's growing presence at VivaTech reflects its mission to open new doors for Hong Kong's startups, build pathways into European markets and create reciprocal opportunities for European innovators to enter Asia through Hong Kong's strategic location in the world's No.1 innovation cluster – Guangdong-Hong Kong-Macao GBA (World Intellectual Property Organisation Innovation Index).   Terry Wong, CEO of HKSTP, said: "France and the EU represent critical opportunities for Hong Kong and Chinese Mainland I&T ventures to scale globally. VivaTech provides a world-class platform for collaboration, co-creation, and knowledge exchange. Our strong ties with French partners underline the importance of Hong Kong as a global launchpad for innovation, supporting startups on their journey from local success to international impact."   Highlights this year include the expansion of HKSTP's partnership with Bouygues Construction, a global leader in sustainable construction and infrastructure headquartered in France, and operates across more than 60 countries and is recognised for delivering major projects in transport, energy, real estate, and smart cities.   Through its Hong Kong arm, Dragages Hong Kong, Bouygues has maintained a 70-year legacy in Hong Kong, contributing to iconic infrastructure projects and championing innovation in areas such as construction safety, modular design, green materials, and site automation. HKSTP is the first and only institution in Hong Kong to bridge tech venture directly into the Bouygues Construction "Scale One: programme, providing a fast track to prototyping and commercialisation. This initiative sets a new benchmark for cross-border industrial innovation partnerships, accelerating global impact for Hong Kong startups through trusted collaborations with leading European enterprises.   Building on existing strong foundations, Bouygues Construction is now stepping up collaboration with HKSTP beyond Asia, offering selected Hong Kong startups the chance to showcase solutions at Bouygues' headquarters in France, with opportunities for solution validation and pilot trials across European operations.   The Hong Kong Tech Pavilion, organised by the Hong Kong Trade Development Council (HKTDC) and supported by partners including HKSTP, showcased market-ready solutions spanning AI, green- and health tech from 24 tech ventures, and marked a major milestone in creating a direct bridge between Hong Kong and Europe's heart of innovation and technology. Hashtag: #HKSTPThe issuer is solely responsible for the content of this announcement.
 
-HKSTPMore information about HKSTP is available at www.hkstp.org.
-
-![](//track.media-outreach.com/index.php/WebView/472075/279561) 
+HKSTPMore information about HKSTP is available at www.hkstp.org. 
 
 ---
 
 [Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/06/22/472075/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hkstp-forges-eu-partnerships-at-vivatech-2026-boosting-cross-continent-innovation/ae54557610a56fbd980efda589692ba7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hkstp-seals-major-deals-at-vivatech-2026-eyes-european-expansion/ae54557610a56fbd980efda589692ba7) 
 
  
 
@@ -25,4 +23,4 @@ HKSTPMore information about HKSTP is available at www.hkstp.org.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/22/plumxlxI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/266/29/jokecGwD.webp)
