@@ -1,53 +1,39 @@
-# MissionIRNewsBreaks – Wrap Technologies, Inc. (NASDAQ: WRAP) Expands Campus Safety Presence With UMBC Deployment
+# AINewsBreaks – SPARC AI Inc. (CSE: SPAI) (OTCQB: SPAIF) Developing Solutions for an Era of Increasing GPS Interference
 
-Wrap Technologies (NASDAQ: WRAP) announced that the University of Maryland, Baltimore County has purchased BolaWrap(R) devices and Non-Lethal Response training as part of its initial deployment of non-lethal capabilities for campus safety and security. The company said the deployment is intended to support responsible, measured response by providing officers with an additional non-lethal tool designed to help reduce escalation and create opportunities for safer resolutions.
+Disseminated on behalf of SPARC AI Inc. (CSE: SPAI) (OTCQB: SPAIF) and may include paid advertising.
 
- Wrap Technologies said the UMBC deployment advances its strategy to expand adoption of its public safety portfolio beyond traditional municipal law enforcement into markets including higher education, healthcare, transportation, critical infrastructure and security. The company noted its broader Non-Lethal Response ecosystem also includes Wrap Reality, WrapTactics(TM), WrapVision(TM) and other public safety technologies.
+ SPARC AI (CSE: SPAI) (OTCQB: SPAIF) is developing GPS-free navigation and target acquisition technology designed to operate in Denied, Degraded, Intermittent, and Limited (“DDIL”) environments, addressing a growing challenge highlighted in a recent article. The piece examines how GPS jamming has become increasingly common in modern warfare, disrupting navigation, communications, drone operations and precision targeting while also affecting civilian aviation, shipping and transportation networks. As reliance on GPS exposes both military and commercial systems to interference, SPARC AI’s software-only platform leverages artificial intelligence, advanced mathematics and edge computing to provide real-time geospatial intelligence, tracking and autonomous navigation without relying on GPS, radar, lidar or additional hardware, positioning the company to meet rising demand for resilient navigation solutions.
 
- To view the full press release, visit https://ibn.fm/mA55n
+ To view the full article, visit https://ibn.fm/7la0A
 
- About Wrap Technologies, Inc.
+ About SPARC AI Inc.
 
- Wrap Technologies, Inc. (NASDAQ: WRAP) a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
+ SPARC AI develops next-generation, GPS-free target acquisition and intelligence software for drones and edge devices. Its zero-signature technology delivers real-time detection, tracking, and behavioral insights without reliance on radar, lidar, or heavy sensors. SPARC AI’s flagship platform provides defense, rescue, first responders, and commercial operators with unmatched situational awareness. The company is committed to building a scalable software platform that defines the future of drone intelligence globally.
 
- WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
+ NOTE TO INVESTORS: The latest news and updates relating to SPAIF are available in the company’s newsroom at https://ibn.fm/SPAIF
 
- With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
+ About AINewsWire
 
- Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
+ AINewsWire (“AINW”) is a specialized communications platform with a focus on the latest advancements in artificial intelligence (“AI”), including the technologies, trends and trailblazers driving innovation forward. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, AINW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, AINW brings its clients unparalleled recognition and brand awareness.
 
- WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
+ AINW is where breaking news, insightful content and actionable information converge.
 
- As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
+ To receive SMS alerts from AINewsWire, text “AI” to 888-902-4192 (U.S. Mobile Phones Only)
 
- WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
+ For more information, please visit www.AINewsWire.com
 
- Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
+ Please see full terms of use and disclaimers on the AINewsWire website applicable to all content provided by AINW, wherever published or re-published: https://www.AINewsWire.com/Disclaimer
 
- The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
+ AINewsWireAustin, Texaswww.AINewsWire.com512.354.7000 OfficeEditor@AINewsWire.com
 
- NOTE TO INVESTORS: The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
-
- About MissionIR
-
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
-
- MIR is where breaking news, insightful content and actionable information converge.
-
- For more information, please visit www.MissionIR.com
-
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
-
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
-
- MissionIR is powered by IBN 
+ AINewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-expands-campus-safety-presence-with-umbc-deployment/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-sparc-ai-inc-cse-spai-otcqb-spaif-developing-solutions-for-an-era-of-increasing-gps-interference/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-bolawrap-deployed-at-university-of-maryland-for-safer-campus-safety/794a279a9995ab4e906a6a1e8ceec8d3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-ai-tackles-gps-jamming-with-gps-free-navigation-tech/69d79ba9f6aa296c3e18c37e12ba3a17) 
 
  
 
@@ -55,4 +41,4 @@ Wrap Technologies (NASDAQ: WRAP) announced that the University of Maryland, Balt
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/1/loftP5aa.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/1/ninavrED.webp)
