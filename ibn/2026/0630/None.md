@@ -1,14 +1,18 @@
-# RockBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) Expands Gold Mineralization at Depth at Swanson Deposit
+# RockBreaks – Numa Numa Resources Inc. Advancing Bougainville Infrastructure Alongside Mining Development
 
-Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and may include paid advertising.
+Disseminated on behalf of Numa Numa Resources Inc. and may include paid advertisements.
 
- LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) recently reported additional infill diamond drilling results from its Swanson Gold Deposit that continue to support the expansion of mineralization at depth and along strike, increasing confidence in the project’s growth potential beyond the current resource estimate. The latest assay results include broad mineralized and high-grade sub-intervals, with visible gold encountered across several newly reported drill holes. “LaFleur has intersected some of the strongest and widest gold mineralization to date at its Swanson Gold Project, indicating the presence of broad zones of gold mineralization extending beyond the limits of the current open pit resource… and highlighting the emergence of a potentially much larger, high-growth gold system with compelling expansion potential,” said Chairman Kal Malhi.
+ Numa Numa Resources is advancing infrastructure development alongside its resource strategy in Bougainville, positioning roads, renewable energy and community investment as key components of future mining projects. The company is constructing what it says is the first east-west road across Bougainville’s central mining district since before the civil conflict and has been authorized to conduct feasibility studies for a renewable energy-based electric utility to help restore power to the Panguna region. Working with customary landowners, Numa Numa aims to support long-term economic development while advancing a potential copper and gold resource opportunity, reflecting a broader industry trend toward integrating infrastructure, community collaboration and sustainable regional growth.
 
- To view the full article, visit https://ibn.fm/ee3cr
+ To view the full article, visit https://ibn.fm/U82Es
 
- About LaFleur Minerals Inc.LaFleur Minerals is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The company’s mission is to advance mining projects with a laser focus on its PEA-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 19,214 hectares (192 km 2 ) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has consolidated a large land package along a major structural break that hosts the Swanson, Bartec, and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. LaFleur Minerals’ recently refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects. LaFleur recently released the results of a positive Preliminary Economic Assessment (“PEA”) for the company’s Swanson Gold Project and the planned restart of the Beacon Gold Mill.
+ About Numa Numa Resources Inc.
 
- NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at https://ibn.fm/LFLRF
+ Numa Numa is a mining and infrastructure development company focused on unlocking transformational opportunities in the Autonomous Region of Bougainville, where the company is headquartered and where its management has lived and worked for 10 years.
+
+ Bougainville, a resource-rich archipelago in the South Pacific, is perhaps best known as the home of the Panguna Mine. Developed by Rio Tinto, the Panguna Mine was the largest open cut copper and gold mine in the world when it operated from 1972 to 1989 before being shuttered due to a civil war, called “the Crisis,” between Bougainville and its parent government Papua New Guinea. In 2001, the Bougainville Peace Agreement ended the war and awarded Bougainville limited autonomy, including its own constitution, by which ownership of the mine reverted to its customary landowners. A majority of the Panguna Mine’s copper, gold, and silver ore resources remain within its walls, making the fully explored and developed Panguna Mine one of the largest ore bodies in the world, today worth approximately $100 billion. Most geologists who have studied Bougainville believe that other nearby locations such as Mainoki and Karato are highly prospective and may contain ore deposits similar in size and scale to those of the Panguna Mine.
+
+ NOTE TO INVESTORS: The latest news and updates relating to Numa Numa are available in the company’s newsroom at https://ibn.fm/NUMA
 
  About Rocks & Stocks
 
@@ -28,10 +32,10 @@ Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and m
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-expands-gold-mineralization-at-depth-at-swanson-deposit/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-numa-numa-resources-inc-advancing-bougainville-infrastructure-alongside-mining-development/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-drilling-expands-swanson-gold-deposit/ce5a376a1858fcbff5f73f81ffa6e866) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/numa-numa-builds-roads-and-renewables-alongside-bougainville-copper-gold-strategy/75e660ed44fc1a938071da80ba918690) 
 
  
 
@@ -39,4 +43,4 @@ Disseminated on behalf of LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) and m
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/30/zealnPDa.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/30/tarokR8h.webp)
