@@ -1,44 +1,42 @@
-# NetworkNewsBreaks – CMX Gold &amp; Silver Corp. (CSE: CXC) (OTC: CXXMF) Focuses on Long-Term Opportunity as Market Dynamics Evolve
+# MissionIRNewsBreaks – AMC Entertainment Holdings, Inc. (NYSE: AMC) Closes $200 Million Registered Direct Offering
 
-Disseminated on behalf of CMX Gold & Silver Corp. (CSE: CXC) (OTC: CXXMF) and may include paid advertising.
+AMC (NYSE: AMC) announced the closing of its previously announced registered direct offering of 95.25 million shares of common stock, generating approximately $200 million in gross proceeds before fees and expenses. The company said it intends to use the proceeds primarily to redeem all $125.47 million of its 6.125% Senior Subordinated Notes due 2027, eliminating any anticipated material debt principal repayments before 2029.
 
- CMX (CSE: CXC) (OTC: CXXMF) is an exploration-stage company advancing the wholly owned Clayton Silver Project in Idaho. The company was featured in a recent article that discussed its positioning to navigate increasing volatility in precious metals markets driven in part by the growing influence of derivatives trading. While derivatives can improve liquidity and provide hedging opportunities, they can also contribute to heightened leverage and skewed prices. Against this backdrop, the company remains focused on advancing its historic Clayton Silver Mine, which it believes could benefit from long-term demand for physical silver. CMX has also adopted semi-annual financial reporting in place of quarterly reporting, a move designed to reduce administrative costs and free management to devote more time and resources to advancing the Clayton Silver Project.
+ The company said the remaining proceeds will support general corporate purposes, strengthen its cash reserves and fund targeted investments in seating upgrades and premium screens at selected higher-grossing theaters. AMC said the debt repayment is expected to reduce annual cash interest expense by approximately $7.7 million while enhancing its financial position and supporting growth-oriented capital investments.
 
- To view the full article, visit https://nnw.fm/Whcur
+ To view the full press release, visit https://ibn.fm/ruN1n
 
- About CMX Gold & Silver Corp.
+ About AMC Entertainment Holdings, Inc.
 
- CMX’s 100%-owned Clayton Silver Property is located in the mining-friendly state of Idaho, USA. The property comprises approximately 684 acres in Custer County in south-central Idaho, including the former Clayton silver- lead-zinc mine. The Clayton Mine was developed on eight levels to a depth of 1,100 feet below surface and is comprised of approximately 19,690 feet of underground development. Two major ore bodies, including the “South Ore Body” and the “North Ore Body,” were partially mined.
+ AMC is the largest movie exhibition company in the United States, the largest in Europe and the largest throughout the world with approximately 850 theatres and 9,600 screens across the globe. AMC has propelled innovation in the exhibition industry by: deploying its Signature power-recliner seats; delivering enhanced food and beverage choices; generating greater guest engagement through its loyalty and subscription programs, website, and mobile apps; offering premium large format experiences and playing a wide variety of content including the latest Hollywood releases and independent programming.
 
- NOTE TO INVESTORS: The latest news and updates relating to CXXMF are available in the company’s newsroom at https://nnw.fm/CXXMF
+ For more information, visit www.amctheatres.com
 
- About NetworkNewsWire
+ About MissionIR
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ MIR is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.NetworkNewsWire.com
+ For more information, please visit www.MissionIR.com
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+ MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
 
- NetworkNewsWire is powered by IBN 
+ MissionIR is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve-2/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-amc-entertainment-holdings-inc-nyse-amc-closes-200-million-registered-direct-offering/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cmx-gold-silver-positions-to-capitalize-on-silver-demand-amid-market-volatility/520127cd07811faf0da3b101737a6bdc) 
-
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/networknewsbreaks-cmx-gold-silver-corp-cse-cxc-otc-cxxmf-focuses-on-long-term-opportunity-as-market-dynamics-evolve)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amc-raises-200m-redeems-debt-to-bolster-financial-health/8d6d2ab10c2e94ab9e1945799c0b9679) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/266/29/dualejPS.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/1/paveITTE.webp)
