@@ -1,43 +1,31 @@
-# We re in the Game: Bear Bryant Award Returns to EA SPORTS College Football 27
+# VERAXA Biotech (VRXA) Initiates Cell Line Development for Lead BiTAC Cancer Therapy Program
 
-HOUSTON - July 2, 2026 (NEWMEDIAWIRE) - The name of the legendary Paul “Bear” Bryant is synonymous with excellence in the game of college football, and once again, fans playing EA SPORTS College Football 27’s Dynasty Mode will have the chance to win the American Heart Association’s Paul “Bear” Bryant Award as the game’s National Coach of the Year.
+LOS ANGELES, CA - July 2, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) announced the initiation of cell line development for its lead BiTAC(R) T-cell engager (“BiTAC-TCE”) program through a collaboration with ATUM, which will apply its Leap-In Transposase(R) technology to generate stable clonal cell lines supporting IND/CTA-enabling activities and future clinical development. The collaboration follows encouraging preclinical data presented at the 2026 American Association for Cancer Research (“AACR”) Annual Meeting and is intended to support CMC development, including early process, analytical and formulation development, as well as the production of material for nonclinical studies.
 
- Last year’s video game release saw the Bryant Award join the Heisman Trophy, Lou Groza Award, Lombardi Award, Unitas Golden Arm Award and Broyles Award as featured awards in the game.
+ VERAXA said its BiTAC-TCE platform is designed to improve tumor selectivity by splitting the T-cell engager into two complementary precursors that activate only when both bind separate tumor targets on the same cell. The company believes this conditional “AND”-gated approach could reduce off-tumor toxicity associated with conventional T-cell engagers while maintaining anti-cancer activity, potentially enabling higher dosing and a broader therapeutic window.
 
- The continued inclusion of the Paul “Bear” Bryant Coach of the Year Award in one of the most celebrated video game franchises in history is another step in the efforts by the American Heart Association, a relentless force changing the future of health for everyone everywhere, to celebrate college football coaches who embody his legacy and principles of excellence, and to engage with fans of college football who continue to draw inspiration from his enduring example of leadership and character.
+ To view the full press release, visit https://ibn.fm/FCIlk
 
- Now in their 41st year, the American Heart Association’s Paul “Bear” Bryant Awards annually present the individual Heart of a Champion Award, Lifetime Achievement Award, Newcomer Coach of the Year Award, Conference Coach of the Year Awards in addition to the Paul “Bear” Bryant National Coach of the Year Award. Indiana’s Curt Cignetti was the 2025 Coach of the Year, and the 2026 winner will be announced at a ceremony in Houston, Texas on Wednesday, January 27, 2027. The Coach of the Year award is voted on by the National Sports Media Association, current NCAA College football coaches, former Coach of the Year Award winners, the Paul “Bear” Bryant Awards’ Executive Leadership Team and the Bryant family. This award is the only college football coaching honor selected after the National Champion has been determined.
+ About VERAXA Biotech AG
 
- Coach Bryant’s journey to the top of college football began in 1913 in Moro Bottom, Arkansas as a player for the Fordyce High School Redbugs and then the University of Alabama Crimson Tide. He began his head coaching career at the University of Maryland in 1945, and after successful stints at the University of Kentucky (1946-53) and Texas A&M (1954-57), Coach Bryant took over the Alabama program in 1958 and led the Crimson Tide through the 1982 season. He won 323 games against just 85 losses and 17 ties, capturing six national championships, 14 SEC Championships and one Southwest Conference championship. A three-time American Football Coaches Association Coach of the Year and 12-time SEC Coach of the Year, coach Bryant passed away from a heart attack on January 26, 1983 – just under one month after coaching his final game.
+ At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
 
- After his passing, the Bryant family and American Heart Association collaborated to keep his legacy alive, raise funds to support lifesaving scientific research and drive greater awareness of the risks surrounding heart disease and stroke, the nation’s leading killers.
+ BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
 
- EA Sports College Football 27 will be released on Monday, July 9.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- For more information on the American Heart Association Paul “Bear” Bryant Awards, visit www.bryantawards.org.
+ The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
 
- About the American Heart Association
+ Forward Looking Statements
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, or by calling 1-800-AHA-USA1.
-
- For Media Inquiries:
-
- Paul Smith; paul.smith@heart.org
-
- Steven Embree; steven.embree@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-View the original release on www.newmediawire.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/we-re-in-the-game-bear-bryant-award-returns-to-ea-sports-college-football-27-7087471)
+[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-initiates-cell-line-development-for-lead-bitac-cancer-therapy-program-7087478)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bear-bryant-award-returns-to-ea-sports-college-football-27/57fc147a701f0272eae59048eefdd118) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-and-atum-collaborate-on-bitac-tce-cell-line-development/791ed0f4287edb8d0a6de30c37e29387) 
 
  
 
@@ -45,4 +33,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/2/roameECe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/2/mark_uXR.webp)

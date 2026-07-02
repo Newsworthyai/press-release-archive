@@ -1,33 +1,37 @@
-# InvestorNewsBreaks – Nightfood Holdings Inc. (OTCQB: NGTF) Featured in AINewsWire Editorial on U.S. Semiconductor Manufacturing Shift
+# NetworkNewsBreaks – ESGold Corp. (CSE: ESAU) (OTCQB: ESAUF) Bolsters Market Liquidity as It Advances Toward Production
 
-Nightfood Holdings (OTCQB: NGTF) announced its inclusion in an editorial published by AINewsWire examining how the expansion of U.S. semiconductor manufacturing is creating new opportunities for suppliers and automation companies. The article highlights the company’s TechForce Robotics division and its strategic alliance with Taiwan-based Jiun Jiang Enterprise Co. Ltd. (JJ Enterprise), noting the collaboration provides access to semiconductor manufacturing expertise and advanced production capabilities as global chip production increasingly shifts to North America.
+Disseminated on behalf of ESGold Corp. (CSE: ESAU) (OTCQB: ESAUF) and may include paid advertising.
 
- To view the full press release, visit https://ibn.fm/slPCe
+ ESGold (CSE: ESAU) (OTCQB: ESAUF), a development-stage company committed to acquiring, exploring, and developing high-quality mineral properties worldwide, recently engaged Toronto-based ICP Securities to provide automated market-making services aimed at improving liquidity, supporting orderly share trading, and correcting temporary supply-and-demand imbalances in its stock. The move comes as ESGold advances toward production, expands its shareholder base, and strengthens its financial position through a recently announced non-dilutive working capital facility of up to C$9 million. By enhancing quote quality and market efficiency with ICP’s proprietary algorithm, the company aims to ensure its market performance more accurately reflects its operational progress while supporting long-term shareholder value.
 
- About Nightfood Holdings, Inc. / TechForce Robotics
+ To view the full article, visit https://nnw.fm/bB8yJ
 
- Nightfood Holdings, Inc. (OTCQB: NGTF), doing business as TechForce Robotics, is focused on AI-driven robotics, enterprise automation, hospitality automation, pharmaceutical automation, and advanced-technology commercialization. Through strategic acquisitions, partnerships, and technology-development initiatives, the Company is building a diversified automation platform serving multiple high-growth industries.
+ About ESGold Corp.
 
- NOTE TO INVESTORS: The latest news and updates relating to NGTF are available in the company’s newsroom at http://ibn.fm/NGTF
+ ESGold is a fully permitted, fully funded, pre-production mining company advancing a scalable clean mining model across North and South America. The company’s flagship Montauban Gold-Silver Project in Quebec is under construction with production anticipated in 2026. With a dual-track strategy of cash flow today and discovery tomorrow, ESGold is building a platform for clean, sustainable growth and long-term shareholder value.
 
- About InvestorWire
+ NOTE TO INVESTORS: The latest news and updates relating to ESAUF are available in the company’s newsroom at https://nnw.fm/ESAUF
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ About NetworkNewsWire
 
- For more information, please visit https://www.InvestorWire.com
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ For more information, please visit https://www.NetworkNewsWire.com
 
- InvestorWire is powered by IBN 
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nightfood-holdings-inc-otcqb-ngtf-featured-in-ainewswire-editorial-on-u-s-semiconductor-manufacturing-shift/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-esgold-corp-cse-esau-otcqb-esauf-bolsters-market-liquidity-as-it-advances-toward-production/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nightfood-holdings-rides-semiconductor-boom-with-robotics-expertise/eedff1510459ba55ea62378aa0229017) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-engages-icp-securities-to-boost-liquidity-and-market-efficiency/c4b2042c1c0570b6a568900d0e66d7f2) 
 
  
 
@@ -35,4 +39,4 @@ Nightfood Holdings (OTCQB: NGTF) announced its inclusion in an editorial publish
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/2/harpmQCl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/2/seekBNMq.webp)
