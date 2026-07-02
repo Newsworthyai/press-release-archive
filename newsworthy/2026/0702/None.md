@@ -1,33 +1,48 @@
-# June Wellness Index Report - The Longevity Stack: Measure, Reset and Protect
+# Ana Saia Debuts Signature Cocktail at July 10 Live Performance
 
-The latest Wellness Index Report, published by Wellness Eternal's Biohacking Index, points to a meaningful turn in what people want from their health. After years of chasing lifespan and longevity metrics, consumers are increasingly asking a different question: not "how do I live longer," but "why do I feel the way I do, and how do I improve my quality of life today."
+One of Las Vegas' most recognizable social media personalities is returning to the stage in Chinatown. Recording artist and influencer Ana Saia will perform live at Alchemist Bar & Restaurant on Friday, July 10, 2026, at 7:00 PM, bringing her vocals back to Spring Mountain Road while debuting a signature cocktail created exclusively for the event.
 
- The report, drawn from verified practitioner and user feedback across the wellness, longevity, and biohacking industry, identifies three trends defining this new chapter.
+ Ana Saia returns to Alchemist Bar & Restaurant in Las Vegas Chinatown on Friday, July 10, at 7:00 PM for a special live performance.
 
- * Personalized diagnostics are moving from elite clinics into everyday wellness. Consumers want to uncover the root causes behind fatigue, inflammation, poor sleep, and slow recovery rather than manage symptoms in the dark. Advanced testing, biological-age insights, and data-driven personalization are becoming the starting point of a wellness journey instead of a luxury add-on.
-* Demand for non-pharmaceutical pain management is rising sharply. People are actively seeking drug-free options for recovery and relief, from targeted bodywork and regeneration tools to modalities that address the source of discomfort rather than mask it. The report notes that at-home and practitioner-guided recovery is one of the fastest-moving categories in the index.
-* Human connection, purpose, and mental wellness are back at the center. As the industry matured, something got lost in the pursuit of optimization. The report finds a clear return to emotional resilience, community, and meaning as core pillars of health, not soft extras.
+ This special evening marks Ana Saia's return to the Spring Mountain Road stage and the debut of her exclusive signature cocktail, the Pickle Pick Me Up.
 
- Taken together, the findings point to an integrated model of wellness for the year ahead, one that combines personalized diagnostics, preventive strategies, emotional resilience, non-pharmaceutical pain management, and human connection into a single approach.
+ About the Performer Known online as the "Redheaded Latina," Ana Saia has built an audience of more than 6 million combined followers across TikTok, Instagram, and YouTube, establishing herself as one of Las Vegas' best-known local social media influencers while continuing to expand her career as a recording artist and live performer.
 
- "For a long time the conversation was about adding years," said Lindsay O'Neill-O'Keefe, Founder of Wellness Eternal and the Biohacking Index. "What we're seeing now is people asking for those years to actually feel good. They want to understand the root cause, manage pain without a prescription, and reconnect with the things that make life worth extending. The future of this industry isn't longevity for its own sake. It's whole-person health."
+ Ana Saia is a well-known figure in the Las Vegas community, actively supporting local businesses, events, and charitable causes. Her connection to Chinatown extends beyond a single appearance, reflecting the growing relationship between Spring Mountain Road's creative community and the artists who call Southern Nevada home.
 
- Featured Companies: Three Companies Building the Stack Generation Lab (Diagnostics and Biological Age, Burlingame, California). Co-founded by Dr. Irina Conboy, PhD, a UC Berkeley bioengineering professor and pioneer of parabiosis research, Generation Lab set out to answer a deceptively simple question: where, exactly, is your body aging? Its SystemAge test measures biological aging across 460 biomarkers and 21 organs and systems from a single at-home, needle-free blood sample. Results arrive as a full aging report paired with a personalized action plan, with optional professional consultation and retesting to track progress over time. When you can see which systems are aging fastest, prevention finally has a target.
+ Earlier this year, Saia delivered an impromptu sing-along of Selena's classic "Como la Flor" inside Alchemist that resonated with patrons and quickly gained attention across social media. A spontaneous sing-along has turned into a full-featured performance on the same stage.
 
- Lifespan Edge (Longevity Therapeutics, Frisco, Texas). Co-founded in 2024 by Dr. Michael Roizen, Chief Wellness Officer Emeritus of Cleveland Clinic and Lifespan Edge co-founder and Chair of the Board, alongside entrepreneur John Mauldin, Lifespan Edge brings one of medicine's most clinically established therapies into longevity care. The company delivers physician-led Therapeutic Plasma Exchange (TPE) through a standardized protocol designed to filter inflammatory proteins and cellular waste from the bloodstream, targeting inflammation, cognition, cellular resilience, cardiovascular health, and energy, guided by biomarker data rather than guesswork. With clinics across the United States and Puerto Rico, Lifespan Edge is building one of the largest TPE datasets in the field. TPE is not about managing aging. It is about resetting the system.
+ "I love being part of the vibrant Vegas community," said Saia. "Performing at Alchemist is a testament to how much we uplift and support one another. The Alchemist team has poured their heart and soul into crafting this special night, and I'm committed to bringing that same energy to my performance."
 
- Nefense (Respiratory and Sleep, Dubuque, Iowa). Founded by Dr. Richard "Rick" Downs, DDS, a dental sleep medicine veteran and author of Beautiful Faces, Nefense focuses on the foundation everything else depends on: how well you breathe. The company builds physician-trusted nasal care on hypochlorous acid (HOCl), the same molecule the immune system produces naturally. Its flagship HypoNasal uses pure HOCl to break down impurities and calm inflammation, while XyloClean uses xylitol to hydrate and protect nasal passages. Adopted by dentists treating Airway, Breathing, and Sleep disorders, ENTs, and integrative providers, the line is natural, non-invasive, and non-habit-forming. Better breathing is not a luxury. It is the base of better sleep and better health.
+ The Pickle Pick Me Up To celebrate the collaboration, Alchemist's mixology team has created a limited-edition signature cocktail inspired by Saia called the Pickle Pick Me Up. The specialty drink blends sweet and spicy flavors with a spice-dusted rim and a pickle-and-pepper garnish, matching the event's playful theme.
 
- About the Wellness Index Report The Wellness Index Report is a practitioner-led evaluation platform that assesses wellness providers and technologies through a four-step process: expert nomination, customer feedback, clinical and scientific review, and ongoing rating analysis. Verified expert feedback is gathered through a proprietary survey delivered monthly to more than 100,000 doctors, clinic and wellness-center owners, and biohackers, through partnerships with medical-education leader Boston BioLife and the long-running naturopathic research journal NDNR.com. The Report is an independent research platform designed to provide transparent, third-party validation in the rapidly growing wellness and biohacking industry.
+ The cocktail will make its official debut on show day and will be available for a limited time.
 
- About Wellness Eternal Wellness Eternal is the parent company of the Biohacking Index, the "Yelp of the health, wellness, longevity, and biohacking industry." Each company in the index is hand-selected by a member expert or physician, screened through a rigorous review process, and given the opportunity to climb the rankings through a verified, SEO- and AEO-optimized and news media promoted profile. 
+ It's my first time having a drink created just for me, and I can't wait to share it with everyone on show day," Saia said.
+
+ A Night Out in Las Vegas Chinatown Alchemist Bar & Restaurant has become one of the more distinctive nightlife destinations along the Spring Mountain Road corridor. Known for its craft cocktail program and live entertainment, the venue was recently featured in the Las Vegas Review-Journal's roundup of standout summer cocktails, reflecting the continued evolution of Chinatown's dining and nightlife scene.
+
+ For those planning to attend, early arrival is strongly recommended. The mix of live music, a limited-time signature cocktail, and one of Chinatown's hottest spots is set to attract a large crowd. Alchemist is located at 4300 Spring Mountain Road, adjacent to the Shanghai Plaza, with parking available throughout the surrounding shopping plazas.
+
+ The July 10 performance is free and open to the public. Together with new restaurant openings, live entertainment, and special community events, evenings like this continue to showcase why Las Vegas Chinatown has become one of Southern Nevada's fastest-growing destinations for food, nightlife, and culture.
+
+ Event Details * Performer: Ana Saia - Live Vocal Performance
+* Date: Friday, July 10, 2026
+* Time: 7:00 PM
+* Location: Alchemist Bar & Restaurant, 4300 Spring Mountain Rd, Las Vegas, NV 89102
+* Featured Cocktail: Pickle Pick Me Up (Limited-Time Availability)
+* Admission: Free and open to the public. Early arrival is recommended.
+
+ For additional event information, visit Ana Saia Live at Alchemist Bar & Restaurant or contact Alchemist Bar & Restaurant directly.
+
+ About Alchemist Bar & Restaurant Located in the heart of Las Vegas Chinatown, Alchemist Bar & Restaurant is known for its craft cocktails, elevated dining experience, and growing lineup of live entertainment. The venue continues to host performances and special events that bring together both local artists and the surrounding community. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607022591/june-wellness-index-report-the-longevity-stack-measure-reset-and-protect)
+[Original/Source Press Release](https://newsworthy.ai/news/202607022592/ana-saia-debuts-signature-cocktail-at-july-10-live-performance)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-index-report-consumers-prioritize-quality-of-life-over-lifespan/dd5af063ee942408f8fa40585e6030e4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ana-saia-returns-to-alchemist-with-signature-cocktail-in-las-vegas-chinatown/993314ee1ae53db260e222bdd7a45cde) 
 
  
 
@@ -35,4 +50,4 @@ The latest Wellness Index Report, published by Wellness Eternal's Biohacking Ind
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/2/vibekIO3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/2/lossGdmZ.webp)
