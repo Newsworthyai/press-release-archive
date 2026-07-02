@@ -1,52 +1,104 @@
-# Blue Sky Scrubs Expands Women's Scrub Pants Line for Clinical Use
+# Stem 3 Protocol Now Available at 5 U.S. Clinics
 
-Blue Sky Scrubs Offers Premium Women's Scrub Pants Built for Long Shifts in Clinical Settings
+Dr. Charles Pereyra Brings Proprietary Stem 3 Protocol to Five U.S. Cities
 
- Austin, United States - July 2, 2026 / Blue Sky Scrubs /
+ Aventura, United States - July 2, 2026 / Springs Rejuvenation /
 
- Blue Sky Scrubs, the Austin, Texas-based healthcare apparel brand, has announced an expansion of its women's scrub pants line, broadening the collection to address the functional demands of clinical environments. The move reflects the company's continued focus on combining fabric performance with fit and durability for healthcare professionals who spend extended hours on their feet.
+ Springs Rejuvenation has expanded its proprietary Stem 3 Protocol to five clinic locations across the United States, giving domestic patients direct access to a combination of peptide therapy, exosome treatment, and micro follicular unit extraction (micro FUE) hair restoration without the need to travel internationally. The expansion, led by Dr. Charles Pereyra MD, marks a structured rollout of services now available in New York City, Los Angeles, Austin, Miami, and Atlanta.
 
-A Line Built Around Clinical DemandsWith over 20 years of experience in medical apparel, Blue Sky Scrubs has developed a reputation for producing garments that go beyond basic uniform requirements. The newly expanded collection of women's scrub pants introduces a wider range of styles, fits, and fabric combinations designed specifically for the physical realities of long clinical shifts.
+A Multi-City Network Built Around One Proprietary Protocol
 
-The collection draws on feedback and functional priorities specific to healthcare settings, where movement, breathability, and durability are not optional features but professional requirements. Each pair of pants in the line is constructed to maintain its shape and comfort through extended wear, frequent laundering, and the constant physical activity that defines most clinical roles.
+The Stem 3 Protocol, developed exclusively by Springs Rejuvenation, integrates three distinct modalities into a single treatment framework. Peptide therapy is used to support cellular signaling and recovery, exosome therapy delivers concentrated biological messengers to targeted tissue, and micro FUE hair restoration is performed using 0.9mm instrumentation - one of the smallest graft extraction tools used in clinical hair restoration today. The combination approach is designed to address hair loss, joint deterioration, and systemic recovery within a unified care model.
 
-Fabric and Fit Designed for Shift-Length PerformanceThe updated collection of medical scrub pants for women incorporates breathable fabric blends selected for their ability to regulate comfort during long shifts without compromising structure. The design approach balances a modern fit with practical details - including pocket placement and waistband construction - that healthcare professionals commonly require during a workday.
+Springs Rejuvenation operates as a physician-led practice, meaning licensed medical doctors oversee all treatment planning and patient consultations at each location. The five-city footprint was established to reduce geographic barriers that have historically pushed patients toward offshore clinics in countries with less regulatory oversight.
 
-Blue Sky Scrubs has approached the expansion with a focus on garments that function as professional tools rather than simple uniform components. The pants are built to move with the wearer rather than restrict movement, a consideration that becomes especially relevant in surgical, emergency, and high-activity clinical settings.
+Eliminating the Need for Medical Travel
 
-The brand's premium women's scrub pants are offered across multiple silhouettes to accommodate different body types and personal preferences, acknowledging that healthcare professionals have varied needs when it comes to fit and coverage throughout a shift.
+For years, Americans seeking stem cell exosome therapy and advanced regenerative treatments often turned to clinics in Mexico, Panama, or Germany, where such protocols were more widely practiced. Springs Rejuvenation was built with the specific intent of changing that dynamic. Each of its five U.S. locations offers the full Stem 3 Protocol under the same clinical standards, allowing patients in different regions to receive consistent treatment without crossing borders.
 
-Austin-Based Brand With Two Decades of Apparel ExperienceBlue Sky Scrubs has operated from Austin, Texas, for more than two decades, building its product line around the specific requirements of medical professionals. The company's longevity in the healthcare apparel space has informed its understanding of what makes a scrub garment effective beyond aesthetics - including how fabrics wear over time, how construction holds up to institutional laundering cycles, and how fit affects both comfort and professional presentation.
+"We now have five active clinic locations delivering the full Stem 3 Protocol, which means a patient in Atlanta has the same access as someone in New York or Los Angeles," said Dr. Charles Pereyra, MD, Founder and Medical Director of Springs Rejuvenation. "That consistency is what we built this network to achieve - Americans should not have to leave the country to access this level of regenerative care."
 
-The expanded women's collection sits alongside the brand's broader catalog of medical apparel, giving healthcare professionals a coordinated range of options designed with the same functional standards applied across the entire line.
+The practice also offers stem cell exosome therapy specifically for joint conditions, targeting patients dealing with cartilage wear, chronic inflammation, and mobility limitations. This service line runs parallel to the hair restoration program and is available across all five locations as part of the broader regenerative medicine offering.
 
-The latest additions to the women's scrub pants lineup are currently available through the Blue Sky Scrubs website, where the full expanded collection can be browsed by style and fit preference.
+Physician Oversight as a Clinical Standard
 
-About Blue Sky ScrubsBlue Sky Scrubs is a healthcare apparel company based in Austin, Texas, with over 20 years of experience designing and producing medical garments for healthcare professionals. The brand specializes in scrub tops, pants, and related apparel that combine modern design with the durability and performance standards required in clinical environments.
+Springs Rejuvenation maintains a physician-led model at every location, a structural decision that differentiates the practice from wellness centers or medical spas that offer similar terminology but without direct physician involvement. Dr. Charles Pereyra MD, a recognized regenerative medicine expert, established this standard as foundational to how each clinic operates, from intake through treatment completion.
 
-Learn more at Blue Sky Scrubs
+The micro FUE component of the Stem 3 Protocol uses 0.9mm punch instrumentation, which minimizes scarring at the donor site and supports faster recovery compared to larger-gauge methods. When combined with exosome application post-extraction, the protocol is designed to improve graft survival rates and support follicular regeneration through biological signaling rather than mechanical intervention alone.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/QMzOCZZHb9biUkZyey6zDbuNcpiDU0nonVfKBM0Y.jpg) [](https://blueskyscrubs.com) Contact Information:
+Patients interested in joint therapies receive exosome injections derived from ethically sourced biological material, administered directly into affected joints under physician supervision. The treatment is positioned as an option for individuals seeking alternatives to corticosteroid injections or surgical intervention, particularly those in earlier stages of joint degradation.
 
- Blue Sky Scrubs
+About Springs Rejuvenation
+
+Springs Rejuvenation is a physician-led regenerative medicine practice operating across five U.S. locations in New York City, Los Angeles, Austin, Miami, and Atlanta. The practice specializes in the proprietary Stem 3 Protocol, which combines peptide therapy, exosome treatment, and micro FUE hair restoration using 0.9mm instrumentation. Additional services include stem cell exosome therapy for joint conditions. All treatments are administered under direct physician oversight.
+
+Learn more at Springs Rejuvenation
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/6YP4a9rUeMxbxR5XVLULX00X0s0lF1QNQUv2YzUA.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/05FIIpzh9ambQJhUGodL0kT689vlD87VAwb1lLUm.jpg) [](https://home.springsrejuvenation.com) Contact Information:
+
+ Springs Rejuvenation
 
  
 
-Blue Sky Co. 2209 Donley Dr  Austin, Texas 78758United States
+245 5th Ave 3rd Floor Suite 307  Aventura, Florida 10016United States
 
- Blue Sky Scrubs +1-737-395-4551 https://blueskyscrubs.com 
+ Charles Pereyra (305) 363-0718 https://home.springsrejuvenation.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/blue-sky-scrubs-expands-womens-scrub-pants-line-for-clinical-use-438079)
+[Original/Source Press Release](https://mediawiretoday.com/stem-3-protocol-now-available-at-5-us-clinics-438109)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-sky-scrubs-expands-women-s-scrub-pants-line-for-clinical-demands/055827410946d3c8efa9fad7648f0bbf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/springs-rejuvenation-brings-stem-3-protocol-to-5-u-s-cities/0deeaaa2606bfb34b18584a3ca9b0395) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-alternative-to-medical-tourism)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-regenerative-therapies)
+
+Pickup - [https://burstable.news](https://burstable.news/news/springs-rejuvenation-expands-proprietary-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-regenerative-treatments)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/springs-rejuvenation-erweitert-proprietares-stem-3-protokoll-auf-funf-us-stadte-und-bietet-heimischen-zugang-zu-regenerativen-behandlungen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/springs-rejuvenation-expande-su-protocolo-stem-3-a-cinco-ciudades-de-ee-uu-ofreciendo-acceso-nacional-a-tratamientos-regenerativos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/springs-rejuvenation-etend-son-protocole-exclusif-stem-3-a-cinq-villes-americaines-offrant-un-acces-national-aux-traitements-regeneratifs)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/springs-rejuvenation-expande-protocolo-proprietario-stem-3-para-cinco-cidades-dos-eua-oferecendo-acesso-domestico-a-tratamentos-regenerativos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/springs-rejuvenation-brings-stem-3-protocol-to-five-us-cities-ending-need-for-medical-travel)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-clinics-offering-domestic-access-to-advanced-regenerative-treatments)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-clinics-offering-domestic-access-to-advanced-regenerative-therapies)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/springs-rejuvenation-brings-stem-3-protocol-to-five-us-cities-reducing-need-for-medical-travel)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-advanced-regenerative-treatments)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-reducing-need-for-medical-travel)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/springs-rejuvenation-brings-stem-3-protocol-to-five-us-cities-eliminating-need-for-medical-travel)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-advanced-regenerative-care)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/springs-rejuvenation-expands-proprietary-stem-3-protocol-to-five-us-cities)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/springs-rejuvenation-expands-proprietary-stem-3-protocol-to-five-us-cities-reducing-need-for-medical-travel)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-eliminating-need-for-medical-travel)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-advanced-regenerative-treatments)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/springs-rejuvenation-expands-stem-3-protocol-to-five-us-cities-offering-domestic-access-to-regenerative-therapies)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/springs-rejuvenation-brings-proprietary-stem-3-protocol-to-five/202634766)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/2/elleGgOj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/2/swim_ayV.webp)
