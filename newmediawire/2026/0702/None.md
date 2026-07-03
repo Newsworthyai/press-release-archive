@@ -1,36 +1,60 @@
-# VERAXA Biotech (VRXA) Initiates Cell Line Development for Lead BiTAC Cancer Therapy Program
+# The Nordex Group Receives New Orders Totalling More Than 197 MW From ENOVA and BMR in Germany
 
-LOS ANGELES, CA - July 2, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) announced the initiation of cell line development for its lead BiTAC(R) T-cell engager (“BiTAC-TCE”) program through a collaboration with ATUM, which will apply its Leap-In Transposase(R) technology to generate stable clonal cell lines supporting IND/CTA-enabling activities and future clinical development. The collaboration follows encouraging preclinical data presented at the 2026 American Association for Cancer Research (“AACR”) Annual Meeting and is intended to support CMC development, including early process, analytical and formulation development, as well as the production of material for nonclinical studies.
+HAMBURG, GERMANY - July 2, 2026 (NEWMEDIAWIRE) - End of June, the Nordex Group received new orders from the wind energy companies ENOVA and BMR energy solutions for the supply and installation of a total of 30 wind turbines with a combined capacity of more than 197 MW in Germany. The projects are located in Lower Saxony, Schleswig-Holstein and North Rhine-Westphalia. All contracts include long-term Premium Service agreements with a term of 20 years.
 
- VERAXA said its BiTAC-TCE platform is designed to improve tumor selectivity by splitting the T-cell engager into two complementary precursors that activate only when both bind separate tumor targets on the same cell. The company believes this conditional “AND”-gated approach could reduce off-tumor toxicity associated with conventional T-cell engagers while maintaining anti-cancer activity, potentially enabling higher dosing and a broader therapeutic window.
+ In Boldecker Land in Lower Saxony, ENOVA is implementing a 68 MW repowering project with ten Nordex N163/6.X turbines. Installation is scheduled to start in the fourth quarter of 2027, with commissioning planned for early 2028.
 
- To view the full press release, visit https://ibn.fm/FCIlk
+ For another wind farm in Schleswig-Holstein, the Nordex Group will also supply ENOVA with six N149/5.X turbines with a total capacity of 34.2 MW. Construction is scheduled to start in early 2028, with commissioning planned for mid-2028.
 
- About VERAXA Biotech AG
+ Two projects in North Rhine-Westphalia with 14 wind turbines – Nettetal and Breberen – were originally developed by BMR energy solutions. For the Nettetal project, which was sold by BMR to ENOVA, Nordex will supply five N163/6.X turbines. Construction is scheduled to begin in October 2027, with commissioning planned for early 2028.
 
- At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
+ In the Breberen project, ENOVA and BMR energy solutions are also working together in partnership and combining their expertise. In this repowering project, existing wind turbines will be replaced by nine modern, more powerful N163/6.X turbines in order to increase electricity production and use the site more efficiently. Installation work will also begin in October 2027, with commissioning scheduled for the second quarter of 2028.
 
- BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
+ “We have built a long-standing and trusting relationship with BMR, which we have successfully developed further through numerous projects. We are therefore all the more pleased to now also implement more joint projects with ENOVA again and to further expand our business relationship. The fact that both partners are relying on our technology and service expertise for these projects is a strong sign of confidence for us,” says Karsten Bruggemann, Vice President Region Europe of the Nordex Group.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ “These projects mark the next milestone in the development of our wind farm portfolio. Together with Nordex and BMR energy solutions, we are bringing demanding projects into implementation in a cooperative, efficient and fast manner. The fact that we are driving several projects of this scale forward in parallel underscores ENOVA’s operational strength and scalability in the German wind energy market,” explains Hendrik Böschen, Chief Operations Officer of ENOVA.
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ About ENOVA
 
- Forward Looking Statements
+ As a developer, investor, service provider and operator, the ENOVA Group is helping shape Germany’s power generation landscape. With determination and a high level of technical and commercial expertise, the family-owned company develops wind farms and invests in existing turbines as well as project rights. Through the refurbishment of spare parts, the replacement of major components and a comprehensive range of services, the company sustainably increases the service life, profitability and performance of wind turbines.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ With 1 GW in its own portfolio, ENOVA is one of Germany’s largest onshore wind farm operators and currently supplies around one million households with green electricity. By the end of 2030, the company aims to build up a portfolio of 3 GW and increase its assets under management to EUR 5 billion.
+
+ BMR energy solutions
+
+ BMR energy solutions, based in Geilenkirchen (North Rhine-Westphalia), has been active for many years as a project developer, particularly in western Germany. The company has extensive experience in the development, realization and implementation of onshore wind farms and has established itself as a reliable partner for municipalities, landowners and technology providers.
+
+ About the Nordex Group
+
+ The Group has commissioned more than 64 GW of wind power capacity in over 40 markets since 1985 and generated consolidated sales of around EUR 7.6 billion in 2025. The Company currently has more than 11,100 employees with a manufacturing network that includes factories in Germany, Spain, Brazil, India and USA. Its product portfolio is focused on onshore turbines in the 4 to 7 MW+ classes which are designed to meet the market requirements of countries with limited available space and regions with constrained grid capacity. A global service network ensures the smooth operation of the turbines. Nordex SE is listed on the MDAX and TecDAX of the Frankfurt Stock Exchange (ISIN: DE000A0D6554) in Germany.
+
+ Contact person for press:Nordex SEFelix LosadaTelephone: +49 (0) 40 30030 1141E-mail: flosada@nordex-online.com
+
+ Contact for investor inquiries:Nordex SEAnja SiehlerPhone: +49 162 3515 334E-mail: asiehler@nordex-online.com
+
+ 
+
+ 
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-initiates-cell-line-development-for-lead-bitac-cancer-therapy-program-7087478)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-nordex-group-receives-new-orders-totalling-more-than-197-mw-from-enova-and-bmr-in-germany-7087484)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-and-atum-collaborate-on-bitac-tce-cell-line-development/791ed0f4287edb8d0a6de30c37e29387) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nordex-secures-197-mw-wind-orders-from-enova-and-bmr-in-germany/5ddffa6c6ca158bce19ce43b282596df) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/5ddffa6c6ca158bce19ce43b282596df)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/2/mark_uXR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/2/pitapicoXv1k.webp)
