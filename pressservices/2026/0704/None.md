@@ -1,53 +1,47 @@
-# Stem 3 Protocol Brings Exosome Hair Restoration to 5 US Cities
+# Wells Salon Marks 40 Years with Medical Partnership Since 1994
 
-Non-Surgical Hair Restoration Now Available at 5 US Locations Via Exosome-Based Stem 3 Protocol
+Rosie Wells Celebrates 40-Year Career Anchored by Clinic of Cosmetic Surgery Partnership
 
- Aventura, United States - July 4, 2026 / Springs Rejuvenation /
+ Glendale, United States - July 4, 2026 / Permanent Makeup by Rosie Wells /
 
- Springs Rejuvenation, a physician-led regenerative medicine practice, has formally expanded its proprietary Stem 3 Protocol to all five of its United States locations, making exosome-based hair restoration available to patients in New York City, Los Angeles, Austin, Miami, and Atlanta without the need to travel abroad.
+ Rosie Wells, a permanent cosmetics artist based in Glendale, Wisconsin, is marking a notable professional milestone: 40 years of continuous practice that traces back to the opening of her Milwaukee-area salon in 1985. The anniversary represents four decades of client service, medical collaboration, and geographic expansion that have shaped her career in the permanent cosmetics field.
 
-A Structured Protocol Across Five Clinics
+Four Decades Rooted in Craft and ConsistencyWells established her salon at 6002 N. Port Washington Rd., Suite 100, Glendale, WI 53217, building a practice centered on precision and long-term client relationships. When she added permanent cosmetics to her service offerings in 1994, the move represented a deliberate professional expansion into a discipline that demands both technical skill and a practiced hand. Unlike treatments that depend heavily on equipment or product formulas, permanent cosmetics places the outcome directly on the artist's ability - a standard Wells has upheld for more than three decades since making that transition.
 
-The Stem 3 Protocol combines three distinct components delivered in sequence: peptide therapy, exosome hair treatment, and micro follicular unit extraction (micro FUE) performed with 0.9mm instrumentation. The use of 0.9mm instrumentation represents a notably smaller incision diameter than conventional FUE methods, which typically rely on punches ranging from 1.0mm to 1.5mm. The reduced diameter is designed to minimize scalp trauma and support faster tissue recovery.
+The 40-year mark is not simply a count of years in business. It reflects a sustained commitment to a single specialty within a single community, supported by a client base that has followed her work across two generations.
 
-Exosomes, which are extracellular vesicles derived from stem cells, carry signaling proteins and growth factors that communicate with hair follicle cells. In the context of the Stem 3 Protocol, they are applied to prime the scalp environment before and after the micro FUE procedure, with the goal of extending the active growth phase of the hair cycle and reinforcing follicle density over time.
+A Long-Standing Partnership with the Clinic of Cosmetic SurgeryA defining feature of Wells' practice is her partnership with the Clinic of Cosmetic Surgery, which began in 1994 - the same year she introduced permanent cosmetics services. That relationship, now spanning more than 30 years, placed her work within a clinical environment where precision and safety standards carry significant weight. Permanent cosmetics performed within a medical partnership setting involves a different level of scrutiny than standalone salon work, and Wells has maintained that collaboration without interruption since its start.
 
-The peptide therapy component is administered as a preparatory measure, intended to optimize cellular conditions in the scalp prior to the exosome and procedural phases.
+The arrangement reflects a model that has grown more common in the aesthetics industry but was notably forward-thinking at the time it was formed. Integrating permanent cosmetics with a cosmetic surgery practice in the mid-1990s required both clinical credibility and a demonstrated capacity to deliver consistent, predictable results.
 
-Domestic Access to Regenerative Hair Care
+St. Thomas Expansion Broadened Her ReachIn 1997, Wells extended her practice to St. Thomas, adding a geographic dimension to a career that had been anchored in the Milwaukee area. The expansion indicated that demand for her specific approach to permanent cosmetics reached beyond her home market. Maintaining quality and consistency across two distinct locations presents a logistical and professional challenge that many practitioners in the field do not pursue.
 
-Until recently, patients seeking non-surgical hair restoration using exosome-based protocols typically pursued treatment at clinics in Europe, Mexico, or Southeast Asia, where regulatory frameworks for regenerative therapies have historically been more permissive. Springs Rejuvenation's multi-city expansion positions the practice as one of the few domestic providers delivering this combination protocol at scale across multiple US states.
+The St. Thomas presence added an international element to a practice that began as a single salon in Wisconsin, and it remains part of the broader professional story Wells is now marking.
 
-"With five active clinic locations, we have now treated patients in every major US time zone under the Stem 3 Protocol," said Dr. Charles Pereyra, MD, Medical Director of Springs Rejuvenation. "Our 0.9mm micro FUE instrumentation paired with exosome hair treatment means patients are no longer choosing between quality and convenience - they can access this level of care in their home city."
+A Practice Built on LongevityWhat distinguishes the 40-year milestone for Wells is not a single defining event but the accumulation of deliberate choices - opening in 1985, expanding into permanent cosmetics in 1994, forming a medical partnership that same year, and reaching into new markets by 1997. Each decision built on the one before it, producing a practice with considerable depth and staying power in a field where many practitioners shift focus as trends evolve.
 
-Physician-Led Model at Each Location
+Wells continues to serve clients through her Glendale location and can be reached by phone at +1 (800) 270-4748 or by email at wellsr_@earthlink.net. The 40-year anniversary marks a career still in active practice, not a retrospective of one that has concluded.
 
-Springs Rejuvenation operates each of its five clinics under direct physician supervision. The practice also offers stem cell exosome therapy for joint conditions alongside its hair restoration programs, positioning the clinics as integrated regenerative medicine centers rather than single-specialty providers.
+About Rosie WellsRosie Wells is a permanent cosmetics artist based in Glendale, Wisconsin, who has operated her salon since 1985 and has offered permanent cosmetics services since 1994. Her practice includes a longstanding partnership with the Clinic of Cosmetic Surgery, formed in 1994, and an expanded location in St. Thomas established in 1997. Her studio is located at 6002 N. Port Washington Rd., Suite 100, Glendale, WI 53217.
 
-Hair restoration without surgery has become an increasingly documented area within regenerative medicine, with published research examining exosome signaling in dermal papilla cells, the specialized cells responsible for initiating and sustaining hair follicle activity. Springs Rejuvenation applies this science within a structured clinical framework, with each patient undergoing an intake assessment before the Stem 3 Protocol is initiated.
+Learn more at Permanent Makeup by Rosie Wells
 
-About Springs Rejuvenation
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/xxW0AwWnTy96THRvviuEUTHHGdtDA5zaHdVMZk4w.jpg) [](https://www.permanentmakeup1.com/) Contact Information:
 
-Springs Rejuvenation is a physician-led regenerative medicine practice operating five clinic locations across the United States in New York City, Los Angeles, Austin, Miami, and Atlanta. The practice is led by Dr. Charles Pereyra, MD, and specializes in the proprietary Stem 3 Protocol for hair restoration, stem cell exosome therapy for joints, and advanced regenerative treatments. All clinical services are delivered under direct physician oversight.
-
-Learn more at Springs Rejuvenation
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/d2t1Y0VIFOTtTCDXpXaQg2PAk9uUncdFBxn8IXat.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/aV0HGlEdYk7n68vP6w7c6L8XBDQq9BHeknnIvf2e.jpg) [](https://home.springsrejuvenation.com) Contact Information:
-
- Springs Rejuvenation
+ Permanent Makeup by Rosie Wells
 
  
 
-245 5th Ave 3rd Floor Suite 307  Aventura, Florida 10016United States
+6002 N. Port Washington Rd. Suite 100, Glendale, WI 53217  Glendale, WI 53217United States
 
- Charles Pereyra (305) 363-0718 https://home.springsrejuvenation.com 
+ Rosie Wells +1-800-270-4748 https://www.permanentmakeup1.com/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/stem-3-protocol-brings-exosome-hair-restoration-to-5-us-cities-438400)
+[Original/Source Press Release](https://mediawiretoday.com/wells-salon-marks-40-years-with-medical-partnership-since-1994-438459)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/non-surgical-hair-restoration-expands-to-5-us-cities-via-exosome-protocol/d37009030c5eb37ea7ab31a3796a453e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rosie-wells-marks-40-year-career-in-permanent-cosmetics/50d5a69380da9b6d61af2dc8a970af4d) 
 
  
 
@@ -55,4 +49,4 @@ Learn more at Springs Rejuvenation
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/4/join_m7m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/4/mildcMSF.webp)
