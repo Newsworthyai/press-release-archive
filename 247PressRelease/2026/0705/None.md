@@ -1,0 +1,18 @@
+# CodeShield Construction Group Opens for Business in Evansville, Indiana
+
+EVANSVILLE, IN, July 05, 2026 /24-7PressRelease/ -- CodeShield Construction Group, a full-service residential and commercial contracting company, has officially opened for business in Evansville. Founded by longtime local contractors Ted Pease and David Grimes, the firm offers roofing, home renovations, siding, windows, and storm damage repair throughout the Evansville area.  While the company name is new, the people behind it aren't. Pease and Grimes have worked as contractors in the Evansville community for decades, completing hundreds of residential and commercial projects between them. The two friends founded CodeShield Construction Group in 2026 to bring their combined 55 years of experience under one roof.  "We've spent our careers building in this community, and now we're building something of our own," said co-founder Ted Pease. "Every job we take on is a chance to show Evansville what CodeShield stands for. We treat every project like a portfolio piece."  CodeShield's residential services include kitchen and bathroom remodels, basement finishes, additions, whole-home renovations, siding installation, and energy-efficient window replacement. On the commercial side, the firm handles ground-up construction, tenant improvements and fit-outs, and renovations of existing commercial properties, with full project management from permitting through final inspection.  The company also provides new roof installation and repair across all major materials, including asphalt shingle, metal, flat, and TPO systems. For property owners dealing with hail and wind damage, CodeShield documents the damage, works directly with insurance adjusters, and completes repairs quickly to prevent further loss.  "We built this company around the things customers tell us they can't find: transparent pricing, a single point of contact, and crews that show up when they say they will," said co-founder David Grimes. "There are no surprise invoices with us. We give a free estimate upfront and we stick to it."  CodeShield Construction Group is fully licensed and insured, and every project is assigned a dedicated project manager from day one. The company is independent, locally owned, and operated from its office at 3848 B N. First Ave. in Evansville. Free estimates and consultations are available now for homeowners and businesses throughout Evansville and the Tri-State area.  About CodeShield Construction Group  CodeShield Construction Group is an independent, locally owned contracting firm serving Evansville, Indiana, and the surrounding Tri-State area. Founded in 2026 by Ted Pease and David Grimes, the company provides residential and commercial contracting, roofing, remodeling, siding, windows, and storm damage repair. Learn more at codeshieldconstructiongroup.com.  Media Contact: CodeShield Construction Group 812-470-2348 codeshieldconstructiongroup@gmail.com 3848 B N. First Ave., Evansville, IN 47710 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/536510/codeshield-construction-group-opens-for-business-in-evansville-indiana)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/codeshield-construction-group-opens-in-evansville-with-55-years-of-experience/93a1ac62cf5b6f9b3c1977c8cb831ded) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/5/iconkLWb.webp)
