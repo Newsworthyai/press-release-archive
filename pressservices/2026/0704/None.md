@@ -1,52 +1,58 @@
-# Wells Salon Marks 40 Years with Medical Partnership Since 1994
+# Found Formula Wins AI Citations for Sydney Service Businesses
 
-Rosie Wells Celebrates 40-Year Career Anchored by Clinic of Cosmetic Surgery Partnership
+Found Formula Applies Local SEO Strategy and AI Optimization to Close the Discovery Gap
 
- Glendale, United States - July 4, 2026 / Permanent Makeup by Rosie Wells /
+ Kingsgrove, Australia - July 4, 2026 / Perceptiv Media /
 
- Rosie Wells, a permanent cosmetics artist based in Glendale, Wisconsin, is marking a notable professional milestone: 40 years of continuous practice that traces back to the opening of her Milwaukee-area salon in 1985. The anniversary represents four decades of client service, medical collaboration, and geographic expansion that have shaped her career in the permanent cosmetics field.
+ Rachelle Sassine, founder of Perceptiv Media, has introduced The Found Formula™, a structured three-step framework designed to help small businesses build measurable visibility across both traditional search engines and AI-powered discovery platforms. The release arrives as tools such as ChatGPT, Gemini, and Google AI Overviews continue to reshape how consumers locate and select local businesses, widening the gap between operators who adapt to these changes and those who become absent from results altogether.
 
-Four Decades Rooted in Craft and ConsistencyWells established her salon at 6002 N. Port Washington Rd., Suite 100, Glendale, WI 53217, building a practice centered on precision and long-term client relationships. When she added permanent cosmetics to her service offerings in 1994, the move represented a deliberate professional expansion into a discipline that demands both technical skill and a practiced hand. Unlike treatments that depend heavily on equipment or product formulas, permanent cosmetics places the outcome directly on the artist's ability - a standard Wells has upheld for more than three decades since making that transition.
+The announcement is anchored by a documented outcome: a Sydney-based mechanic named Chris, whose business was approaching closure before he adopted The Found Formula™. After implementing the system, Chris recorded 26% year-over-year profit growth and expanded his physical premises - a turnaround that Perceptiv Media attributes to the framework's structured approach to both local SEO strategy and AI-driven discoverability.
 
-The 40-year mark is not simply a count of years in business. It reflects a sustained commitment to a single specialty within a single community, supported by a client base that has followed her work across two generations.
+A Three-Step System Built for the AI Search EraThe Found Formula™ progresses through three sequential phases. The first, BUILD, focuses on establishing a technically sound digital foundation through custom-built, fast-loading, and SEO-optimized site architecture. This phase is designed to ensure a business satisfies the technical criteria that both search engines and AI platforms apply when assessing source credibility.
 
-A Long-Standing Partnership with the Clinic of Cosmetic SurgeryA defining feature of Wells' practice is her partnership with the Clinic of Cosmetic Surgery, which began in 1994 - the same year she introduced permanent cosmetics services. That relationship, now spanning more than 30 years, placed her work within a clinical environment where precision and safety standards carry significant weight. Permanent cosmetics performed within a medical partnership setting involves a different level of scrutiny than standalone salon work, and Wells has maintained that collaboration without interruption since its start.
+The second phase, RANK, targets authority development through Google Maps optimization, Google Business Profile (GBP) management, and strategic backlink acquisition. These elements work in combination to strengthen a business's position in local search results - a significant factor for service-based businesses competing within specific geographic areas.
 
-The arrangement reflects a model that has grown more common in the aesthetics industry but was notably forward-thinking at the time it was formed. Integrating permanent cosmetics with a cosmetic surgery practice in the mid-1990s required both clinical credibility and a demonstrated capacity to deliver consistent, predictable results.
+The third phase, RECOMMEND, moves the framework beyond conventional SEO practice. This stage applies AI optimization for business visibility across platforms including ChatGPT, Gemini, Claude, Perplexity, and Google AI Overviews. The objective is to ensure that when users query AI tools for local service recommendations, businesses that have implemented the framework appear as credible, cited sources rather than being excluded from AI-generated responses.
 
-St. Thomas Expansion Broadened Her ReachIn 1997, Wells extended her practice to St. Thomas, adding a geographic dimension to a career that had been anchored in the Milwaukee area. The expansion indicated that demand for her specific approach to permanent cosmetics reached beyond her home market. Maintaining quality and consistency across two distinct locations presents a logistical and professional challenge that many practitioners in the field do not pursue.
+From Near-Closure to ExpansionChris's result illustrates what Sassine identifies as a persistent problem for small businesses: capable operators with insufficient digital visibility. Before engaging The Found Formula™, his workshop was losing ground despite strong technical skills and an established base of existing customers. New customer acquisition had stalled, and the business lacked the online presence required to surface in search results or AI recommendations.
 
-The St. Thomas presence added an international element to a practice that began as a single salon in Wisconsin, and it remains part of the broader professional story Wells is now marking.
+After implementation across all three phases, the business reversed course. The 26% year-over-year profit growth was accompanied by a physical expansion of his premises - a concrete indicator of sustained demand rather than a temporary uptick.
 
-A Practice Built on LongevityWhat distinguishes the 40-year milestone for Wells is not a single defining event but the accumulation of deliberate choices - opening in 1985, expanding into permanent cosmetics in 1994, forming a medical partnership that same year, and reaching into new markets by 1997. Each decision built on the one before it, producing a practice with considerable depth and staying power in a field where many practitioners shift focus as trends evolve.
+"Chris is exactly who this framework was built for," said Rachelle Sassine, founder of Perceptiv Media. "He had a legitimate, skilled business that nobody could find. The shift happening in search right now means that if you are not optimized for AI platforms as well as Google, you are invisible to an entire segment of customers who are using those tools to make decisions every day. The Found Formula™ was designed to close that gap systematically."
 
-Wells continues to serve clients through her Glendale location and can be reached by phone at +1 (800) 270-4748 or by email at wellsr_@earthlink.net. The 40-year anniversary marks a career still in active practice, not a retrospective of one that has concluded.
+Responding to a Structural Shift in How Customers SearchThe launch of The Found Formula™ reflects a broader change in consumer search behavior. AI assistants are increasingly used to respond to specific, intent-driven queries - such as "best mechanic near me" or "who do locals recommend for car servicing in Sydney" - and the businesses appearing in those responses are not always the ones holding the highest positions on traditional search pages. Sassine developed the RECOMMEND phase specifically to address this divergence.
 
-About Rosie WellsRosie Wells is a permanent cosmetics artist based in Glendale, Wisconsin, who has operated her salon since 1985 and has offered permanent cosmetics services since 1994. Her practice includes a longstanding partnership with the Clinic of Cosmetic Surgery, formed in 1994, and an expanded location in St. Thomas established in 1997. Her studio is located at 6002 N. Port Washington Rd., Suite 100, Glendale, WI 53217.
+As a growth marketing agency Sydney businesses can engage directly, Perceptiv Media positions The Found Formula™ as a practical, sequenced system rather than a set of isolated tactics. Each phase builds on the one before it, meaning the authority established during RANK directly supports the AI citation potential pursued in RECOMMEND.
 
-Learn more at Permanent Makeup by Rosie Wells
+The framework is available to small and medium-sized businesses across Sydney, with particular relevance for service-based operators in trades, health, professional services, and retail - sectors where local search intent is strong and AI recommendation is becoming a primary channel for discovery.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/xxW0AwWnTy96THRvviuEUTHHGdtDA5zaHdVMZk4w.jpg) [](https://www.permanentmakeup1.com/) Contact Information:
+About Perceptiv MediaPerceptiv Media is a Sydney-based digital marketing agency founded by Rachelle Sassine. The agency specializes in local SEO strategy, website architecture, and AI optimization for business visibility across search engines and AI-powered platforms. Perceptiv Media works with small and medium-sized businesses to develop structured, measurable digital presence through its proprietary framework, The Found Formula™.
 
- Permanent Makeup by Rosie Wells
+Learn more at Perceptiv Media
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/VT9uhRz403D2RAIaQBLE4c4wlS1Y0rDSLEzbhgFj.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/3dBNw2oKPCO8SGgURjb4Uj9x9lfR7oCFx4Cvxlh0.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/jIhfPWtfljUnMSyw8Hv4GdVARaOoAf9hQJz42d4x.png) [](https://perceptivmedia.com.au) Contact Information:
+
+ Perceptiv Media
 
  
 
-6002 N. Port Washington Rd. Suite 100, Glendale, WI 53217  Glendale, WI 53217United States
+14 Commercial Rd  Kingsgrove, NSW 2208Australia
 
- Rosie Wells +1-800-270-4748 https://www.permanentmakeup1.com/ 
+ Rachelle Sassine 0489 995 004 https://perceptivmedia.com.au 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/wells-salon-marks-40-years-with-medical-partnership-since-1994-438459)
+[Original/Source Press Release](https://mediawiretoday.com/found-formula-wins-ai-citations-for-sydney-service-businesses-438492)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rosie-wells-marks-40-year-career-in-permanent-cosmetics/50d5a69380da9b6d61af2dc8a970af4d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-framework-bridges-ai-search-gap-for-small-businesses/63a170b8d469ecf124fa16ba2b4c8d9e) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/63a170b8d469ecf124fa16ba2b4c8d9e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/4/mildcMSF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/4/fondBCm8.webp)
