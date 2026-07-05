@@ -1,53 +1,47 @@
-# Pediatric Dental &amp; Orthodontic Care in Yorktown Heights
+# Elementera Receives Strategic Investment, Backing the Company's Product Suite
 
-Cohen Family Smiles Offers Kids Dentistry and Braces in Westchester County
+Amazon Principal AI Scientist invests in Elementera, backing its Lenz and Prizm AI visibility suite.
 
- Yorktown Heights, United States - July 4, 2026 / Cohen Family Smiles /
-
- Cohen Family Smiles has expanded its range of services to include both pediatric dental care and orthodontic treatment for children at its Yorktown Heights location, giving families in Westchester County a single place to address their children's dental health needs. The practice serves children from infants through their teenage years, offering general dental care alongside options like braces for kids in Yorktown Heights.
-
-A Range of Services for Children and Teens
-
-Families searching for a pediatric dentist in Yorktown Heights NY now have access to a broader set of services at Cohen Family Smiles. The office provides routine dental checkups, cleanings, and preventive care for younger patients, as well as orthodontic consultations and treatment for older children and teens.
-
-The practice is designed to make visits comfortable for children of all ages. From a child's first dental appointment to ongoing orthodontic monitoring, the team at Cohen Family Smiles works to keep care consistent within a single, familiar setting. Parents who might otherwise visit separate offices for dental and orthodontic needs can find both under one roof.
-
-Orthodontic Options Including Braces for Kids
-
-For families who have been looking for a children's orthodontist in Yorktown Heights NY, Cohen Family Smiles offers a straightforward path to evaluation and treatment. The practice provides orthodontic options suited to children at different stages of dental development, including traditional braces and other alignment approaches.
-
-Early orthodontic evaluation is an important step for many children, as certain issues are easier to address when identified at a younger age. Cohen Family Smiles offers consultations that allow parents to understand their child's orthodontic needs without unnecessary delays or referrals to outside specialists.
-
-Serving Families Across Westchester County
-
-Cohen Family Smiles functions as a pediatric dental office in Westchester County, drawing patients from Yorktown Heights and surrounding communities throughout the region. Families living in nearby towns who are looking for a kids dentist near them in Yorktown Heights have found the location convenient given its accessibility within the county.
-
-The office is equipped to handle the dental care needs of children from their earliest teeth through adolescence. Regular visits help establish healthy habits early on, and the team encourages parents to bring children in for their first appointment as soon as their first teeth appear.
-
-By offering both general pediatric dentistry and orthodontic services in one location, Cohen Family Smiles gives Westchester County families a practical option for keeping up with their children's dental health from one stage of development to the next.
-
-About Cohen Family Smiles
-
-Cohen Family Smiles is a dental practice located in Yorktown Heights, NY, providing pediatric dental and orthodontic services to children and teens across Westchester County and nearby communities. The practice offers a range of care options including routine checkups, preventive treatments, and braces for kids in Yorktown Heights.
-
-Learn more at Cohen Family Smiles
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Q3Ul7gVQekEvSshKBtOotpd3bpoRAR9EYbLRIGRR.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/DDmshpj3Poz033K3FED4ClK0BaZ5S7nXLui7h9Ki.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Thjpzgk2Ov2DMVQyWNRVb73nIup3TMWhuUt7MSxo.jpg) [](https://cohenfamilysmiles.com/) Contact Information:
-
- Cohen Family Smiles
+ Maple Ridge, Canada - July 5, 2026 / Elementera AI Inc. /
 
  
 
-2651 Strang Blvd Ste 115  Yorktown Heights, NY 10598United States
+Elementera AI, a company that helps brands get found, cited, and recommended by AI systems like ChatGPT, Gemini, Perplexity, and Google AI Overviews, today announced a new angel investment from a Principal AI Scientist at Amazon who works on large language model research.
 
- Dr. Samuel Cohen +1-914-245-2965 https://cohenfamilysmiles.com/ 
+The investor has tracked Elementera Co-founder and CEO Maziar Gomrokchi's work since Gomrokchi's early years as a PhD researcher, well before Elementera existed. That history shaped the decision to invest: a firsthand read on the technical strength of Elementera's founding team, paired with the foresight that AI visibility and answer engine optimization (AEO) will matter more, not less, as people shift from typing search queries to asking AI systems for answers.
+
+"Elementera is one of the few companies truly built for this moment," the investor said. "The team combines deep AI research experience with a clear understanding of where search, discovery, and brand visibility are heading. I believe their Lenz and Prizm products are positioned to play a leading role in the AI visibility market over the next three to five years."
+
+A decision made a decade earlier
+
+Gomrokchi traces the roots of Elementera back to a conference in 2016.
+
+"I was at ICML 2016, at the Marriott Marquis in Times Square, right as deep learning started to reshape the technology industry," Gomrokchi said. "Google, Microsoft, Meta, and OpenAI were all there, hosting events and recruiting researchers. I got a few summer offers out of that conference, including one from OpenAI, which at the time was still a small team working on open AI models for research and industry. Looking back, that early work was a preview of what later became models like GPT and ChatGPT."
+
+Gomrokchi had a vision. He knew that AI would not just change how software gets built, but how people search, compare, and decide what to buy, trust, or recommend.
+
+"That belief is what Elementera is built on," Gomrokchi said. "I put together a team of AI researchers, engineers, and product leaders to build the tools businesses need to stay visible and trusted as AI-driven search and discovery takes over from traditional search."
+
+About Elementera AI
+
+Elementera builds AI visibility and answer engine optimization (AEO) products for businesses navigating the shift from traditional search engine optimization (SEO) to generative engine optimization (GEO). Its Lenz and Prizm products help brands understand and improve how they are interpreted, described, and cited across AI answer engines such as ChatGPT, Gemini, Perplexity, Claude, and Google AI Overviews. Elementera is based in Vancouver, British Columbia, and was founded by a team of AI veterans from Microsoft, Shopify, IBM, Mila, and UC Berkeley.
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/hwihzeOL7b3f6sMz4awpZZ2A9PuqSgw2Me0vYXUS.png) [](https://www.elementera.com) Contact Information:
+
+ Elementera AI Inc.
+
+ 
+
+22744 126B Ave  Maple Ridge, British Columbia V2X 2N7Canada
+
+ Med Mehrbod 15148041387 https://www.elementera.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/pediatric-dental-orthodontic-care-in-yorktown-heights-438505)
+[Original/Source Press Release](https://mediawiretoday.com/elementera-receives-strategic-investment-backing-the-companys-product-suite-438555)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cohen-family-smiles-launches-kids-dentistry-and-braces-in-westchester/ccb9d359e5d6eb60bf2c12ea05f75f08) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amazon-ai-scientist-invests-in-elementera-for-ai-visibility/ce24dcb63b151b94dd9735bf8b9f778f) 
 
  
 
@@ -55,4 +49,4 @@ Learn more at Cohen Family Smiles
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/5/mendthK8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/5/notefbAZ.webp)
