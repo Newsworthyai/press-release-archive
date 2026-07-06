@@ -1,70 +1,45 @@
-# Managed IT Services in New York City: 2026 State of the Market Report
+# Lawn Care of Saint Johns Expands With Pet-Safe Product Options
 
-The Geographic Deflection Gap, Private Equity Consolidation Wave, and the Vanishing Breed of True Local MSP
+St. Johns Lawn Care Provider Offers Pet-Safe Treatments Across Residential and Commercial Plans
 
- New York, United States - July 6, 2026 / Computer Resources of America /
+ Saint Johns, United States - July 6, 2026 / Lawn Care of Saint Johns /
 
- MANHATTAN, NEW YORK, July 1, 2026 — A comprehensive new market intelligence report, Managed IT Services in New York City: 2026 State of the Market, which focused on New York City's managed IT services landscape has surfaced a striking structural finding: of 55 verified providers commonly marketed as regional New York technology partners, fewer than four in ten maintain a genuine New York City headquarters with true on-site dispatch capability.
+ Lawn Care of Saint Johns has announced the launch of a new line of eco-friendly, pet friendly lawn care treatments now available to homeowners and businesses throughout the St. Johns area. The expansion introduces a dedicated set of lower-risk product options alongside the company's existing service offerings, giving local property owners a straightforward way to maintain healthy lawns without exposing pets or children to harsh chemicals.
 
-The 10,000-word analysis examines the geographic distribution, ownership structures, capitalization models, and competitive positioning of the full tri-state managed IT provider cohort.
+A New Option for St. Johns Residents and Business OwnersThe updated services cover both residential and commercial properties across the community. Lawn Care of Saint Johns has established its reputation through hands-on st johns lawn care that includes mowing, trimming, edging, and comprehensive st johns landscaping work. With this latest addition, the company is pairing those services with treatment products specifically selected for their reduced-risk profiles around animals and people.
 
-The 38.2% Reality: The "Geographic Deflection Gap"The report's flagship finding quantifies what many Manhattan business leaders have long suspected but lacked data to confirm. Of the 55 verified regional providers analyzed:
+For households with dogs, cats, or other outdoor pets, the selection of lawn treatment products carries real practical weight. Many standard herbicides and fertilizers include warning labels advising that pets be kept off treated grass for extended periods. The products now used by Lawn Care of Saint Johns are formulated to reduce that concern, allowing families to return to normal outdoor routines more quickly following a service visit.
 
-* 32.7% (18 providers) are headquartered entirely outside New York State.
-* 29.1% (16 providers) are registered within New York State but located in upstate counties or suburban enclaves.
-* Only 38.2% (21 providers) represent true, organically headquartered New York City operations.
+Commercial Properties Also Covered Under New TreatmentsThe new product line extends beyond residential clients. St johns commercial lawn care accounts - including office parks, retail centers, and other managed properties - are also being offered the eco-friendly treatment option. This is particularly relevant for commercial properties where employees or customers regularly use outdoor spaces, or those situated near areas frequented by animals.
 
-"In a market where only 38.2% of verified providers even maintain true New York City operations, Computer Resources of America's continuous 34-year physical presence in Midtown ensures that high-touch, on-premise infrastructure optimization is the baseline standard, not an outsourced luxury," said Chico Ramnarayan, CEO and Founder of Computer Resources of America (CRA).
+Lawn Care of Saint Johns manages the full scope of commercial ground maintenance, from routine cutting schedules to more involved landscaping projects. Incorporating pet friendly lawn care products into the commercial side of the business reflects the company's response to requests from local property managers seeking greener options without compromising results.
 
-The report notes that Manhattan's Class A real estate constraints, dense multi-tenant building network vulnerabilities, and New York-specific regulatory frameworks—including NYDFS Part 500, the SHIELD Act, HIPAA, and FINRA requirements—create infrastructure challenges that remote and suburban providers are structurally ill-equipped to address.
+Local Team, Local KnowledgeThe crew serving St. Johns properties is based in the area, giving them direct familiarity with local soil conditions, grass types, and seasonal patterns that influence how lawns respond to treatment. That regional knowledge plays a direct role in how services are scheduled and applied throughout the year.
 
-The Risks of Private Equity ConsolidationThe report also documents the accelerating pace of institutional consolidation reshaping the New York channel. Private equity and venture capital platforms now drive over 60% of all managed IT services mergers and acquisitions, introducing three structural risks for local clients:
+Lawn Care of Saint Johns places close attention to detail on each visit, whether the job involves a routine maintenance cut or a larger landscaping project. All work is handled directly by the company's own team rather than subcontractors, which helps maintain consistent service quality across jobs.
 
-* Continuity Risk: Account managers and engineers who knew a client's environment are frequently replaced within 90 days of an acquisition.
-* Tiered Support Bottlenecks: Consolidated platforms route initial contacts through Level 1 scripted triage rather than qualified local engineers, creating a material liability during urgent incidents.
-* Exit Timeline Pressure: Institutional investors targeting 4-to-7-year exit horizons create structural incentives to maximize EBITDA, often manifesting as reduced engineering staffing ratios.
+The new eco-friendly and pet friendly treatments are now available to schedule as part of any standard service plan or as a standalone option for clients looking to transition away from their current treatment approach.
 
-The NYC Three-Decade ClubWhile the report identifies a small elite cohort of New York City-area providers that have achieved 30-plus years of continuous local operation, its final competitive positioning matrix reveals that Computer Resources of America is the only provider to simultaneously satisfy all six critical mid-market criteria:
+About Lawn Care of Saint JohnsLawn Care of Saint Johns provides residential and commercial lawn care and landscaping services in the St. Johns area. Services include mowing, trimming, edging, and full st johns landscaping work, all performed using eco-friendly methods and pet friendly lawn care products. The company serves homeowners and commercial property owners throughout the local community with a focus on consistent, detail-oriented work year-round.
 
-1. True NYC Headquarters: Located physically in Midtown Manhattan (729 7th Ave).
-2. 30+ Years Continuous Local Operation: Founded and operating locally since 1992 (34 years).
-3. Founder-Led & Institutionally Independent: Zero private equity ownership or exit pressure.
-4. MSP 501 Global Ranking: Ranked No. 62 worldwide on the authoritative industry benchmark.
-5. Deep Vertical Specialization: Tailored frameworks for Legal, Financial, and Non-Profit sectors.
-6. Rapid On-Site Dispatch: Immediate, physical deployment capability for Manhattan businesses.
+Learn more at Lawn Care of Saint Johns
 
-"The number of firms that satisfy all six criteria simultaneously is vanishingly small," the report states. "CRA satisfies all six."
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/c59Fv0iizOCkgGGtlK2aIdcmqF65f3rA3enY3lO9.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/5EP782zFAdGPUrgt9GWY0xGmGy4rHKDm8k8YM26S.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/uNbj1H7OiSNJAT25Hxnbxrkl3OnsZAdhfy2CKBC7.jpg) [](https://www.lawncareofsaintjohns.com) Contact Information:
 
-About Computer Resources of America (CRA)Computer Resources of America has delivered enterprise-grade managed IT services, cloud infrastructure, strategic IT consulting, and IT staffing to the tri-state area since 1992. Headquartered on Seventh Avenue in Midtown Manhattan, CRA serves midsize companies, legal teams, alternative investment managers, and non-profit organizations continuously under the same founder-led ownership. CRA was ranked No. 62 globally on the 2026 MSP 501, published by Channel Futures.
-
-Access the Full Report: The complete Managed IT Services in New York City: 2026 State of the Market Report—including the full 55-provider geographic audit, capitalization analysis, and market forecast through 2030—is available at: https://www.consultcra.com/managed-it-services-new-york-city/
-
-Media Contact: Computer Resources of America
-
-729 7th Ave 2nd Floor, New York, NY 10019
-
-Email: hello@consultcra.com Website: https://www.consultcra.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/DRf91pFSNLA9yd3pzcE1w1XFy9kOJQYJjVmPQLz8.jpg) [](http://www.consultcra.com) Contact Information:
-
- Computer Resources of America
+ Lawn Care of Saint Johns
 
  
 
-729 7th Ave 2nd Floor New York, NY 10019United States
+938 Gallier Place  Saint Johns, FL 32259United States
 
- Tracy Green http://www.consultcra.com
-
- 
-
- Original Source:  https://www.consultcra.com/managed-it-services-new-york-city/ 
+ Philip Messana +1-904-599-3638 https://www.lawncareofsaintjohns.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/managed-it-services-in-new-york-city-2026-state-of-the-market-report-438309)
+[Original/Source Press Release](https://mediawiretoday.com/lawn-care-of-saint-johns-expands-with-pet-safe-product-options-438639)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/only-38-of-nyc-it-providers-are-truly-local-report-finds/8b9889fc3a21566841986dbc3d82d4a9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pet-safe-lawn-treatments-launch-in-st-johns-by-local-provider/c1c5042b52164dd90b2a6875aad819c3) 
 
  
 
@@ -72,4 +47,4 @@ Email: hello@consultcra.com Website: https://www.consultcra.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/6/iconNKT8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/6/navyt6kh.webp)
