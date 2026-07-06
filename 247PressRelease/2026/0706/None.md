@@ -1,0 +1,18 @@
+# Perna Abracht Expands Reach with Second Office Opening in Oxford, Pennsylvania
+
+OXFORD, PA, July 06, 2026 /24-7PressRelease/ -- With a strong presence in Chester County, Perna & Abracht has built a reputation for delivering thoughtful legal guidance across a range of practice areas, including criminal defense, family law, personal injury, and estate planning. The new Oxford office allows the firm to better serve clients in southern Chester County and nearby communities, offering greater convenience and local access to experienced legal representation.  The decision to open an office at 305 Market Street, Suite C1, Oxford, PA 19363, is driven by growing demand for reliable legal services in the area. Residents of Oxford and neighboring towns often face the challenge of traveling outside their immediate community to seek legal help. By establishing a local presence, Perna & Abracht aims to bridge that gap and provide timely support when it matters most.  The Oxford office will offer comprehensive legal services, with a particular focus on matters that directly impact individuals and families, including divorce, child custody, child support, criminal charges, and personal injury claims. Clients will have access to the same level of personalized attention and strategic guidance that the firm is known for throughout Chester County.  Opening this new location also allows the firm to deepen its connection with the Oxford community. Perna & Abracht has long emphasized a client-centered approach, focusing on clear communication, practical solutions, and strong advocacy. The firm's attorneys understand that legal challenges often come during difficult times, and they aim to provide guidance that is both responsive and grounded in real-world concerns.  The Oxford office is now open and accepting new clients. Individuals seeking legal assistance can schedule a complimentary 30-minute consultation to discuss their situation and explore available options with an experienced attorney. Bilingual (English and Spanish) personnel are on site to assist Spanish-speaking individuals.  For more information or to schedule a complimentary consultation, contact Perna & Abracht, LLC today.  About Perna & Abracht, LLC  Established by Frank M. Perna in 1947, Perna & Abracht, LLC is a full-service Chester County, Pennsylvania law firm serving a wide array of new and longstanding individual and corporate clients. Our experienced team understands that no legal solution fits every client. Our team of legal professionals is committed to anticipating our clients' legal needs at all stages and helping them find pragmatic, real-world solutions to complex problems. Attorney Michael R. Perna is licensed to practice law in Pennsylvania, Texas, and Colorado; attorney Jennifer Abracht is licensed to practice law in Pennsylvania and Arizona; attorney Ryan Borchik is licensed to practice law in Pennsylvania; and attorney Olivia Issertell is licensed to practice law in Pennsylvania and Florida. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/536451/perna-abracht-expands-reach-with-second-office-opening-in-oxford-pennsylvania)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perna-abracht-expands-with-new-oxford-office/95adb097eabaa88eb443527a3c36cfd2) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/6/maskP5dI.webp)
