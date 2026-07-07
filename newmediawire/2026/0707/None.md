@@ -1,33 +1,29 @@
-# WeR1 Consultants Approved for Two Programmes Under SGX's S$30 Million Value Unlock Initiative
+# United Health Products Establishes Collaboration to Conduct Clinical Study
 
-SINGAPORE - July 7, 2026 (NEWMEDIAWIRE) - WeR1 Consultants Pte Ltd (“WeR1”), a specialist in corporate strategy and investor relations, has been appointed by Singapore Exchange Limited (“SGX”) as a service provider for both programmes under the Value Unlock initiative designed to strengthen foundations and drive value creation among SGX-listed companies (“listcos”).
+DARIEN, CT - July 7, 2026 (NEWMEDIAWIRE) - United Health Products, Inc. (OTCQB: UEEC) today announced an agreement with NAMSA, a global leader in MedTech contract research, whereby NAMSA will serve as Sponsor of a new clinical study of UHP’s CelluSTAT Hemostatic Gauze.
 
- Founded in 1999, WeR1 has been approved for both the Equip and the Elevate programmes of the S$30 million MAS-SGX initiative under which Singapore listcos can avail themselves to grants to offset costs for professional services related to enhancing corporate strategies, sharpening investment narratives and deepening investor and media engagement, as well as costs for training programmes to strengthen capabilities.
+ Consistent with the company’s recent proposal to the FDA to have a non-affiliated party oversee a new clinical study, which the FDA approved in March of this year, NAMSA will initially seek an Investigational Device Exemption (IDE) to organize and conduct a study of UHP’s neutralized cellulose hemostat technology. Upon completion of the study, UHP will hold an exclusive right of reference to all data from the study to use in a revised Premarket Approval (PMA) application. This plan will allow a study to proceed (subject to granting of the IDE) while UHP works with the FDA to resolve the outstanding Warning Letter.
 
- WeR1 is launching three training programmes - Lining Your IR Calendar Effectively, Turning Crisis into Opportunity, and Specialist Writing for Financial Markets - under the Equip Grant, under which participating companies can claim 50% co-funding support of up to S$15,000 each.
+ NAMSA is 100% focused on medical device and in vitro diagnostic technologies and its experts have decades of experience in clinical trial management for Class III hemostatic agents, as well as experience working for the FDA Center for Devices and Radiological Health.
 
- For the Elevate Grant, WeR1 has been approved to offer investor relations (“IR”) services. Undervalued companies which intend to bridge the valuation gap can receive 50% co-funding support, capped at S$200,000 per listco, for this programme.
+ Brian Thom, UHP’s CEO, commented, “NAMSA has been a great partner to UHP for several years in our preclinical testing efforts and I am delighted that we are expanding our relationship with such a well-regarded and capable CRO. NAMSA’s deep experience in the clinical study of new medical devices and in working through the FDA approval process give me confidence that they can gain approval for, and efficiently sponsor a human study that will validate the safety and effectiveness of our CelluSTAT Hemostatic Gauze.”
 
- WeR1’s appointment reflects its 27-year proven track record of helping small- to mid-cap listcos, which often struggle with weak market visibility, in their financial communications. Led by former Reuters correspondent and Merrill Lynch equity analyst Lai Kwok Kin (“KK Lai”), the firm has supported dozens of listcos in the region for corporate strategy, IPO and crisis communications, and IR.
+ About United Health Products -- UHP has developed and patented a Neutralized Regenerated Cellulose hemostatic agent. CelluSTAT Hemostatic Gauze is an all-natural product designed to control mild to moderate bleeding. UHP is seeking approval to access the human surgical market.
 
- A core approach of WeR1 for the Elevate programme is its Corporate & Business Update (“CBU”) methodology, a disclosure-based narrative refresh designed for listcos with limited analyst coverage, uneven trading liquidity and low investor engagement. WeR1 has helped more than 30 companies articulate their corporate transformation, including Fu Yu Corporation and Zico Holdings.
+ For more information on UHP visit the company’s new website: www.uhpcorp.com or contact the company at info@uhpcorp.com.
 
- KK Lai, WeR1’s Founder and Managing Director, said: “We are deeply honoured to have been approved for both programmes under the MAS-SGX Value Unlock Initiative. Many smaller listcos remain undervalued because they do not communicate with clarity and consistency. WeR1 intends to bring its experience and approaches to help these companies overcome the valuation gap and increase trading liquidity.”
+ The company can also be reached by phone or text message at 475.755.1005.
 
- WeR1 is inviting SGX-listed companies, particularly smaller Mainboard and Catalist issuers, to explore their eligibility under the Equip and Elevate programmes.
-
- Media contact
-
- WeR1 Consultants Pte Ltd9 Raffles PlaceLevel 6, Republic PlazaSingapore 048619Tel: (65) 6677 3032Isaac Tang, valueunlock@wer1.net or isaactang@wer1.net
+ Safe Harbor Statement under the Private Securities Litigation Reform Act of 1995: This news release may contain forward-looking information within the meaning of Section 27A of the Securities Act of 1933, as amended, and Section 21E of the Securities Exchange Act of 1934, as amended, including statements that include the words "believes," "expects," "anticipates" or similar expressions. Such forward-looking statements involve known and unknown risks, uncertainties and other factors that may cause the actual results, performance or achievements of the company to differ materially from those expressed or implied by such forward-looking statements.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/wer1-consultants-approved-for-two-programmes-under-sgx-s-s-30-million-value-unlock-initiative-7087533)
+[Original/Source Press Release](https://www.newmediawire.com/news/united-health-products-establishes-collaboration-to-conduct-clinical-study-7087542)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wer1-consultants-approved-for-sgx-s-30m-value-unlock-initiative/6820e8340305786c5e852289709a7491) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-health-products-partners-with-namsa-for-cellustat-study/8eef067a91f72387b1dc3989de17fb26) 
 
  
 
@@ -35,4 +31,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/7/bakedbiw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/7/filoKB_X.webp)

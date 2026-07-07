@@ -1,48 +1,70 @@
-# Mitch Gould Explains Why Retail Placement Is Only the First Step to Getting Products Sold
+# 2026 Future of Learning Technology and Upskilling Award Winners Revealed by HR.com 
 
-Securing placement at major retailers such as Costco, Walmart, CVS and Walgreens is a milestone for any health, wellness, beauty or consumer product brand. But according to Mitch Gould, Founder and CEO of Nutritional Products International (NPI), earning a purchase order is only the beginning of building a successful retail business.
+HR.com is proud to announce the recipients of its 2026 Future of Learning Technology and Upskilling Awards, celebrating organizations and solution providers transforming workplace learning through innovation, intelligent automation, and technology-enabled development. These awards recognize excellence in creating learning experiences that build skills, foster employee development, and prepare organizations for the future of work.
 
- "Getting onto the shelf is an important achievement," Gould said. "Getting products off the shelf is what builds brands. Distribution opens the door, but marketing creates the consumer demand that keeps products moving."
+ As learning technologies continue to evolve, this year's winners are redefining learning and development by building workforce capabilities, accelerating employee growth, and driving measurable business impact through forward-thinking learning strategies and automation.
 
- A third-generation retail distribution professional, Gould has spent more than four decades helping domestic and international brands enter the U.S. marketplace. During his career, he has secured millions of dollars in purchase orders from some of America's largest retailers, including Costco, Walmart, CVS and Walgreens. Those firsthand experiences helped shape NPI's Evolution of Distribution® platform and the company's approach to helping brands achieve long-term retail success.
+ HR.com's Learning Tech Product Award: Harbinger Group
 
- According to Gould, many companies devote tremendous effort to securing retail placement but fail to prepare for what comes next.
+ AURA by Harbinger Group is an AI upskilling and readiness initiative redefining employee development through structured, role-based learning, responsible AI adoption, and capability building. It fosters an AI-first culture, driving workplace impact through real-world application of learning.
 
- "Retail buyers evaluate hundreds of products every year," Gould said. "The brands that stand out are the ones that arrive with compliant packaging, dependable logistics, competitive pricing and a comprehensive marketing strategy already in place. Retailers want confidence that a brand will continue supporting the product after it reaches the shelf."
+ HR.com's Best Implementation of Learning Tech Award: Lenovo
 
- That support begins long before consumers walk into a store. Gould said successful retail launches combine distribution with external national media campaigns, public relations, digital marketing, influencer outreach and educational content that help generate consumer awareness and purchase intent.
+ Team Leader: Erika Johnson Lenovo’s Grow@Lenovo team delivered a transformational, enterprise-wide Workday Learning implementation that redefined global learning. Through strong cross-functional collaboration and focus on adoption, they created a seamless future-ready learning experience that drives continuous growth and business impact.
 
- Equally important, he said, are retailer-focused initiatives such as co-op advertising programs and promotional campaigns that reinforce demand inside the store and help improve sell-through.
+ View All HR.com Awards: www.hr.com/awards
 
- "The retailer has invested valuable shelf space in your product," Gould said. "Brands should invest just as heavily in supporting that retailer. An external national media program combined with an internal co-op advertising program can make the difference between simply earning distribution and building lasting retail success."
+ "Learning and development is helping organizations build more capable, adaptable teams," said Debbie McGrath, CEO of HR.com. "This year's winners are using smarter, innovative technology to create better learning experiences that fuel employee growth and help organizations prepare for what's next."
 
- NPI's Evolution of Distribution® platform was developed around this philosophy. The company provides domestic and international health, wellness, beauty and consumer product brands with a turnkey solution for entering the U.S. retail market, including retail strategy, regulatory guidance, sales management, logistics, warehousing and marketing support through its sister company, InHealth Media.
+ About HR.com
 
- Whether a brand's goal is placement at Costco, Walmart, CVS, Walgreens or another leading U.S. retailer, Gould said preparation and post-placement support are equally important.
+ HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
 
- "Landing the account is only the first step," Gould said. "The brands that continue investing in consumer awareness, retailer support and demand generation are the ones that build lasting retail partnerships and long-term growth."
-
- About [Nutritional Products International (NPI)](https://nutricompany.com/) Nutritional Products International (NPI) is a U.S.-based retail consulting and distribution firm founded by retail distribution expert Mitch Gould. With more than three decades of experience, Gould has helped domestic and international brands successfully enter and expand within the U.S. market, representing high-profile brands and celebrities including Steven Seagal, Hulk Hogan, Ronnie Coleman, and Wayne Gretzky.
-
- NPI works closely with manufacturers and major retailers to guide products from concept to shelf, providing strategic support across retail introductions, regulatory readiness, operations planning, and market visibility through its proprietary Evolution of Distribution® platform. The company is known for helping brands navigate the complexities of U.S. retail efficiently while building long-term, scalable growth.
-
- About [Mitch Gould](https://nutricompany.com/team/mitch-gould/) Mitch Gould is a third-generation retail distribution and manufacturing expert with more than 25 years of experience launching and scaling consumer products across dietary supplements, sports nutrition, skincare, hardware, and beverages. He has worked with iconic consumer brands such as Igloo, Rubbermaid, Sunbeam, and Miracle-Gro, as well as high-profile celebrity brands including Steven Seagal, Hulk Hogan, Chuck Liddell, 8× Mr. Olympia Ronnie Coleman, and martial arts pioneer Bob Wall.
-
- Over the course of his career, Gould has played a key role in helping shape the growth of the U.S. sports nutrition category-supporting the expansion of performance-focused products across major retail and e-commerce platforms, including Amazon, Walmart, GNC, CVS, and Walgreens. His work has centered on bringing muscle-building, recovery, and performance-oriented products to a broader consumer audience.
-
- Gould is known for his hands-on, execution-driven approach to building consumer brands at scale and for his deep understanding of what drives success in highly competitive categories such as sports nutrition and dietary supplements. He continues to focus on the evolving intersection of performance, wellness, and consumer demand for effective, results-driven products. 
+ HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607072599/mitch-gould-explains-why-retail-placement-is-only-the-first-step-to-getting-products-sold)
+[Original/Source Press Release](https://newsworthy.ai/news/202607072597/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-the-shelf-marketing-drives-retail-success-says-npi-s-gould/39c4aa748b24db1632b8f0cd1b6f458d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-2026-learning-tech-and-upskilling-award-winners/c265684a08e485de515345ef121c7198) 
 
+
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/c265684a08e485de515345ef121c7198)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/c265684a08e485de515345ef121c7198)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/c265684a08e485de515345ef121c7198)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/7/barnDD65.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/7/lilyrcXh.webp)
