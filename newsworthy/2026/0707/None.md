@@ -1,70 +1,49 @@
-# 2026 Future of Learning Technology and Upskilling Award Winners Revealed by HR.com 
+# Cari McGee Ranks 43rd Among All Washington Real Estate Agents in 2026 WSJ/RealTrends Rankings
 
-HR.com is proud to announce the recipients of its 2026 Future of Learning Technology and Upskilling Awards, celebrating organizations and solution providers transforming workplace learning through innovation, intelligent automation, and technology-enabled development. These awards recognize excellence in creating learning experiences that build skills, foster employee development, and prepare organizations for the future of work.
+Cari McGee ranks as the #43 real estate agent in Washington state after closing 52 sales in 2025 for $26.3 million in sales volume, according to the 2026 WSJ/RealTrends Verified agent rankings.
 
- As learning technologies continue to evolve, this year's winners are redefining learning and development by building workforce capabilities, accelerating employee growth, and driving measurable business impact through forward-thinking learning strategies and automation.
+ For the second year in a row, McGee has secured a position on RealTrends’ annual rankings of top-producing agents nationally, based on verified 2025 sales volume and transaction count..
 
- HR.com's Learning Tech Product Award: Harbinger Group
+ 
 
- AURA by Harbinger Group is an AI upskilling and readiness initiative redefining employee development through structured, role-based learning, responsible AI adoption, and capability building. It fosters an AI-first culture, driving workplace impact through real-world application of learning.
+ Why did RealTrends honor Cari McGee?
 
- HR.com's Best Implementation of Learning Tech Award: Lenovo
+ McGee’s total of 52 transactions in 2025 makes her the #43 most successful agent in Washington based on sales count, and one of the top 1.5% agents in the United States. It also makes her the #3 individual agent in Tri-Cities, Washington.
 
- Team Leader: Erika Johnson Lenovo’s Grow@Lenovo team delivered a transformational, enterprise-wide Workday Learning implementation that redefined global learning. Through strong cross-functional collaboration and focus on adoption, they created a seamless future-ready learning experience that drives continuous growth and business impact.
+ Her $26.34 million sales volume in 2025 ranked #3 in the Tri-Cities among individual agents and #163 in the state. This is especially impressive given that Tri-Cities home prices are among the lowest in any major metro area in Washington.
 
- View All HR.com Awards: www.hr.com/awards
+ “It’s amazing to think that only a few dozen agents sold more homes than me in the entire state of Washington last year,” McGee said. “Thank you to everyone who put their trust in me and hired me, or referred me to others who hired me. I am so, so grateful.”
 
- "Learning and development is helping organizations build more capable, adaptable teams," said Debbie McGrath, CEO of HR.com. "This year's winners are using smarter, innovative technology to create better learning experiences that fuel employee growth and help organizations prepare for what's next."
+ What makes Cari McGee a top agent in Tri-Cities, Washington?
 
- About HR.com
+ Clients praise Cari McGee for her hands-on approach, responsiveness, and personal attention. As the only active licensed agent on the Cari McGee Real Estate Team, she works directly with all of her clients - both buyers and sellers. They also value the client care she provides long after the sale, which includes a unique rewards program offering perks and benefits from local and national businesses.
 
- HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
+ The RealTrends Verified Rankings honor comes on the heels of other recent awards. At a recent RE/MAX Northwest awards ceremony held in Kennewick, McGee was named:
 
- HR.com Newsroom 
+ * #10 individual RE/MAX agent in the entire state of Washington
+* #3 individual agent at RE/MAX Northwest (out of 200+ agents in 11 offices across WA and OR)
+* #1 RE/MAX agent in Washington state for giving to the Children’s Miracle Network Hospitals
+* 2025 RE/MAX Chairman’s Club
+
+ Cari McGee is available for interviews with interested members of the media. You can reach her directly at (509) 430-5342 or via email at Email Contact.
+
+ About the Cari McGee Real Estate Team
+
+ Cari McGee is an award-winning Tri-Cities Realtor® who’s sold more than 650 homes since 2004. She's a top listing agent and skilled negotiator who sells homes fast. In 2025, Cari's listings spent a median of just 10 days on market, much faster than the market median of 28 days. She has more than 270 5-star reviews, and her clients often say Cari McGee is the best Realtor in the Tri-Cities.
+
+ Cari is a two-time Tri-Cities Best Real Estate Team winner (bronze), one of the Top 200 agents in the state of Washington, and in the Top 1% of agents nationwide. She’s also the #1 RE/MAX agent in Tri-Cities, and #10 RE/MAX agent in Washington state. In 2025, BUILD magazine named her the Most Trusted Realtor® in Tri-Cities, Washington. Cari leads a small, hands-on team that balances efficient systems with personal guidance. Her business is built on the promise that no agent takes better care of their clients. She offers a client recognition program called Rockstar Rewards, with exclusive benefits from local and national businesses. Learn more about Cari and the team at CariMcGee.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607072597/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
+[Original/Source Press Release](https://newsworthy.ai/news/202607072600/cari-mcgee-ranks-43rd-among-all-washington-real-estate-agents-in-2026-wsjrealtrends-rankings)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-2026-learning-tech-and-upskilling-award-winners/c265684a08e485de515345ef121c7198) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cari-mcgee-ranked-43-real-estate-agent-in-washington-state-by-wsj-realtrends/e0b7ad648b48b9667523e7fd1549605c) 
 
-
-Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/c265684a08e485de515345ef121c7198)
-
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/c265684a08e485de515345ef121c7198)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/c265684a08e485de515345ef121c7198)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/2026-future-of-learning-technology-and-upskilling-award-winners-revealed-by-hrcom)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/7/lilyrcXh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/7/mailCt35.webp)

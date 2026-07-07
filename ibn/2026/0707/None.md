@@ -1,84 +1,36 @@
-# MissionIRNewsBreaks – Wrap Technologies, Inc. (NASDAQ: WRAP) Launches WrapShield Autonomous Defense and Public Safety Platform
+# Nearly All Renewables Projects Now Outcompete Fossil Fuels on Price
 
-Wrap Technologies (NASDAQ: WRAP) launched WrapShield, an autonomous defense and public safety platform designed to connect threat detection, AI-assisted decision support and response technologies into a unified operating architecture. The company said the platform is intended to help government agencies integrate existing and future sensors, artificial intelligence capabilities and response technologies across defense, public safety, homeland security, critical infrastructure and border security applications, with its initial focus on counter-unmanned aircraft systems.
+A recent report from the International Renewable Energy Agency (IRENA) has revealed that over 90% of all large-scale renewable energy projects added in 2025 were cheaper than the most affordable fossil fuels.
 
- Wrap Technologies also announced a strategic investment in Israel-based Frenel Imaging Ltd. along with an exclusive U.S. and NATO license for Frenel’s proprietary TPiCore(R) thermal-polarimetric imaging technology, which will serve as the initial sensing layer for WrapShield. The company said it expects Frenel to be the first of multiple planned investments supporting the platform, which is designed to expand across a range of autonomous security and surveillance markets.
+ This vital role that renewables are playing is causing analysts to get a deeper appreciation of the transformation that various entities, such as Turbo Energy S.A. (NASDAQ: TURB), are bringing to…
 
- To view the full press release, visit  https://ibn.fm/x5x1J
+ Read More>>
 
- About Wrap Technologies, Inc.
+ About GreenEnergyStocks
 
- Wrap Technologies, Inc. (Nasdaq: WRAP) a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
+ GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
 
- WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
+ To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
+ For more information, please visit https://www.GreenEnergyStocks.com
 
- Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
+ Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
 
- WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
+ GreenEnergyStocksLos Angeles, CAwww.GreenEnergyStocks.com310.299.1717 OfficeEditor@GreenEnergyStocks.com
 
- As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
-
- WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
-
- Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
-
- The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
-
- NOTE TO INVESTORS: The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
-
- About MissionIR
-
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
-
- MIR is where breaking news, insightful content and actionable information converge.
-
- For more information, please visit www.MissionIR.com
-
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
-
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
-
- MissionIR is powered by IBN 
+ GreenEnergyStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/nearly-all-renewables-projects-now-outcompete-fossil-fuels-on-price/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-unveils-wrapshield-platform-with-frenel-imaging-investment/288741bc5a30c45863903ddd61a15e8f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renewables-now-cheaper-than-90-of-fossil-fuels-irena-reports/159be6d8ecf2f153a8952eca1e1e3f9c) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/missionirnewsbreaks-wrap-technologies-inc-nasdaq-wrap-launches-wrapshield-autonomous-defense-and-public-safety-platform)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/7/kisscHxJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/7/roam28Vt.webp)
