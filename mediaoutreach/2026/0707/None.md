@@ -1,0 +1,20 @@
+# Shanghai - New York: to Become a Benchmark for China-U.S. Subnational Cooperation
+
+SHANGHAI, CHINA - [Media OutReach Newswire](https://www.media-outreach.com/) - 7 July 2026 - On June 30, 2026, New York time, the launch ceremony and New York Forum for OUR WATER Season 3 were successfully held at Bloomberg Headquarters in New York. This event, themed "Rivers of Opportunities", focused on the shared certainties of Shanghai and NYC, anchoring growth through open cooperation and reshaping the future through innovation and resilience.    Co-hosted by Bloomberg L.P., the Forum was attended by Michael R. Bloomberg, Founder of Bloomberg L.P. and Bloomberg Philanthropies; Tang Zhiwen, Minister, Embassy of the People's Republic in the United States of America; Ma Xiaoxiao, Deputy Consul General of the People's Republic of China in New York; Chen Yiqun, Director-General of Information Office of Shanghai Municipality, and Hu Minghua, President of Shanghai United Media Group and over 200 guests from the political, business, finance and cultural sectors of China and the United States. The forum is dedicated to exploring the openness and similarities between Shanghai and New York to identify a shared framework of certainties among global hub cities.    The two cities share distinct advantages in sectors such as finance and trade, while also facing common challenges in urban renewal, low-carbon development, and digital transformation. Candid and open dialogue is essential for mutual learning, and it will also inject stability into China-U.S. relations.   On the topic of how global capital understands the Chinese market, a panel titled "Investing in China, Winning the Future" featured Chinese and international guests discussing how the appeal of Chinese assets is shifting from traditional growth narratives to AI, high-end manufacturing, financial opening-up, and institutional market development. As a hub for financial opening-up, an asset allocation center, and a cluster for innovative enterprises, Shanghai has become a crucial gateway linking international capital with opportunities in China.   Consumption is one of the most dynamic topics between China and the U.S. At the second panel of "Opportunies in emerging Consumer Markets", moderated by Bloomberg Television host David Westin, panelists observed that the consumer vitality of Shanghai and New York stems not only from market size but also from their ongoing ability to create experiences, understand people, and activate urban spaces.   Besides the forum, the New York series of events for OUR WATER Season 3 also includes: West Meets East·Shanghai & New York 2026 - A Polaroid 20×24 Special Exhibition; Chinese Opera: A Century of Dreams - An Exhibition of Art Design and Technology; An Exhibition themed Shanghai's "One River, One Creek" and Jing'an CAZ China-U.S. Business Leaders Dialogue in New York.   These events shape a tangible and immersive waterfront narrative, allowing Shanghai and New York—two super metropolises that have thrived on water—to resonate in harmony through dialogue. As Minister Tang Zhiwen stated in his address, Shanghai and New York, are expected to become benchmarks for subnational cooperation between China and the United States, and to make new contributions to fostering a "constructive China-U.S. relationship of strategic stability."   Hashtag: #ShanghaiEyeThe issuer is solely responsible for the content of this announcement.
+
+![](//track.media-outreach.com/index.php/WebView/474644/279561) 
+
+---
+
+[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/07/07/474644/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shanghai-and-new-york-forge-bonds-at-our-water-season-3-forum/4c950d503389f85a8d95079c096dfac4) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/267/7/icyDJnv.webp)
