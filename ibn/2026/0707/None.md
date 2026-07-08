@@ -1,10 +1,18 @@
-# Copper’s Price Trajectory Now Hinges on US Tariff Decision
+# MiningNewsBreaks – LaFleur Minerals Inc. (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) Extends Trafigura Exclusivity, Reports Beacon Gold Mill 84% Complete
 
-Months after Operation Epic Fury disrupted global metals markets, uncertainty surrounding the Strait of Hormuz is no longer the dominant force shaping copper prices. Although conflicting messages from Iran over whether the waterway is fully operational continue to create some uncertainty, the market’s attention has increasingly shifted toward Washington, where an impending decision on U.S. copper tariffs is expected to have a far greater influence on prices.
+This article has been disseminated on behalf of LaFleur Minerals and may include paid advertising.
 
- It will therefore not be surprising if entities like Numa Numa Resources Inc. regularly conduct discussions about any news coming from Washington regarding the country’s trade policy on…
+ LaFleur Minerals (CSE: LFLR) (OTCQB: LFLRF) (FSE: 3WK0) announced that it has extended the exclusivity and due diligence period with Trafigura Canada Ltd. through Aug. 31, 2026 as the parties continue advancing proposed definitive agreements for a non-dilutive prepayment facility of up to C$30 million and a related gold doré offtake agreement to support development of the Swanson Gold Deposit and restart of the Beacon Gold Mill in Québec. The extension will allow additional technical due diligence, including a planned site visit to the Beacon Gold Mill and Swanson Gold Deposit, along with completion of definitive documentation and required approvals.
 
- Read More>>
+ LaFleur Minerals also reported that refurbishment of its wholly owned Beacon Gold Mill reached approximately 84% completion as of July 1, 2026 and remains on budget. The company said major work on the crushing, grinding, filtration, ore-storage and thickening circuits has been substantially completed, with remaining work focused on the leaching circuit, refinery commissioning and supporting infrastructure. Subject to delivery of remaining equipment and other conditions, the company expects to complete mechanical work and begin staged commissioning using existing stockpiles during the fourth quarter of 2026.
+
+ To view the full press release, visit https://ibn.fm/7rTzA
+
+ About LaFleur Minerals Inc.
+
+ LaFleur Minerals Inc. (CSE: LFLR, OTCQB: LFLRF, FSE: 3WK0) is focused on the development of district-scale gold projects in the Abitibi Gold Belt near Val-d’Or, Québec. The Company’s mission is to advance mining projects with a laser focus on our PEA-stage Swanson Gold Project and the Beacon Gold Mill, which have significant potential to deliver long-term value. The Swanson Gold Project is approximately 19,214 hectares (192 km2) in size and includes several prospects rich in gold and critical metals previously held by Monarch Mining, Abcourt Mines, and Globex Mining. LaFleur has consolidated a large land package along a major structural break that hosts the Swanson, Bartec, and Jolin gold deposits and several other showings which make up the Swanson Gold Project. The Swanson Gold Project is easily accessible by road allowing direct access to several nearby gold mills, further enhancing its development potential. LaFleur Minerals’ recently refurbished Beacon Gold Mill is capable of processing over 750 tonnes per day and is being considered for processing mineralized material from Swanson and for custom milling operations for other nearby gold projects. LaFleur recently released the results of a positive Preliminary Economic Assessment (“PEA”) results for the Company’s Swanson Gold Project and the planned restart of the Beacon Gold Mill (refer to press release dated March 3, 2026).
+
+ NOTE TO INVESTORS: The latest news and updates relating to LFLRF are available in the company’s newsroom at http://ibn.fm/LFLRF
 
  About MiningNewsWire
 
@@ -24,21 +32,15 @@ Months after Operation Epic Fury disrupted global metals markets, uncertainty su
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/coppers-price-trajectory-now-hinges-on-us-tariff-decision/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-lafleur-minerals-inc-cse-lflr-otcqb-lflrf-fse-3wk0-extends-trafigura-exclusivity-reports-beacon-gold-mill-84-complete/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-prices-shift-focus-from-strait-of-hormuz-to-us-tariffs/f77175ea16105c06bc283350a046cd98) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lafleur-minerals-extends-trafigura-deal-mill-refurb-84-complete/cca89923a632f5b81a62fbe916e87b86) 
 
-
-Pickup - [https://x.com](https://twitter.com/i/status/2074599610916495737)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f77175ea16105c06bc283350a046cd98)
-
-Pickup - [https://governmentandpolitics.substack.com](https://governmentandpolitics.substack.com/p/f77175ea16105c06bc283350a046cd98)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/7/apexgsIL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/8/epicaGNR.webp)
