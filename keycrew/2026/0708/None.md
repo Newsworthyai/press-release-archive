@@ -1,102 +1,56 @@
-# What Replaces ESG When the Label Stops Being Enough
+# Do Real Estate Investors Have to Pay Origination Fees on Every Deal?
 
-The ESG era is winding down. Politically retreating, commercially discredited, and increasingly abandoned by the institutional investors who championed it, environmental, social, and governance investing has left behind a vacuum and a lesson. The vacuum is a real opportunity. The lesson is harder to sit with: impact language without impact infrastructure does not work, and investors who bought the label without examining the substance paid for both failures.
+Most active real estate investors treat origination fees as a fixed cost of doing business. Each deal, another percentage of the loan amount leaves at closing. But homebldr, a technology-driven investment financing platform, has launched a product with no real equivalent in the market: a financing subscription that eliminates homebldr origination fees entirely for 12 months.
 
- Steven Libman, founder of Investing With Purpose™, has a particular vantage point on what went wrong, and what a better framework looks like. His firm has spent 15 years building a faith-driven multifamily investment model in which community impact is not a marketing claim but an operating system. The ESG conversation, he argues, asked the right question and then answered it badly.
+ The idea is straightforward, but for investors closing multiple deals a year, the implications are significant. And the math alone tends to change the conversation.
 
- What ESG Got Right One thing, by Libman’s accounting: it reminded investors that investing is not neutral. “It made people start to realize – oh, my investment matters,” he says. “It is not just a neutral act.”
+ What Origination Fees Actually Cost Across a Full Year Origination fees are easy to absorb on a single deal. At 1.3% on a $417,000 loan, the fee is around $5,421. Manageable. But an investor closing six deals at that average loan size over 12 months, for a total loan volume of $2.5 million, would pay $32,526 in homebldr origination fees on a deal-by-deal basis. These are illustrative figures – actual fees vary depending on the deal, loan type, and capital source – but the math holds as a framework.
 
- That realization was genuine and valuable. For a generation of investors who had been told to chase return and ignore everything else, ESG introduced the idea that capital goes somewhere and does something. The premise was sound. The execution collapsed under its own contradictions.
+ That is the number most investors have never calculated. Not because it is hidden, but because no one runs it out over a full year. Once you do, the question changes from “is this fee reasonable?” to “is this the right structure?”
 
- Where It Failed The failure was structural. ESG tried to build a universal moral scorecard for a diverse investor base with fundamentally different values. It became political. It became vague. Fund managers applied the label inconsistently, and investors had no reliable way to evaluate whether an ESG designation meant anything at all.
+ Adam Eldibany, founder of homebldr, says the reaction when he walks investors through the annual total is almost always the same. The per-deal number felt fine. The annual number does not.
 
- “You could really slap an ESG label on almost anything,” says Libman. “But where was the measurable impact?”
+ How the Subscription Model Works Rather than paying origination on every transaction, subscribers pay a single upfront fee to homebldr and access zero homebldr origination across all eligible deals for the next 12 months, up to a loan volume cap determined by their tier. The homebldr financing subscription currently comes in three tiers.
 
- The returns confirmed the problem. A framework that promised investors they could do good while making competitive returns instead delivered below-benchmark performance and limited verifiable impact. The implicit bargain – accept lower returns, get meaningful impact – turned out to be a bad deal on both sides.
+ The Core tier is designed for investors closing two to three deals per year, with up to $1 million in loan volume. The Growth tier, which Eldibany describes as the best fit for most subscribers, covers investors closing a transaction roughly every couple of months, with an annual loan volume cap of $2.5 million. The Scale tier is for the most active investors, covering up to $5 million in annual loan volume.
 
- For faith-driven investors specifically, the ESG framework carried an additional flaw: it outsourced the definition of values to Wall Street. “Faith-driven investors do not need Wall Street to tell them what is good,” says Libman.
+ Using the Growth tier example: an investor closing six deals totaling $2.5 million would pay $32,526 under the traditional model. Under the subscription, they pay $20,000. That is a 39% reduction, saving roughly $13,000 for the year. And the break-even point arrives well before the full volume cap is reached. Investors who use as little as 45 to 65 percent of their allotted loan volume are typically already ahead.
 
- Caring as Strategy, Not Charity The alternative Libman describes is not a softer version of ESG. It is a different thesis entirely. Where ESG treated impact as something layered on top of an investment – a cost absorbed in exchange for a values designation – his model treats community investment as upstream of financial performance.
+ The Payment Flexibility Most Investors Do Not Expect Beyond the savings, there is a structural difference that changes the practical math around cash management. Under a traditional model, origination fees are paid in cash at closing. That cash typically needs to be sourced, meaning lenders want to document where it came from if it was deposited in the last 60 days, and not all funding sources are accepted.
 
- The on-site Purposed Care Initiative (PCI) that Investing With Purpose runs inside its multifamily properties drives measurable outcomes: turnover falls when residents feel cared for. Delinquency improves. Reputation scores rise. Staff morale strengthens. The property becomes more stable as a result.
+ The homebldr subscription fee is paid entirely outside of closing. It can be paid by credit card, with other debt, through gifted funds from a partner or family member, or even through a buy now, pay later provider like Affirm or Klarna. No sourcing requirements. No restrictions on where the payment comes from.
 
- “Caring is not charity,” says Libman. “It is a strategy. Better communities create better assets, and better assets create better investments.”
+ That flexibility keeps capital in the investor’s hands rather than at the closing table, which matters more for investors running multiple projects than any single fee comparison suggests.
 
- The distinction matters because it changes the economics. ESG asked investors to trade returns for impact. The conviction-based model argues that genuine community investment produces both – and that the assumption of a tradeoff was always the flaw in the ESG premise.
+ Why the Broker Model Gives Subscribers Better Terms Than They Could Get Directly There is a common assumption that working directly with a lender produces better pricing than going through a broker, since the broker has to be compensated somewhere. Eldibany pushes back on this directly.
 
- Measuring What Actually Matters One of the more concrete departures from the ESG model is in how Investing With Purpose tracks and reports performance. Standard real estate KPIs – net operating income, occupancy, expense ratios – are tracked and reported monthly. The firm has also developed a measurement framework called Key Care Indicators (KCIs): metrics that track the Purposed Impact being built at each Purposed Care Community.
+ “What many investors do not realize is that the terms being offered to them by direct lenders are retail terms,” he says. “Experienced brokers can frequently access wholesale and preferential pricing from the same capital sources that is not available to investors going through the retail channel.”
 
- How many resident events ran this month. How many people connected with on-site pastoral care. How many acts of service were completed. These are reported to investors alongside the financial data, creating a dual-track accountability structure that ESG funds never managed to build.
+ Those wholesale terms are typically lower on fees and sometimes lower on rate. Many competitive capital sources in today’s market operate exclusively through the wholesale channel and do not work directly with investors at all, regardless of their experience or track record. The only way to access their products is through a broker.
 
- “We do not want to be ESG with a cross on it,” says Libman. “We offer real disciplined investing with real underwriting and real returns, but coupled with real care and real accountability associated with that care.”
+ “Investors who limit themselves to direct lenders are excluding an entire segment of the financing market,” Eldibany says. “They’re giving up access to capital sources and financing solutions that could benefit them significantly.”
 
- The Vacuum and Who Fills It With ESG in retreat, the space it occupied is genuinely open. Libman’s view on who should fill it is straightforward: investors with conviction, not consultants with acronyms.
+ For homebldr’s subscription users, this plays out directly. Subscribers are typically accessing wholesale and preferential terms from the capital network without any additional fees or yield spread added on. That is how the subscription model delivers both a lower total cost and better underlying pricing than most investors could access on their own.
 
- The better framework, as he describes it, is not complicated. Biblical stewardship. Transparency. Purposed impact. Excellent investment discipline. The same operating rigor that any institutional investor would apply – with the addition of a community infrastructure that is built into the asset, not bolted on from outside. The Purposed Care Initiative framework is one early signal of what that accountability structure looks like in practice. Whether it gains traction beyond firms already operating with a faith-driven mandate remains to be seen – but the gap ESG has left is real, and the demand for something more rigorous is growing.
+ homebldr is a technology-driven investment financing platform that provides real estate investors with access to a network of more than 80 capital partners, including lenders, family offices, and private lending groups. homebldr operates on a broker model and serves investors nationwide across fix and flip, new construction, and long-term rental financing.
 
- About the Expert: Steven Libman is the founder of Investing With Purpose, a faith-driven multifamily real estate firm based in Bluffton, SC.
+ Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
- Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions. 
+ Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/what-replaces-esg-when-the-label-stops-being-enough-2/)
+[Original/Source Press Release](https://keycrew.co/journal/do-real-estate-investors-have-to-pay-origination-fees-on-every-deal/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esg-is-dead-faith-driven-investing-offers-a-better-way/6c65c15679dedcc8e73c6eb6d11bbf55) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/homebldr-subscription-cuts-origination-fees-saves-investors-thousands/40adeba810ddb3dea70aa5f2ddb32057) 
 
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/6c65c15679dedcc8e73c6eb6d11bbf55)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/6c65c15679dedcc8e73c6eb6d11bbf55)
-
-Pickup - [https://advos.io/en](https://advos.io/en/faith-driven-investor-proposes-alternatives-as-esg-era-fades)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/beyond-esg-why-impact-infrastructure-matters-more-than-labels)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/as-esg-era-fades-faith-driven-investment-model-offers-alternative-built-on-measurable-impact)
-
-Pickup - [https://burstable.news](https://burstable.news/news/esg-in-retreat-why-impact-needs-infrastructure-not-labels)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/esg-auf-dem-ruckzug-warum-impact-infrastruktur-braucht-keine-labels)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/retroceso-de-esg-por-que-el-impacto-necesita-infraestructura-no-etiquetas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lesg-en-recul-pourquoi-limpact-a-besoin-dinfrastructures-pas-detiquettes)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/esg-em-retirada-por-que-o-impacto-precisa-de-infraestrutura-nao-de-rotulos)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/esgs-retreat-opens-door-for-conviction-based-investing-says-investing-with-purpose-founder)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/as-esg-retreats-faith-driven-investing-emerges-with-a-focus-on-measurable-impact)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/beyond-esg-why-impact-infrastructure-matters-more-than-labels)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/after-esgs-fall-faith-driven-investing-offers-a-blueprint-for-measurable-impact)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/beyond-esg-why-impact-infrastructure-matters-more-than-the-label)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/as-esg-retreats-faith-driven-investing-fills-the-gap-with-measurable-impact)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/as-esg-era-wanes-faith-driven-investing-offers-measurable-alternative)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/as-esg-retreats-faith-driven-investment-model-offers-a-blueprint-for-measurable-impact)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/beyond-esg-why-faith-driven-investing-sees-community-impact-as-a-strategy-not-a-label)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/beyond-esg-why-impact-without-infrastructure-fails-and-what-replaces-it)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/beyond-esg-why-impact-infrastructure-matters-more-than-labels)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/as-esg-retreats-conviction-based-investing-emerges-as-a-more-rigorous-alternative-says-investing-with-purpose-founder)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/beyond-esg-a-faith-driven-investment-model-that-measures-what-matters)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beyond-esg-why-impact-infrastructure-matters-more-than-the-label/202635045)
+Pickup - [https://x.com](https://twitter.com/i/status/2074901468121813451)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/267/8/cooltL78.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/267/8/zero6Cfg.webp)
