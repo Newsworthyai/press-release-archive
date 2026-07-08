@@ -1,62 +1,66 @@
-# Efryll Carmelo Publishes 'My 15-Year SEO Journey,' From Link Spam to AI Search
+# Canberra Painting Business Founded on Trade Heritage and Business Expertise
 
-I Built Spam Links for a Living in 2010. Here's Why AI Search Doesn't Scare Me After 15 Years in SEO
+Family Painting Heritage Shapes Luke Chamberlain's Approach at C&C Painting Group
 
- Leganes, Philippines - July 7, 2026 / Efryll Carmelo SEO /
+ Mitchell, Australia - July 7, 2026 / C&C Painting Group /
 
- Senior SEO manager Efryll Carmelo traces 15 years of search marketing, from 2010’s automated link-building software to 2026, when AI Overviews appear in one of every four Google searches and 58.5% of U.S. queries end without a click.
+ C&C Painting Group, a Dulux-accredited painting and decorating business based in Mitchell, ACT, was established in 2018 by husband-and-wife team Luke and Tanya Chamberlain. The company was built around a clear purpose: to bring together hands-on trade craftsmanship and structured business management, delivering a consistent and professional experience for residential and commercial clients across the capital.
 
-ILOILO CITY, Philippines, July 7, 2026 — Efryll Carmelo, a senior SEO manager in the Philippines who has worked with clients in the United States, Canada, and Australia since 2010, today published “My 15-Year SEO Journey: From Spam Links to AI Search,” a retrospective on fifteen years inside the search industry, documenting how the discipline survived every algorithm crackdown that was predicted to end it, and why he argues the arrival of AI search is a beginning rather than an obituary.
+A Business Built on Complementary Strengths
 
-The Volume Era: Automation Software and $50 WebsitesThe retrospective, "My 15-Year SEO Journey: From Spam Links to AI Search", revisits an era of search marketing that younger practitioners never saw. In 2010, rankings were won with volume: automated software such as Bookmarking Demon submitted sites to hundreds of social bookmarking directories overnight, Market Samurai surfaced low-competition keywords, and the widely circulated “Angela and Paul” backlink packets sold monthly lists of profile pages, including university and government domains, where anyone could drop a link.
+When Luke and Tanya Chamberlain founded C&C Painting Group in 2018, the decision reflected something more considered than simply entering the trades market. Luke Chamberlain brought a background shaped by family involvement in the painting industry, developing practical craftsmanship across a wide range of painting and decorating projects over many years. Tanya contributed a distinct and equally important skill set - business management expertise that gave the company a structured operational foundation from the outset.
 
-“My first job in this industry was link builder, and the job was exactly what it sounds like,” said Efryll Carmelo, Senior SEO Manager. “We wrote on Blogspot blogs, submitted the same article to EzineArticles in ten variations, and answered Yahoo Answers questions with a link back to the client. I personally built around ten micro-niche websites on exact-match domains with thin content and Google ads, and each one earned twenty to fifty dollars a month. At the time, that felt like a machine that would run forever.”
+Together, the pair brought more than 25 years of combined experience to the venture, spanning both the practical and administrative dimensions of running a professional trade business. That combination sits at the core of what C&C Painting Group was designed to be: a company where quality workmanship and attentive client communication are treated as equally important.
 
-Panda and Penguin: The First ReckoningThe machine stopped in 2011 and 2012, when Google released the Panda and Penguin updates targeting thin content and manipulative links, a turning point documented in histories of Google's algorithm changes. Efryll notes that Google’s disavow tool did not yet exist when Penguin first hit, leaving cleanup to be done by hand.
+Addressing a Gap in the Canberra Trades Market
 
-“Imagine one website with three thousand backlinks that now had to come down,” Efryll said. “We emailed webmasters one by one asking them to remove links we had spent years building. Entire businesses disappeared from search results overnight. That was the industry’s first hard lesson: whatever shortcut works today is the liability you will be dismantling tomorrow.”
+The founding of C&C Painting Group responded to a gap the Chamberlains had observed within the local trades landscape. Clients engaging painting contractors often encountered businesses that delivered strong technical results but fell short on communication, project management, or follow-through - or conversely, operations that were well-managed but lacking in craft. Luke and Tanya Chamberlain structured C&C Painting Group specifically to bridge those two areas, pairing professional-grade results with the kind of client service more commonly associated with industries outside the trades.
 
-The retrospective also revisits transitional artifacts of the period: separate m-dot mobile sites that companies maintained before responsive design became standard, custom page tabs that brands designed directly inside Facebook, and the freelance marketplaces oDesk, Freelancer.com, and OnlineJobs.ph, where much of the Philippine SEO workforce, Efryll included, found its first international clients.
+Luke Chamberlain's approach to the work draws directly from a family background in painting, where technique and attention to detail were foundational values. That heritage informs how C&C Painting Group approaches each project - from surface preparation through to the final coat - with a focus on durability and finish quality that reflects the standards of an experienced tradesperson.
 
-From Guest Posting to People-First Content: 2018 to 2025The years from 2018 to 2025 brought a different kind of change, the retrospective argues. Google’s 2018 Medic update pushed expertise and trustworthiness into ranking decisions, the 2019 BERT model improved the engine’s grasp of natural language, the 2022 Helpful Content update rewarded people-first writing, and successive updates through 2025 enforced Google’s spam policies against content produced at scale without editorial oversight. Guest posting, once the industry’s replacement for link spam, was itself commoditized and policed.
+Dulux Accreditation and Professional Standards
 
-The AI Search ShiftSearch behavior is now shifting again. Industry tracking studies published in 2026 report that AI Overviews appear in roughly 25% of Google searches, and that 58.5% of U.S. searches end without a click to any website, while ChatGPT has reached approximately 900 million weekly active users. At the same time, AI-driven referral visits to retail sites converted 31% better than traditional traffic during the 2025 holiday season. In the piece, Efryll details how traditional optimization is expanding into generative engine optimization, the practice of earning citations in AI-generated answers.
+A notable aspect of C&C Painting Group's positioning is its Dulux Accreditation, a recognition that signals adherence to particular product knowledge and application standards set by one of Australia's most established paint manufacturers. For clients, this accreditation provides a degree of assurance about the materials being used and the competency of the team applying them.
 
-“Every few years this industry gets a funeral, and every few years the coffin is empty,” he said. “Panda was supposed to kill SEO. Mobile was supposed to kill SEO. Now people say AI answers will kill it. What actually happens is the work gets renamed to answer engine optimization or generative engine optimization, and the fundamentals get stricter. As long as there is a search box, there is an engine behind it, and there will be people whose job is to understand how that engine decides.”
+Dulux Accreditation is not automatically available to all painting businesses - it requires demonstrated capability and a commitment to ongoing professional standards. For Canberra painters operating in a competitive local market, holding this status reinforces credibility and distinguishes businesses that maintain a measurable level of professional practice.
 
-A Field That Rewards Patience and Love for the GameEfryll argues the current moment favors newcomers rather than veterans. “In 2010 the barrier to entry was owning spam software. In 2026 it is curiosity,” he said. “The platforms are new, the measurement is unsettled, and nobody has fifteen years of experience in AI search, because the field is only a few years old. Anyone thinking about entering this profession should be running toward it, not away from it.”
+Community Focus in Mitchell, ACT
 
-“This field never sits still, and that is the whole point,” he added. “You do not survive fifteen years in search on tactics alone. You survive on patience, because results are earned in months rather than days, and on a genuine love for the game, because the game refuses to stay the same.”
+Operating out of Mitchell, ACT, C&C Painting Group has maintained a deliberate focus on serving the local Canberra community since its founding. For Luke Chamberlain and Tanya Chamberlain, this community orientation goes beyond geography - it reflects a commitment to building relationships with local clients, contributing to the standard of work visible in homes and commercial properties across the region, and operating as a business genuinely embedded in the area it serves.
 
-About Efryll CarmeloEfryll Carmelo is a senior SEO manager based in Iloilo City, Philippines, with more than 15 years of experience in search engine optimization, content strategy, local SEO, and AI search optimization for clients in the United States, Canada, and Australia. He is a Google Partner certified professional who works on a full-time basis, adapting to each company’s structure: working independently, integrating into existing marketing teams, or leading SEO teams. More information is available on his website.
+"We built C&C Painting Group to offer something that can be hard to find - a painting business that takes both the craft and the client experience seriously," said Luke Chamberlain, co-founder of C&C Painting Group. "Tanya's expertise in running the business side means our clients are supported through every stage of a project, and my background in the trade means the work itself meets the standard we've always held ourselves to."
 
-Media ContactName: Efryll CarmeloTitle: Senior SEO ManagerEmail: efryll.im@gmail.comWebsite: https://efryllcarmelo.com
+The Canberra painters behind C&C Painting Group continue to take on residential and commercial projects, maintaining the same emphasis on quality workmanship and client communication that has defined the business since its earliest days in Mitchell.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rGW1ovvUKi86xR6HKth0uGl8Nmpkzakdcfjm8aRm.jpg) [](https://efryllcarmelo.com/) Contact Information:
+About C&C Painting Group
 
- Efryll Carmelo SEO
+C&C Painting Group is a Dulux-accredited painting and decorating business founded in 2018 and based in Mitchell, ACT. Co-founded by Luke Chamberlain and Tanya Chamberlain, the company draws on more than 25 years of combined experience across trade craftsmanship and business management. C&C Painting Group provides professional painting services to residential and commercial clients throughout the Canberra region.
+
+Learn more at C&C Painting Group
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/9N9DaMe3AHqkvrftchzSexzuyHl1dCfzeFP1SAOG.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/155lNiHr8z2nUd4xyd06zrkmrWmRCWR0aNahEGPf.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/NJT85KEMceGvCowmyT3RTswRVDT7tuGm9J08nPuC.jpg) [](https://ccpaintinggroup.com.au) Contact Information:
+
+ C&C Painting Group
 
  
 
-Blk 2 Lot 9 Stonegate Subd.  Leganes, Iloilo 5003Philippines
+GF 1b-118 Lysaght Street  Mitchell, ACT 2911Australia
 
- Efryll Carmelo https://efryllcarmelo.com/
-
- 
-
- Original Source:  https://efryllcarmelo.com/blog/15-year-seo-journey/ 
+ Tanya Chamberlain +1 0262213466 https://ccpaintinggroup.com.au 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/efryll-carmelo-publishes-my-15-year-seo-journey-from-link-spam-to-ai-search-438536)
+[Original/Source Press Release](https://mediawiretoday.com/canberra-painting-business-founded-on-trade-heritage-and-business-expertise-438683)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/from-spam-links-to-ai-search-a-15-year-seo-journey/e1d70b771c0a79ddd540a869c3a192e6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/family-painting-heritage-shapes-c-c-painting-group-s-success/d9b6fe91673d3dc9bd325b64bedcb024) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2074659875645231504)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/7/blurfqS8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/8/elleI8Gd.webp)
