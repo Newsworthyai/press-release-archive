@@ -1,0 +1,18 @@
+# Hipskind &amp; McAninch Shares Essential Steps After Car Accidents
+
+BELLEVILLE, IL, July 09, 2026 /24-7PressRelease/ -- The moments immediately following a motor vehicle collision are often marked by confusion and uncertainty. To help local drivers protect both their health and their legal rights, Belleville personal injury law firm Hipskind & McAninch, LLC has released a public guide outlining important steps to take after a car accident.  The guide draws on the firm's experience representing individuals injured in motor vehicle collisions and discusses practical measures that may help preserve evidence and support future legal claims. Hipskind & McAninch has recovered more than $50 million on behalf of clients, including a $20 million recovery involving a fatal rear-end collision and a $2 million settlement arising from a head-on crash.  "An accident can disrupt your life in an instant," said co-founder John Hipskind. "While many people are understandably focused on their recovery, the steps they take at the scene and in the days that follow can affect their ability to pursue compensation. We hope this guide helps people make informed decisions during a difficult time."  Hipskind & McAninch's Post-Accident Guidance  Prioritize Safety and Seek Medical Attention: Check for injuries and call emergency services if needed. Even if injuries do not appear serious, some conditions, including whiplash and internal injuries, may not present symptoms immediately.  Report the Accident: Contact law enforcement so an official accident report can be prepared. Provide factual information, but avoid speculating about fault or the cause of the collision.  Document the Scene: Exchange contact, driver's license, and insurance information with everyone involved. If it is safe to do so, photograph vehicle damage, road conditions, traffic signs, and other relevant details, and obtain contact information for any witnesses.  Consider Legal Guidance Before Speaking With Insurance Companies: Insurance representatives may request recorded statements or other documentation soon after an accident. Individuals may benefit from understanding their legal rights before providing detailed statements or signing documents.  The guide reflects the firm's approach to educating the public about the legal process following serious accidents. Founding partners John Hipskind and Brady McAninch previously represented corporate defendants, experience that informs their work on behalf of individuals pursuing personal injury claims.  Hipskind & McAninch represents clients in matters involving car, truck, and motorcycle accidents, wrongful death, and premises liability. The firm also assists clients with navigating insurance claims, legal deadlines, and the process of seeking compensation after an injury.  Hipskind & McAninch, LLC is a personal injury law firm serving Belleville, St. Louis, and communities throughout the Metro East. The firm represents individuals in cases involving motor vehicle accidents, wrongful death, premises liability, and other negligence-related claims. Hipskind & McAninch has been recognized by Super Lawyers® Rising Stars and The National Trial Lawyers Top 40 Under 40. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/536599/hipskind-mcaninch-shares-essential-steps-after-car-accidents)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hipskind-mcaninch-releases-post-accident-guide-for-drivers/f56bf1fe46d0e152452cd77fdd23d225) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/9/maskwCe_.webp)
