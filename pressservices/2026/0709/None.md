@@ -1,41 +1,57 @@
-# Interlock Aluminum Wall Cladding Debuts in Whistler Custom Homes
+# Braces for Kids, Teens, and Adults in San Antonio
 
-Interlock Aluminum Wall Cladding Debuts with Custom Home Installations in Whistler, British Columbia
+Solana Orthodontics Offers Braces for Kids, Teens, and Adults in San Antonio, TX
 
- Delta, Canada - July 8, 2026 / Interlock Roofing Ltd. /
+ San Antonio, United States - July 9, 2026 / Solana Orthodontics /
 
- DELTA, British Columbia - July 7, 2026 - Interlock Roofing Ltd. has expanded its product offerings to include Metal Siding and wall cladding panels, bringing its lifetime aluminum system from the roofline down to a building's exterior walls. The new panels are produced from the same heavy-gauge aluminum, finished with the same Alunar Coating System, and available in the same profiles, colors, and trims as Interlock's roofing products, enabling a home's roof and walls to share a single color-matched aluminum finish.
+ Solana Orthodontics, led by board-certified orthodontist Dr. Sandra Nairooz, has expanded its orthodontic treatment offerings to serve patients at every stage of life, making personalized braces care available to children, teenagers, and adults across San Antonio, Texas. The announcement reflects the practice's commitment to addressing the full spectrum of orthodontic needs under one roof, with treatment plans tailored to the unique dental development and lifestyle considerations of each patient group.
 
-Interlock has established its standing in the market through aluminum roofing engineered to last the life of a structure. By applying the same material system to exterior walls, the company now allows a home's roof, chimneys, dormers, gables, and walls to share one aluminum composition. This approach removes the compatibility concerns that can arise when roof and wall products originate from different manufacturers, and it simplifies both installation and warranty coverage across every exposed surface.
+Braces Options Designed for Every Age Group
 
-"Homeowners already trust our aluminum roofing to protect their home for a lifetime," said Scott Plumptree, Director of Marketing, Interlock Roofing Ltd. "Extending that same panel, coating, and color system to siding means the entire exterior performs to one standard and reads as one intentional design."
+Orthodontic needs differ significantly depending on a patient's age, jaw development, and dental history. Solana Orthodontics has structured its braces program to reflect those differences, offering age-appropriate treatment pathways for kids, teens, and adults rather than applying a one-size-fits-all approach.
 
-Interlock Metal Siding is offered in four architectural profiles - Slate, Cedar Shingle, Shake, and Standing Seam - which can be combined within a single color family. The panels are formed from heavy-gauge aluminum and finished with the Alunar Coating System, a multi-layer architectural coating that incorporates Cool Roof infrared-reflective pigments designed to reduce solar heat gain on walls. Non-combustible aluminum construction carries a Class A fire rating (available), a notable characteristic for properties in wildfire and ember-zone regions.
+For younger patients, early intervention can play a meaningful role in guiding jaw growth and correcting alignment issues before they become more complex. Braces for kids in San Antonio TX focus on addressing bite problems and spacing concerns at a stage when the jaw is still developing, which can reduce the complexity of treatment later in life. By identifying these concerns early, Dr. Nairooz works to establish a foundation for long-term oral health.
 
-Because aluminum does not absorb moisture, the panels will not rot, warp, or crack through repeated freeze-thaw cycles. The factory-baked finish resists chalking and fading, eliminating the need for repainting over the product's service life. The Aluminum Wall Cladding system also resists insects and coastal salt-air corrosion. Four-way interlocking panels install over most existing wall substrates, fitted by certified installers, and require no painting, sealing, or staining throughout their lifespan. The aluminum is largely recycled in content and approximately 95 percent recyclable at end of life.
+Teenagers represent a distinct patient group with their own set of orthodontic considerations, including erupting permanent teeth, shifting bite patterns, and the social awareness that comes with adolescence. The practice's approach to braces for teens in San Antonio TX accounts for these factors, combining effective clinical outcomes with options that align with the daily realities of teenage life such as school, sports, and extracurricular activities.
 
-Interlock Metal Siding and aluminum wall cladding are available across the United States and Canada through certified local installers, for both new construction and re-cladding projects. Recent installations include custom homes in Whistler, British Columbia.
+Personalized Care Through Advanced Technology
 
-About Interlock Roofing Ltd. Interlock Roofing Ltd. manufactures and installs lifetime aluminum roofing, metal siding, and wall cladding systems for residential and commercial buildings across the United States and Canada. Each product is engineered from heavy-gauge aluminum finished with the Alunar Coating System for long-term durability, energy efficiency, and low maintenance, and is backed by a Lifetime Limited, 50-year transferable warranty. Interlock, Interlock Lifetime Roofing Systems, Alunar, and Never Re-Roof Again. are registered trademarks of I.E.L. Manufacturing Ltd., used under license by The Interlock Group. To learn more about Interlock aluminum metal siding and wall cladding, visit interlockroofing.com/siding.
+Dr. Nairooz uses advanced technology throughout the treatment process to improve both accuracy and patient comfort. From the initial consultation through the final stages of treatment, the practice applies diagnostic tools that support precise treatment planning. This technology-forward approach allows the team to develop individualized plans rather than relying on generalized treatment timelines.
 
-Media Contact Scott Plumptree, Director of Marketing Interlock Roofing Ltd. 9969 River Way, Delta, BC V4G 1M8, Canada Phone: 1-866-733-5811 Email: media@interlockgroup.com Website: https://www.interlockroofing.com
+Adult patients make up a growing segment of the practice's caseload, and the team recognizes that orthodontic treatment in adulthood comes with considerations that differ from those of younger patients. Bone density, existing dental work, and the practical demands of professional and personal schedules all factor into how treatment is planned and delivered. Options for braces for adults in San Antonio TX are developed with those variables in mind, helping adult patients achieve straighter smiles without disrupting their routines more than necessary.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/oUwAwpQJecRvZvQjQnQAOuUm3TJJ8ANeAzogRuNZ.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/XefwhvCeTJls3UToQiW4MlgjDtzq8AF7Hd8ulxp5.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PwVFgc98VVmOSkHQgEKjmAahiHlFQsTPKR5okAur.jpg) [](https://www.interlockroofing.com) Contact Information:
+A Patient-First Philosophy Behind Every Treatment Plan
 
- Interlock Roofing Ltd.
+Solana Orthodontics describes its approach as patient-first, meaning that clinical decisions prioritize the individual's specific needs, goals, and timeline. Dr. Nairooz consults with each patient to understand what outcome they are hoping to achieve and what constraints or preferences should shape the treatment plan.
+
+"Our goal is to make sure every patient - whether a young child getting their first orthodontic evaluation or an adult who has been considering braces for years - feels confident in their treatment plan and excited about the results," said Dr. Sandra Nairooz, board-certified orthodontist of Solana Orthodontics.
+
+The practice serves families across San Antonio, offering a single location where parents can bring their children for early evaluation while also pursuing their own orthodontic treatment. This continuity of care across age groups means that families often develop a lasting relationship with the practice as their children grow through different phases of orthodontic need.
+
+Solana Orthodontics continues to accept new patients across all three treatment tracks, with consultations available for those interested in exploring braces as a path to a healthier, more aligned smile.
+
+About Solana Orthodontics
+
+Solana Orthodontics is a San Antonio, Texas orthodontic practice led by board-certified orthodontist Dr. Sandra Nairooz. The practice provides personalized braces treatment for children, teenagers, and adults, using advanced technology and a patient-centered approach to deliver straight, healthy smiles.
+
+Learn more at Solana Orthodontics
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/WjIkmPpTkbjUx3cA1tkrqRRk26Hcuw2gcMyGkncx.jpg) [](https://www.solanaortho.com) Contact Information:
+
+ Solana Orthodontics
 
  
 
-9969 River Way  Delta, BC V4G1M8Canada
+2907 N Loop 1604 E Ste 101  San Antonio, TX 78232United States
 
- Scott Plumptree +1-866-733-5811 https://www.interlockroofing.com 
+ Dr. Sandra Nairooz +1-210-905-9000 https://www.solanaortho.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/interlock-aluminum-wall-cladding-debuts-in-whistler-custom-homes-438939)
+[Original/Source Press Release](https://mediawiretoday.com/braces-for-kids-teens-and-adults-in-san-antonio-439143)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/interlock-expands-to-aluminum-siding-for-unified-exteriors/6224ea33df06a6617fbfcfcdb0a443bc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-orthodontics-expands-braces-for-all-ages-in-san-antonio/91bdfe38f348a60462c10bb51461bd56) 
 
  
 
@@ -43,4 +59,4 @@ Media Contact Scott Plumptree, Director of Marketing Interlock Roofing Ltd. 9969
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/9/elledFfz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/9/isleffnh.webp)
