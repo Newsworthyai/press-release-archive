@@ -1,60 +1,58 @@
-# Freeze-Thaw Pressure Drives Retaining Wall Demand Across Central PA
+# Mueller Memorial Bought Back From SCI in 2014 to Restore Local Ownership
 
-Why Central PA Freeze-Thaw Cycles Make Engineered Retaining Walls a Necessity
+Scott Mueller Bought His St. Paul Funeral Home Back From SCI - and Changed How It Operates
 
- Reinholds, United States - July 8, 2026 / A Plus Landscaping /
+ St. Paul, United States - July 8, 2026 / Mueller Memorial Funeral & Cremation /
 
- REINHOLDS, PA - A large share of residential properties throughout Central Pennsylvania are built on sloped terrain. For homeowners in Lancaster, Harrisburg, Hershey, and nearby communities, that grade is often the reason a backyard remains underused. Retaining wall installation addresses that challenge directly by stabilizing the slope and creating the conditions for the surrounding landscape to function as intended.
+ Private equity firms and large funeral home corporations have quietly acquired thousands of independent funeral homes across the United States over the past several decades -- a consolidation trend that has largely gone unnoticed by the families these businesses serve. Against that backdrop, Mueller Memorial Funeral & Cremation is drawing attention to the issue by publicly sharing the story of how its owner sold to a corporate giant, worked inside that organization, and ultimately bought his business back to restore local, accountable ownership to the St. Paul community.
 
-A Plus Landscaping, a family-owned design-build company based in Reinholds, has been constructing retaining walls throughout Central PA since 2006. The company works alongside homeowners to address both the structural demands and design possibilities that sloped landscapes present.
+A Sale, a Lesson, and a Decision to Come BackMueller Memorial was founded in 1946 and has served families from its locations at 835 Johnson Parkway, St. Paul, MN 55106 and 4738 Bald Eagle Avenue, White Bear Lake, MN 55110 for generations. In 1994, owner Scott Mueller sold the funeral home to Service Corporation International (SCI), the largest funeral home corporation in North America. Rather than walk away, Mueller remained with the organization -- gaining direct, firsthand experience of how corporate funeral home ownership operates at scale.
 
-Erosion ControlOn unretained slopes, rainfall moves soil downhill. After repeated rain cycles or freeze-thaw events, that erosion becomes visible through rutted ground, exposed root systems, and depleted topsoil. A properly constructed retaining wall holds soil in place and stops that process before it compounds.
+What he observed during that period was a gradual cultural shift. Decision-making moved away from the families sitting across the arrangement table and toward systems and structures designed to serve a much larger organization. The local accountability that had defined Mueller Memorial since its founding became increasingly difficult to sustain within that framework.
 
-"Many homeowners treat a slope as a permanent limitation to their property, but a properly engineered retaining wall completely changes how a yard functions," said Marcus Waldner, Founder of A Plus Landscaping. "In Central Pennsylvania, our severe freeze-thaw cycles put immense physical pressure on unmanaged soil. We don't just build walls as standalone fixes; we integrate built-in drainage systems to protect the landscape structure while transforming unusable slopes into flat, functional ground built to last for decades."
+In 2014, Scott Mueller purchased the business back. Mueller Memorial has operated as a fully independent funeral home since that time, with every dollar reinvested into its St. Paul and White Bear Lake locations.
 
-The wall functions as a physical barrier, redistributing the weight of the slope and keeping the soil profile stable across changing seasons. For Central PA properties, where frost depth and precipitation place consistent pressure on unmanaged grades, that structural function is a practical necessity rather than an optional upgrade.
+Why Funeral Home Ownership Transparency Matters to FamiliesThe consolidation of independent funeral homes by private equity and large corporations is not a new phenomenon, but it is one that most families only discover after the fact -- if at all. A funeral home may carry a familiar local name while being owned and managed by an out-of-state company with different priorities. Funeral home ownership transparency has become an increasingly relevant concern for consumers who want to know who is accountable when it matters most.
 
-Drainage ManagementRetaining walls that lack adequate drainage introduce serious structural vulnerabilities. Water accumulates hydrostatic pressure behind the wall face, which can cause displacement or complete structural failure over time. The drainage system installed behind and beneath the wall units is as important as the visible hardscape material itself.
+Scott Mueller speaks candidly about why he made the decision to buy the business back and operate it as a family-owned funeral home.
 
-Thorough planning ensures that each retaining wall layout incorporates the necessary drainage components from the start. This process includes specialized base materials, clean drainage aggregate positioned behind the wall blocks, and a precise grading plan designed to direct water away from both the wall structure and the home's foundation.
+"At a time like this, you would rather have the funeral director across from you accountable to you rather than an out-of-state office," said Scott Mueller, Owner of Mueller Memorial Funeral & Cremation.
 
-Design and Usable Outdoor SpaceLandscape retaining walls produce flat, stable ground - a structural outcome that an open slope cannot provide. That level surface makes a patio installation viable, gives custom planting beds a stable foundation, and establishes defined tiers across a property that can each serve a distinct purpose.
+That philosophy shapes every aspect of how Mueller Memorial operates today. The funeral home offers transparent pricing so families understand their options without uncertainty, Grief Compass, its own program designed to guide families through the first year of loss, and 24/7 availability from directors who are part of the same community as the families they serve.
 
-In Central PA, where properties frequently feature pronounced natural elevation changes, retaining wall installation is often the foundational project that makes subsequent outdoor renovations possible. The design team approaches these structures as part of a connected outdoor environment rather than an isolated solution, ensuring the completed hardscape integrates cleanly with custom patios, paver steps, and softscape layouts.
+Services Designed Around Local AccountabilityAs an independent funeral home in St. Paul, Mueller Memorial has developed a range of services that reflect a commitment to meeting families where they are. Among them is Grief Compass, a grief support resource designed to help families navigate loss beyond the immediate funeral arrangements. The funeral home also offers Interra Green Burial options for families seeking environmentally conscious alternatives to traditional burial.
 
-Homeowners interested in retaining wall installation or landscape retaining walls can reach A Plus Landscaping by phone or through the contact form at apluslandscaping.com/contact/.
+These offerings were developed and are sustained locally -- not directed by a corporate parent evaluating return on investment across a national portfolio. Mueller Memorial also serves families in White Bear Lake, MN, extending the same model of independent, community-rooted service to that location.
 
-About A Plus LandscapingA Plus Landscaping is a family-owned outdoor living design-build company founded in 2006 by Marcus Waldner. The company serves homeowners across Central Pennsylvania, including Lancaster, Harrisburg, Hershey, Mechanicsburg, Middletown, and Reading. Services include retaining wall installation, paver patios, custom pools, outdoor kitchens, decks, and landscaping.
+The decision to operate with transparent pricing and round-the-clock director availability reflects a practical understanding of what families actually need during one of the most difficult periods of their lives. Those needs do not follow business hours, and the answers families deserve should not have to travel through a corporate chain of command to reach them.
 
-Contact InformationA Plus Landscaping
+About Mueller Memorial Funeral & CremationMueller Memorial Funeral & Cremation is an independent, family-owned funeral home founded in 1946. Located at 835 Johnson Parkway, St. Paul, MN 55106, with an additional location in White Bear Lake, MN, Mueller Memorial serves families with transparent pricing, 24/7 director availability, Grief Compass grief support, and Interra Green Burial options. The funeral home is locally owned and operated, with every dollar reinvested into the communities it serves. Mueller Memorial can be reached at (651) 774-9797.
 
-85 Creamery Rd, Reinholds, PA 17569
+Learn more at Mueller Memorial Funeral & Cremation
 
-Phone: (717) 335-1690
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/L11eTEhkKxKiL0dT4Ip6bWcCwH1dVyM9bD0WWYkU.jpg) [](https://www.muellermemorial.com) Contact Information:
 
-Email: info@apluslandscaping.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/2TTJ46Ha7FBiNffNreRSmYFG665bI99PGIStB6G9.jpg) [](https://apluslandscaping.com) Contact Information:
-
- A Plus Landscaping
+ Mueller Memorial Funeral & Cremation
 
  
 
-85 Creamery Rd Reinholds  Reinholds, Philadelphia 17569United States
+835 Johnson Parkway  St. Paul, MN 55106United States
 
- Joe Esh +1-717-335-1690 https://apluslandscaping.com 
+ Scott Mueller +1-651-774-9797 https://www.muellermemorial.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/freeze-thaw-pressure-drives-retaining-wall-demand-across-central-pa-438863)
+[Original/Source Press Release](https://mediawiretoday.com/mueller-memorial-bought-back-from-sci-in-2014-to-restore-local-ownership-438930)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/central-pa-freeze-thaw-cycles-demand-engineered-retaining-walls/d3e30c669b92dfa90e5d6ec0fb0f282d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/funeral-home-owner-buys-back-business-from-corporate-giant-to-restore-local-accountability/7ed1a49910583e18c3155d963e9e4cb7) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/7ed1a49910583e18c3155d963e9e4cb7)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/8/cornRDnC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/8/numbRy4o.webp)
