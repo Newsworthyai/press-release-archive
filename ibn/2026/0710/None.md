@@ -1,18 +1,24 @@
-# NetworkNewsBreaks – American Fusion Inc. (OTC: AMFN) Featured in NetworkNewsAudio Editorial on Compact Fusion Technology
+# Greenland Energy Company (NASDAQ: GLND) Gains Relevance as Energy-Security Concerns Intensify
 
-American Fusion (OTC: AMFN) is featured in a NetworkNewsAudio audio press release highlighting the potential role of compact fusion technology in strengthening U.S. energy resilience and reducing dependence on vulnerable fuel supply chains. The editorial discusses how evolving defense priorities are driving interest in alternative energy solutions capable of supporting military and civilian applications.
+* The renewed focus on energy security stems from ongoing concerns surrounding the Strait of Hormuz, one of the world’s most important energy transportation corridors.
+* For companies such as Greenland Energy Company that are pursuing new exploration opportunities outside traditional producing regions, these developments can strengthen the investment case for frontier projects.
+* The company’s upcoming drilling program in the Jameson Land Basin represents the first modern effort to fully test portions of the basin using contemporary exploration techniques.
 
- The audio presentation also highlights American Fusion’s Texatron(TM) Fusion Engine(TM), which is being developed as a modular, transportable distributed power platform aligned with growing demand for resilient energy technologies.
+ In reaction to the ongoing conflict within the Middle East, the global energy market has once again been reminded how quickly geopolitical events can disrupt oil supplies and drive volatility across economies. Discussions surrounding the Strait of Hormuz and the strategic importance of new oil-producing regions have highlighted the need for diversified energy sources, creating a potentially favorable backdrop for Greenland Energy (NASDAQ: GLND), which is advancing exploration activities in Greenland’s Jameson Land Basin and seeking to unlock a significant frontier oil resource.
 
- To view the full press release, visit https://nnw.fm/qpWtN
+ The renewed focus on energy security stems from ongoing concerns surrounding the Strait of Hormuz, one of the world’s most important energy transportation corridors. Roughly one-fifth of global petroleum liquids consumption moves through the narrow waterway connecting the Persian Gulf to…
 
- About American Fusion Inc.
+ Read More>>
 
- American Fusion Inc. (OTC: AMFN) is an advanced energy platform company focused on the development and commercialization of next-generation fusion energy technologies. The Company is advancing the Texatron(TM) Fusion Engine(TM), a neutronic fusion platform, designed for modular, infrastructure-grade deployment across industrial, commercial, and grid-constrained applications.
+ NOTE TO INVESTORS: The latest news and updates relating to GLND are available in the company’s newsroom at https://nnw.fm/GLND
 
- The Company’s development strategy emphasizes system-level engineering, disciplined intellectual property protection, and scalable architectures intended to support long-term commercial operation, while maintaining a focus on capital discipline and transparent corporate governance.
+ Forward-Looking Statements
 
- NOTE TO INVESTORS: The latest news and updates relating to AMFN are available in the company’s newsroom at https://nnw.fm/AMFN
+ This communication contains “forward-looking statements” within the meaning of the “safe harbor” provisions of the United States Private Securities Litigation Reform Act of 1995 and within the meaning of Section 27A of the Securities Act of 1933, as amended (the “Securities Act”), and Section 21E of the Securities Exchange Act of 1934, as amended. All statements contained herein other than statements of present or historical fact, including, without limitation, statements regarding Greenland Energy Company’s (the “Company”) future financial performance, business strategy, operations, financial position, estimated revenues and losses, projected costs, prospects, plans, objectives of management, and expected benefits of the Company’s recent business combination, are forward-looking statements. Forward-looking statements are generally identified by the use of words such as “believe,” “may,” “will,” “estimate,” “continue,” “anticipate,” “intend,” “expect,” “should,” “would,” “plan,” “project,” “forecast,” “potential,” “predict,” or the negative of these terms or similar expressions, although not all forward-looking statements contain such identifying words.
+
+ These forward-looking statements are based on management’s current expectations, assumptions and beliefs regarding future events and are based on information currently available to the Company. These statements involve a number of risks and uncertainties, many of which are difficult to predict and are beyond the Company’s control, and actual results may differ materially from those expressed or implied by these forward-looking statements. Factors that could cause actual results to differ materially include, among others: (i) Exploration and Geological Risks, including the Company’s status as a development-stage company with no operating history, revenues, or proved reserves; the inherent uncertainty in prospective resource estimates, including that the 13 billion barrel estimate is based on undiscovered accumulations with no certainty of discovery or commercial viability; geological complexity arising from limited seismic data coverage, pervasive igneous intrusions, faulting patterns, and significant Tertiary uplift creating thermal maturity uncertainty; the fact that the basin has never produced a commercial discovery despite decades of study dating back to the 1970s, and a 2008 USGS report stating less than a 10% chance of containing a technically recoverable hydrocarbon accumulation; and high-cost frontier exploration with estimated well costs of $40 million for the first well and $20 million for subsequent wells; (ii) Operational and Environmental Risks, including the challenges of operating in a remote Arctic location with extreme climate, harsh weather, limited daylight, no existing infrastructure, and seasonal access windows for equipment and personnel; drilling hazards such as blowouts, equipment failures, well control events, environmental releases, and accidents inherent in oil and gas operations; reliance on third-party contractors; and climate change scrutiny, as operations in Greenland face increasing opposition from environmental groups and institutional investors due to Arctic drilling concerns; (iii) Regulatory and Political Risks, including the 2021 Greenland drilling moratorium, and while licenses are grandfathered, future regulatory changes could jeopardize operations; geopolitical tensions, including U.S. interest in acquiring Greenland and Greenland’s internal independence movements that could affect operations; permit requirements, as drilling requires Environmental Impact Assessment approval and Field Activities Application approval from Greenlandic authorities; and forfeiture risk, as failure to meet drilling milestones could result in loss of the Company’s right to earn working interests; (iv) Financial and Capital Risks, including significant capital requirements and the need for substantial funding beyond current resources to complete the drilling program; commodity price volatility, as oil, gas, and NGL prices are highly volatile and will heavily influence project viability; a long development timeline during which market conditions may change significantly before potential production, unlike short-cycle shale projects; going concern uncertainty and substantial doubt about the Company’s ability to continue as a going concern without additional financing; and energy transition risk, as global demand for oil may decline due to electric vehicle adoption, renewable energy policies, and changing consumer preferences; and other risks and uncertainties as set forth in the Company’s Prospectus filed with the Securities and Exchange Commission pursuant to Rule 424(b)(4) under the Securities Act on April 29, 2026, in the section titled “Risk Factors”.
+
+ Forward-looking statements speak only as of the date they are made. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by applicable law.
 
  About NetworkNewsWire
 
@@ -30,19 +36,17 @@ American Fusion (OTC: AMFN) is featured in a NetworkNewsAudio audio press releas
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-american-fusion-inc-otc-amfn-featured-in-networknewsaudio-editorial-on-compact-fusion-technology/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/greenland-energy-company-nasdaq-glnd-gains-relevance-as-energy-security-concerns-intensify/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-s-compact-tech-bolsters-u-s-energy-resilience/188a320bf1d975af5b4ef4aa8a6dd8fb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-gains-relevance-amid-strait-of-hormuz-tensions/e4d81b5b5d598ea2d5fe643cc9e7f315) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/networknewsbreaks-american-fusion-inc-otc-amfn-featured-in-networknewsaudio-editorial-on-compact-fusion-technology)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/networknewsbreaks-american-fusion-inc-otc-amfn-featured-in-networknewsaudio-editorial-on-compact-fusion-technology)
+Pickup - [https://advos.io/en](https://advos.io/en/greenland-energy-gains-relevance-as-global-energy-security-concerns-intensify)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/10/blurJdLT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/10/kiwiNG8i.webp)
