@@ -1,88 +1,58 @@
-# Reztart Highlights Why Metabolic Health Is Becoming a Business Priority
+# Curry and Dvorak Decode Trump's Iran Reversal, NATO Feud and 'Patriot Front' Psy
 
-Reztart, the Swedish metabolic nutrition brand developed by Indevex AB, is highlighting the growing connection between metabolic health, workplace performance, consumer wellness, and rising healthcare costs as the company continues expanding its presence in the United States.
+Episode 1884 of the No Agenda Show, titled "Code Brown," published July 9, 2026, finds hosts Adam Curry and John C. Dvorak broadcasting from the Southern District of Amsterdam and Northern Silicon Valley for another media deconstruction of a chaotic news cycle. The episode dissects President Trump's declaration that the Iran ceasefire is over, a combative NATO summit in Ankara, and a viral Washington, D.C. march by the so-called Patriot Front that the hosts suspect is a psyop. It is classic No Agenda territory: naming what the mainstream press leaves on the cutting room floor.
 
- As employers and individuals look for practical ways to support long-term wellness, metabolic health is becoming part of a broader business conversation. Energy fluctuations, food cravings, weight management challenges, and blood sugar imbalance can affect how people feel and function throughout the day, creating greater interest in preventative nutrition strategies that fit into modern lifestyles.
+ Listeners can expect sharp analysis across several threads pulled directly from the week's coverage:
 
- "Metabolic health is no longer only a personal wellness issue," said Daniel KK Hahn, CEO of Indevex AB. "It is becoming a business priority because it affects energy, productivity, healthcare costs, and the way people manage their daily lives."
+ * Trump's escalation with Iran after strikes on the Strait of Hormuz, and Vicky Nuland's surprise reappearance on Jake Tapper's show
+* The NATO summit blowup with Spain, Germany, France, and the UK, plus Secretary General Mark Rutte's charm offensive
+* Mark Carney's proposed Global Defense Bank and Canada's $80 billion Ukraine commitment
+* Maine Senate candidate Graham Platner's Totenkopf tattoo and The Pivot's defense of him
+* Katie Couric's transient global amnesia and rising infertility data from The Lancet
 
- Reztart was developed as a protein- and fiber-rich powder shake built on Indevex's patented NGC (Natural Glycemic Control) ingredient platform. The formulation is designed to support blood sugar balance, satiety, energy stability, and reduced cravings through a nutrition-first approach.
+ The hosts' skepticism of official framing runs through every segment. On CNN's coverage of the Patriot Front marching through the D.C. Metro, Curry notes the network claimed the group carried Confederate flags when the footage clearly showed Stars and Stripes and colonial flags. On Trump's Iran posture, Curry reads the full press conference quote the networks trimmed:
 
- The company's U.S. expansion comes at a time when consumers are increasingly aware of the role that blood sugar and metabolic health play in everyday wellness. While blood sugar has historically been discussed primarily in connection with diabetes, Reztart believes the conversation is broadening to include energy, appetite, healthy aging, weight management, and preventative lifestyle choices.
+ They're liars, they're cheats, they're sick people... As far as I'm concerned, it's over. I'll speak to our negotiators. They want to negotiate. They're good people. Steve Witkoff, Jared Kushner. But they have to come back to me. Curry frames it as textbook good cop, bad cop diplomacy that the press refused to contextualize.
 
- Why Metabolic Health Matters at Work Modern work routines can make consistent nutrition difficult. Long hours, stress, irregular meals, desk-based schedules, and convenient snack choices can all contribute to energy crashes and cravings. For employers, these everyday wellness challenges may influence productivity, absenteeism, healthcare spending, and employee well-being.
+ The episode digs into substance often missed elsewhere. Curry relays firsthand reporting from dinner with Lex Fridman and his Iranian wife Fariba about sentiment inside Tehran, where residents believe Trump is quietly working with them against the IRGC. Dvorak connects Trump's fury at Spain ("Spain is a wasted cause... cut off all trade with Spain") to NATO allies refusing to refuel U.S. carriers during the Iran operation. The pair also examine Canada's proposed defense bank, modeled on the World Bank and to be headquartered in Canada under former Bank of England governor Carney, and question whether Canadian citizens grasp they are footing the bill. A grim segment on Canada's MAID program expanding to infants and mature minors rounds out the hour.
 
- Reztart believes nutrition should be part of the workplace wellness conversation as organizations look for practical tools that employees can incorporate into their daily routines.
-
- "People do not need complicated solutions to begin improving daily habits," Hahn said. "They need convenient nutritional options that support stable energy, fullness, and better control over cravings."
-
- Expanding U.S. Availability As part of its continued U.S. expansion, Reztart products are now available through OneLavi.com, giving American consumers access to the company's science-backed metabolic nutrition platform.
-
- Current offerings include:
-
- * Reztart Chocolate Powder Shake - A rich chocolate-flavored protein and fiber shake designed as a balanced snack option for busy lifestyles.
-* Reztart Vanilla Powder Shake - A smooth vanilla-flavored functional shake formulated to provide convenient nutrition on the go.
-* Reztart Strawberry Powder Shake - A fresh strawberry-flavored shake that combines taste and functionality in a satisfying daily nutrition option.
-
- Each product contains 14 single-serving pouches and is formulated with the patented NGC (Natural Glycemic Control) platform, a proprietary nutrient blend that includes concentrated ingredients derived from apples, rose hips, sugar beet fiber, peas, omega-rich eggs, and whey protein.
-
- The formulations are designed to deliver protein, fiber, and essential nutrients while maintaining a low glycemic load. All three products are gluten-free, nut-free, and manufactured in Sweden.
-
- "Making Reztart available through OneLavi.com represents an important step in our U.S. expansion," Hahn said. "We want to make science-backed metabolic nutrition more accessible as consumers become increasingly focused on everyday wellness and preventative nutrition."
-
- Looking Ahead The rise of metabolic health as a wellness category reflects a larger shift in consumer behavior. More people are seeking ways to act earlier, before small daily health challenges become larger concerns. This shift is also influencing how brands, retailers, employers, and healthcare organizations think about nutrition.
-
- Through its continued U.S. expansion, Reztart aims to make science-backed metabolic nutrition more accessible while contributing to a broader conversation around prevention, energy, and long-term wellness.
-
- About [Reztart®](https://www.reztart.com/en/) Reztart® by Indevex AB, Sweden, is a European science-backed metabolic nutrition brand focused on blood sugar support, energy stability, and sustainable weight management. Built on the patented NGC® (Natural Glycemic Control) platform, Reztart® products are designed to support metabolic function through clinically informed, nutrition-first formulations.
-
- Indevex AB has more than 25 years of experience in metabolic health research, ingredient development, and commercialization. The company’s mission is to provide practical, science-driven tools that help individuals take control of their metabolic health before more intensive interventions become necessary.
-
- For more information, visit https://www.reztart.com/en/
-
- About [Indevex AB](https://indevex.com/) Indevex AB is a Swedish science-driven nutrition company focused on metabolic health and blood sugar support. With more than 20 years of research, the company developed NGC® (Natural Glycemic Control), a patented ingredient platform designed to support glycemic balance, reduce cravings, and promote sustained energy.
-
- Backed by clinical research and developed in collaboration with international experts, Indevex translates metabolic science into practical, nutrition-based solutions. Through its consumer brand Reztart®, the company brings its science directly to market with accessible products designed for everyday metabolic support.
-
- For more information, visit: https://indevex.com/ 
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for its sharp media deconstruction, humor, and value-for-value model, the show offers an irreverent alternative to conventional news analysis. Episode 1884 is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607102610/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+[Original/Source Press Release](https://newsworthy.ai/news/202607102612/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/reztart-expands-u-s-presence-with-metabolic-health-focus/0f82cb171adc916e821f4d33cc742396) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-show-dissects-trump-nato-and-patriot-front-psyop-in-episode-1884/76a255d2273d94c79e816ec8c53ce118) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/reztart-highlights-why-metabolic-health-is-becoming-a-business-priority)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/curry-and-dvorak-decode-trumps-iran-reversal-nato-feud-and-patriot-front-psy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/10/zestV0yt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/10/seekMfk0.webp)
