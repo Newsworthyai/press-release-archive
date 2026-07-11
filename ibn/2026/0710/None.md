@@ -1,24 +1,14 @@
-# Greenland Energy Company (NASDAQ: GLND) Gains Relevance as Energy-Security Concerns Intensify
+# NetworkNewsBreaks – Knightscope, Inc. (NASDAQ: KSCP) Expands Workforce to Support Growing Security Services Operations
 
-* The renewed focus on energy security stems from ongoing concerns surrounding the Strait of Hormuz, one of the world’s most important energy transportation corridors.
-* For companies such as Greenland Energy Company that are pursuing new exploration opportunities outside traditional producing regions, these developments can strengthen the investment case for frontier projects.
-* The company’s upcoming drilling program in the Jameson Land Basin represents the first modern effort to fully test portions of the basin using contemporary exploration techniques.
+Knightscope (NASDAQ: KSCP) announced a significant workforce expansion to support its growing technology-enabled security services operations, adding 136 employees across security, supervisory and operations roles. In connection with the hires, the company’s board approved inducement equity awards consisting of options to purchase an aggregate of 732,644 shares of common stock at an exercise price of $2.04 per share, granted in accordance with Nasdaq Listing Rule 5635(c)(4). The expansion is intended to support Knightscope’s growing base of recurring-revenue deployments as it continues to scale its technology-enabled managed security services platform.
 
- In reaction to the ongoing conflict within the Middle East, the global energy market has once again been reminded how quickly geopolitical events can disrupt oil supplies and drive volatility across economies. Discussions surrounding the Strait of Hormuz and the strategic importance of new oil-producing regions have highlighted the need for diversified energy sources, creating a potentially favorable backdrop for Greenland Energy (NASDAQ: GLND), which is advancing exploration activities in Greenland’s Jameson Land Basin and seeking to unlock a significant frontier oil resource.
+ To view the full press release, visit https://nnw.fm/dciKv
 
- The renewed focus on energy security stems from ongoing concerns surrounding the Strait of Hormuz, one of the world’s most important energy transportation corridors. Roughly one-fifth of global petroleum liquids consumption moves through the narrow waterway connecting the Persian Gulf to…
+ About Knightscope
 
- Read More>>
+ Knightscope, Inc. (NASDAQ: KSCP) is building the nation’s first Autonomous Security Force – a unified force that integrates autonomous machines, advanced software, and licensed armed and unarmed security agents under a single managed service accountable for the security of the people, property, and places we help protect. The Company serves commercial and government clients across the United States. Built in America to Secure America.
 
- NOTE TO INVESTORS: The latest news and updates relating to GLND are available in the company’s newsroom at https://nnw.fm/GLND
-
- Forward-Looking Statements
-
- This communication contains “forward-looking statements” within the meaning of the “safe harbor” provisions of the United States Private Securities Litigation Reform Act of 1995 and within the meaning of Section 27A of the Securities Act of 1933, as amended (the “Securities Act”), and Section 21E of the Securities Exchange Act of 1934, as amended. All statements contained herein other than statements of present or historical fact, including, without limitation, statements regarding Greenland Energy Company’s (the “Company”) future financial performance, business strategy, operations, financial position, estimated revenues and losses, projected costs, prospects, plans, objectives of management, and expected benefits of the Company’s recent business combination, are forward-looking statements. Forward-looking statements are generally identified by the use of words such as “believe,” “may,” “will,” “estimate,” “continue,” “anticipate,” “intend,” “expect,” “should,” “would,” “plan,” “project,” “forecast,” “potential,” “predict,” or the negative of these terms or similar expressions, although not all forward-looking statements contain such identifying words.
-
- These forward-looking statements are based on management’s current expectations, assumptions and beliefs regarding future events and are based on information currently available to the Company. These statements involve a number of risks and uncertainties, many of which are difficult to predict and are beyond the Company’s control, and actual results may differ materially from those expressed or implied by these forward-looking statements. Factors that could cause actual results to differ materially include, among others: (i) Exploration and Geological Risks, including the Company’s status as a development-stage company with no operating history, revenues, or proved reserves; the inherent uncertainty in prospective resource estimates, including that the 13 billion barrel estimate is based on undiscovered accumulations with no certainty of discovery or commercial viability; geological complexity arising from limited seismic data coverage, pervasive igneous intrusions, faulting patterns, and significant Tertiary uplift creating thermal maturity uncertainty; the fact that the basin has never produced a commercial discovery despite decades of study dating back to the 1970s, and a 2008 USGS report stating less than a 10% chance of containing a technically recoverable hydrocarbon accumulation; and high-cost frontier exploration with estimated well costs of $40 million for the first well and $20 million for subsequent wells; (ii) Operational and Environmental Risks, including the challenges of operating in a remote Arctic location with extreme climate, harsh weather, limited daylight, no existing infrastructure, and seasonal access windows for equipment and personnel; drilling hazards such as blowouts, equipment failures, well control events, environmental releases, and accidents inherent in oil and gas operations; reliance on third-party contractors; and climate change scrutiny, as operations in Greenland face increasing opposition from environmental groups and institutional investors due to Arctic drilling concerns; (iii) Regulatory and Political Risks, including the 2021 Greenland drilling moratorium, and while licenses are grandfathered, future regulatory changes could jeopardize operations; geopolitical tensions, including U.S. interest in acquiring Greenland and Greenland’s internal independence movements that could affect operations; permit requirements, as drilling requires Environmental Impact Assessment approval and Field Activities Application approval from Greenlandic authorities; and forfeiture risk, as failure to meet drilling milestones could result in loss of the Company’s right to earn working interests; (iv) Financial and Capital Risks, including significant capital requirements and the need for substantial funding beyond current resources to complete the drilling program; commodity price volatility, as oil, gas, and NGL prices are highly volatile and will heavily influence project viability; a long development timeline during which market conditions may change significantly before potential production, unlike short-cycle shale projects; going concern uncertainty and substantial doubt about the Company’s ability to continue as a going concern without additional financing; and energy transition risk, as global demand for oil may decline due to electric vehicle adoption, renewable energy policies, and changing consumer preferences; and other risks and uncertainties as set forth in the Company’s Prospectus filed with the Securities and Exchange Commission pursuant to Rule 424(b)(4) under the Securities Act on April 29, 2026, in the section titled “Risk Factors”.
-
- Forward-looking statements speak only as of the date they are made. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by applicable law.
+ NOTE TO INVESTORS: The latest news and updates relating to KSCP are available in the company’s newsroom at https://nnw.fm/KSCP
 
  About NetworkNewsWire
 
@@ -36,17 +26,59 @@
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/greenland-energy-company-nasdaq-glnd-gains-relevance-as-energy-security-concerns-intensify/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-gains-relevance-amid-strait-of-hormuz-tensions/e4d81b5b5d598ea2d5fe643cc9e7f315) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/knightscope-hires-136-to-scale-autonomous-security-force/3a1e6d425c884941428ec21ab8b6ff17) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/greenland-energy-gains-relevance-as-global-energy-security-concerns-intensify)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2075686642438783394)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://advos.io/en](https://advos.io/en/knightscope-expands-workforce-by-136-employees-to-support-growing-security-services-operations)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/knightscope-expands-workforce-by-136-employees-to-support-growing-security-services-operations)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/knightscope-expands-workforce-by-136-employees-to-support-growing-security-services-operations)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/knightscope-expands-workforce-by-136-employees-to-support-growing-security-services-operations)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/knightscope-amplia-su-plantilla-en-136-empleados-para-respaldar-la-creciente-operacion-de-servicios-de-seguridad)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/knightscope-expands-workforce-by-136-employees-to-scale-security-services-operations)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/networknewsbreaks-knightscope-inc-nasdaq-kscp-expands-workforce-to-support-growing-security-services-operations)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3a1e6d425c884941428ec21ab8b6ff17)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/3a1e6d425c884941428ec21ab8b6ff17)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/10/kiwiNG8i.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/10/boss4OML.webp)
