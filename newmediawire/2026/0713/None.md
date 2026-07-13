@@ -1,40 +1,38 @@
-# Pride Holdings Group Approaches $100 Million in Assets for 2026, Marking a Transformational Growth Milestone
+# VERAXA Biotech (VRXA) Partners With Ardigen to Advance AI-Driven Cancer Drug Development
 
-ORLANDO, FL - July 13, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE) today announced that the Company is approaching $100 million in total assets for 2026 through the continued execution of its strategic growth initiatives, disciplined acquisition strategy, and expansion across multiple revenue- generating sectors.
+LOS ANGELES, CA - July 13, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) announced a collaboration with AI-driven bioinformatics company Ardigen S.A. to support development of its BiTAC(R) pipeline of T-cell engagers and future antibody-drug conjugates. The partnership will initially focus on developing AI-enabled tools to identify and prioritize synergistic dual-target combinations for VERAXA’s BiTAC platform, which is designed to improve tumor targeting while reducing off-target toxicity.
 
- Management believes this milestone reflects the significant progress being made to build a diversified company with a strong asset foundation designed to create long-term shareholder value.
+ VERAXA said integrating artificial intelligence into its research and development strategy could enhance target selection by analyzing large preclinical and clinical datasets, including programs that demonstrated efficacy but failed because of toxicity. The company believes the collaboration will strengthen development of precision oncology therapies and improve long-term drug development success rates.
 
- "Our objective has always been to build a company backed by meaningful assets rather than speculation," said management. "Approaching the $100 million asset milestone represents another important step in our long-term strategy. We remain focused on identifying high-quality opportunities that strengthen our balance sheet, generate sustainable revenue, and position Pride Holdings Group for continued growth."
+ To view the full press release, visit https://ibn.fm/GLFg2
 
- The Company continues to evaluate additional strategic acquisitions and partnerships that complement its long-term vision while maintaining a disciplined approach to capital allocation. Management expects to provide shareholders with additional updates as transactions are completed and integrated.
+ About VERAXA Biotech AG
 
- As Pride Holdings Group advances toward this milestone, the Company remains committed to transparency, operational execution, and building a stronger enterprise capable of delivering sustainable value for shareholders.
+ At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
 
- About Pride Holdings Group
+ BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
 
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Forward-Looking Statements
+ The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
 
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
+ Forward Looking Statements
 
- Media Relationspress@prideholdingsgroup.com 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-approaches-100-million-in-assets-for-2026-marking-a-transformational-growth-milestone-7087666)
+[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-partners-with-ardigen-to-advance-ai-driven-cancer-drug-development-7087678)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-group-nears-100-million-asset-milestone/5f1a14544076a4a504bbcf65061e6d54) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-partners-with-ardigen-to-advance-ai-driven-cancer-drug-development/4c16e089538de8c56d420f13bb75f956) 
 
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/5f1a14544076a4a504bbcf65061e6d54)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/5f1a14544076a4a504bbcf65061e6d54)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/13/quay57ME.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/13/noraK4HA.webp)
