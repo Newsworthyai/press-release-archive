@@ -1,63 +1,86 @@
-# Four Small Businesses to Compete in Finals of Verizon’s Small Business Super Pitch
+# Meet the Gizmo Watch 4: Verizon’s New Kid-Friendly Smartwatch
 
-NEW YORK, NY – July 13, 2026 – (NOTICIAS NEWSWIRE) – On Friday, July 17, 2026, days before the world’s top two soccer teams battle for the FIFA World Cup 2026™, a different kind of high-stakes championship is taking place just minutes away. Four American small businesses will gather at the Antique Loft in Hoboken, NJ to go head-to-head in Verizon’s Small Business Super Pitch competition, an event which highlights the incredible grit, impact, and vital role everyday entrepreneurs play in communities nationwide.
+NEW YORK, NY — July 13, 2026 — (NOTICIAS NEWSWIRE) — Verizon today announced the launch of the new Gizmo Watch 4, expanding the Verizon Family ecosystem. Designed to give parents and guardians peace of mind, the newest kid-friendly smartwatch introduces next-level safety features, like Watch Removal Detection alerts, real-time location insights, and real-time severe weather notifications (coming soon) to keep families connected and protected. Starting today, customers can get the Gizmo Watch 4 for free with a new line, avoid activation fees with Verizon Loyalty and unlock exclusive rewards through Verizon Shine.
 
- The Verizon Small Business Super Pitch is a nationwide pitch competition designed to discover some of America’s most promising small businesses. After being selected from a submission pool of more than 500 competitors and winning one of four regional rounds across the country, the finalists will now take the stage to deliver a compelling pitch on their business.
+ The Gizmo Watch 4 was designed with real parents in mind to build trust and ease everyday worries. It acts like an invisible safety net, giving kids the freedom they crave at an incredible value without putting them in front of social media apps or unfiltered web browsers.
 
- The four finalists in the Verizon Small Business Super Pitch are:
+ Gizmo Watch 4: Key Features
 
- * The Balm Box (Overland Park, KS) – Founded by six-time cancer survivor Liz Benditt, The Balm Box ships research-backed care packages specifically designed for cancer patients navigating surgery, chemotherapy, and radiation.
-* House of Perna (Delray Beach, FL) – A fashion house, founded by fashion designer, Amanda Perna, dedicated to designing small-batch clothing with bold prints and sustainable practices that allows women to feel completely themselves.
-* TWB Tours (Seattle, WA) – A Pacific Northwest tour company, founded by Marlie and Anthony Love, that offers guests an inside look at local culture, history, and community-centered small businesses.
-* Renewed Focus (New York, NY) – Led by Melissa Robinson-Brown, Renewed Focus is a therapy practice with a focus on providing care to women and allowing them to unleash their authentic selves and navigate life’s roller coaster.
+ * Safety: Peace of mind with real-time location insights, custom safe zones, watch removal alerts and a distraction-free school mode feature. Guardians can add up to 40 trusted contacts to block strangers.
+* Durability & performance: Features a new water-resistant design with a 1.6-inch scratch-resistant glass screen. Powered by a faster processor and a battery that lasts up to 3 days, it supports high-quality video calling on Verizon’s reliable network.
+* Ecosystem integration: Links seamlessly with the Verizon Family app for centralized management of the watch and its safety and wellness features. It even includes fun tools like step counters, to-do lists and kid-friendly educational tools.
 
- “Big cultural events like the FIFA World Cup 2026™ offer unparalleled opportunities for small businesses to gain widespread visibility and thrive. Verizon is proud to support these essential community anchors through Verizon Small Business Digital Ready, which provides free resources—including online courses, coaching, funding, and networking—to help entrepreneurs succeed. We are deeply honored to play a role in the journeys of the dynamic businesses that have made it to the Super Pitch finals,” said Donna Epps, Chief Responsible Business Officer for Verizon.
+ Gizmo Watch 4 can be managed directly in the Verizon Family app, so parents can easily track the watch location, manage trusted contacts and set safe zones in one convenient dashboard, making it easy to keep tabs on what matters most.
 
- In the initial phase of the competition, business owners posted videos to social media highlighting how they had used the resources on Verizon Small Business Digital Ready to learn how to more effectively pitch their business. Of those, 20 were selected to compete in the semifinal events in FIFA World Cup 2026™ host cities. Now, the final four will deliver a pitch to a panel of expert judges, including two-time FIFA Women’s World Cup™ champion Carli Lloyd, for a chance to win cash prizes. All four finalists will receive two tickets to the FIFA World Cup 2026™ Final.
+ Big savings, epic experiences and merchandise drops for the whole family
 
- “Succeeding as a small business is like soccer. It takes daily hard work and the right coaching. I’m proud to see a company like Verizon champion small businesses by providing year-round access to its Digital Ready platform,” said Lloyd. “Whether it is a youth soccer clinic, or the local coffee shop, it’s the small businesses that keep our communities running. And through this experience with Verizon, it’s been a joy to meet some of these amazing entrepreneurs.”
+ Verizon is making it more affordable and more rewarding to keep the entire household connected. By enrolling in the new Verizon loyalty program using the My Verizon app, standard Gizmo Watch activation and device upgrade fees are a thing of the past.
 
- In addition to the cash prizes and tickets, all finalists will receive expert mentorship in using artificial intelligence in their business as Verizon works to position small businesses to succeed in today’s rapidly evolving digital world.
+ And with Verizon Shine, Verizon customers have a reason to look forward to Monday, all year round. All Verizon customers on any plan can enter weekly for a chance to win once-in-a-lifetime experiences, alongside daily drops including tickets to concerts and sporting events, exclusive merchandise, dining vouchers, gift cards and more.
 
- Creating a homefield advantage
+ Pricing, availability and special promotions
 
- Verizon’s investment in small business community development extends beyond the competition and prizes. Verizon Small Business Digital Ready is a free resource available to all small businesses in the U.S. regardless of whether they are Verizon customers. The program has already helped over 600,000 business owners since its launch in 2020, with a goal to support 1 million small businesses by 2030.
+ Just in time for the busy back-to-school season, Verizon is offering a special promotion from July 9 through September 3, 2026: New and existing customers can get a free Gizmo Watch 4 when purchasing the device on a 36-month payment plan with a new watch line ($10 a month plus taxes and fees). The value is given as $180 promotional credits, applied over 36 months.
 
- All participants in the Super Pitch have received expert guidance on how to pitch their businesses from Precious Williams, Founder and CEO of the Perfect Pitch Group, successful “Shark Tank” participant, and Verizon Small Business Digital Ready instructor. Williams has also hosted versions of her Digital Ready pitch workshops for local small businesses at each of the semifinal events.
-
- To RSVP for the event on July 17, visit https://events.bizzabo.com/SettingthePitch.
-
- For more information on the competition and to register for Small Business Digital Ready, visit https://www.verizon.com/about/responsibility/digital-inclusion/small-business-program.
+ Order your Gizmo Watch 4 today in two kid-focused colors: Dusk Blue and Pistachio Pin at verizon.com or inside the My Verizon App. And, visit Parenting in a Digital World for more information to help you keep your kids safe.
 
  This announcement was originally published by Verizon. Read the original press release.
 
- About Verizon Communications Inc.  Verizon Communications Inc. (NYSE, Nasdaq: VZ) powers and empowers how its millions of customers live, work and play, delivering on their demand for mobility, reliable network connectivity and security. Headquartered in New York City, serving countries worldwide and nearly all of the Fortune 500, Verizon generated revenues of $138.2 billion in 2025. Verizon’s world-class team never stops innovating to meet customers where they are today and equip them for the needs of tomorrow. For more, visit verizon.com or find a retail location at verizon.com/stores.
+ About Verizon Communications Inc.  Verizon Communications Inc. (NYSE, Nasdaq: VZ) powers and empowers how its millions of customers live, work and play, delivering on their demand for mobility, reliable network connectivity and security. Headquartered in New York City, serving countries worldwide and nearly all of the Fortune 500, Verizon generated revenues of $138.2 billion in 2025. Verizon’s world-class team never stops innovating to meet customers where they are today and equip them for the needs of tomorrow. For more, visit verizon.com or find a retail location at verizon.com/stores
 
  VERIZON’S ONLINE MEDIA CENTER: News releases, stories, media contacts and other resources are available at verizon.com/news. News releases are also available through an RSS feed. To subscribe, visit www.verizon.com/about/rss-feeds/.
 
- CONTACT: Jared Dashoff jared.dashoff@verizon.com 
+ CONTACT: Herbert Nyarko herbert.aidoo-nyarko@verizon.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/verizons-small-business-super-pitch/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/verizons-new-kid-friendly-smartwatch/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/verizon-super-pitch-small-businesses-vie-for-world-cup-glory/263a01c89d466003d541bb9dacb93f3a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verizon-launches-gizmo-watch-4-with-advanced-safety-features/f412eb372bf6c3883b4716c254d49ee2) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/four-small-businesses-to-compete-in-verizons-small-business-super-pitch-finals-ahead-of-world-cup)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/verizon-launches-gizmo-watch-4-a-kid-friendly-smartwatch-with-enhanced-safety-features)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/four-small-businesses-to-compete-in-verizons-small-business-super-pitch-finals-ahead-of-fifa-world-cup-2026)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/verizon-launches-gizmo-watch-4-with-advanced-safety-features-for-kids)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/four-small-businesses-to-compete-in-verizons-small-business-super-pitch-finals)
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/cuatro-pequenas-empresas-competiran-en-la-final-del-super-pitch-de-verizon-para-pequenas-empresas)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/four-small-businesses-to-compete-in-finals-of-verizons-small-business-super-pitch)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/verizon-lanza-gizmo-watch-4-con-funciones-de-seguridad-mejoradas-para-ninos)
+
+Pickup - [https://burstable.news](https://burstable.news/news/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/verizon-bringt-gizmo-watch-4-mit-erweiterten-sicherheitsfunktionen-fur-kinder-auf-den-markt)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/verizon-lanza-gizmo-watch-4-con-funciones-de-seguridad-mejoradas-para-ninos)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f412eb372bf6c3883b4716c254d49ee2)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/verizon-lance-la-gizmo-watch-4-avec-des-fonctions-de-securite-renforcees-pour-les-enfants)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/verizon-lanca-gizmo-watch-4-com-recursos-de-seguranca-aprimorados-para-criancas)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/verizon-launches-gizmo-watch-4-with-advanced-safety-features-for-kids)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/verizon-launches-gizmo-watch-4-with-advanced-safety-features-for-kids)
+
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/verizon-launches-gizmo-watch-4-with-enhanced-safety-features-for-kids)
+
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/verizon-launches-gizmo-watch-4-with-advanced-safety-features-for-kids)
+
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/verizon-launches-gizmo-watch-4-to-enhance-kid-safety-and-family-connectivity)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/f412eb372bf6c3883b4716c254d49ee2)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/13/meanMzsw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/13/icyNgyU.webp)

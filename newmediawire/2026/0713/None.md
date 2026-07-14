@@ -1,38 +1,68 @@
-# VERAXA Biotech (VRXA) Partners With Ardigen to Advance AI-Driven Cancer Drug Development
+# Centiel Secures First Order in the U.S. Market Worth USD 8.7 Million Under the Neo Critical Power Framework Agreement
 
-LOS ANGELES, CA - July 13, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) announced a collaboration with AI-driven bioinformatics company Ardigen S.A. to support development of its BiTAC(R) pipeline of T-cell engagers and future antibody-drug conjugates. The partnership will initially focus on developing AI-enabled tools to identify and prioritize synergistic dual-target combinations for VERAXA’s BiTAC platform, which is designed to improve tumor targeting while reducing off-target toxicity.
+LUGANO, SWITZERLAND - July 13, 2026 (NEWMEDIAWIRE) - Centiel SA, a leading provider of uninterruptible power supply equipment (UPS), has received its first order under the strategic distribution agreement with Neo Critical Power LLC, Wyoming, announced in June 2026. The order has a value of USD 8.7 million and covers the delivery of a UPS system for a data center project in the United States.
 
- VERAXA said integrating artificial intelligence into its research and development strategy could enhance target selection by analyzing large preclinical and clinical datasets, including programs that demonstrated efficacy but failed because of toxicity. The company believes the collaboration will strengthen development of precision oncology therapies and improve long-term drug development success rates.
+This is the first project under the framework agreement and confirms that the partnership with Neo Critical Power is already delivering substantial results shortly after its formation. Delivery of the system is planned within the current financial year and will contribute to the U.S.-related revenue expectations communicated for 2026.
 
- To view the full press release, visit https://ibn.fm/GLFg2
+ Gerardo Lecuona, CEO of Centiel, commented: "This first order demonstrates that our partnership with Neo Critical Power is already bearing fruit and that we are well on track with our international growth strategy and our path into the U.S. market."
 
- About VERAXA Biotech AG
+ Investors & Media ContactAlexandre MullerTel: +41 43 268 32 31ir@hq.centiel.commedia@hq.centiel.com
 
- At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
+Contact: Centiel Global HQ, Via alla Stampa 15, 6965 Cadro, Lugano, Switzerland, +41 91 210 36 83, ir@hq.centiel.com
 
- BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
+About Centiel SACentiel is a Switzerland-based technology company that develops, manufactures, and supplies power protection solutions for critical infrastructure. Its product portfolio includes uninterruptible power supply (UPS) systems designed to support operational continuity and energy efficiency. The company builds on engineering expertise in transformer-less and modular UPS technologies. Centiel operates through a network of subsidiaries and channel partners to serve customers in various international markets. Centiel (CNTL) is listed on the SIX Swiss Exchange. For further information, please visit: www.centiel.com.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ 
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ 
 
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-partners-with-ardigen-to-advance-ai-driven-cancer-drug-development-7087678)
+[Original/Source Press Release](https://www.newmediawire.com/news/centiel-secures-first-order-in-the-u-s-market-worth-usd-8-7-million-under-the-neo-critical-power-framework-agreement-7087684)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-partners-with-ardigen-to-advance-ai-driven-cancer-drug-development/4c16e089538de8c56d420f13bb75f956) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centiel-lands-8-7m-ups-order-in-u-s-with-neo-critical-power/5fdd3b5b4c53f827733a1ceba0c58b1d) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/centiel-secures-87-million-ups-order-in-us-validating-neo-critical-power-partnership)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/centiel-secures-first-usd-87-million-order-in-us-under-neo-critical-power-agreement)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/centiel-receives-first-us-order-worth-87-million-under-neo-critical-power-partnership)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/centiel-secures-87-million-order-for-ups-system-in-us-data-center-project)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/centiel-consigue-un-pedido-de-87-millones-de-dolares-para-un-sistema-ups-en-un-proyecto-de-centro-de-datos-en-ee-uu)
+
+Pickup - [https://burstable.news](https://burstable.news/news/centiel-secures-87-million-order-in-us-under-neo-critical-power-agreement)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/centiel-sichert-sich-87-millionen-dollar-auftrag-in-den-usa-im-rahmen-der-neo-critical-power-vereinbarung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/centiel-consigue-un-pedido-de-87-millones-de-dolares-en-ee-uu-bajo-el-acuerdo-con-neo-critical-power)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/5fdd3b5b4c53f827733a1ceba0c58b1d)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/centiel-decroche-une-commande-de-87-millions-de-dollars-aux-etats-unis-dans-le-cadre-dun-accord-avec-neo-critical-power)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/centiel-conquista-pedido-de-us-87-milhoes-nos-eua-sob-acordo-com-neo-critical-power)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/centiel-secures-first-us-order-worth-usd-87-million-under-neo-critical-power-agreement)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/centiel-secures-87-million-ups-order-in-us-market-under-neo-critical-power-agreement)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/centiel-secures-first-usd-87-million-order-in-us-under-neo-critical-power-partnership)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/centiel-secures-87-million-ups-order-in-us-under-neo-critical-power-agreement)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/5fdd3b5b4c53f827733a1ceba0c58b1d)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/13/noraK4HA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/13/harpfvcE.webp)
