@@ -1,56 +1,80 @@
-# HITN’s Brooklyn Rooftop Emerges as Premier International Broadcast Hub During FIFA World Cup™ 2026
+# Visory Health Wins a Digital Health Award for Second Consecutive Year
 
-NEW YORK, NY — July 14, 2026 — (NOTICIAS NEWSWIRE) — As the FIFA World Cup 2026™ enters its final phase, HITN MEDIA, the nation’s leading Spanish-language public television network serving Hispanic audiences, is celebrating the successful transformation of its iconic Brooklyn Navy Yard rooftop into the New York broadcast headquarters for New World TV‘s summer soccer coverage.
+ESTERO, FL — July 14, 2026 — (NOTICIAS NEWSWIRE) — Visory Health, one of the most used prescription discount cards, has won bronze in the 2026 Digital Health Awards for its mobile app. The award recognizes the platform in the Mobile Digital Health Resources, Mobile Application category, putting real-time prescription pricing and instant savings directly in consumers’ hands, wherever they are.
 
- PGS Group of France, a leading international media services company specializing in broadcast operations and content distribution, is managing the production, which has transformed HITN’s waterfront studios into a world-class international broadcast center delivering FIFA World Cup 2026™ coverage to more than 90 million viewers across Sub-Saharan Africa.
+ “Earning recognition at the Digital Health Awards confirms that we’re building platforms people actually reach for when they need them,” said Alexandra Robertson, Chief Growth Officer at Visory Health. “Too many people walk away from the pharmacy counter without their medication because of price, and over the last four years, we’ve worked to change that. Our customers live from their phones, and prescription savings should live there too. Being honored two years in a row tells us it’s working.”
 
- After evaluating multiple New York City locations, New World TV, a Pan-African broadcaster transmitting the tournament across the continent, selected HITN‘s 23,000-square-foot rooftop terrace for its unparalleled Manhattan skyline views and the technical infrastructure required to support a complex, large-scale live broadcast operation.
+ “We designed the Visory Health app around a simple idea that getting an affordable prescription should take a few taps, not a series of hoops,” said Brittney Tierce, Chief Technology Officer at Visory Health. “This award reflects the work our team has put into a fast, intuitive mobile experience that delivers real-time pricing and lets consumers carry their savings card right in their digital wallet.”
 
- Over the past several weeks, approximately 40 international broadcast professionals have operated from Brooklyn, producing live programming from infrastructure that houses presentation studios, production offices, and a technical operation hub, supported by HITN Media’s state-of-the-art facilities providing connectivity, power distribution, technical production services, and transmission support.
+ The win marks back-to-back recognition at the Digital Health Awards, following Visory Health’s Gold honor in the program’s Web-based Resource/Tool category in 2025. The company’s recent honors also include a 2025 Inc. Best in Business award for Social Good and a place on Fast Company’s 2024 Brands That Matter list.
 
- Project management for HITN Media has been led by Juan Pablo Santos of Wood Creek Road Productions, coordinating the operational, production, vendor, and partner needs required to support the successful execution of the international broadcast hub.
+ Consumers can save up to 80% on their medication costs by downloading the Visory Health app from the App Store or Google Play Store and adding the digital prescription card to Apple Wallet or Google Wallet. For those who do not use a digital wallet, the card is also available for download on the Rx Savings Card page of the Visory Health website.
 
- “As the tournament reaches its conclusion, this project has demonstrated the extraordinary capabilities of HITN Media’s Brooklyn studios as a premier destination for international media production,” said Michael D. Nieves, President and CEO of HITN. “Our facilities combine a distinctive New York setting with the technology, connectivity, and operational expertise required by global broadcasters. We are proud of what our teams and partners have accomplished together, bringing New York’s energy and skyline to millions of viewers around the world during one of the most celebrated sporting events on the planet.”
+ About Visory Health Visory Health is a top-three, patient-first health tech platform transforming how everyone, including Veterans, families, caregivers and underserved individuals, has access to healthcare. Visory Health’s model puts customers’ needs at the core of how it operates. It has saved millions of customers money on prescription medications, creating healthier families and communities. With a network of over 38,000 pharmacy partners nationwide, including Walgreens, Kroger, Publix, Stop & Shop, and more, Visory Health delivers affordable prescription prices nationwide and is free to use. To learn more, visit www.visoryhealth.com.
 
- The rooftop facility offers a unique combination of expansive outdoor production space, unobstructed skyline views, high-capacity fiber connectivity, technical support areas, offices, makeup and green rooms, secure access, and proximity to Manhattan.
-
- “New York City is one of the world’s great stages, and for a tournament of this magnitude we wanted a location that reflected the energy, ambition, and global reach of our coverage,” said Aboubakar Coulibaly, CEO of New World Televisions Group. “HITN Media’s rooftop provided the ideal combination of visual impact and broadcast capabilities, allowing us to deliver a uniquely New York experience to audiences across Africa.”
-
- “This project demonstrates what can be achieved when world-class facilities are combined with international broadcast expertise,” said Michaël Viviani, CEO of PGS Group. “Together with HITN Media and New World Sport, PGS designed, integrated, and delivered a complete international broadcast hub within just a few weeks, managing the technical architecture, production systems, transmission, distribution, staffing, and daily broadcast operations. The result has enabled live FIFA World Cup coverage across Sub-Saharan Africa while showcasing New York as a global broadcast destination.”
-
- “PGS has delivered broadcast and media services worldwide, but few locations offer the combination of iconic visuals and operational readiness found at HITN Media’s Brooklyn campus,” said Michaël Viviani, CEO of PGS Group. “From our first visit, it was clear that HITN Media provided the ideal environment to establish a world-class production center on an accelerated timeline. The success of this operation has validated that decision.”
-
- The successful execution of this international broadcast reinforces HITN Media’s Brooklyn Navy Yard campus as one of New York City’s premier destinations for live television, major sporting events, and large-scale international productions. The World Cup project showcases the campus’ ability to host complex global broadcasts on an accelerated timeline while serving audiences across multiple continents.
-
- About HITN Media HITN Media is the leading Spanish-language media company that offers educational and cultural programming for the whole family. It reaches more than 35 million homes in the United States and Puerto Rico through DIRECTV, DIRECTV NOW, AT&T U-verse, AT&T TV, AT&TTVNow, DISHNetwork, VerizonFiOSTV, ComcastXfinity, CharterSpectrum, Mediacom, CenturyLink Prism, Altice, Liberty Cable and Claro (Puerto Rico). Download the HITN GO app available on Apple, Android, Apple TV, and Roku® with a subscription.
-
- For more information: Corporate Webpage: HITN.org TV Webpage: hitn.tv Linkedin: @HITN Facebook: @HITNtv X: @hitn Instagram: @HITNtv YouTube: @HITNTelevision
-
- About New World Televisions S.A New World Televisions S.A is a pan-African television group headquartered in Lomé, Togo, delivering premium sports content to viewers across French-speaking Africa. Its portfolio includes the world’s most prestigious international sporting events, such as the FIFA World Cup 2026™, the UEFA Champions League, the UEFA Europa League, the UEFA Conference League, LaLiga, and many others, further reinforcing its commitment to providing sports fans with world-class coverage and entertainment.
-
- About PGS Group PGS Group is a France-based international broadcast and media company specializing in the design, integration, and delivery of complex live broadcast operations worldwide. The company provides end-to-end solutions including broadcast consulting, technical integration, host and unilateral production, international transmission, content distribution, media hub operations, and project management for broadcasters, sports rights holders, governments, and major international organizations.
-
- With extensive experience delivering large-scale global events, PGS has successfully managed broadcast operations across Europe, Africa, the Middle East, and North America, supporting some of the world’s most demanding sports, political, and institutional productions.
-
- Lkdn: https://www.linkedin.com/company/pgsonline/
-
- About Wood Creek Road Productions Wood Creek Road Productions is a New York-based production and content company working across film, television, documentaries, live productions, and intellectual property development, with experience supporting international media, sports, and entertainment projects.
-
- Link to images
-
- CONTACT: HITN Fernando Cardenas fcardenas@hitn.org Or PGS mviviani@pgs-online.com 
+ CONTACT: Erica Torres Uproar by Moburst for Visory Health erica.torres@moburst.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/hitns-brooklyn-rooftop-emerges/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/visory-health-wins-a-digital-health-award/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hitns-rooftop-becomes-world-cup-broadcast-hub-for-africa/57f4e847effbe76f2acf4251c1886b7f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/visory-health-app-wins-bronze-at-2026-digital-health-awards/de1dcd17a7066cc9e7c523e6ef88a6e6) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2077075929210245531)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year-expanding-prescription-savings-access)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/visory-health-gana-el-premio-digital-health-award-por-segundo-ano-consecutivo-ampliando-el-acceso-a-descuentos-en-recetas)
+
+Pickup - [https://burstable.news](https://burstable.news/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/visory-health-gewinnt-digital-health-award-zum-zweiten-mal-in-folge)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/visory-health-gana-el-premio-de-salud-digital-por-segundo-ano-consecutivo)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/visory-health-remporte-le-prix-digital-health-award-pour-la-deuxieme-annee-consecutive)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/visory-health-vence-premio-de-saude-digital-pelo-segundo-ano-consecutivo)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year-underscoring-impact-of-mobile-prescription-savings)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/visory-health-wins-digital-health-award-for-second-consecutive-year)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/visory-health-wins-digital-health-award-for-second-consecutive-y/202635356)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/14/paveIxqf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/14/airyRdaQ.webp)
