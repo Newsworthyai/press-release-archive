@@ -1,92 +1,90 @@
-# SBI Global Asset Management and DigiFT Launch JX, Bringing a Japanese Asset Manager’s Equity Strategy On-Chain for the First Time
+# Fitch Ratings assigns first-time credit rating to HDBank, recognises its strong financial profile
 
-SINGAPORE - [Media OutReach Newswire](https://www.media-outreach.com/) - 15 July 2026 - DigiFT, a regulated digital asset exchange for institutional-grade real-world assets ("RWAs"), and SBI Global Asset Management Co., Ltd. ("SBI GAM"), a subsidiary of SBI Holdings, Inc., today announced the launch of the SBI Japan High Dividend Equity Strategy Token ("JX token"), a token designed to provide accredited or institutional investors with on-chain access to a Japanese high-dividend equity fund strategy managed by SBI Asset Management Co., Ltd. ("SBI AM") which is a subsidiary of SBI GAM. The launch marks the first time a Japanese asset manager's listed-equity strategy is brought on-chain through DigiFT's regulated tokenization and distribution infrastructure.   The launch comes as investor attention returns to Japanese equities, supported by the Tokyo Stock Exchange's continued push for listed companies to improve capital efficiency and demonstrate greater awareness of share-price performance. It also reflects a broader evolution in tokenization: the value of tokenized RWAs distributed on public blockchains grew from USD 5.9 billion to USD 21.9 billion globally in 2025, moving the category beyond cash-like instruments and into actively managed public-market strategies. DigiFT was an early mover in this shift, launching a tokenized U.S. equity income fund developed with BNY in January 2026. This shift is now extending directly into Japan's own institutional market, where SBI Group has been among the country's most active builders of on-chain financial infrastructure.   DigiFT holds Capital Markets Services and Recognised Market Operator licences from MAS, as well as Type 1 and Type 4 licences from the Hong Kong SFC - a dual regulatory standing that has made it a tokenization and distribution partner for global and regional asset managers, including UBS Asset Management, Invesco, BNY and Franklin Templeton. DigiFT's roster now extends into Japan, through SBI GAM's participation, adding a Japanese listed-equity strategy to that lineup for the first time. DigiFT is launching the JX Token on Solana, further expanding the availability of regulated RWAs on-chain, with ecosystem participants including Solana Company, Huma Finance and Plume.   SBI Holdings brings its own substantial on-chain track record to the collaboration. The group reported consolidated revenue of JPY 1.90 trillion for the fiscal year ended 31 March 2026, with its Crypto-asset Business segment generating JPY 89.6 billion in revenue over the same period. SBI Holdings has taken direct stakes across the region's tokenization infrastructure, including leading a $50 million investment in Startale Group to build a blockchain purpose-built for tokenized securities, and holding a majority stake in Osaka Digital Exchange, operator of a secondary market for security tokens in Japan.   JX is structured around the underlying strategy managed by SBI AM. This authorized, manager-referenced model is critical as regulators are increasingly distinguishing tokenized securities developed with issuer or manager alignment from products that provide only indirect economic exposure. In a joint staff statement issued 28 January 2026, the U.S. SEC staff drew a formal line between issuer-sponsored tokenized securities, which can represent true ownership, and third-party products that typically offer only synthetic exposure or custodial entitlements - signalling an intent to encourage the former while curbing the spread of the latter.   Henry Zhang, Founder and Group CEO, DigiFT: "Our mission at DigiFT has always been to bring real, institutional-grade assets on-chain through infrastructure that investors and asset managers can actually trust. JX extends that mission to Japan for the first time, opening regulated, on-chain access to Japanese equities. We're proud to build this with SBI Group, one of Japan's most forward-looking financial institutions, and excited about what this partnership signals for the future of tokenization across the region."  Hashtag: #DigiFTThe issuer is solely responsible for the content of this announcement.
+HO CHI MINH CITY, VIETNAM - [Media OutReach Newswire](https://www.media-outreach.com/) - 15 July 2026 - Fitch Ratings has assigned its first-ever credit ratings to Ho Chi Minh City Development Joint Stock Commercial Bank (HoSE: HDB), placing the lender among the highest-rated Vietnamese banks and recognising its strong financial position, profitability and sustainable growth.    The agency assigned HDBank long-term foreign- and local-currency issuer default ratings (IDRs) of 'BB-' with a "Stable outlook" and a Viability Rating of 'bb-', the highest Viability Rating for Vietnamese banks.   The BB- rating is one notch above the B1 rating previously assigned by Moody's, reflecting HDBank's steady progress in strengthening its financial position and credit quality.   Fitch said the ratings reflect the Bank's strong profitability, stable funding base and growing position in Vietnam's banking sector, while the country's favourable economic outlook is expected to continue supporting banking industry performance.   The agency highlighted HDBank's sustained growth in total assets and lending, alongside its expanding market share in the retail banking and small and medium-sized enterprise segments.   It expects the bank to maintain profitability above the sector average, supported by healthy net interest margins, strong operating efficiency and one of the strongest capital positions among Vietnamese banks.   Fitch also noted that HDBank's shareholder-approved capital raising plans will further strengthen its capital buffers and support medium- and long-term growth, while the newly assigned credit rating is expected to improve the bank's access to global capital markets, diversify funding sources and lower funding costs.   Earlier this year, Moody's upgraded HDBank's outlook from "Stable" to "Positive", citing improvements in financial strength, asset quality and growth prospects.   In the first quarter of 2026, HDBank reported pre-tax profit of VND6.107 trillion (US$232.1 million), up 14% year-on-year.   Its return on equity (ROE) remained among the highest in the banking sector at 24.29%, while its Basel II capital adequacy ratio stood at 16.2%, more than double the regulatory minimum of 8%.   As of March 31, total assets topped VND984.2 trillion (US$37.5 billion), up 5.7% from the end of 2025.   The Bank maintained a loan-to-deposit ratio below 70%, while other key liquidity indicators, including the Liquidity Coverage Ratio (LCR) and Net Stable Funding Ratio (NSFR), all exceeded Basel III minimum requirements.   Hashtag: #HDBank #HDBThe issuer is solely responsible for the content of this announcement.
 
-![](//track.media-outreach.com/index.php/WebView/476009/279561) 
+![](//track.media-outreach.com/index.php/WebView/476192/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/singapore/2026/07/15/476009/)
+[Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/07/15/476192/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/digift-and-sbi-gam-launch-tokenized-japanese-equity-strategy/912456bd3027fab5d628e6074dc3bd45) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fitch-assigns-hdbank-bb-rating-highest-for-vietnamese-banks/85bc2ebd9d5e5be982a92b71ababe2c5) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://advos.io/en](https://advos.io/en/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain-for-first-time)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain-for-first-time)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/sbi-global-asset-management-and-digift-launch-tokenized-japanese-equity-fund-on-solana)
+Pickup - [https://advos.io/en](https://advos.io/en/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-citing-strong-financial-profile)
 
-Pickup - [https://burstable.news](https://burstable.news/news/sbi-global-asset-management-and-digift-launch-first-on-chain-japanese-equity-strategy-token)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/sbi-global-asset-management-und-digift-lancieren-ersten-on-chain-japan-aktienstrategie-token)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/sbi-global-asset-management-y-digift-lanzan-el-primer-token-de-estrategia-de-renta-variable-japonesa-en-cadena)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/sbi-global-asset-management-et-digift-lancent-le-premier-jeton-de-strategie-dactions-japonaises-en-chaine)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/sbi-global-asset-management-e-digift-lancam-primeiro-token-on-chain-de-estrategia-de-acoes-japonesas)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain-for-first-time)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-first-on-chain-japanese-equity-strategy)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/sbi-global-asset-management-and-digift-launch-tokenized-japanese-equity-fund-on-solana)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognizing-strong-financial-profile)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-bringing-japanese-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fitch-assigns-first-time-bb-rating-to-hdbank-among-highest-for-vietnamese-banks)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain)
+Pickup - [https://burstable.news](https://burstable.news/news/fitch-ratings-assigns-first-time-bb-rating-to-hdbank-among-highest-for-vietnamese-banks)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/sbi-global-asset-management-and-digift-launch-on-chain-japanese-equity-token)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fitch-ratings-vergibt-erstmals-bb-rating-an-hdbank-eines-der-hochsten-fur-vietnamesische-banken)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fitch-ratings-asigna-calificacion-bb-por-primera-vez-a-hdbank-entre-las-mas-altas-para-bancos-vietnamitas)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/sbi-global-asset-management-and-digift-launch-tokenized-japanese-equity-strategy-on-solana)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fitch-ratings-attribue-une-premiere-note-bb-a-hdbank-parmi-les-plus-elevees-pour-les-banques-vietnamiennes)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-marking-first-on-chain-japanese-equity-strategy)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fitch-ratings-atribui-classificacao-bb-inedita-ao-hdbank-uma-das-mais-altas-entre-bancos-vietnamitas)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain-for-first-time)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fitch-assigns-first-time-bb-rating-to-hdbank-highest-for-vietnamese-banks)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/digift-and-sbi-global-asset-management-launch-tokenized-japanese-equity-strategy-on-solana)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fitch-assigns-first-time-credit-rating-to-hdbank-citing-strong-financial-profile-and-profitability)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-its-strong-financial-profile)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/sbi-global-asset-management-and-digift-launch-jx-token-bringing-japanese-equity-strategy-on-chain-for-first-time)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/fitch-assigns-first-time-bb-rating-to-hdbank-cites-strong-profitability-and-growth)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/digift-and-sbi-global-asset-management-launch-tokenized-japanese/202635403)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-strong-financial-profile)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/fitch-ratings-assigns-first-time-bb-credit-rating-to-hdbank-reflecting-strong-financial-profile)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognises-strong-financial-profile)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/fitch-ratings-assigns-first-time-bb-credit-rating-to-hdbank-recognising-strong-financial-profile)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/fitch-assigns-first-time-credit-rating-to-hdbank-affirms-strong-financial-profile)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/fitch-assigns-first-time-bb-rating-to-hdbank-among-highest-for-vietnamese-banks)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/fitch-assigns-first-time-rating-to-hdbank-one-of-highest-for-vietnamese-banks)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/fitch-ratings-assigns-first-time-credit-rating-to-hdbank-recognising-strong-financial-profile)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/fitch-assigns-first-time-bb-rating-to-hdbank-recognising-strong-financial-profile)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/fitch-assigns-first-time-credit-rating-to-hdbank-recognising-strong-financial-profile)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/sbi-global-asset-management-and-digift-launch-jx-bringing-a-japanese-asset-managers-equity-strategy-on-chain-for-the-first-time)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fitch-assigns-first-time-bb-rating-to-hdbank-recognising-strong/202635427)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/267/15/loftOghe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/267/15/quizPjQv.webp)
