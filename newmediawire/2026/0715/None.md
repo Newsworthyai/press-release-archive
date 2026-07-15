@@ -1,128 +1,80 @@
-# Are Survival Rates for Adults With Congenital Heart Disease Linked to Specialized Cardiac Care Access?
+# Angkor Resources Enercam Advances to Inter-Ministerial Review of Exploration Drilling Program in Block VIII, Cambodia
 
-Research Highlights:
+GRANDE PRAIRIE, AB - July 15, 2026 (NEWMEDIAWIRE) - ANGKOR RESOURCES CORP. (TSXV: ANK) (“ANGKOR” OR “THE COMPANY”) is pleased to announce that its planned oil and gas exploration drilling program on Block VIII in Cambodia has advanced to an inter-ministerial review, with a meeting held July 14, 2026 in Phnom Penh. The meeting is a key step in the review of the Environmental Impact Assessment (“EIA”) for the program.
 
- * In an analysis of the Global Burden of Disease Study compared with U.S. Census data from 1990-2021, researchers found that people with congenital heart disease living in states with lower average household incomes and fewer people with health insurance had higher rates of death and disability.
-* The research authors hypothesize that this difference may be due to easier access to specialized care and treatment from adult congenital heart disease cardiologists in communities with higher income levels and more residents with health insurance. Congenital heart disease requires lifelong, regular access to specialized cardiac care.
-* Expanding access to expert care, particularly in under-resourced regions of the U.S., could play a profound role in improving survival and quality of life for adult congenital heart disease patients.
+ Management of the Company’s wholly owned Cambodian energy subsidiary, EnerCam Resources Co., Ltd. (“EnerCam”), met with representatives of five government Ministries and three provinces to review the drilling program in detail.
 
- DALLAS - July 15, 2026 (NEWMEDIAWIRE) - People with congenital heart disease living in states with low household incomes and limited access to health insurance and the specialized care they need may be more likely to become disabled or die from congenital heart disease, according to new, independent research published today in the Journal of the American Heart Association, an open-access, peer-reviewed journal of the American Heart Association.
+ At the meeting, the planned drilling activities were explained with the specific preventative and proactive measures the Company will take to protect the environment and local communities during the exploratory drilling phase of the project.
 
- Over the past 30 years, more children with congenital heart disease have survived into adulthood due to better surgical and catheter-based treatments, as well as improvements in medical care. As these children grow into adults, they continue to require specialized cardiac care, as recommended by evidence-based American Heart Association/American College of Cardiology guidelines, to maintain lifelong health and well-being.
+ THE MEETING AT A GLANCE
 
- This is one of the first studies to examine the connection between the health and survival of adults with congenital heart disease based on state-level data from the Global Burden of Disease Study along with income and insurance data from the U.S. Census, spanning from 1990 to 2021. Researchers examined the relationship among income levels, disability and death rates for nearly 300,000 adults with congenital heart disease aged 20 years and older.
+ - An inter-ministerial meeting was held July 14, 2026 at the Ministry of Environment in Phnom Penh as part of the review of EnerCam’s Environmental Impact Assessment (“EIA”) for its planned drilling program on Block VIII.
 
- “Understanding how social and economic factors can influence survival and outcomes is essential. Long-term outcomes and quality of life depend heavily on access to specialized, lifelong care for people with congenital heart disease,” said senior author Anitha John, M.D., Ph.D., medical director of the Washington Adult Congenital Heart Program at Children’s National in Washington, D.C. “Seeing how these factors affect patients long term allows us to better identify people at highest risk for complications. Then we can work toward improving access and reducing care gaps for people who have congenital heart disease.”
+ - More than 26 representatives from five government Ministries - including Ministry of Environment, Ministry of Mines and Energy, Ministry of Economy and Finance, Ministry of Interior, and Ministry of Rural Development attended.
 
- What are the key findings of the analysis?
+ - Green Assessment Co., Ltd., the Cambodian independent EIA consultant, presented its findings alongside EnerCam.
 
- * As median household income increased in a state, the death rate for people with congenital heart disease decreased.
-* The relationship between death rate and individual income levels was stronger than the connection between death rates and the percentage of residents without insurance in each state. This suggests that simply having health insurance did not guarantee that people accessed the specialized care required for congenital heart disease. One reason for this might be differences in types of insurance coverage versus the overall presence of insurance.
-* Geography and access to resources (namely, specialized cardiac care) likely play a profound role in death and disability in adults with congenital heart disease in the U.S. More research is needed to understand these connections and their impact on the health, well-being and survival of people with congenital heart disease.
+ - The EIA covers the four sub-basins that host the drill targets for EnerCam’s planned four-well exploration program, which would be Cambodia’s first privately financed onshore oil and gas wells.
 
- “While having health insurance does matter, it does not explain the differences we found in terms of how long people with congenital heart disease live,” John said. “This indicates that insurance alone doesn’t guarantee access to care. People may still face barriers if their insurance doesn’t cover specialized heart care or if out-of-pocket costs are too high. In many cases, specialized care may not be available in their area at all. We need to make sure everyone with congenital heart disease has the same access to specialty care throughout their lifetime, regardless of where they live.”
+ - Ahead of the meeting, officials from the General Department of Petroleum and the Ministry of Environment visited each planned drill site with local landowners and authorities.
 
- “We also need more trained specialists in adult congenital heart conditions. These medical experts should be more evenly distributed across the country, particularly where congenital heart disease patients live and work. Additionally, we need better systems to help patients get referred to the right care throughout their lives,” she said. “Expanding telehealth and improving insurance networks may also help to improve access.”
+ Mike Weeks, President of EnerCam, commented: “This meeting reflects the thorough, transparent process behind the drilling program. The EIA lays out exactly how we will source and manage water and drilling fluid, keep each site safe, and restore the land if a well is not productive - all to international standards, and all done in partnership with the Ministries and the communities where we operate.”
 
- Michelle Gurvitz, M.D., an American Heart Association volunteer expert and chair of the writing committee for the 2025 ACC/AHA/HRS/ISACHD/SCAI joint Guideline for the Management of Adults With Congenital Heart Disease, said, “The 2025 guideline outlines when to seek expert assistance and how specialists can work together with other healthcare providers to enhance access to care. Many patients stop receiving specialized care when they transition from pediatric to adult care. Additionally, this study shows that some patients cannot see specialists because of issues such as insurance or their location.” Gurvitz, who was not involved in this study, is also a cardiologist at Boston Children’s Hospital and an associate professor of pediatrics at Harvard Medical School.
+ KEY TOPICS COVERED IN THE EIA AND INTER-MINISTERIAL MEETING
 
- According to the American Heart Association’s 2026 Heart Disease and Stroke Statistics, congenital heart defects (heart or blood vessel issues that are present at birth) are one of the most common birth defects around the world. Congenital heart disease is the leading cause of death in the U.S. from a condition present since birth.
+ The discussion drew on Green Assessment’s 398-page EIA report. Topics addressed included:
 
- What are the study details, background, design and limitations?
+ - How and where drilling fluid and water are sourced, used, stored, and cleaned throughout the process, using steel tanks and pits with impermeable liners to protect soil and groundwater
 
- * Researchers reviewed data on death rates and ”disability-adjusted life years“ – the number of healthy life years lost due to a condition.
-* Income levels, including household income and insurance status (considered uninsured if they lacked coverage for a full year), detailed by state were secured from the U.S. Census Bureau data.
-* The findings show associations among the data points such as income, but cannot be interpreted as cause and effect. The associations found in the analysis may be influenced by factors like access to care, which the researchers could not directly measure.
+ - How safety is ensured before, during, and after drilling at each site, drawing on the Company’s experienced personnel and internationally recognized well-control standards (IWCF and API).
 
- Co-authors, disclosures and funding sources are listed in the manuscript.
+ - What happens after a well is drilled: involving local communities at each stage, if it is a producing well, the small well site is connected by buried pipeline to a central facility; if it is not productive, the land is fully restored to its original or similar condition.
 
- Studies published in the American Heart Association’s scientific journals are peer-reviewed. The statements and conclusions in each manuscript are solely those of the study authors and do not necessarily reflect the Association’s policy or position. The Association makes no representation or guarantee as to their accuracy or reliability. The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
+ - What initiatives can be taken to expand ESG (environmental, social, governance) practices to ensure the communities and local residents benefit from each activity to protect the land, water, and air quality?
 
- Additional Resources:
+ A representative drill site showing the well-control equipment, trained personnel, and safety practices to be used on
 
- * Multimedia is available on the right column of the release link
-* After July 15, view the manuscript online.
-* American Heart Association news release: ACC/AHA issue new guideline on managing congenital heart disease in adults (Dec. 2025)
-* American Heart Association news release: Research grants awarded to advance understanding of no. 1 birth defect (Feb. 2025)
-* American Heart Association scientific statement: Coordinated care important for children with Down syndrome and congenital heart disease  (Sept. 2024)
-* American Heart Association scientific statement: Latest research redefines neurodevelopmental risks, outcomes for congenital heart disease  (Feb. 2024)
-* American Heart Association news release: Adults with congenital heart disease faced higher risk of abnormal heart rhythms (April 2024)
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the Journal of the American Heart Association on X @JAHA_AHA
+ what would be Cambodia’s first privately financed onshore exploration wells.
 
- About the American Heart Association
+ A representative drill site with water storage lined with an impermeable liner, one of the safety and environmental measures planned for each site.
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ The inter-ministerial meeting in progress at the Ministry of Environment, Phnom Penh.
 
- For Media Inquiries and AHA Expert Perspective: 214-706-1173
+ Further written responses to questions will be compiled by Green Assessment over the coming weeks towards the final submission report for the Ministries to complete this process. Following completion of the report, EnerCam will move to publish its tender for the drilling contractor to complete the planned exploration wells.
 
- Karen Astle: Karen.Astle@heart.org
+ ABOUT ANGKOR RESOURCES CORP.
 
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+ ANGKOR Resources Corp. is a public company, listed on the TSX-Venture Exchange, and is a leading resource explorer and developer in Cambodia working towards mineral and energy solutions across the country. The Company's mineral subsidiary, Angkor Gold Corp. Co., Ltd., currently holds two mineral exploration licenses in Cambodia with multiple prospects in copper and gold. Both licenses are in their first two-year renewal term.
 
- heart.org and stroke.org
+ Angkor’s Cambodian energy subsidiary, EnerCam Resources Co., Ltd., was granted an onshore oil and gas license in the southwest quadrant of Cambodia called Block VIII. The original 7,300 km² license was reduced to approximately 4,300 km[2] upon voluntary removal of parks and protected areas, subsequently adjusted through government remapping directed by the Ministry of Mines and Energy, and then expanded by 220 km[2] with the addition of the Kirirom Basin in the northeast, resulting in the current area of approximately 4,095 km[2].
+
+ EnerCam is actively advancing oil and gas exploration activities onshore to meet its mission to prove Cambodia as a nation with its own oil and gas resources. The Company completed 2D-seismic in 2025 and has identified multiple drill targets with multiple target zones. As it has completed an additional Environmental Impact Assessment on the drilling target areas for the Ministry of Environment, the Company plans to follow with selecting a drilling contractor to complete drilling Cambodia’s first privately financed onshore exploratory oil and gas wells under a Production Sharing Contract.
+
+ CONTACT: Delayne Weeks - CEOEmail: info@angkorresources.comWebsite:angkorresources.comTelephone: +1 (780) 831-8722
+
+ Please follow @AngkorResources on LinkedIn, Facebook, Twitter, Instagram and YouTube.
+
+ Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ Certain information set forth in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. These forward-looking statements are subject to numerous risks and uncertainties, certain of which are beyond the control of the Company, including, but not limited to oil and gas risks of the seismic interpretation uncertainty and the preliminary nature of structural closure estimates; drilling risk and the absence of a drilled well on the Concession; reservoir and fluid uncertainty; PSC compliance obligations and the risk of relinquishment for non-performance; oil price exposure; and Cambodia-specific sovereign and regulatory risk.
+
+ As well, additional uncertainties on the mineral projects exist regarding the potential for gold and/or other minerals at any of the Company’s properties, the prospective nature of any claims comprising the Company’s property interests, the impact of general economic conditions, industry conditions, dependence upon regulatory approvals, uncertainty of sample results, timing and results of future exploration, and the availability of financing.
+
+ Readers are cautioned that the assumptions used in the preparation of such information, although considered reasonable at the time of preparation, may prove to be imprecise and, as such, undue reliance should not be placed on forward-looking statements.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/are-survival-rates-for-adults-with-congenital-heart-disease-linked-to-specialized-cardiac-care-access-7087718)
+[Original/Source Press Release](https://www.newmediawire.com/news/angkor-resources-enercam-advances-to-inter-ministerial-review-of-exploration-drilling-program-in-block-viii-cambodia-7087732)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/income-and-insurance-gaps-widen-death-risk-for-adults-with-congenital-heart-disease/da545b2afa6fe1f9751dd2fc36b7e300) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/angkor-resources-advances-cambodia-drilling-to-inter-ministerial-review/e26e30bc6d50d2019e353e296f4e99a7) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/income-and-insurance-access-linked-to-survival-in-adults-with-congenital-heart-disease)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/study-links-survival-of-adults-with-congenital-heart-disease-to-income-and-insurance-access)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/study-links-higher-death-rates-in-adults-with-congenital-heart-disease-to-lower-income-and-limited-insurance-access)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/estudio-vincula-mayores-tasas-de-mortalidad-en-adultos-con-cardiopatia-congenita-con-ingresos-mas-bajos-y-acceso-limitado-a-seguros)
-
-Pickup - [https://burstable.news](https://burstable.news/news/study-links-survival-of-adults-with-congenital-heart-disease-to-income-and-insurance-access)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/studie-verbindet-uberleben-von-erwachsenen-mit-angeborenem-herzfehler-mit-einkommen-und-krankenversicherung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/estudio-vincula-la-supervivencia-de-adultos-con-cardiopatia-congenita-con-ingresos-y-acceso-a-seguro-medico)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/une-etude-etablit-un-lien-entre-la-survie-des-adultes-atteints-de-cardiopathie-congenitale-et-le-revenu-ainsi-que-lacces-a-lassurance)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/estudo-relaciona-sobrevivencia-de-adultos-com-doenca-cardiaca-congenita-a-renda-e-acesso-a-seguro)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/survival-gaps-in-adults-with-congenital-heart-disease-linked-to-income-and-insurance-disparities)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/survival-rates-for-adults-with-congenital-heart-disease-linked-to-income-insurance-and-access-to-specialized-care)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/income-and-insurance-access-linked-to-survival-in-adults-with-congenital-heart-disease)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/survival-disparities-in-adult-congenital-heart-disease-linked-to-income-and-insurance-access)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/study-links-higher-death-rates-in-adults-with-congenital-heart-disease-to-low-income-and-limited-insurance)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/survival-disparities-in-adults-with-congenital-heart-disease-linked-to-income-and-insurance-access)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/income-and-insurance-access-linked-to-survival-in-adults-with-congenital-heart-disease)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/study-links-survival-of-adults-with-congenital-heart-disease-to-access-to-specialized-care)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/income-and-insurance-access-linked-to-survival-rates-in-adults-with-congenital-heart-disease)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/access-to-specialized-cardiac-care-linked-to-survival-rates-in-adults-with-congenital-heart-disease)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/survival-rates-for-adults-with-congenital-heart-disease-linked-to-access-to-specialized-cardiac-care-study-finds)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/survival-rates-for-adults-with-congenital-heart-disease-linked-to-income-and-insurance-study-finds)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/survival-rates-for-adults-with-congenital-heart-disease-linked-to-access-to-specialized-cardiac-care-study-finds)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/survival-rates-for-adults-with-congenital-heart-disease-linked-to-access-to-specialized-cardiac-care-income-and-insurance-status)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/survival-rates-for-adults-with-congenital-heart-disease-linked-t/202635428)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/15/milkgz4T.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/15/jinxrIAe.webp)
