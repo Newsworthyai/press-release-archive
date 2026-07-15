@@ -1,98 +1,68 @@
-# Deer Solution Tracks 140% More Damage Reports Heading Into July
+# StevenDouglas Hits Record Revenue &amp; Award-Winning Momentum in 2026
 
-Homeowner Deer Damage Reports Jump 140% as Heat Pushes Deer Toward Irrigated Landscapes
+StevenDouglas Continues Award-Winning Momentum & Hits Record-Breaking Revenue in 2026
 
- Parsipanny, United States - July 15, 2026 / Deer Solution /
-
- Parsippany, NJ - Deer Solution has recorded a 140% increase in homeowner-reported deer damage during the spring season, with demand for its professional deer repellent service continuing to climb into July as property owners seek to protect shrubs, flowers, gardens, and ornamental landscapes.
-
-The increase follows a recognizable seasonal pattern. As summer heat and dry conditions reduce natural food and water sources in wooded areas, deer migrate into residential neighborhoods where irrigated lawns and garden beds remain green. That shift leaves hostas, perennials, young trees, and other vulnerable plants exposed to browsing at the same time homeowners are investing the most time and money into their landscapes.
-
-The damage often appears overnight. Plants that looked healthy one evening can be stripped bare by morning, and repeated feeding tends to draw deer back to the same yards throughout the season. Do-it-yourself sprays can be inconsistent and easy to neglect, which is one reason more property owners are turning to recurring professional treatments for more dependable coverage.
-
-"We expect summer deer damage to remain a major issue into July and throughout the summer season. As heat and dry conditions put stress on natural food and water sources, deer are drawn to lush, irrigated residential landscapes. That makes flowers, shrubs, gardens, hostas, trees, and ornamental plants especially vulnerable to deer browsing damage, which is why more homeowners are turning to Deer Solution and our professional deer repellent service," said Kris Goodrich, CEO, at Deer Solution.
-
-Deer Solution develops a customized treatment plan for each property based on its specific plants, layout, and level of deer pressure. Trained technicians apply an all-natural repellent that is family, pet, and environmentally friendly on a recurring schedule, typically about once a month. The repellent is formulated to make treated plants less appealing to deer and to help shift feeding habits over time, encouraging deer to seek food elsewhere.
-
-The company is straightforward about what the service can and cannot do. No repellent eliminates deer from a property entirely. The objective of consistent, scheduled applications is to help reduce browsing activity and protect the flowers, shrubs, and garden beds homeowners have worked to cultivate, rather than to remove deer from the surrounding landscape.
-
-Homeowners looking to protect their landscapes ahead of peak summer browsing can schedule a free, in-home estimate at deersolution.com or by calling (888) 503-8313.
-
-About Deer SolutionDeer Solution is a professional deer repellent service with more than 40 years of experience helping homeowners, condo and townhome associations, country clubs, hotels, and other property owners protect their landscapes from deer damage. Using trained technicians, customized treatment plans, and recurring applications of an all-natural, family, pet, and environmentally friendly repellent, Deer Solution helps preserve the flowers, shrubs, and garden beds its customers have worked hard to grow. Learn more at www.deersolution.com.
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/whl0azVGKPa42rm58aSZyIlAd0bVcjgI2APsTxx8.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/GMTePZHZ3Z25lR7WAcU6VUihXIexIUfZGCz19XzD.jpg) [](https://www.deersolution.com) Contact Information:
-
- Deer Solution
+ Sunrise, United States - July 15, 2026 / StevenDouglas /
 
  
 
-1 Gatehall Dr. Ste 300  Parsipanny, NJ 07054United States
+FOR IMMEDIATE RELEASE
 
- Kris Goodrich +1-888-503-8313 https://www.deersolution.com 
+Contact: StevenDouglas Communications (954) 385-8595
+
+minda@stevendouglas.com www.stevendouglas.com
+
+FORT LAUDERDALE, Fla. — July 15, 2026 — StevenDouglas, one of the nation's leading boutique Executive Search, Technology Staffing and Project & Interim Resources firms announced a sweeping collection of industry honors and recognitions in 2025/2026, as well as record-breaking revenue for their Search division, which just had its biggest quarter since the founding of the firm in 1983. The firm’s national rankings and expansion accentuate their position as a top-tier talent solutions partner across the United States.
+
+June was the highest revenue month for the Search division in StevenDouglas’ 43-year history, and this feat is even more incredible as summer is typically a slow time for recruiting services. In addition, Q2 2026 was the largest quarter in firm history, putting the business 34% ahead of last year. This performance has StevenDouglas YTD at 27% ahead of last year, putting the firm on pace for their best year ever.
+
+The accolades reflect not only the firm's unwavering commitment to excellent client outcomes but underscore that their organic growth and geographic expansion strategy have been successful.. StevenDouglas has driven intentional momentum in key markets throughout the sun-belt as it reinforces its legacy of dominance in Florida, home of the company’s corporate headquarters since 1983.
+
+A Year of Landmark Recognition: Building on an extraordinary run of accolades, StevenDouglas entered 2026 with one of the most decorated track records in the recruiting industry. Key honors and rankings earned in recent cycles include:
+
+Inc. 5000 Fastest-Growing Private Companies in America
+
+#1 Executive Search Firm in South Florida - South Florida Business Journal (consecutive years over the last decade) & Top Temporary Staffing Firms(SFBJ)
+
+Top 100 Private Companies in South Florida — South Florida Business Journal (ranked by revenue)
+
+Top Executive Search Firm in North Texas(Dallas Business Journal) & Largest Direct Hire & Permanent Placement Firm in the Houston Area(Houston Business Journal)
+
+Hunt Scanlon Media has been defining and informing the senior talent management sector for over 32 years and has continually recognized StevenDouglas in the Top 50 Executive Search Firms in the Americas, as well as ranking the firm in multiple sectors, including: Hunt Scanlon Media's 'Financial Sixty', Top 50 Leaders in Healthcare Services Search, Top 65 Most Prominent Executive Search Firms in the Nonprofit Sector and Top 60 Recruiting Firms in Canada.
+
+These recognitions span the breadth of the firm's capabilities across various industries and geographies validating StevenDouglas' position as a true full-service recruiting powerhouse across the Americas with global reach.
+
+"Every recognition we receive is a reflection of the people behind it," said Shore. Awards are deeply gratifying, but what matters most to us is the impact we have on our clients, candidates, and communities. These accolades reflect the effort of an incredible team of professionals who show up every day committed to delivering outcomes that change lives and businesses. That's what StevenDouglas has always been about — and that won't change."
+
+StevenDouglas’ recognitions are only one dimension of the firm's broader organic growth story. Over the past five years, the firm has more than doubled in size and is on track to exceed $130 million in annual revenue with a network spanning more than 25 offices across the United States and internationally, including presence in Canada and Latin America.
+
+This growth is not accidental and is the result of a deliberate, culture-first philosophy that prioritizes hiring exceptional talent even during economic uncertainty, investing in long-term client relationships, and refusing to retreat when markets grow volatile. StevenDouglas demonstrated this same counter-cyclical conviction following the 2008 financial crisis and again during the 2020 pandemic, emerging from each downturn stronger and more competitive than before.
+
+About StevenDouglas: StevenDouglas, one of the nation's leading boutique executive search, technology staffing and project & interim resources firms, has been a recognized leader in identifying and providing access to top talent for clients since 1983. Headquartered in Fort Lauderdale, Florida, the firm's client base is industry agnostic and ranges from emerging middle-market to Fortune 500 companies, private equity and venture capital firms, hedge funds, family offices, and wealth management firms. Recognized as a Top 50 Executive Search firm nationally and #1 in the state of Florida, StevenDouglas’ footprint spans more than 25 offices across the Americas and 150-plus professionals committed to creating successful outcomes for both clients and candidates. The firm is nationally known for search expertise in Finance & Accounting, Human Resources, Information Technology, Executive Leadership, Financial Services, Operations, Sales & Marketing, Legal, Risk & Compliance, Supply Chain & Logistics, and Wealth Management, as well as providing interim resources and staffing in Information Technology, Finance & Accounting, and Human Resources.
+
+For more information, visit www.stevendouglas.com or call (954) 385-8595.
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/3OhBBXjI8DyJZwfCrucPIhY4x65kHOeuyNg8hga0.png) [](https://www.stevendouglas.com) Contact Information:
+
+ StevenDouglas
+
+ 
+
+13450 W. Sunrise Blvd., Suite 200  Sunrise, FL 33323United States
+
+ Steven Douglas +1-954-385-8595 https://www.stevendouglas.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/deer-solution-tracks-140-more-damage-reports-heading-into-july-439852)
+[Original/Source Press Release](https://mediawiretoday.com/stevendouglas-hits-record-revenue-award-winning-momentum-in-2026-439940)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/deer-damage-reports-surge-140-as-heat-drives-deer-to-suburbs/4f190156c01e5e57d11dfe10991ee202) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stevendouglas-shatters-records-with-best-quarter-in-43-year-history/7f58ceba7bd4b3ec7a79a097f045f6cb) 
 
-
-Pickup - [https://x.com](https://twitter.com/i/status/2077378050514149377)
-
-Pickup - [https://advos.io/en](https://advos.io/en/deer-damage-reports-surge-140-as-summer-heat-drives-deer-into-residential-landscapes)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/deer-solution-reports-140-surge-in-homeowner-deer-damage-reports-ahead-of-peak-summer-season)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-into-residential-landscapes)
-
-Pickup - [https://burstable.news](https://burstable.news/news/deer-damage-reports-surge-140-as-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hitzebedingte-schaden-durch-rehe-steigen-um-140-rehe-lockt-es-in-bewasserte-garten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/los-informes-de-danos-por-ciervos-aumentan-un-140-mientras-el-calor-empuja-a-los-ciervos-hacia-paisajes-irrigados)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-degats-causes-par-les-cerfs-augmentent-de-140-alors-que-la-chaleur-les-pousse-vers-les-paysages-irrigues)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/relatos-de-danos-por-cervos-disparam-140-a-medida-que-o-calor-leva-os-animais-a-paisagens-irrigadas)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/deer-solution-reports-140-surge-in-homeowner-deer-damage-reports-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/deer-damage-reports-surge-140-as-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/deer-damage-reports-surge-140-as-heat-drives-deer-into-residential-landscapes)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/deer-damage-reports-surge-140-as-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://news.jerseycitytribune.com/curated](https://news.jerseycitytribune.com/curated/deer-damage-reports-surge-140-as-summer-heat-drives-deer-toward-irrigated-landscapes)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-into-irrigated-landscapes)
-
-Pickup - [https://news.newwarkherald.com/curated](https://news.newwarkherald.com/curated/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-residential-landscapes)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-into-suburban-landscapes)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/deer-solution-reports-140-surge-in-damage-reports-as-summer-heat-drives-deer-to-irrigated-landscapes)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/4f190156c01e5e57d11dfe10991ee202)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/deer-damage-reports-surge-140-as-summer-heat-drives-deer-into-residential-landscapes)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/deer-damage-reports-surge-140-as-heat-drives-deer-to-irrigated-l/202635433)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/15/mintmKrQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/267/15/pendni3D.webp)
