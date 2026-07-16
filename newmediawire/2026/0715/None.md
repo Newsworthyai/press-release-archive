@@ -1,62 +1,92 @@
-# Edgewater Wireless Moves From Investor Validation to Engineering Execution With Spectrum Slicing and PrisimIQ Design Review
+# IBU-tec With Further Scheduled Construction Progress in Building LFP Production Facility in Bitterfeld
 
-OTTAWA, CANADA - July 15, 2026 (NEWMEDIAWIRE) - Edgewater Wireless Systems Inc. (TSXV: YFI) (OTC: KPIFF), the industry pioneer of AI-powered Wi-Fi Spectrum Slicing™ silicon solutions and IP, today announced that it has initiated a detailed architecture and design review for key elements of its patented Spectrum Slicing™ technology and PrismIQ™ platform roadmap.
+* Construction phases for logistics infrastructure implemented on schedule and detailed engineering of the production facility underway
+* Trial operations for spray tower expected to commence in Q4 2026
+* Capacity expansion agreed with PowerCo SE advancing as planned
 
- Detailed architecture and design review marks an important step toward waveform generation, prototype validation and partner demonstration readiness
+ WEIMAR, GERMANY - July 15, 2026 (NEWMEDIAWIRE) - IBU-tec advanced materials AG (“IBU-tec”, ISIN: DE000A0XYHT5) is continuing to systematically advance its capacities for the industrial production of LFP battery materials.
 
- The review marks an important execution milestone as Edgewater moves from recent investor validation into disciplined semiconductor development. The work is intended to support future waveform generation, prototype validation and partner demonstration readiness, while helping align the Company’s technical roadmap with commercial use cases where predictable wireless performance is increasingly important.
+ The construction of logistics infrastructure, the expansion of the analytics spectrum in Bitterfeld, as well as the harmonization of IT systems are progressing according to the established schedule. In addition, detailed engineering for the production facilities has now begun. The steel structure for a new logistics hall with storage capacity for approximately 1,800 pallets has now been erected on site, with interior fit-out expected to be finalized over the next six months.
 
- “Edgewater is moving from validation to execution,” said Andrew Skafel, President and CEO of Edgewater Wireless. “The recently announced strategic investor-led first close was an important confidence signal. We are now putting that momentum to work through a focused design review of Spectrum Slicing, PrismIQ and the next stage of our technology roadmap.”
+ Following the topping-out ceremony for the new, state-of-the-art spray tower in April 2026, IBU-tec is taking further steps to implement the agreements made with PowerCo SE regarding process development, capacity expansion, and production of LFP cathode material (see ad hoc release dated October 6, 2025). Trial operation of the spray tower is also scheduled to begin in Q4 2026.
 
- The review is being supported by world-class expertise across Wi-Fi silicon architecture, communications theory, RF and baseband design, semiconductor commercialization and advanced wireless systems engineering.
+ The LFP production facility, which is set to commence operations in 2028, will have an annual capacity of 15,000 tonnes, increasing IBU-tec’s existing capacities by approximately five times. The facility is the first of its kind in Europe and a key building block in the development of a European battery value chain. It is based on a proprietary production process developed by IBU-tec that does not rely on the use of Chinese technology and is tailored to the European market. The battery material produced by IBU-tec also features a superior CO2 footprint, as the technology as the technology consumes only about half the energy compared to conventional processes from China. PowerCo has contractually secured the entire production volume for a minimum period of ten years.
 
- “Our objective is clear,” added Skafel. “We are advancing Spectrum Slicing from a validated technology advantage toward practical commercial implementation for real-world applications where reliability matters.”
+ Jörg Leinenbach, CEO of IBU-tec advanced materials AG: “ We are making good progress in building the large-scale production capacities for LFP battery materials in Bitterfeld. We are in close and constructive communication with PowerCo regarding the scheduled implementation of our timeline. In the coming months, we will achieve further milestones so that production can start as expected in 2028.”
 
- Edgewater’s Spectrum Slicing technology is designed to enable multiple concurrent channels within a Wi-Fi band, helping address congestion, interference and performance challenges in dense wireless environments. The Company believes the architecture is well aligned with the industry’s shift toward more predictable and resilient connectivity for AI, autonomy, industrial systems, mission-critical edge applications and future Wi-Fi evolution.
+ About IBU-tec
 
- “Reliability is becoming the new speed in wireless,” said Eric Smith, VP Product for Edgewater. “As more systems depend on real-time coordination, edge intelligence and always-on connectivity, best-effort Wi-Fi is no longer enough. Edgewater is focused on building technology for the next generation of wireless performance.”
+ The IBU-tec Group develops and produces innovative materials of the highest quality for industry. It combines unique, partly patent-protected thermal process technology with the process and material know-how of around 230 highly qualified employees. The company's own products include LFP battery material, which is an important component of batteries for electromobility and stationary energy storage, as well as solutions for air purification, resource conservation or the reduction of plastic packaging. IBU-tec is thus positioned for the long term in global megatrends - especially climate and environmental protection - and has an international customer base ranging from innovative medium-sized companies to global corporations.
 
- The Company’s execution path is focused on a disciplined milestone progression: detailed design review, waveform generation, prototype validation and partner demonstration readiness. Edgewater believes this progression can support future technical evaluations, partner discussions and commercial engagement as it advances Spectrum Slicing and PrismIQ.
+ Contact
 
- Edgewater expects to provide further updates as it advances key elements of its technology roadmap.
+ edicto GmbHAxel Mühlhaus / Svenja LiebigEschersheimer Landstraße 4260322 Frankfurtt +49 69 905505-52IBU-tec@edicto.de
 
- About Edgewater Wireless
+ 
 
- We make Wi-Fi. Better.
+ 
 
- Edgewater Wireless is the industry pioneer in Wi-Fi Spectrum Slicing™ silicon solutions and IP. The Company’s patented, AI-powered Spectrum Slicing™ platform - delivered through the PrismIQ™ product family - is designed to enable multiple concurrent channels within a single band, delivering more usable capacity, lower latency and more reliable performance in congested wireless environments.
-
- PrismIQ™ powers Edgewater’s Wi-Fi 8-ready solution set for Ultra High Reliability and predictable performance across residential, enterprise and Industrial IoT deployments, while opening adjacent opportunities in drones, UAVs, robotics, defence and other mission-critical applications where resilient wireless performance is essential.
-
- With 26 granted patents, three AI-related patent applications pending and a capital-efficient fabless semiconductor model, Edgewater is building the intelligent wireless foundation for the next era of global connectivity.
-
- Visit https://edgewaterwireless.com
-
- Edgewater Wireless Contacts:
-
- Andrew Skafel, President and CEOE: andrews@edgewaterwireless.com
-
- Bill Mitoulas, Investor RelationsE: ir@edgewaterwireless.comT: +1.416.479.9547
-
- Forward-Looking Statements
-
- This news release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws. The use of any of the words "expect", "anticipate", "continue", "estimate", "objective", "ongoing", "may", "will", "project", "should", "believe", "plans", "intends" and similar expressions are intended to identify forward-looking information or statements. Although Edgewater Wireless believes that the expectations and assumptions on which such forward-looking statements and information are based are reasonable, undue reliance should not be placed on the forward-looking statements and information because Edgewater Wireless can give no assurance that they will prove to be correct. By its nature, such forward-looking information is subject to various risks and uncertainties, which could cause Edgewater Wireless’ actual results and experience to differ materially from the anticipated results or expectations expressed. These risks and uncertainties, include, but are not limited to access to capital markets, market forces, competition from new and existing companies and regulatory conditions. Readers are cautioned not to place undue reliance on this forward-looking information, which is given as of the date it is expressed in this news release or otherwise, and to not use future-oriented information or financial outlooks for anything other than their intended purpose. Edgewater Wireless undertakes no obligation to update publicly or revise any forward-looking information, whether as a result of new information, future events or otherwise, except as required by law.
-
- NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICES PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS RELEASE.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/edgewater-wireless-moves-from-investor-validation-to-engineering-execution-with-spectrum-slicing-and-prisimiq-design-review-7087753)
+[Original/Source Press Release](https://www.newmediawire.com/news/ibu-tec-with-further-scheduled-construction-progress-in-building-lfp-production-facility-in-bitterfeld-7087756)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/edgewater-wireless-advances-spectrum-slicing-design-review-for-commercial-readiness/62dcfa13eef18ea5a855873bedf9185e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ibu-tec-advances-europe-s-first-large-scale-lfp-battery-plant/62de48faaa83f87748444b27ff94f4a5) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-europes-first-such-plant)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ibu-tec-advances-construction-of-europes-first-lfp-production-facility-in-bitterfeld)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ibu-tec-advances-lfp-production-facility-construction-in-bitterfeld-trial-operations-expected-in-q4-2026)
+
+Pickup - [https://burstable.news](https://burstable.news/news/ibu-tec-advances-construction-of-europes-first-lfp-production-facility-in-bitterfeld)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ibu-tec-treibt-bau-der-ersten-lfp-produktionsanlage-europas-in-bitterfeld-voran)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ibu-tec-avanza-en-la-construccion-de-la-primera-planta-de-produccion-de-lfp-en-europa-en-bitterfeld)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ibu-tec-progresse-dans-la-construction-de-la-premiere-installation-de-production-de-lfp-en-europe-a-bitterfeld)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ibu-tec-avanca-na-construcao-da-primeira-instalacao-de-producao-de-lfp-da-europa-em-bitterfeld)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ibu-tec-advances-construction-of-europes-first-lfp-production-facility-in-bitterfeld)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ibu-tec-advances-construction-of-europes-first-lfp-production-facility-in-bitterfeld)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/ibu-tec-advances-lfp-production-facility-construction-in-bitterfeld)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ibu-tec-advances-construction-of-europes-first-lfp-battery-materials-facility-in-bitterfeld)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-trial-operations-expected-in-q4-2026)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-trial-operations-expected-in-q4-2026)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-trial-operations-expected-in-q4-2026)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ibu-tec-advances-construction-of-europes-first-lfp-battery-material-facility-in-bitterfeld)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/ibu-tec-advances-construction-of-europes-first-large-scale-lfp-production-facility-in-bitterfeld)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-trial-operations-expected-in-q4-2026)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-targeting-2028-operations)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-trial-operations-expected-in-2026)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/ibu-tec-advances-construction-of-lfp-production-facility-in-bitterfeld-targets-2028-start)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ibu-tec-advances-construction-of-lfp-production-facility-in-bitt/202635482)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/62de48faaa83f87748444b27ff94f4a5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/15/mendsB06.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/15/joltBUev.webp)
