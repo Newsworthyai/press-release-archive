@@ -1,64 +1,110 @@
-# HR.com Announces Winners of the 2026 HR in Healthcare Awards
+# Associa CEO John Carona Joins Building Texas Show to Discuss HOA Management
 
-HR.com is thrilled to announce the winners of the 2026 HR in Healthcare Awards, recognizing exceptional HR leaders, teams, and solution providers advancing human resources in the healthcare sector.
+The Building Texas Show has released its latest episode featuring John Carona, founder and CEO of Associa, the largest manager of homeowners associations in the world. Recorded at the company's Richardson headquarters, the conversation with host Justin McKenzie covers the origins of a company now in its 49th year, the misunderstood role of the HOA in a fast-growing Texas, and where community association management goes next as Associa expands across Europe.
 
- The awards recognize organizations and professionals who help healthcare employers address workforce challenges through innovative people strategies, technology, and leadership. Honorees include solution providers, HR leaders, and teams driving measurable results in workforce management, employee engagement, talent development, and organizational performance.
+ Carona started the business roughly 18 months out of the University of Texas at Austin, where he worked three jobs to put himself through school. "We started out with just two employees, myself and one rather elderly assistant who I loved dearly," he told McKenzie. "And from that we built this twenty-four thousand employee operation." The growth came, he said, "one client at a time," organically at first, and increasingly through acquisition. Associa has now acquired more than 200 separate companies and adds another 25 to 30 management firms in a typical year.
 
- Best Healthcare HR Platform: Infor Talent Science
+ Setting the record straight on homeowners associations Much of the episode is aimed at an audience with strong opinions about HOAs. Carona's case for them is a financial one. "The most important thing homeowners associations do is they preserve the value for the owners themselves by adding some degree of conformity, some reasonable rules and regulations," he said, noting that property values in communities with mandatory homeowners associations have been shown repeatedly to grow at a faster rate than those outside them.
 
- Infor Talent Science empowers healthcare employers to make predictive, data-driven hiring decisions using behavioral science and responsible AI. The platform reduces turnover, strengthens teams, supports fair hiring, develops leaders, and helps organizations improve care quality while building a more resilient workforce.
+ He also addressed the friction directly. Survey after survey, he said, shows that just north of 95% of residents living in community associations appreciate the experience. "Now, four to five percent out there feel otherwise. And it's our job as a management company to try to address the issues that those four to five percent bring up." Associa now surveys every board of directors it represents three times a year to catch problems early enough to act on them.
 
- Healthcare HR Leader of the Year: Stephanie Angelini, Chief People and Corporate Communications Officer, BioCryst Pharmaceuticals, Inc.
+ Technology, training, and a family culture Asked what sets Associa apart, Carona pointed to two things: technology and the amount the company spends each year training its people. "We live in the Amazon age. People want more for less, and there's nothing wrong with that," he said. "That same technological application applies with community associations, and we have to be able to do a better job, a more timely job, and do it for lower dollars."
 
- Stephanie Angelini continues to strengthen BioCryst's culture, workforce, and reputation through people-first leadership by guiding the organization through major milestones, building leadership and talent programs, fostering accountability and innovation, and creating an inclusive, high-performing culture that supports long-term success.
+ Associa operates 340 branch offices across the United States, ranging from ten to 150 employees, and serves 44 of the 50 states. That footprint, Carona said, gives employees a rare ability to move markets without leaving the company, one reason Associa still employs people with 25, 30, and even 40 years of tenure. Employees have voted the company a national best place to work for nine consecutive years, an achievement Carona singled out above all others: "Nothing makes me prouder than that."
 
- Healthcare HR Team of the Year: Hancock Health
+ Next stop: Europe Associa recently acquired the number two operator in Spain, its first large international purchase, and expects to be the number one operator in that market by the close of December. Carona described it as the opening move in a three-to-five-year rollout across Europe, with the UK, France, and Italy on the list and inbound interest already arriving from Germany.
 
- Despite limited resources, this HR team continues to drive transformative change by modernizing HR systems, strengthening governance, managing complex workforce challenges, reducing organizational risk, and advancing a people-first culture that supports more than 1,500 associates.
+ The vocabulary changes by country, as parts of Canada call them stratas, but the work does not. "Whatever they call them, the procedure and the type of service is more or less the same."
 
- View All HR.com Awards: www.hr.com/awards
+ For homeowners buying into Texas's booming triangle, his closing advice was blunt: scrutinize transportation, scrutinize location, and scrutinize build quality, because Texas does not license builders. "From time to time, bad actors can come on the scene."
 
- "Healthcare HR professionals play a critical role in ensuring organizations can attract, develop, and retain the talent needed to deliver exceptional care," said Debbie McGrath, CEO of HR.com. "Congratulations to this year's award winners for their innovation, resilience, and commitment to creating stronger workplaces and better outcomes for employees and the communities they serve."
+ The full episode is available now wherever you get your podcasts.
 
- About HR.com
+ About John J. Carona John J. Carona is Founder and Chief Executive Officer of Associa, the industry's leading provider of community management services. A former Texas State Senator and Texas State Representative, Carona combines more than five decades of entrepreneurial leadership and public service experience to advance innovation, operational excellence, and exceptional service for the communities Associa serves worldwide. Carona is a published author of three books, and a highly sought-after public speaker in government relations, public policy, HOAs, communities, and thought leader on issues affecting the community living experience.
 
- HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
-
- HR.com Newsroom 
+ About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the founders, operators, and civic leaders shaping the fastest-growing state in the country. Each week the show goes inside Texas-built companies to unpack how they scaled, who they serve, and what their growth means for communities across the Triangle and beyond. New episodes release weekly on YouTube, Facebook, Instagram, and LinkedIn. This episode is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607162640/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+[Original/Source Press Release](https://newsworthy.ai/news/202607162632/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-2026-hr-in-healthcare-awards-winners/f1ecec13620ea5b5497ab209208db91c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/associa-ceo-john-carona-on-hoas-growth-and-european-expansion/d3d7cd6308dfebdc3840e9dd450098f4) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://www.citybuzz.co](https://www.citybuzz.co/2026/07/16/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show/)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-growth-and-european-expansion-on-building-texas-show)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/hrcom-announces-winners-of-the-2026-hr-in-healthcare-awards)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
+
+Pickup - [https://burstable.news](https://burstable.news/news/associa-ceo-john-carona-discusses-hoa-management-company-growth-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/associa-ceo-john-carona-spricht-uber-hoa-verwaltung-unternehmenswachstum-und-expansion-nach-europa-in-der-building-texas-show)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-ceo-de-associa-john-carona-habla-sobre-la-gestion-de-hoa-el-crecimiento-de-la-empresa-y-la-expansion-europea-en-el-programa-building-texas-show)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-pdg-dassocia-john-carona-discute-de-la-gestion-des-coproprietes-de-la-croissance-de-lentreprise-et-de-lexpansion-en-europe-dans-lemission-building-texas-show)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ceo-da-associa-john-carona-discute-gestao-de-condominios-crescimento-da-empresa-e-expansao-europeia-no-building-texas-show)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-european-expansion-on-building-texas-show)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-growth-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/associa-ceo-john-carona-discusses-hoa-misconceptions-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://youtube.com](https://www.youtube.com/shorts/wxbUKlN_N3Q)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/associa-ceo-john-carona-discusses-hoa-management-technology-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-the-building-texas-show)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-and-european-expansion-on-building-texas-show)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/associa-ceo-john-carona-discusses-hoa-management-expansion-and-misconceptions-on-building-texas-show)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/associa-ceo-john-carona-discusses-hoa-management-growth-and-expa/202635554)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/associa-ceo-john-carona-joins-building-texas-show-to-discuss-hoa-management)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/16/mielSWab.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/16/waitkSA2.webp)

@@ -1,16 +1,14 @@
-# InvestorNewsBreaks – New Silver Launches AI-Assisted Underwriting Agent for Real Estate Lending
+# InvestorNewsBreaks – Greenland Energy Company (NASDAQ: GLND) Advances Arctic Exploration with Fully Funded Drilling Program
 
-New Silver announced the launch of its AI Assisted Underwriting agent, an automated tool designed to review and validate loan documents in under one minute. The technology processes uploaded documents, organizes them within the loan checklist and cross-references information against client applications, enabling faster document review and providing immediate feedback to borrowers.
+Greenland Energy (NASDAQ: GLND) was featured in a recent article discussing its fully funded plan to advance exploration of the Jameson Land Basin in East Greenland, a 2.1-million-acre Arctic hydrocarbon project with estimated prospective recoverable resources of up to 13 billion barrels of oil. Backed by millions in fresh capital, the company plans to drill two exploration wells in 2026 under an earn-in agreement that could increase its working interest in the project to 70%. Greenland Energy has assembled experienced drilling, engineering, and Arctic logistics partners to support execution while highlighting the basin’s extensive historical exploration, modern seismic analysis, and grandfathered exploration licenses. The company believes its funding, operational readiness, and defined drilling timeline position it to transition the project from a long-standing exploration opportunity to active development.
 
- The company said the AI-powered agent is expected to reduce loan approval times, improve operational efficiency and portfolio performance while expanding its document review capacity. According to New Silver, the platform automates repetitive underwriting tasks to help accelerate the private lending process for real estate investors.
+ To view the full article, visit https://ibn.fm/VW27c
 
- To view the full press release, visit https://ibn.fm/YRFMJ
+ About Greenland Energy Company
 
- About New Silver
+ GLND is an energy exploration company focused on responsibly developing Greenland’s hydrocarbon resources, with an emphasis on the Jameson Land Basin. It aims to advance oil and gas exploration and create a publicly traded platform for Arctic energy development.
 
- New Silver is a fintech company with a mission – helping to improve local communities by providing fast, convenient and flexible capital to real estate investors across the United States. New Silver uses data and technology to provide their clients with fast approvals and certainty of execution while maintaining high-touch customer service to wow them across the entirety of their journey.
-
- For more information please visit www.newsilver.com
+ NOTE TO INVESTORS: The latest news and updates relating to GLND are available in the company’s newsroom at https://ibn.fm/GLND
 
  About InvestorWire
 
@@ -26,10 +24,10 @@ New Silver announced the launch of its AI Assisted Underwriting agent, an automa
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-new-silver-launches-ai-assisted-underwriting-agent-for-real-estate-lending/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-greenland-energy-company-nasdaq-glnd-advances-arctic-exploration-with-fully-funded-drilling-program/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-silver-launches-ai-underwriting-for-real-estate-loans/2e6e45c20b2bcbf458ff531bf507a6a7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-targets-13-billion-barrels-in-arctic-oil-exploration/4c4d77a733e38aee5f02523a51c65b10) 
 
  
 
@@ -37,4 +35,4 @@ New Silver announced the launch of its AI Assisted Underwriting agent, an automa
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/16/barnLAce.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/16/paveViN2.webp)
