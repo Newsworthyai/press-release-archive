@@ -1,32 +1,86 @@
-# NexCourt Builds Six World Cup Futsal Pitches, 50 Mavericks Courts Across North T
+# Cyclospora Outbreak, Lindsey Graham Autopsy and Twitter's Cesspool Reversal
 
-The latest episode of The Building Texas Show, How NexCourt Built 50 Dallas Mavericks Courts & World Cup Futsal Pitches, hosted by Justin McKenzie, brings listeners inside a 35-year North Texas construction story now converging with the 2026 FIFA World Cup. Published July 9, 2026, the conversation features Mark Kundysek, CEO and founder of NexCourt, whose company was awarded the contract to build six mini-pitch futsal courts across North Texas for the World Cup planning committee. With ribbon cuttings underway and a legacy footprint that already spans nearly 50 Dallas Mavericks Foundation courts, the timing makes NexCourt one of the tournament's most visible community-legacy builders.
+Episode 1886 of No Agenda, titled Cytoshitosis, hosted by Adam Curry and John C. Dvorak, dives headfirst into the multi-state cyclosporiasis outbreak now confirmed in 34 states, with more than 2,600 cases reported in Michigan alone. Published July 16, 2026, the episode also unpacks the FBI's unusual search of the late Senator Lindsey Graham's Washington home, a rain-soaked Texas Hill Country weather emergency, and the ongoing Strait of Hormuz standoff. Curry broadcasts from FEMA Region 6 while Dvorak reports from Northern Silicon Valley.
 
- Across the episode, Kundysek walks McKenzie through the projects and partnerships that defined NexCourt's rise from a $250 dealer kit in 1988-89 to a full sport construction operation. Topic threads include:
+ The hosts work through a dense news cycle with their signature media deconstruction approach. Threads covered include:
 
- * The six 5,000-square-foot mini-pitch futsal courts commissioned by the North Texas World Cup Committee, referred by FC Dallas after six prior builds.
-* Long-running foundation work with the Dallas Mavericks (25 years), Nancy Lieberman's Dream Courts (17 years), Dallas Stars Foundation, Make-A-Wish, and the Dak Prescott Foundation.
-* The 2021 pickleball boom, including recent commercial builds like City Pickle in North Fort Worth (16 courts) and a 12-court facility in Celina.
+ * The Cyclospora outbreak, Taco Bell's voluntary ingredient removal, and Michigan Dr. Bagdasarian's lettuce theory
+* Todd Blanche's confirmation hearing exchange with Senator Sheldon Whitehouse over Kash Patel and the $1.8 billion anti-weaponization fund
+* Federal Reserve Chair Kevin Warsh's grilling by Rep. Al Green over Trump meme coin "speculative bubbles"
+* Jay Clayton's Director of National Intelligence hearing and Senator Mark Kelly's response
+* OpenAI's rumored screen-free Alexa competitor and the Apple lawsuit over Jony Ive's startup
 
- Kundysek's voice throughout the episode is that of a builder who watched the metroplex grow up around him. Recalling the early days of expansion into Collin and Tarrant counties, he tells McKenzie:
+ Curry pushes back on the conspiracy fervor surrounding Graham's death, noting a preliminary medical examiner's report cited a torn aortic artery. "Have we lost the ability to think a little more simplistically? Occam's razor's dead," he tells Dvorak, who agrees the online speculation about Ukrainian drone strikes and shaped charges has gone off the rails. On the Cyclospora story, Curry floats his own theory:
 
- I can remember building courts in Southlake when nothing was there. I can remember building courts in Collin County when nothing was there. 121 through Frisco and The Colony, and it was just a two-lane country road. He also describes futsal for listeners unfamiliar with the format, explaining that the ball has almost no air, that everything is played below the waist, and that the surface trains passing, foot skills, teamwork, and character in ways traditional outdoor soccer does not.
+ "I'm telling you, something else is going on here. I like my gain-of-function angle, but I'm looking more at, it's got a GLP-1." The episode digs into a boots-on-the-ground Amsterdam Schiphol travel report where Curry's hearing aids were hijacked by low-energy Bluetooth signage designed for blind travelers. Atomic Rod Adams returns via email to update listeners on four new advanced nuclear reactors that came online before July 4th, including Deployable Energy, Aalo Atomics, and Valar Atomics. The hosts also cover the House-passed Sunshine Protection Act, Reflect Orbital's 50,000-satellite plan to bounce sunlight onto Earth after dark, and Anthropic CEO Dario Amodei's sister promoting Claude for Teachers. A supercut contrasting media predictions that Elon Musk would destroy Twitter with current "cesspool" framing lands as clip of the day.
 
- The deeper context is the community-legacy model NexCourt has refined over two and a half decades. Kundysek explains that most renovation sites, whether for the Mavericks, Dallas Stars, FC Dallas, or the World Cup committee, are aging tennis or basketball courts no longer in active use. The first ribbon cutting for the World Cup pitches took place at the Esperanza Community Center in North Dallas on June 20, followed by George Stevens Park in downtown Arlington on June 26. Recent builds for Detroit Pistons guard Cade Cunningham in Arlington and Oklahoma City Thunder center Isaiah Hartenstein in East Oklahoma City underscore the referral-driven pipeline. FC Dallas Foundation is currently working with NexCourt on another mini-pitch in Mansfield, tied to the city's new soccer stadium.
-
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, profiles the founders, builders, and civic leaders shaping Texas communities. Each week the show highlights the entrepreneurs and organizations investing in the state's future, from small business origin stories to marquee civic projects. This episode is available now wherever podcasts are heard, along with drone footage of the World Cup court installations on NexCourt's social channels. 
+ About No Agenda No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for sharp commentary, humor, and its value-for-value model, the show questions official narratives twice a week. Episode 1886 is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607172614/nexcourt-builds-six-world-cup-futsal-pitches-50-mavericks-courts-across-north-t)
+[Original/Source Press Release](https://newsworthy.ai/news/202607172649/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nexcourt-s-world-cup-futsal-courts-50-mavericks-legacy/0cc03d498d6f8957e9d37787ab832380) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1886-cyclospora-outbreak-graham-death-and-more/7cff2f8d8d92105d0acef9adff3536bd) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/17/no-agenda-episode-1886-examines-cyclospora-outbreak-lindsey-graham-autopsy-and-media-narratives/)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/no-agenda-episode-1886-cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/cyclospora-outbreak-spreads-to-34-states-no-agenda-hosts-question-official-narratives)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/no-agenda-episode-1886-cyclospora-outbreak-lindsey-graham-autopsy-and-media-deconstruction)
+
+Pickup - [https://burstable.news](https://burstable.news/news/no-agenda-episode-1886-covers-cyclospora-outbreak-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/keine-agenda-folge-1886-cyclospora-ausbruch-graham-obduktion-und-twitters-kloake-kehrtwende)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-episodio-1886-de-no-agenda-cubre-el-brote-de-ciclospora-la-autopsia-de-graham-y-el-giro-de-twitter-como-vertedero)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/episode-1886-de-no-agenda-epidemie-de-cyclosporose-autopsie-de-graham-et-revirement-sur-le-cloaque-de-twitter)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/episodio-1886-do-no-agenda-aborda-surto-de-ciclospora-autopsia-de-graham-e-reversao-do-esgoto-do-twitter)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/no-agenda-episode-1886-cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-narrative-shift)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/no-agenda-episode-1886-examines-cyclospora-outbreak-graham-autopsy-and-media-narratives)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/episode-1886-of-no-agenda-dissects-cyclospora-outbreak-senator-graham-autopsy-and-media-narratives)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/no-agenda-podcast-dissects-cyclospora-outbreak-senator-grahams-death-and-media-narratives-in-episode-1886)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/no-agenda-episode-1886-highlights-cyclospora-outbreak-graham-autopsy-and-media-narratives)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/cyclospora-outbreak-lindsey-graham-autopsy-and-twitters-cesspool-reversal)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/17/meanx2kt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/17/lilyotel.webp)
