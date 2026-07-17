@@ -1,102 +1,94 @@
-# Lincoln Gold Announces Results of the 2026 Annual Meeting of Shareholders
+# Community Creates Mega Artwork for HKTDC 60th Anniversary
 
-VANCOUVER, BC - July 16, 2026 (NEWMEDIAWIRE) - Lincoln Gold Mining Inc. (TSX.V: LMG) (“Lincoln Gold” or the “Company”) is pleased to provide the voting results from the 2026 annual and special meeting of shareholders of the Company (the “Meeting”), held on July 16, 2026. A total of 16,773,870 common shares were voted at the Meeting, representing 60.32% of the issued and outstanding common shares.
+100 Students Draw Scenes Illustrating the City's Role as a Global Connector, Artwork Unveiling in October
 
- Shareholders approved all matters put forward at the Meeting with overwhelming support. Detailed results of the voting are as follows:
+ HONG KONG - July 16, 2026 (NEWMEDIAWIRE) - As part of the Hong Kong Trade Development Council’s (HKTDC) 60th anniversary celebrations, the Wan Chai Community Art Creation Workshop was held today during the Hong Kong Book Fair. Around 100 students created drawings of Hong Kong landmarks and city scenes in collaboration with local artist Jane Lee (who works using the pseudonym Messy Desk), providing inspiration for her large-scale artwork celebrating the HKTDC’s 60th anniversary. HKTDC Chairman Prof Frederick Ma and Executive Director Sophia Chong attended the event to admire the students’ artistic depictions of Hong Kong's economic and industrial strengths, while highlighting the HKTDC’s commitment to community and youth development, and promoting Hong Kong’s trade and business.
 
- Number of Directors
+ Prof Frederick Ma, Chairman of the HKTDC, said: “The Wan Chai Community Art Creation Workshop enables young people to draw a vibrant picture of Hong Kong through art. Every pen stroke vividly reflects their perspective on the city’s global role. The HKTDC has been based in Wan Chai for decades, helping link Hong Kong with global markets. Through this project we are fostering the growth of Wan Chai’s creative sector and the exchange of ideas, creating momentum for the future.”
 
- Shareholders voted 99.67% in favour of the approval to fix the number of the Directors at three (3), with 0.33% against.
+ Centring on the theme Hong Kong Trade · Connecting the World, Jane Lee set out to engage the community through art and spark students’ creativity by integrating their ideas into a large-scale artwork to commemorate the HKTDC’s 60th anniversary. Students from primary and secondary schools in Wan Chai were invited to take part through the Boys' & Girls' Clubs Association of Hong Kong, Methodist Centre and St James’ Settlement, presenting Hong Kong’s trade development through the workshop.
 
- Election of Directors
+ The artwork incorporates Hong Kong landmarks, scenes from exhibitions and conferences, as well as elements depicting the shipping and air freight sector, alongside community and business life. Its creative expressions convey Hong Kong’s “Four Centres and One Hub” positioning under the national 15th Five-Year Plan - highlighting the city’s role as an international financial, shipping, trading and innovation and technology centre, as well as a global hub for high-calibre talent. The piece underscores Hong Kong’s strengths in connecting global markets and showcases the vitality and dynamism of Wan Chai as a major hub for international conventions, exhibitions and business activities.
 
- Shareholders approved the election of the persons listed - click here
+ Through the Wan Chai Community Art Creation Workshop, participating students deepened their understanding of HKTDC’s role and Hong Kong’s trade development. The students' drawings will be compiled at the end of today’s workshop to serve as inspiration for the final large-scale artwork. The artwork will undergo final refinement by the artist and will be displayed from 2 to 29 October at the eastbound tram stop at O'Brien Road in Wan Chai, allowing the public to witness this milestone in HKTDC’s 60th anniversary.
 
- Appointment of Auditors
+ During the Hong Kong Book Fair, the HKTDC also facilitated free visits to the Book Fair, the Sports and Leisure Expo and World of Snacks for participating students, enabling them to take part in a range of cultural activities and broaden their horizons.
 
- Shareholders voted 100.00% in favour of the approval of the appointment of the Company’s auditors, Davidson Company LLP, Chartered Accountants, with remuneration to be fixed by the Directors.
+ Photo download: https://bit.ly/4fgDKgX
 
- Stock Option Plan
+ Websites
 
- Shareholders voted 99.94% in favour of the re-approval of the Company’s rolling 10% stock option plan dated August 31, 2022, with 0.06% against.
+ HKTDC’s 60th Anniversary Celebration Activities: https://60.hktdc.com/en
 
- New Control Person
+ HKTDC Media Room: https://mediaroom.hktdc.com/en
 
- Disinterested shareholders voted 99.02% in favour of the approval of Ian Rogers as a new Control Person of the Company, with 0.98% against. For the purposes of the disinterested approval, 4,942,000 common shares held by Ian Rogers were excluded from the vote.
+ Media enquiries
 
- Advance Notice Policy
+ HKTDC’s Communications & Public Affairs Department:
 
- Shareholders voted 99.92% in favour of the approval and ratification of the Company’s advance notice policy, with 0.08% against.
+ Christy LeeTel: (852) 2584 4369Email: christy.wn.lee@hktdc.org
 
- Lincoln’s board of directors would like to express its gratitude to its shareholders for their participation and support. For further information about the Meeting, and the matters voted thereat, please see the Company’s management information circular dated June 16, 2026, available under the Company’s profile at www.sedarplus.ca.
+ Navin LawTel: (852) 2584 4525Email: navin.cm.law@hktdc.org
 
- About Lincoln Gold Mining Inc.:
+ Winnie KanTel: (852) 2584 4055Email: winnie.wy.kan@hktdc.org
 
- Lincoln Gold is a Canadian precious metals development and exploration company headquartered in Vancouver, BC. The Company holds interest in the Bell Mountain gold-silver property that is fully permitted and moving to production and a second larger project, the Pine Grove gold property which is in the final stages of permitting. The two gold projects are within 61 air miles of each other, located in the highly prospective Walker Lane mineral belt, known for its numerous gold and silver deposits. Lincoln is committed to maintaining steady and robust progress towards its goal of becoming a mid-tier gold producer.
+ About HKTDC
 
- Lincoln Gold Mining Inc.Ian Rogers, Chairman and CEOPhone: 604-688-7377Email: info@lincolnmining.com
-
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- 
-
-View the original release on www.newmediawire.com 
+ The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/lincoln-gold-announces-results-of-the-2026-annual-meeting-of-shareholders-7087799)
+[Original/Source Press Release](https://www.newmediawire.com/news/community-creates-mega-artwork-for-hktdc-60th-anniversary-7087800)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lincoln-gold-shareholders-overwhelmingly-approve-all-meeting-proposals/cdef5e45f82678d567306d61a3d85845) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/100-students-paint-hong-kong-s-global-role-for-hktdc-s-60th-anniversary/ca0b6641956ba7914645a384a6c79982) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/community-art-creation-marks-hktdcs-60th-anniversary-fostering-youth-engagement)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-matters-at-2026-annual-meeting)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hktdc-60th-anniversary-community-art-project-unites-students-to-celebrate-hong-kongs-global-role)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://burstable.news](https://burstable.news/news/hktdc-60th-anniversary-community-art-creation-workshop-engages-100-students-in-wan-chai)
 
-Pickup - [https://burstable.news](https://burstable.news/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hktdc-60-jubilaum-gemeinschaftskunst-workshop-begeistert-100-schuler-in-wan-chai)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/aktionare-von-lincoln-gold-stimmen-allen-resolutionen-auf-der-jahreshauptversammlung-2026-uberwaltigend-zu)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/taller-comunitario-de-creacion-artistica-por-el-60-aniversario-del-hktdc-involucra-a-100-estudiantes-en-wan-chai)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/accionistas-de-lincoln-gold-aprueban-abrumadoramente-todas-las-resoluciones-en-la-junta-anual-de-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/60e-anniversaire-du-hktdc-un-atelier-de-creation-artistique-communautaire-reunit-100-etudiants-a-wan-chai)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-actionnaires-de-lincoln-gold-approuvent-massivement-toutes-les-resolutions-lors-de-lassemblee-annuelle-2026)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/60o-aniversario-do-hktdc-workshop-de-criacao-artistica-comunitaria-envolve-100-alunos-em-wan-chai)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/acionistas-da-lincoln-gold-aprovam-esmagadoramente-todas-as-resolucoes-na-assembleia-anual-de-2026)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/community-art-project-celebrates-hktdcs-60th-anniversary-showcasing-hong-kongs-global-role)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-proposals-at-2026-annual-meeting)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork-celebrating-hong-kongs-global-role)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/hktdc-60th-anniversary-wan-chai-community-art-creation-workshop-unites-100-students-to-create-mega-artwork)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/community-art-project-marks-hktdcs-60th-anniversary-highlights-hong-kongs-global-role)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-matters-at-2026-annual-meeting)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/community-mega-artwork-marks-hktdcs-60th-anniversary-with-youth-creativity)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/wan-chai-students-create-mega-artwork-for-hktdc-60th-anniversary)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/students-collaborate-with-artist-for-hktdc-60th-anniversary-artwork)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/lincoln-gold-shareholders-overwhelmingly-approve-all-proposals-at-2026-annual-meeting)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/community-art-creation-marks-hktdcs-60th-anniversary-with-mega-artwork)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/community-art-workshop-engages-students-for-hktdc-60th-anniversary)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/100-students-create-mega-artwork-for-hktdc-60th-anniversary)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/community-art-creation-marks-hktdcs-60th-anniversary-with-mega-artwork)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-matters-at-2026-annual-meeting)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork-celebrating-hong-kongs-global-role)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions-at-2026-annual-meeting)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lincoln-gold-shareholders-overwhelmingly-approve-all-resolutions/202635577)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-a/202635578)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/zest6LhX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/jinxVbV9.webp)
