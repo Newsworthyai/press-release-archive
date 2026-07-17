@@ -1,94 +1,106 @@
-# Scandium Canada Provides Activities Update on Alloy Commercialization, Crater Lake Drilling, and Record Q3 Financial Results
+# MPC Capital to Become MPC Oceanic Group
 
-MONTREAL, QUEBEC - July 16, 2026 (NEWMEDIAWIRE) - Scandium Canada Ltd. (TSX-V: SCD) (the “Company”) is pleased to provide an update on the qualification and commercialization of its proprietary aluminum-scandium (Al-Sc) alloys, on the 2026 field program at its Crater Lake scandium project in Nunavik, Quebec, and on the filing of its financial report for the third quarter ended May 31, 2026.
+* MPC Capital will change its brand to MPC Oceanic Group, reflecting on a decade-long evolution from investment manager towards an integrated investment, services, and operating group across maritime and energy.
+* The new brand carries more than 30 years of entrepreneurial heritage with a vision for the next phase of growth.
+* The rebranding goes hand in hand with the change of name of MPC Capital AG to MPC Oceanic Group AG, which is scheduled to take place at the Annual General Meeting on 28 August 2026.
 
- Promising preliminary results from SC7075 wire trials and advancing commercial discussions
+ HAMBURG, GERMANY - July 16, 2026 (NEWMEDIAWIRE) - Hamburg-based MPC Capital AG (Deutsche Borse Scale, ISIN DE000A1TNWJ4) today announced it will change its name to MPC Oceanic Group AG (“MPC Oceanic”, “the Group”).
 
- The Company’s alloy strategy advanced on four fronts this quarter: promising preliminary results from its SC7075 Al-Sc welding wire, a widening set of commercial opportunities with Granges Powder Metallurgy, advancing commercialization discussions with Alpomet on welding-wire applications, and the successful acquisition of its new subsidiary Scalium+ (formerly Ferreol Technologies).
+ The new corporate brand "MPC Oceanic" combines its 30-year heritage of the "MPC" brand with "Oceanic", a reference to the ocean as the foundation of the Group's activities. The ocean enables global trade and is central to how the world will generate energy in the future.
 
- Wire samples of the Company’s patent-pending modified SC7075 alloy have been shipped to a collaborator for Wire Arc Additive Manufacturing (WAAM) trials. Preliminary results are promising as the wire demonstrated the ability to produce structures comparably to a commercial wire without scandium; work now focuses on optimizing deposition parameters. This application alone could generate demand of up to 30 tonnes per year of scandium oxide, a market segment that does not currently exist. Rods of the Company’s SC535 alloy also show promise in high-temperature applications.
+ MPC Oceanic: Established over 30 years, named for what's ahead
 
- Work under the Memorandum of Understanding with Granges Powder Metallurgy is expanding, now covering powders and plates, with a number of commercial opportunities identified, notably in energy and in defence with European OEMs.
+ The rebranding marks the next chapter of a strategic transformation that has redefined the company over the past decade: MPC Oceanic has grown well beyond its origins as a pure investment manager into a fully integrated investment, services, and operating group across maritime and energy sectors.
 
- Discussions with Alpomet on welding-wire applications are actively advancing. While no binding agreement is in place, the signal is clear that industrial users want qualified, weldable, high-strength aluminum wire.
+ As an operator, the Group runs a diversified maritime services platform supporting around 500 vessels for industrial customers worldwide, with technical, commercial, digital, and performance-management capabilities. It includes technical manager Wilhelmsen Ahrenkiel, shipbroker Harper Petersen Albis, maritime IT provider Waterway, as well as AI and performance-management specialist Bestship.
 
- On June 29, 2026, the Company closed the acquisition of Ferreol Technologies, now Scalium+ Inc. (“Scalium+”), its wholly owned alloy commercialization subsidiary (see press release dated June 29, 2026). Scalium+ brings an established Quebec City commercial team, active alloy clients and a proven production workflow, and consolidates the commercialization of the Company’s Al-Sc alloys and of the Scalium® line. One Scalium® alloy is already commercialized, and based on internal testing under controlled conditions, some Scalium® alloys demonstrated strength results up to 45% higher than typical AA7075 aerospace aluminum. Integration is underway across commercial, production and administrative functions.
+ Beyond its operational platform, MPC Oceanic has established a strong track record as an investor, investment manager, and company builder. Alongside investors and partners, the Group develops, structures, finances, and manages investments across maritime and energy sectors, combining entrepreneurial capital with deep operational expertise.
 
- Luc Duchesne, Ph.D., Chief Science Officer of Scalium+, commented: “Our preliminary results are promising: we have demonstrated that we can produce structures by WAAM with our SC7075 wire. Next, we aim to optimize deposition parameters with our collaborator, while our work with Granges and our discussions with Alpomet continue to identify prototyping opportunities. As well, our consolidation of alloys with Scalium+ permits a larger offering of 7000-series aluminum-scandium material (sheets, plates, billets) to our existing products (powders, wires and rods) to potential end users.”
+ Over the years, MPC Oceanic has built a number of successful investment platforms and operating businesses, creating long-term value for investors and partners. One of the most prominent examples is MPC Container Ships, which has grown into one of the world's leading providers of feeder container tonnage with a fleet of around 60 vessels. More recently, MPC Oceanic has developed nearly 40 vessel newbuildings for various partners with a total investment volume of approximately USD 2.5 billion and expanded renewable energy activities in Latin America and Europe.
 
- “Two weeks in, the priority is simple: keep serving our existing alloy clients while opening the order book to the alloys developed by Scandium Canada. A commercial team, a production workflow and a proprietary alloy portfolio shorten the distance between the laboratory and a purchase order,” commented Felix Lapointe, CEO of Scalium+.
+ Under the new MPC Oceanic brand, the Group gives this evolution a clear identity and platform for the next phase of growth.
 
- Filing of Q3 report: $15.2 million in working capital, the strongest balance sheet in the Company’s history
+ Constantin Baack, CEO of MPC Oceanic Group: “MPC Oceanic Group marks the next chapter in our company's evolution, building on the strategic principles that have guided our successful growth over the past decade. We have evolved into a business that invests, manages, and operates across maritime and energy sectors. Our new name reflects that reality with an identity that is as ambitious and international as the business itself. This is not a change in direction, it is the natural continuation of the course we have pursued successfully for many years. It reflects both who we are today and the role we aspire to play: moving the world forward reliably, every day, for generations to come."
 
- The Company also announces the filing of its interim financial statements and management’s discussion and analysis for the three-month and nine-month periods ended May 31, 2026, available on SEDAR+ (www.sedarplus.ca) and at scandium-canada.com/financial-reports/.
+ Change of name to become effective by beginning of September
 
- As of May 31, 2026:
+ The renaming will be implemented in stages. External communication of the new brand begins today, 16 July 2026. Shareholders are asked to approve the change of name at the Annual General Meeting on 28 August 2026; once approved, the new name will be filed with the commercial register and become legally effective. From the beginning of September 2026, the company's domain www.mpc-oceanic.com, email addresses and related administrative details will be updated to reflect the new name. Until the change becomes legally effective, the existing name MPC Capital AG continues to apply.
 
- - Cash of $11.6 million, a twenty-nine-fold increase from $0.4 million at August 31, 2025
+ About MPC Oceanic Group
 
- - Working capital of $15.2 million, a $16.6 million swing from negative working capital at August 31, 2025
+ MPC Oceanic Group (“MPC Oceanic”), currently operating under the name MPC Capital, is a Hamburg-based, publicly listed investment and operating group active across maritime and energy sectors. For more than 30 years, MPC Oceanic has built businesses and platforms essential to global trade and the energy transition. Working alongside institutional investors, industrial clients and strategic partners, MPC Oceanic develops, structures, finances, manages and operates maritime and energy assets.
 
- - Total assets of $31.9 million and total equity of $30.2 million, both more than double their August 31, 2025 levels
+ MPC Oceanic employs approximately 280 people across 10 countries and manages and operates more than 500 vessels and energy assets with a combined value of approximately EUR 5.4 billion. Shares of MPC Oceanic Group AG are listed in the Scale segment of the Frankfurt Stock Exchange (Deutsche Börse) under ISIN DE000A1TNWJ4.
 
- - Total liabilities reduced to $1.6 million, with all unsecured loans repaid in full
+ Contact
 
- The expansion was funded by equity while debt was retired: financing activities generated $18.6 million over nine months, net of issuance costs, anchored by the $17.25 million bought deal completed in March 2026, which included the full exercise of the over-allotment option. Between September 1, 2025 and July 14, 2026, holders exercised a further 46.7 million warrants and 1.5 million stock options for gross proceeds of $2.96 million. An additional $1.5 million in government grants was receivable at quarter-end.
+ MPC Oceanic Group AGStefan ZenkerHead of Investor Relations & Corporate CommunicationsTel. +49 (40) 380 22-4347Email: s.zenker@mpc-capital.comThe press release and the logo of MPC Oceanic Group are available for download under this link: MPC News
 
- As stated in the MD&A, management believes that the funds currently available to the Company are sufficient to meet its obligations, budgeted expenditures and commitments for at least the next twelve months.
+ 
 
- Guy Bourassa, CEO of Scandium Canada, commented: “At the midpoint of the field season, the Company is executing the plan presented to shareholders in April: the drill is turning at Crater Lake, our SC7075 wire is showing promising results for structures produced by WAAM, and our newly acquired Scalium+ subsidiary gives us a commercial team selling alloys today. With $11.6 million in cash and the strongest balance sheet in our history, we are funded for the catalysts ahead. The future is very exciting for Scandium Canada.”
+ 
 
- Crater Lake: 2026 drilling campaign on schedule
-
- The 2026 diamond drilling campaign announced on June 11, 2026 is advancing on schedule under the management of Laurentia Exploration.
-
- Drilling information
-
- The program is primarily dedicated to collecting a representative metallurgical bulk sample of 8 to 10 tonnes throughout the defined resource, the key input for the metallurgical testwork supporting the future feasibility study. A more comprehensive update on the campaign, including the bulk sample program, will be provided in the coming weeks.
-
- In parallel, WSP’s environmental assessment work is proceeding on schedule, with field teams on site conducting fauna and flora inventories, fish habitat surveys, and hydrogeological and geochemical studies in support of the prefeasibility study.
-
- Field operations have been conducted without any reported injuries or operational incidents.
-
- Qualified Person
-
- The scientific and technical information contained in this news release has been reviewed and approved by Eric Kinnan, P.Geo. (OGQ No. 00788), an independent consulting geologist and a Qualified Person as defined by National Instrument 43-101 – Standards of Disclosure for Mineral Projects. Mr. Kinnan has reviewed the data disclosed herein and has verified the information through examination of the project database, geological records, assay certificates, and applicable QA/QC protocols and procedures.
-
- ABOUT SCANDIUM CANADA LTD.
-
- Scandium Canada (TSX-V: SCD) is a critical minerals mining and advanced materials company developing North America’s only primary source of scandium at its Crater Lake project in Nunavik, Quebec. Through Scalium+, its wholly owned commercialization subsidiary, the Company brings proprietary, patent-pending aluminum-scandium (Al-Sc) alloys and the Scalium® line of alloys and technologies to market today, while advancing the Crater Lake mining project for the future. This dual-engine strategy positions Scandium Canada to anchor a secure North American scandium supply chain and to shape the future of lighter, stronger and longer-lasting materials for advanced manufacturing end users, while committing itself to building a more responsible economy through innovation and agility.
-
- ABOUT SCALIUM+
-
- Scalium+, formerly Ferreol Technologies, a wholly owned subsidiary of Scandium Canada, consolidates the commercialization of aluminum-scandium (Al-Sc) alloys developed by Scandium Canada’s Scandium+ division and the Scalium® line of alloys and surface treatment developed by the Ferreol Technologies team. Based on Ferreol Technologies’ internal testing under controlled conditions, some Scalium® alloys demonstrated strength results of up to 45% higher than typical 7075 aerospace aluminum. Subject to further testing for commercial applications and scale, certain Scalium® alloys may have the potential to substitute high-strength aluminum alloys or titanium in demanding high-stress applications. Scalium+ brings specialized Al-Sc materials to market across multiple sectors.
-
- FORWARD-LOOKING STATEMENTS
-
- This news release contains forward-looking information within the meaning of applicable Canadian securities laws, including, without limitation, statements regarding the progress and expected completion of the 2026 drilling campaign, the collection of the metallurgical bulk sample, the timing of assay results, the environmental assessment work, the qualification and end-user testing of the Company’s Al-Sc alloys, the identification and pursuit of commercial opportunities with industrial partners, the integration and commercialization activities of Scalium+, the sufficiency of the Company’s funds and, generally, the above “About Scandium Canada Ltd.” paragraph which essentially describes the Company’s outlook. Forward-looking information is based on assumptions and is subject to risks and uncertainties that could cause actual results to differ materially. Although the Company believes the expectations reflected in such information are reasonable, undue reliance should not be placed on it. The Company undertakes no obligation to update forward-looking information except as required by law.
-
- Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable by the Company as of the time of such statements, are inherently subject to significant business, economic and competitive uncertainties, and contingencies. These estimates and assumptions may prove to be incorrect. Many of these uncertainties and contingencies can directly or indirectly affect, and could cause, actual results to differ materially from those expressed or implied in any forward-looking statements and future events, could differ materially from those anticipated in such statements. A description of assumptions used to develop such forward-looking information and a description of risk factors that may cause actual results to differ materially from forward-looking information can be found in the Company’s disclosure documents on the SEDAR+ website at www.sedarplus.ca.
-
- By their very nature, forward-looking statements involve inherent risks and uncertainties, both general and specific, and risks exist that estimates, forecasts, projections and other forward-looking statements will not be achieved or that assumptions do not reflect future experience. Forward-looking statements are provided for the purpose of providing information about management’s endeavors to develop the Crater Lake project, and, more generally, its expectations and plans relating to the future. Readers are cautioned not to place undue reliance on these forward-looking statements as a number of important risk factors and future events could cause the actual outcomes to differ materially from the beliefs, plans, objectives, expectations, anticipations, estimates, assumptions and intentions expressed in such forward-looking statements. All of the forward-looking statements made in this press release are qualified by these cautionary statements and those made in our other filings with the securities regulators of Canada. The Company disclaims any intention or obligation to update or revise any forward-looking statement or to explain any material difference between subsequent actual events and such forward-looking statements, except to the extent required by applicable law.
-
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- For additional information, please contact:
-
- Scandium Canada Ltd.Arnaud Bourassa FrancoeurDirector, Communications & MarketingPhone: +1 (418) 609-4900Email: info@scandium-canada.comWebsite: www.scandium-canada.comLinkedIn: Scandium Canada Ltd.X: @ScandiumCanadaFacebook: Scandium CanadaInstagram: @scandiumcanada
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/scandium-canada-provides-activities-update-on-alloy-commercialization-crater-lake-drilling-and-record-q3-financial-results-7087786)
+[Original/Source Press Release](https://www.newmediawire.com/news/mpc-capital-to-become-mpc-oceanic-group-7087790)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/scandium-canada-reports-record-q3-results-and-alloy-progress/f2a9a13064e6b66d0a9679d32492e47d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-maritime-and-energy-focus/e53d9bec5d84e83a18ca14a18e35b45a) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/mpc-capital-rebrands-as-mpc-oceanic-group-to-reflect-maritime-and-energy-focus)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-strategic-transformation)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-to-reflect-maritime-and-energy-evolution)
+
+Pickup - [https://burstable.news](https://burstable.news/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-decade-long-strategic-transformation)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/mpc-capital-benennt-sich-in-mpc-oceanic-group-um-spiegelbild-einer-zehnjahrigen-strategischen-transformation)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/mpc-capital-se-renombra-como-mpc-oceanic-group-reflejando-una-transformacion-estrategica-de-una-decada)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/mpc-capital-se-rebaptise-mpc-oceanic-group-reflet-dune-transformation-strategique-dune-decennie)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/mpc-capital-rebatiza-como-mpc-oceanic-group-refletindo-decada-de-transformacao-estrategica)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-to-reflect-integrated-maritime-and-energy-operations)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-marking-a-decade-of-transformation)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-strategic-transformation)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-maritime-and-energy-evolution)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-evolution-into-integrated-maritime-and-energy-operator)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-decade-long-strategic-transformation)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-strategic-transformation)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/mpc-capital-rebrands-as-mpc-oceanic-group-signaling-strategic-shift-to-integrated-maritime-and-energy-operator)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-strategic-shift)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e53d9bec5d84e83a18ca14a18e35b45a)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-signaling-shift-to-integrated-maritime-and-energy-operator)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-signaling-evolution-into-integrated-maritime-and-energy-operator)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-to-reflect-strategic-evolution)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-a-decade-of-strategic-transformation)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/mpc-capital-rebrands-as-mpc-oceanic-group-reflecting-shift-to-in/202635573)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/16/kissCFSp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/16/silkSFlt.webp)
