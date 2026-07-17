@@ -1,94 +1,48 @@
-# Community Creates Mega Artwork for HKTDC 60th Anniversary
+# 164 Schools in 44 States Awarded Grants to Improve Student Health
 
-100 Students Draw Scenes Illustrating the City's Role as a Global Connector, Artwork Unveiling in October
+DALLAS - July 17, 2026 (NEWMEDIAWIRE) - Lower physical activity is taking a toll on the health of American children and contributing to rising obesity rates nationwide. According to new research published in the American Heart Association's flagship journal, Circulation, obesity among youth increased by approximately 30% between 1999 and 2023, while severe obesity rose 50%. To help more students get active, the American Heart Association and the National Football League (NFL) recently awarded NFL PLAY 60 grants to 164 schools in 44 states through the Association’s school-based programs, Kids Heart Challenge™ and American Heart Challenge™.
 
- HONG KONG - July 16, 2026 (NEWMEDIAWIRE) - As part of the Hong Kong Trade Development Council’s (HKTDC) 60th anniversary celebrations, the Wan Chai Community Art Creation Workshop was held today during the Hong Kong Book Fair. Around 100 students created drawings of Hong Kong landmarks and city scenes in collaboration with local artist Jane Lee (who works using the pseudonym Messy Desk), providing inspiration for her large-scale artwork celebrating the HKTDC’s 60th anniversary. HKTDC Chairman Prof Frederick Ma and Executive Director Sophia Chong attended the event to admire the students’ artistic depictions of Hong Kong's economic and industrial strengths, while highlighting the HKTDC’s commitment to community and youth development, and promoting Hong Kong’s trade and business.
+ This marks the third round of NFL PLAY 60 grants awarded in 2026, part of a $350,000 annual investment from the NFL through its collaboration with the American Heart Association, a relentless force changing the future of health for everyone everywhere. NFL PLAY 60 grants help schools meet critical wellness needs identified by educators, from equipment and recess enhancements to inclusive physical education and well-being resources.
 
- Prof Frederick Ma, Chairman of the HKTDC, said: “The Wan Chai Community Art Creation Workshop enables young people to draw a vibrant picture of Hong Kong through art. Every pen stroke vividly reflects their perspective on the city’s global role. The HKTDC has been based in Wan Chai for decades, helping link Hong Kong with global markets. Through this project we are fostering the growth of Wan Chai’s creative sector and the exchange of ideas, creating momentum for the future.”
+ “Children spend so much of their time in the classroom, which makes schools powerful allies in helping them build lifelong healthy habits,” said Nancy Brown, chief executive officer of the American Heart Association. “With support from the NFL, we're proud to give schools additional opportunities to promote physical activity and student well-being so more students have a chance to live longer, healthier lives.”
 
- Centring on the theme Hong Kong Trade · Connecting the World, Jane Lee set out to engage the community through art and spark students’ creativity by integrating their ideas into a large-scale artwork to commemorate the HKTDC’s 60th anniversary. Students from primary and secondary schools in Wan Chai were invited to take part through the Boys' & Girls' Clubs Association of Hong Kong, Methodist Centre and St James’ Settlement, presenting Hong Kong’s trade development through the workshop.
+ Fewer than 1 in 4 children in the United States currently get enough physical activity. NFL PLAY 60 encourages children to be physically active for at least 60 minutes a day, aligning with the U.S. Department of Health and Human Services’ Physical Activity Guidelines for Americans.
 
- The artwork incorporates Hong Kong landmarks, scenes from exhibitions and conferences, as well as elements depicting the shipping and air freight sector, alongside community and business life. Its creative expressions convey Hong Kong’s “Four Centres and One Hub” positioning under the national 15th Five-Year Plan - highlighting the city’s role as an international financial, shipping, trading and innovation and technology centre, as well as a global hub for high-calibre talent. The piece underscores Hong Kong’s strengths in connecting global markets and showcases the vitality and dynamism of Wan Chai as a major hub for international conventions, exhibitions and business activities.
+ “For many kids, staying active isn’t about interest. It's about access to the right space, equipment and time to move,” said Megan Mendoza, senior manager of social responsibility, NFL. “These grants help remove barriers so more students - even those who might otherwise sit on the sidelines - get the chance to jump in and play.”
 
- Through the Wan Chai Community Art Creation Workshop, participating students deepened their understanding of HKTDC’s role and Hong Kong’s trade development. The students' drawings will be compiled at the end of today’s workshop to serve as inspiration for the final large-scale artwork. The artwork will undergo final refinement by the artist and will be displayed from 2 to 29 October at the eastbound tram stop at O'Brien Road in Wan Chai, allowing the public to witness this milestone in HKTDC’s 60th anniversary.
+ More information on NFL PLAY 60 resources and grant opportunities can be found at heart.org/NFLPLAY60.
 
- During the Hong Kong Book Fair, the HKTDC also facilitated free visits to the Book Fair, the Sports and Leisure Expo and World of Snacks for participating students, enabling them to take part in a range of cultural activities and broaden their horizons.
+ About the American Heart Association
 
- Photo download: https://bit.ly/4fgDKgX
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- Websites
+ About NFL PLAY 60
 
- HKTDC’s 60th Anniversary Celebration Activities: https://60.hktdc.com/en
+ NFL PLAY 60 is the League’s national youth health and wellness platform. For 20 years, the initiative has empowered millions of youth to get physically active for at least 60 minutes a day and provided support for programs and resources so that kids everywhere can lead a healthy lifestyle. Alongside the NFL’s 32 NFL clubs and partners, the PLAY 60 movement will continue to serve and motivate the next generation of youth to get active and PLAY 60. For more information, visit NFL.com/PLAY60.
 
- HKTDC Media Room: https://mediaroom.hktdc.com/en
+ For Media Inquiries:
 
- Media enquiries
+ American Heart Association: Afton Fairchild, afton.fairchild@heart.org
 
- HKTDC’s Communications & Public Affairs Department:
+ National Football League: Ian Martin, Ian.Martin@nfl.com
 
- Christy LeeTel: (852) 2584 4369Email: christy.wn.lee@hktdc.org
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
- Navin LawTel: (852) 2584 4525Email: navin.cm.law@hktdc.org
+ heart.org and stroke.org
 
- Winnie KanTel: (852) 2584 4055Email: winnie.wy.kan@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/community-creates-mega-artwork-for-hktdc-60th-anniversary-7087800)
+[Original/Source Press Release](https://www.newmediawire.com/news/164-schools-in-44-states-awarded-grants-to-improve-student-health-7087807)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/100-students-paint-hong-kong-s-global-role-for-hktdc-s-60th-anniversary/ca0b6641956ba7914645a384a6c79982) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nfl-and-american-heart-association-award-grants-to-boost-youth-activity/656f83f0ba769476ae3b4b05d3f29d9c) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/community-art-creation-marks-hktdcs-60th-anniversary-fostering-youth-engagement)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hktdc-60th-anniversary-community-art-project-unites-students-to-celebrate-hong-kongs-global-role)
-
-Pickup - [https://burstable.news](https://burstable.news/news/hktdc-60th-anniversary-community-art-creation-workshop-engages-100-students-in-wan-chai)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hktdc-60-jubilaum-gemeinschaftskunst-workshop-begeistert-100-schuler-in-wan-chai)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/taller-comunitario-de-creacion-artistica-por-el-60-aniversario-del-hktdc-involucra-a-100-estudiantes-en-wan-chai)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/60e-anniversaire-du-hktdc-un-atelier-de-creation-artistique-communautaire-reunit-100-etudiants-a-wan-chai)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/60o-aniversario-do-hktdc-workshop-de-criacao-artistica-comunitaria-envolve-100-alunos-em-wan-chai)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/community-art-project-celebrates-hktdcs-60th-anniversary-showcasing-hong-kongs-global-role)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork-celebrating-hong-kongs-global-role)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/hktdc-60th-anniversary-wan-chai-community-art-creation-workshop-unites-100-students-to-create-mega-artwork)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/community-art-project-marks-hktdcs-60th-anniversary-highlights-hong-kongs-global-role)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/community-mega-artwork-marks-hktdcs-60th-anniversary-with-youth-creativity)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/wan-chai-students-create-mega-artwork-for-hktdc-60th-anniversary)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/students-collaborate-with-artist-for-hktdc-60th-anniversary-artwork)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/community-art-creation-marks-hktdcs-60th-anniversary-with-mega-artwork)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/community-art-workshop-engages-students-for-hktdc-60th-anniversary)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/100-students-create-mega-artwork-for-hktdc-60th-anniversary)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/community-art-creation-marks-hktdcs-60th-anniversary-with-mega-artwork)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-artwork-celebrating-hong-kongs-global-role)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/community-art-workshop-marks-hktdcs-60th-anniversary-with-mega-a/202635578)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/jinxVbV9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/yawnk_xs.webp)
