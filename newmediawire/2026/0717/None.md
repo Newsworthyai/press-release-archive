@@ -1,48 +1,84 @@
-# 164 Schools in 44 States Awarded Grants to Improve Student Health
+# SS Innovations International (SSII) to Showcase SSi Mantra at Society of Robotic Surgery Annual Meeting
 
-DALLAS - July 17, 2026 (NEWMEDIAWIRE) - Lower physical activity is taking a toll on the health of American children and contributing to rising obesity rates nationwide. According to new research published in the American Heart Association's flagship journal, Circulation, obesity among youth increased by approximately 30% between 1999 and 2023, while severe obesity rose 50%. To help more students get active, the American Heart Association and the National Football League (NFL) recently awarded NFL PLAY 60 grants to 164 schools in 44 states through the Association’s school-based programs, Kids Heart Challenge™ and American Heart Challenge™.
+LOS ANGELES, CA - July 17, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII) announced its SSi Mantra surgical robotic system will be featured at the 2026 Society of Robotic Surgery Annual Meeting, July 23-26 in Hollywood, Florida. The system will be displayed throughout the event, highlighted in multiple breakout sessions and used in a live broadcast of a remote partial nephrectomy performed by Dr. Amitabh Singh from the company’s headquarters in Gurugram, India, on a patient at Rajeev Gandhi Cancer Institute and Research Centre in New Delhi.
 
- This marks the third round of NFL PLAY 60 grants awarded in 2026, part of a $350,000 annual investment from the NFL through its collaboration with the American Heart Association, a relentless force changing the future of health for everyone everywhere. NFL PLAY 60 grants help schools meet critical wellness needs identified by educators, from equipment and recess enhancements to inclusive physical education and well-being resources.
+ Chairman and CEO Dr. Sudhir Srivastava will participate as a speaker and panelist in multiple sessions covering telesurgery, robotic surgery adoption, regulatory frameworks and global access to robotic care. As of July 6, 2026, the SSi Mantra system had been used in 12,375 procedures spanning more than 170 procedure types, including 653 cardiac procedures, 178 telesurgeries and 225 pediatric surgeries, while approximately 2,100 physicians have been trained on the platform.
 
- “Children spend so much of their time in the classroom, which makes schools powerful allies in helping them build lifelong healthy habits,” said Nancy Brown, chief executive officer of the American Heart Association. “With support from the NFL, we're proud to give schools additional opportunities to promote physical activity and student well-being so more students have a chance to live longer, healthier lives.”
+ To view the full press release, visit https://ibn.fm/YYYKE
 
- Fewer than 1 in 4 children in the United States currently get enough physical activity. NFL PLAY 60 encourages children to be physically active for at least 60 minutes a day, aligning with the U.S. Department of Health and Human Services’ Physical Activity Guidelines for Americans.
+ About SS Innovations
 
- “For many kids, staying active isn’t about interest. It's about access to the right space, equipment and time to move,” said Megan Mendoza, senior manager of social responsibility, NFL. “These grants help remove barriers so more students - even those who might otherwise sit on the sidelines - get the chance to jump in and play.”
+ SS Innovations International, Inc. develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of surgical robotic procedures including cardiac surgery. An American company headquartered in India, SS Innovations plans to expand the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions.
 
- More information on NFL PLAY 60 resources and grant opportunities can be found at heart.org/NFLPLAY60.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About the American Heart Association
+ Forward Looking Statements
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- About NFL PLAY 60
-
- NFL PLAY 60 is the League’s national youth health and wellness platform. For 20 years, the initiative has empowered millions of youth to get physically active for at least 60 minutes a day and provided support for programs and resources so that kids everywhere can lead a healthy lifestyle. Alongside the NFL’s 32 NFL clubs and partners, the PLAY 60 movement will continue to serve and motivate the next generation of youth to get active and PLAY 60. For more information, visit NFL.com/PLAY60.
-
- For Media Inquiries:
-
- American Heart Association: Afton Fairchild, afton.fairchild@heart.org
-
- National Football League: Ian Martin, Ian.Martin@nfl.com
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/164-schools-in-44-states-awarded-grants-to-improve-student-health-7087807)
+[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-to-showcase-ssi-mantra-at-society-of-robotic-surgery-annual-meeting-7087815)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nfl-and-american-heart-association-award-grants-to-boost-youth-activity/656f83f0ba769476ae3b4b05d3f29d9c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-to-showcase-ssi-mantra-at-robotic-surgery-meeting/8ee181696cb35f016687c7dbc8b9163f) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2078223223200637209)
+
+Pickup - [https://advos.io/en](https://advos.io/en/ss-innovations-to-feature-ssi-mantra-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ss-innovations-international-to-present-ssi-mantra-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://burstable.news](https://burstable.news/news/ss-innovations-showcases-ssi-mantra-surgical-robot-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ss-innovations-prasentiert-ssi-mantra-operationsroboter-auf-der-jahrestagung-der-society-of-robotic-surgery)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ss-innovations-presenta-el-robot-quirurgico-ssi-mantra-en-la-reunion-anual-de-la-sociedad-de-cirugia-robotica)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ss-innovations-presente-le-robot-chirurgical-ssi-mantra-lors-du-congres-annuel-de-la-society-of-robotic-surgery)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ss-innovations-apresenta-o-robo-cirurgico-ssi-mantra-no-encontro-anual-da-sociedade-de-cirurgia-robotica)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-meeting)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ss-innovations-international-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/ss-innovations-international-to-feature-ssi-mantra-surgical-robotic-system-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-meeting-highlights-telesurgery-and-global-access)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/ss-innovations-international-to-showcase-ssi-mantra-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/ss-innovations-international-to-present-ssi-mantra-robotic-system-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ss-innovations-to-showcase-ssi-mantra-surgical-robot-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-society-of-robotic-surgery-annual-meeting-highlighting-telesurgery-capabilities)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/ss-innovations-international-to-showcase-ssi-mantra-surgical-robot-at-robotic-surgery-conference)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/ss-innovations-international-to-highlight-ssi-mantra-surgical-robot-at-society-of-robotic-surgery-annual-meeting)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/ss-innovations-international-to-demonstrate-ssi-mantra-surgical-robot-at-society-of-robotic-surgery-meeting)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/ssiimantra-robot-to-be-featured-at-society-of-robotic-surgery-meeting)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ss-innovations-international-to-present-ssi-mantra-surgical-robo/202635617)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/8ee181696cb35f016687c7dbc8b9163f)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/8ee181696cb35f016687c7dbc8b9163f)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/yawnk_xs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/17/keep7EcO.webp)
