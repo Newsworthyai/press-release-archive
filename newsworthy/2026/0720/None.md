@@ -1,26 +1,28 @@
-# Buda, Texas Emerges as Aerospace and Defense Magnet South of Austin
+# No Agenda Podcast Breaks Down Trump Speech and CIA Docs
 
-The latest episode of The Building Texas Show, titled The Aerospace & Defense Companies Picking Buda Over Austin, published July 13, 2026, features host Justin McKenzie sitting down in Buda, Texas with Jennifer Storm, CEO of the Buda Economic Development Corporation, and Monica Davidson, CEO of the Greater Buda Chamber of Commerce and a Buda City Council member. The conversation challenges the prevailing narrative that Central Texas aerospace and defense growth is an Austin story, arguing instead that the real footprint is landing in smaller I-35 corridor cities that offer right-sized space, workforce access, and lower rent.
+Episode 1887 of the No Agenda Show, titled 'The Stick Works,' published July 19, 2026, delivers hosts Adam Curry and John C. Dvorak's signature media deconstruction of a turbulent news week. Broadcasting from the Texas Hill Country and Northern Silicon Valley, the duo unpacks President Trump's primetime address alleging Chinese interference in the 2020 election, the refusal of ABC, NBC, and CNN to carry the speech live, and the release of unclassified CIA documents that Curry pored over claim-by-claim in real time.
 
- Listeners get an insider look at how Buda built momentum in under a year. Topic threads include:
+ Across nearly three hours, Curry and Dvorak examine the specific evidentiary claims Trump advanced and cross-reference them against the source documents. Key threads include:
 
- * Why aerospace and defense firms are choosing Buda over Austin, Round Rock, and Pflugerville, often seeking 10,000 to 20,000 square foot spaces rather than greenfield.
-* The Hive incubator, which moved 60 entrepreneurs through four cohorts in its first year across industries from salons to AI apps to drones.
-* A new retail incubator opening in Buda's restored 1884 train depot on Main Street.
-* The Hays CISD teacher externship program placing 17 educators inside local businesses this summer.
+ * The alleged Chinese acquisition of 220 million U.S. voter files and what the underlying document actually says
+* The Michigan Muskegon canvassing investigation and DHS findings on 278,000 non-citizen registrations
+* Trump's real policy target: passage of the SAVE Act to end mail-in ballot vulnerabilities
+* John Brennan's MSNBC rebuttal and former White House counsel Ty Cobb's PBS commentary
 
- Storm is candid about her recent recognition from the International Economic Development Council, accepted at the Library of Congress, and equally candid about the community's positioning against its larger neighbor. "People are saying aerospace and defense is coming to Austin, but that's not true. It's coming to Buda and Bastrop and Lockhart and Kyle and San Marcos," Storm recounts a recent caller telling her. Davidson, who has doubled Chamber membership in two years, describes her role bluntly: "I want to be where business begins in Buda."
+ Curry walks listeners through his line-by-line verification exercise, arguing that Trump's rhetoric outran the released documents in several places while other claims held up. As Curry puts it:
 
- The episode digs into the mechanics behind the growth. Storm explains that the Buda EDC uses rebates rather than abatements, paying incentives only after jobs are delivered, which she frames as a low-risk taxpayer investment tied to a single mandate: economic prosperity. Davidson details how the Greater Buda Chamber rebrand widened the tent to include South Austin, Mustang Ridge, Luling, and Lockhart businesses, while partnering with anchors like US Foods, Texas Lehigh, and Jardine's. The pair also unpack the origin of Buda's trademarked title as the Wiener Dog Capital of Texas, a Lions Club idea from the 1980s that is now the city's largest annual event.
+ So I've done that as a public service. What we expected. Yes. So here is claim number 1... the People's Republic of China carried out what is believed to be the largest compromise of election data in history. Dvorak counters with skepticism about the China framing given Trump's recent Beijing overtures, asking whether the Strait of Hormuz posture and shipbuilding push signal a broader pivot.
 
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the founders, civic leaders, and operators shaping the next generation of Texas communities and companies. Each week the show travels the state to unpack how economic development, entrepreneurship, and local leadership intersect on the ground. New episodes release weekly across YouTube, Facebook, Instagram, and LinkedIn. This episode is available now wherever podcasts are heard. 
+ The episode also probes Secretary of State Marco Rubio's State Department forum on political terrorism, Treasury Secretary Scott Bessent's disclosure of a February 2024 assassination attempt by Ryan English, and Vice President JD Vance's Joe Rogan appearance targeting Brad Parscale and the Esther Project, a German PR operation allegedly funded by the Israeli government. Curry connects Parscale's FARA filings to Salem Radio Network. The hosts then track the House vote where 103 Democrats, including Whip Katherine Clark, backed Thomas Massie's amendment to cut Israel aid, with Alexandria Ocasio-Cortez, John Fetterman, and Governor Wes Moore weighing in. A long segment on AI chatbot failures features viral creator Husk and Databricks CEO commentary on GPU scarcity and the Kimi K3 model.
+
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for sharp commentary, humor, and its media deconstruction approach, the show offers an irreverent alternative to conventional news analysis. Episode 1887 is available now wherever podcasts are heard and at the show's website. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607202630/buda-texas-emerges-as-aerospace-and-defense-magnet-south-of-austin)
+[Original/Source Press Release](https://newsworthy.ai/news/202607202655/no-agenda-podcast-breaks-down-trump-speech-and-cia-docs)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/why-aerospace-defense-firms-are-picking-buda-over-austin/ffa41e7292aa01f128edcf9a808072fb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-episode-1887-deconstructs-trump-s-china-claims/3049152f47d4d85a390d57072b615e6a) 
 
  
 
@@ -28,4 +30,4 @@ The latest episode of The Building Texas Show, titled The Aerospace & Defense Co
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/20/eachWuNf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/20/roamy2Qb.webp)
