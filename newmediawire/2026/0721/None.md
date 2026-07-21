@@ -1,75 +1,83 @@
-# INVEST Fair 2026 Kicks off, Bringing Malaysia's Investing, Money and Finance Conversations to Life
+# Ares Strategic Mining Commences Lumps Plant Commissioning and Announces Production Date
 
-* Dato’ Fad’l Mohamed, Chief Executive Officer of Bursa Malaysia, officiated the opening of INVEST Fair 2026 as Guest-of-Honour.
-* Two-day event features more than 100 speakers and over 40 exhibitors across more than 70 hours of talks and panel discussions.
-* Programmes cover equities, exchange-traded funds, retirement planning, income investing, artificial intelligence, estate planning and digital wealth solutions.
-* The inaugural Duit Fest expands the event’s focus to practical money management, financial well-being and active living.
-* Interactive activities include the Golden Ball Pit Challenge, Kick & Win Challenge, trading contests, lucky draws, and the two-day Pickleball Bull League.
+VANCOUVER, BC - July 21, 2026 (NEWMEDIAWIRE) - Ares Strategic Mining Inc. (CSE: ARS) (OTCQX: ARSMF) (FRA: N8I1) ("Ares" or the "Company") is pleased to announce that commissioning of its Metallurgical Lumps Plant has officially commenced at the Company's processing facility in Delta, Utah.
 
- KUALA LUMPUR, MALAYSIA - July 20, 2026 (NEWMEDIAWIRE) - INVEST Fair 2026, Malaysia’s largest retail investment event, has officially opened on 18 July 2026 at the Mid Valley Exhibition Centre in Kuala Lumpur, bringing investing, financial education and financial technology together under one roof.
+ For the first time, the entire processing plant has been powered up and is operating as one fully integrated system, marking the beginning of the Company's four-week commissioning program.
 
- Organised by ShareInvestor Malaysia Sdn Bhd, the two-day event was officially opened by Dato’ Fad’l Mohamed, Chief Executive Officer of Bursa Malaysia, who returned as the Guest-of-Honour.
+ The Lumps Plant has been designed to process ore from the Company's Lost Sheep Mine into metallurgical-grade fluorspar lumps ("metspar"), a product primarily supplied to U.S. steel industries.
 
- In his opening address, Dato’ Fad’l Mohamed said, “While saving helps build financial discipline and security, investing allows Malaysians to put their money to work, grow their wealth over time and work towards their long-term financial goals. It is encouraging to see more Malaysians taking that step, with more than 325,000 new retail CDS accounts opened as at mid-June this year. As participation grows, investors need access to trusted information, practical knowledge and the confidence to navigate the market. Through investor education initiatives and a wider range of investment opportunities, Bursa Malaysia is committed to helping Malaysians invest with confidence while participating in the nation's economic growth.”
+ Commissioning Testing Underway
 
- Themed “Money. Finance. Technology.”, INVEST Fair 2026 spans Halls 1, 2 and 3 of the Mid Valley Exhibition Centre and is expected to welcome approximately 20,000 visitors on 18 and 19 July 2026.
+ Over the coming weeks, the Company will undertake comprehensive integrated testing across all plant systems to verify performance, optimize operations, and prepare the facility for commercial production.
 
- This year’s edition features more than 100 industry speakers and over 40 exhibiting organisations across more than 70 hours of talks and panel discussions. The programme covers equities, exchange-traded funds, real estate investment trusts, bonds and sukuk, retirement planning, estate planning, digital investing, financial technology, sustainable investing, AI-related investment opportunities and green finance instruments.
+ Testing activities include:
 
- Mr Christopher Lee, Chief Executive Officer and Director of AlphaInvest Holdings Pte. Ltd., the holding company of ShareInvestor Malaysia, said, “We are pleased to officially open INVEST Fair 2026 and welcome investors, industry professionals and members of the public to our largest edition to date. As financial markets and technology continue to evolve, we aim to give Malaysians trusted information, practical knowledge and direct access to credible experts so they can make better-informed financial decisions at every stage of their journey.”
+ - Verifying complete process flows from ore feed through to finished product;
 
- Participating exhibitors include Bursa Malaysia, Affin Hwang Investment Bank, FSMOne, Moomoo, UOB Kay Hian, Gambit, Kenanga, ASNB, KWSP and a wide range of investment banks, fund-management companies, digital investment platforms, insurers, financial advisers, government agencies and investor-education partners.
+ - Testing PLC control systems and HMI interfaces;
 
- Throughout the two-day event, visitors can participate in fireside chats and panel discussions, engage directly with investment professionals and financial institutions, and explore the latest market trends and investment opportunities.
+ - Monitoring and optimising operating parameters including temperatures, pressures and material flows;
 
- Key programme highlights include panel talks on:
+ - Validating alarm systems, diagnostics and automated start-up and shutdown sequences; and
 
- * Mapping Malaysia’s Investment Future
-* Geared for Growth: Navigating Leveraged Products in Volatile Markets
-* Can Anyone Be an Entrepreneur Now? Lowering the Bar with AI, Social Media, and Digital Tools
+ - Assessing crushing, drying and product quality to ensure metallurgical-grade fluorspar meets customer specifications.
 
- This year also marks the debut of Duit Fest, a dedicated segment focused on practical personal finance and everyday money habits. Riding on the excitement surrounding the 2026 World Cup season, the Kick & Win Challenge invites visitors to enjoy games and collect stamps for an opportunity to win exclusive prizes. Visitors can also watch pre-registered participants at the Pickleball Bull League tournaments, taking place on both event days.
+ https://youtu.be/8CzwUTRsSOA
 
- Selected government agencies, including JPJ, NFCC, Zakat Selangor, LHDN, PTPTN and PDRM, are also participating in the fair to provide information and guidance on public services, taxation, zakat, education financing, scam awareness and consumer protection matters. At the Career Partner Area, participating organisations share information on employment and internship opportunities within the finance, investment and related industries.
+ James Walker, President and CEO of Ares Strategic Mining, commented: "It's incredibly rewarding to see the entire Lumps Plant operating together for the first time. This is an exciting milestone for everyone involved with Ares and reflects years of planning, engineering and construction. Our focus now is on completing commissioning successfully and beginning production.”
 
- INVEST Fair 2026 is supported by sponsors from across industry, reflecting the sector’s continued commitment to investor education, financial literacy and greater public access to trusted financial information.
+ Advancing Toward ProductionAs commissioning progresses, fluorspar ore stockpiled at the Lost Sheep Mine will be transported to the Delta processing facility to support testing and initial ramp up production runs.
 
- Datuk Clifford, Group Chief Executive Officer of Gambit Group, said, “As more Malaysians invest for their futures, holistic wealth planning matters more than ever. At INVEST Fair 2026, Gambit is proud to showcase its Digital Trustee solutions that make estate planning simpler, more accessible and future-ready.”
+ The Company expects ramp up production to begin on August 15, 2026. Ramp up refers to ramping up the feed to the full plant production potential.
 
- Mr Hanif bin Ghulam Mohammed, Chief Executive Officer of Affin Hwang Investment Bank Berhad, said, “INVEST Fair 2026 showcases opportunities across equities, futures and structured products. Through market expertise, research-driven insights and comprehensive investment solutions, AFFIN HWANG equips investors to capitalise on opportunities in an evolving market landscape.”
+ As per the Company’s Press Release of March 27, 2024, commercial offtake agreements are already in place covering the Company's expected initial metspar production for the first five years
 
- “INVEST Fair reflects exactly where investing in Malaysia is heading - the meeting point of money, finance and technology. At Moomoo, we believe trust is the foundation of every investment decision, which is why more than 30 million investors worldwide already choose to trade with us. We’re proud to sponsor Invest Fair 2026 and bring that same trusted, professional-grade experience to more Malaysians as they invest with knowledge and confidence,” said Ms Indy Lau, Chief Operating Officer of Moomoo Malaysia.
+ The Lumps Plant has a designed processing capacity of approximately 150,000 tonnes per annum, providing capacity to support increased mine output and expansion across the Lost Sheep Project and the wider Spor Mountain Range.
 
- For more information on the event, please visit the official website at: https://investfair.com.my/
+ James Walker adds, “We've intentionally built infrastructure that extends well beyond our initial mining rate. As we continue developing additional fluorspar targets across our property, this processing capacity gives us a platform for future growth while supporting our objective of establishing a secure U.S. supply of this critical mineral."
 
- About AlphaInvest Holdings Pte. Ltd. (www.alphainvestholdings.com)
+ About Ares Strategic Mining
 
- A leading regional financial services, media and technology company, AlphaInvest Holdings Pte Ltd (“AlphaInvest” or the “Group”) was founded in 1999 to empower investors by providing them with trusted products and services for informed investment decision-making. Its core areas of business span investor relations, market data tools and investor education.
+ Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure.
 
- AlphaInvest Group operates the largest investor relations network in the region, with a customer base of about 700 public listed companies and a reach of over 300,000 people across its platforms. The Group has over 120 employees in four countries (Singapore, Malaysia, Thailand, and Indonesia).
+ Lost Sheep Fluorspar Project - Delta, Utah
 
- The Group has made several strategic investments:
+ - 100% owned - 5,982 acres - 353 Claims
 
- - in investor relations/public relations firm, Waterbrooks Consultants Pte Ltd (www.waterbrooks.com.sg)- in Singapore’s leading social media platform for investors, InvestingNote (www.investingnote.com).
+ - Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
 
- InvestingNote is the largest and most active social platform for investments in Singapore and Malaysia. It is a community-driven platform designed specifically to help investors and traders to share ideas on stocks, news and insights through social networking and a variety of useful investment tools.
+ - Fully Permitted - including mining permits.
 
- ShareInvestor (www.shareinvestor.com) provides online market data tools for multiple markets across its ShareInvestor Station™, ShareInvestor WebPro™ and ShareInvestor Mobile range of products.
+ - NI 43-101 Technical Report identified high-grade fluorspar with low levels of impurities.
 
- AlphaInvest’s digital publications include:
+ - Mining plan approved by BLM
 
- - Investor-One (www.investor-one.com), a website on investor education, market news, corporate developments, and data analytics;- Inve$t, the e-magazine published weekly in Singapore and Malaysia.
+ First approved by Rex Rowley - Area Manager, Bureau of Land Management - 24th August 1992.
 
- AlphaInvest organises financial investment seminars and conferences for investors. Its annual large-scale events INVESTFAIR™(https://investfair.com.my/) in Malaysia and Singapore draws thousands of participants. Other key exhibitions include the largest REIT event ie REITS Symposium (www.reitsymposium.com).
+ Renewed by Paul B. Baker - Minerals Program Manager, Bureau of Land Management - 12th December 2016.
 
- Media Contact:Mr Darren ChongHead of Investor PlatformsShareInvestor / Investing NoteEmail: darren.chong@shareinvestor.comMobile/WhatsApp: (+60) 014-944-1639 
+ ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING INC.
+
+ James WalkerChief Executive Officer and President
+
+ For further information, please contact James Walker by email at info@aresmining.com
+
+ DISCLOSURE AND FORWARD-LOOKING STATEMENTS:
+
+ Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
+
+ Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law.
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/invest-fair-2026-kicks-off-bringing-malaysia-s-investing-money-and-finance-conversations-to-life-7087837)
+[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-commences-lumps-plant-commissioning-and-announces-production-date-7087840)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/invest-fair-2026-opens-in-kl-with-focus-on-financial-literacy/a173071ed7136e82d2baa18cdef9ea3f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-strategic-mining-commissions-fluorspar-lumps-plant-in-utah/372126b4787dd22b3f52f298a4520970) 
 
  
 
@@ -77,4 +85,4 @@
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/21/kiteIRdw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/21/goldA8U3.webp)
