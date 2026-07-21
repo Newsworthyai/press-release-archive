@@ -1,117 +1,64 @@
-# Wolfson Group to Showcase Scottish Wellness Portfolio at U.S. Retail Meetings
+# Nonprofit Executive Search Firm Recruiterie Named Recruiting Partner for The Lutheran Collaborative
 
+Recruiterie, a nationally recognized nonprofit executive search firm, today announced that it has been selected as a recruiting partner of The Lutheran Collaborative, a nationwide network representing more than 300 nonprofit organizations committed to strengthening communities through service, innovation, and faith-based stewardship.
 
-Wolfson Group, a Scotland-based international consumer wellness company, today announced it will participate in the ECRM Vitamin, Weight Management & Sports Nutrition Session, taking place September 14-17 in Palm Beach Gardens, Florida, as part of its continued U.S. retail expansion.
+ Through this partnership, Recruiterie will provide executive search, leadership recruitment, and strategic talent acquisition services to Lutheran service organizations throughout the US. The relationship is designed to help affiliated nonprofits attract, engage, and retain mission-driven leaders who can advance organizational growth and community impact.
 
- During the September retail meetings, Wolfson Group will present its portfolio to major health, specialty, food, drug and mass-market buyers while pursuing broader distribution through additional online retailers and brick-and-mortar stores across the United States.
+ The Lutheran Collaborative was established to empower Lutheran service organizations through innovation, operational efficiency, and expanded community impact. By leveraging shared resources and strategic partnerships, the organization helps its members strengthen their ability to serve vulnerable populations and meet evolving community needs.
 
- The company’s brands are already available to U.S. consumers through Amazon, providing an established e-commerce foundation as Wolfson Group works to increase retail accessibility, brand awareness and consumer reach.
+ Recruiterie brings extensive experience recruiting executive and senior-level talent for nonprofit organizations nationwide. Known for its consultative, relationship-driven approach, the firm specializes in identifying leaders who align not only with an organization's technical requirements but also with its mission, culture, and long-term vision.
 
- “Participating in the ECRM meetings gives us an important opportunity to introduce the breadth of our portfolio to leading U.S. retailers,” said Scott Dingwall, Founder and CEO of Wolfson Group. “Our brands have already developed strong digital commerce foundations, and we are now focused on building the relationships needed to expand into additional retail channels.”
+ “We are so excited to partner with the Lutheran Collaborative, helping support their partners by providing best-in-class nonprofit leadership candidates to continue driving their missions forward,” said Jon Schneider, President of Recruiterie
 
- Wolfson Group's portfolio includes the established wellness brands PhenQ, TestoPrime, NooCube and YourBiology, spanning categories such as weight management, cognitive wellness, gut health and men's wellbeing.
+ The partnership reflects a shared commitment to helping nonprofit organizations build strong leadership teams capable of driving meaningful outcomes in their communities.
 
- The portfolio is led by TestoPrime, the company’s most popular brand, followed by PhenQ. NooCube and YourBiology further broaden the portfolio across cognitive wellness and women’s digestive wellbeing.
+ "Through partnerships like this, The Lutheran Collaborative provides expert executive search services without sacrificing mission for resources. This allows organizations to keep their focus on what matters most: community impact," said Jaimie Fournier, Managing Director of The Lutheran Collaborative.
 
- Rather than focusing on a single wellness category, Wolfson Group has developed a diversified collection of brands designed around different consumer lifestyles and priorities. The company believes this breadth can help retailers address growing interest in proactive wellness, healthy ageing and convenient products that support everyday wellbeing.
+ As nonprofits continue to navigate an increasingly competitive talent landscape, the partnership will provide member organizations with access to specialized nonprofit recruiting expertise, expanded candidate networks, and customized search strategies, helping them save valuable time and resources while strengthening their ability to attract top mission-driven talent.
 
- “The U.S. wellness market offers significant long-term opportunities for international brands that understand both consumer expectations and the needs of retail partners,” Dingwall said. “We are bringing established brands from Scotland to these meetings with the goal of creating lasting partnerships and making our portfolio available to more consumers across the country.”
+ Together, Recruiterie and The Lutheran Collaborative will work to strengthen leadership pipelines, support organizational sustainability, and help member organizations continue delivering life-changing services in communities across the United States.
 
- Wolfson Group said its participation in the ECRM session supports a broader U.S. strategy that includes continued investment in retail partnerships, digital growth, consumer education and distribution beyond Amazon.
+ About Recruiterie Recruiterie is a national executive search and recruiting firm specializing in nonprofit leadership recruitment. Through its personalized and strategic recruiting process, Recruiterie helps nonprofit organizations identify and hire highly qualified, culturally-aligned leaders who create lasting impact. Founded by Jon Schneider, the firm serves nonprofit organizations across the United States with customized executive search and talent acquisition solutions.
 
- About [Wolfson Group](https://wolfsongroup.co.uk/pages/about-us) Wolfson Group is an international consumer wellness company focused on building science-led brands that help people live healthier lives. Its portfolio spans weight management, cognitive health, gut health, men's wellness, beauty and healthy ageing, serving millions of consumers worldwide through direct-to-consumer, marketplace and retail channels. 
+ About The Lutheran Collaborative The Lutheran Collaborative is a nationwide network of Lutheran-affiliated service organizations dedicated to fostering innovation, increasing community impact, and enhancing operational efficiency through collaborative excellence and Christ-centered stewardship. Through shared expertise, strategic partnerships, and collective action, The Lutheran Collaborative supports member organizations in expanding their reach and strengthening the communities they serve.
+
+ Media Contacts RecruiterieJon SchneiderFounder & PresidentEmail Contact
+
+ The Lutheran CollaborativeJaimie FournierManaging DirectorEmail Contact 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607212663/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+[Original/Source Press Release](https://newsworthy.ai/news/202607212648/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wolfson-group-targets-u-s-retail-expansion-at-ecrm-session/d53aafc0b0323044d6736eff8791e757) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recruiterie-partners-with-the-lutheran-collaborative-to-strengthen-nonprofit-leadership/4f893d2531bf71760b00112fca44f327) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/wolfson-group-to-attend-ecrm-session-to-expand-us-retail-presence)
-
-Pickup - [https://advos.io/en](https://advos.io/en/wolfson-group-to-pitch-scottish-wellness-brands-to-us-retailers-at-ecrm-session)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/wolfson-group-showcases-scottish-wellness-brands-at-us-retail-meetings-to-expand-distribution)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/wolfson-group-showcases-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://burstable.news](https://burstable.news/news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-ecrm-retail-meetings)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/wolfson-group-prasentiert-schottisches-wellness-portfolio-auf-ecrm-retail-meetings)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/wolfson-group-presentara-su-cartera-de-bienestar-escocesa-en-las-reuniones-minoristas-de-ecrm)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/wolfson-group-presentera-son-portefeuille-ecossais-de-bien-etre-lors-des-reunions-de-vente-au-detail-de-lecrm)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/grupo-wolfson-apresentara-portfolio-escoces-de-bem-estar-em-reunioes-de-varejo-da-ecrm)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/wolfson-group-to-showcase-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/wolfson-group-showcases-scottish-wellness-brands-at-us-retail-meetings-to-expand-market-presence)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/wolfson-group-brings-scottish-wellness-brands-to-us-retail-meetings)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/wolfson-group-to-present-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/wolfson-group-to-showcase-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/wolfson-group-to-present-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/wolfson-group-targets-us-retail-expansion-at-ecrm-wellness-session)
-
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/wolfson-group-brings-scottish-wellness-brands-to-us-retail-meetings)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/wolfson-group-highlights-scottish-wellness-brands-at-key-us-retail-meetings)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/wolfson-group-to-showcase-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/wolfson-group-to-showcase-scottish-wellness-brands-at-us-retail-meetings)
-
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/wolfson-group-to-showcase-scottish-wellness-portfolio-at-us-retail-meetings)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/wolfson-group-to-present-scottish-wellness-brands-at-us-retail-m/202635706)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/nonprofit-executive-search-firm-recruiterie-named-recruiting-partner-for-the-lutheran-collaborative)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/21/xenoPkSO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/21/lunaf1_8.webp)
