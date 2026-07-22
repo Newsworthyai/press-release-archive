@@ -1,20 +1,28 @@
-# InvestorNewsBreaks – Lahontan Gold Corp. (TSXV: LG) (OTCQB: LGCXF) Reports High-Grade Oxide Gold Intercept at Santa Fe
+# Canamera Energy Metals Corp. (CSE: EMET) (OTCQB: EMETF): Advancing Brazilian Rare Earth Assets as Global Supply Chains Look Beyond China
 
-This article has been disseminated on behalf of Lahontan Gold Corp. and may include paid advertising.
+Disseminated on behalf of Canamera Energy Metals Corp. (CSE: EMET) (OTCQB: EMETF) and may include paid advertising.
 
- Lahontan Gold (TSXV: LG) (OTCQB: LGCXF) announced additional results from its 2026 drilling program at the Santa Fe Mine project in Nevada, highlighted by a geotechnical diamond drill hole at the Calvada deposit that also intersected significant oxide gold mineralization. Hole CAL26-03C returned 30.8 meters grading 0.93 grams per tonne gold equivalent (“Au Eq”), including a higher-grade interval of 10.7 meters grading 2.18 g/t Au Eq. The company said the intercept ranks among the highest-grade results drilled to date within the Central Calvada deposit and supports confidence in advancing the project toward a targeted mine construction start in 2027.
+ * Canamera has commenced exploration at its São Sepé Project in Brazil, where three high-priority rare earth targets have already been identified
+* The company is building a diversified Brazilian rare earth portfolio as Western nations seek alternatives to China’s supply dominance
+* These developments position Canamera to capitalize on growing demand for secure, strategic sources of critical minerals
 
- Additional reverse-circulation drilling at the southern end of the Slab open pit encountered near-surface oxide mineralization, including 15.2 meters grading 0.40 g/t Au Eq and 9.1 meters grading 0.22 g/t Au Eq, helping define mineralization near the Calvada Fault. Lahontan said drilling continues across the Santa Fe project, with additional results expected from its RC program and Sonic drilling campaign evaluating historic stockpiles and heap leach pads as part of broader efforts to update the project’s mineral resource estimate, complete a preliminary economic assessment and advance permitting activities.
+ Rare earth elements have become indispensable to the technologies powering the global economy, from electric vehicles and wind turbines to advanced defense systems and consumer electronics. Yet despite their strategic importance, global supply chains remain heavily concentrated, with China accounting for more than 60% of rare earth mining and roughly 90% of processing capacity. As geopolitical tensions and export restrictions reshape global trade, governments and manufacturers are increasingly seeking reliable alternative sources of these critical materials (ibn.fm/7Shls).
 
- To view the full press release, visit https://ibn.fm/eIjZy
+ With favorable geology, well-established mining expertise, supportive government policies, and growing exploration activity, Brazil has become an increasingly attractive destination for companies developing rare earth resources outside China’s sphere of influence. Among those positioning themselves to benefit from this trend is Canamera Energy Metals (CSE: EMET) (OTCQB: EMETF), a critical minerals exploration company advancing a growing portfolio of rare earth projects in Brazil and across the…
 
- About Lahontan Gold Corp.
+ Read More>>
 
- Lahontan Gold Corp. is a Canadian mine development and mineral exploration company that holds, through its US subsidiaries, four top-tier gold and silver exploration properties in the Walker Lane of mining friendly Nevada. Lahontan’s flagship property, the 26.4 km2 Santa Fe Mine project, had past production of 359,202 ounces of gold and 702,067 ounces of silver between 1988 and 1995 from open pit mines utilizing heap-leach processing. The Santa Fe Mine has a Canadian National Instrument 43-101 compliant Indicated Mineral Resource of 1,539,000 oz Au Eq (48,393,000 tonnes grading 0.92 g/t Au and 7.18 g/t Ag, together grading 0.99 g/t Au Eq) and an Inferred Mineral Resource of 411,000 oz Au Eq (16,760,000 tonnes grading 0.74 g/t Au and 3.25 g/t Ag, together grading 0.76 g/t Au Eq), all pit constrained (Au Eq is inclusive of recovery, please see Santa Fe Project Technical Report and note below*). The Company plans to continue advancing the Santa Fe Mine project towards production, update the Santa Fe Preliminary Economic Assessment, and drill test its satellite West Santa Fe project during 2025. The technical content of this news release and the Company’s technical disclosure has been reviewed and approved by Michael Lindholm, CPG, Independent Consulting Geologist to Lahontan Gold Corp., who is a Qualified Person as defined in National Instrument 43-101 — Standards of Disclosure for Mineral Projects. Mr. Lindholm was not an author for the Technical Report* and does not take responsibility for the resource calculation but can confirm that the grade and ounces in this press release are the same as those given in the Technical Report. For more information, please visit our website: www.lahontangoldcorp.com
+ NOTE TO INVESTORS: The latest news and updates relating to EMETF are available in the company’s newsroom at ibn.fm/EMETF
 
- Please see the “Preliminary Economic Assessment, NI 43-101 Technical Report, Santa Fe Project”, Authors: Kenji Umeno, P. Eng., Thomas Dyer, PE, Kyle Murphy, PE, Trevor Rabb, P. Geo, Darcy Baker, PhD, P. Geo., and John M. Young, SME-RM; Effective Date: December 10, 2024, Report Date: January 24, 2025. The Technical Report is available on the Company’s website and SEDAR+. Mineral resources are reported using a cut-off grade of 0.15 g/t AuEq for oxide resources and 0.60 g/t AuEq for non-oxide resources. AuEq for the purpose of cut-off grade and reporting the Mineral Resources is based on the following assumptions gold price of US$1,950/oz gold, silver price of US$23.50/oz silver, and oxide gold recoveries ranging from 28% to 79%, oxide silver recoveries ranging from 8% to 30%, and non-oxide gold and silver recoveries of 71%.
+ CAUTIONARY NOTE REGARDING FORWARD-LOOKING INFORMATION
 
- NOTE TO INVESTORS: The latest news and updates relating to LGCXF are available in the company’s newsroom at http://ibn.fm/LGCXF
+ This document contains “forward-looking information” within the meaning of applicable securities legislation, including statements regarding: the Company’s planned exploration activities on its projects; the anticipated timing and completion of the earn-in milestones under the Option Agreement; the Company’s ability to make required cash and share payments and incur required exploration expenditures; the geological prospectivity of its projects; and the Company’s exploration strategy.
+
+ Forward-looking information is based on assumptions, estimates, and opinions of management at the date the statements are made and is subject to a variety of risks and uncertainties that could cause actual results to differ materially from those anticipated or projected. These assumptions include, without limitation: the Company’s ability to raise sufficient capital to fund its exploration programs and option payments; favourable regulatory conditions; continued access to its projects; and general economic conditions.
+
+ Important risk factors that could cause actual results to differ materially include, but are not limited to: uncertainties related to raising sufficient financing; the inherently speculative nature of mineral exploration; title risks; environmental and permitting risks; and fluctuations in uranium prices. Additional risk factors affecting the Company can be found in the Company’s continuous disclosure documents available at www.sedarplus.ca.
+
+ Readers are cautioned not to place undue reliance on forward-looking information.
 
  About InvestorWire
 
@@ -30,39 +38,19 @@ This article has been disseminated on behalf of Lahontan Gold Corp. and may incl
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/canamera-energy-metals-corp-cse-emet-otcqb-emetf-advancing-brazilian-rare-earth-assets-as-global-supply-chains-look-beyond-china/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lahontan-gold-hits-high-grade-intercept-at-santa-fe-targets-2027-construction/f0401cdb349d80e8dfe0d66d64d7680a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canamera-advances-rare-earth-portfolio-in-brazil-amid-global-supply-shift/e2e30e5f4ebccce3d124c8b4c8c9f505) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/canamera-energy-metals-corp-cse-emet-otcqb-emetf-advancing-brazilian-rare-earth-assets-as-global-supply-chains-look-beyond-china)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/investornewsbreaks-lahontan-gold-corp-tsxv-lg-otcqb-lgcxf-reports-high-grade-oxide-gold-intercept-at-santa-fe)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/canamera-energy-metals-corp-cse-emet-otcqb-emetf-advancing-brazilian-rare-earth-assets-as-global-supply-chains-look-beyond-china)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/22/meane53m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/22/irisZAIL.webp)
