@@ -1,42 +1,105 @@
-# Datavault AI (DVLT) Targets Tokenization, Edge AI Expansion in Q3 2026
+# Kontron Secures a New European Customer for 5G Automotive Modules Manufactured in Germany
 
-LOS ANGELES, CA - July 21, 2026 (NEWMEDIAWIRE) - Datavault AI (NASDAQ: DVLT), a provider of data monetization, credentialing, digital engagement and real-world asset tokenization technologies, outlined its strategic priorities for the third quarter of 2026, highlighting commercialization of its previously announced Project Qestrel ($QEST) token program, continued expansion of its SanQtum edge AI infrastructure and advancement of specialized digital asset exchange platforms. The company also expects to complete several previously announced transactions during the quarter, including the CyberCatch acquisition, the acquisition of NYIAX Inc. and the launch of the Data Vault Bank(R) brand through the targeted acquisition and renaming of a U.S. bank.
+Kontron’s 5G Technology Into a Leading European OEM’s Vehicle Platform - A Milestone for European Technological Sovereignty, Cybersecurity and Resilient Supply Chains
 
- Datavault AI said its third-quarter objectives also include advancing tokenization initiatives for real-world assets, expanding blockchain transaction clearing partnerships and continuing development of AI-powered valuation, cybersecurity and data trust technologies. The company noted that several planned exchange platforms remain contingent on the evolution of U.S. digital asset legislation, including the proposed CLARITY Act, which has advanced through congressional committees but has not yet been enacted into law.
+ LINZ, AUSTRIA - July 21, 2026 (NEWMEDIAWIRE) - Kontron, a leading global provider of IoT/embedded computer technology (ECT), has secured a new European customer for its 5G Automotive Network Access Devices (NADs), which are developed and manufactured in Germany. These devices will be integrated into the vehicle platform of a leading European car manufacturer. Initially, Kontron expects to supply around 150,000 5G NAD modules, worth a double-digit million figure.
 
- To view the full press release, visit https://ibn.fm/d4c6n
+ Kontron sees the potential to more than triple the supply volume, should the car manufacturer roll out the technology to further vehicle platforms. The modules are manufactured at the new production facility in Dusseldorf, where production officially began on 13 July 2026 in the presence of federal and state government representatives. With development in Berlin and manufacturing in Düsseldorf, Kontron is currently the only provider worldwide to develop 5G communication modules in Europe and manufacture them in Germany.
 
- About Datavault AI Inc.
+ A milestone for Europe’s digital sovereignty
 
- Datavault AI(TM) is leading the way in AI-driven data experiences, valuation and monetization of assets in the Web 3.0 environment. The company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Sciences and Data Sciences divisions.
+ This contract represents a significant milestone in Kontron’s strategy to establish a European alternative to non-European suppliers of mobile communications modules, as it marks the first time these modules will be used in a vehicle platform of a European car manufacturer. 5G communications modules play a key role in digital transformation. They are used, amongst other things, in vehicles, industrial plants, rail systems and critical infrastructure.
 
- Datavault AI’s Acoustic Sciences division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry-first foundational spatial and multichannel wireless, high-definition sound transmission technologies with intellectual property covering audio timing, synchronization and multi-channel interference cancellation. The Data Science division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization.
+ In view of increasing demands for cyber security, supply chain resilience and technological sovereignty, the availability of European communication modules is becoming increasingly important from a strategic perspective. By developing and manufacturing in Germany, Kontron is able to offer its customers short supply chains, high quality standards and a trustworthy European supply chain.
 
- Datavault AI’s platform serves multiple industries, including high-performance computing software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) enables Digital Twins and the licensing of name, image and likeness by securely attaching physical real-world objects to immutable metadata, fostering responsible AI with integrity. The company’s technology suite is fully customizable and offers AI- and machine-learning-based automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring.
+ “This order demonstrates that European OEMs and their suppliers are placing increasing emphasis on technological independence, cybersecurity, and resilient supply chains. Our 5G modules, which are developed and manufactured in Germany, provide a high-performance and reliable solution to these issues,” says Hannes Niederhauser, CEO of Kontron AG.
 
- The company is headquartered in Philadelphia, PA. Learn more about Datavault AI at https://dvlt.ai.
+ The NADs now commissioned form the communication interface for modern software-defined vehicles (SDVs) and enable various functions such as over-the-air updates, vehicle connectivity, remote diagnostics and future V2X applications. With the new production line in Dusseldorf, Kontron is consistently expanding its position as a European supplier of secure and high-performance 5G communication modules for automotive, industrial and rail applications.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Follow Kontron:
 
- The latest news and updates relating to DVLT are available in the company’s newsroom at https://ibn.fm/DVLT
+ * Kontron on LinkedIn
+* You can also find the latest information about Kontron on the official Kontron blog
 
- Forward Looking Statements
+ About Kontron
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Kontron AG (www.kontron.com, ISIN AT0000A0E9W5, WKN A0X9EJ, KTN) is a leading IoT technology company. For more than 20 years, Kontron has been supporting companies from a wide range of industries to achieve their business goals with intelligent solutions. From automated industrial operations, smarter and safer transport to advanced communications, connectivity, medical, and energy solutions, the company delivers technologies that add value for its customers. Kontron is listed on the SDAX® and TecDAX® of the German Stock Exchange and employs around 6,500 employees in over 20 countries worldwide.
+
+ Media contacts
+
+Alexandra KentrosKontron AG – CommunicationsTel: +49 (0)151 151 938 81[group-pr@kontron.com](mailto:group-pr@kontron.com)  Leon-Philipp KleissKontron AG – Investor RelationsTel: +43 (0) 664 60191 5153[ir@kontron.com](mailto:ir@kontron.com)    Jan LauerProfil PR OHGTel: +49 (0)531 387 33-18[kontron@profil-pr.com](mailto:kontron@profil-pr.com)  All rights reserved. Kontron is a trade mark or registered trade mark of Kontron AG. All data is provided for information purposes only and is not guaranteed for legal purposes. The information contained in this press release has been carefully checked and is believed to be accurate; however, no responsibility is accepted for any inaccuracies.
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/datavault-ai-dvlt-targets-tokenization-edge-ai-expansion-in-q3-2026-7087868)
+[Original/Source Press Release](https://www.newmediawire.com/news/kontron-secures-a-new-european-customer-for-5g-automotive-modules-manufactured-in-germany-7087877)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-targets-tokenization-and-edge-ai-expansion-in-q3-2026/2318735a552ee06aaa30fad08854d72c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kontron-secures-major-5g-automotive-module-deal-with-european-oem/91684399b1d9161fe37128fc4aa16f97) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/kontron-secures-major-european-oem-for-5g-automotive-modules-bolstering-regional-tech-sovereignty)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/kontron-secures-european-automotive-customer-for-5g-modules-manufactured-in-germany)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/kontron-wins-european-oem-contract-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/kontron-lands-major-5g-automotive-module-deal-with-european-oem-boosting-regional-tech-sovereignty)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/kontron-consigue-un-importante-acuerdo-de-modulos-5g-para-automocion-con-un-fabricante-europeo-impulsando-la-soberania-tecnologica-regional)
+
+Pickup - [https://burstable.news](https://burstable.news/news/kontron-secures-major-european-automotive-customer-for-5g-modules-made-in-germany)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kontron-gewinnt-grossen-europaischen-automobilkunden-fur-5g-module-aus-deutscher-fertigung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/kontron-asegura-un-importante-cliente-europeo-de-automocion-para-modulos-5g-fabricados-en-alemania)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/kontron-decroche-un-client-automobile-europeen-majeur-pour-ses-modules-5g-fabriques-en-allemagne)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/kontron-conquista-grande-cliente-automotivo-europeu-para-modulos-5g-fabricados-na-alemanha)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/kontron-secures-european-oem-order-for-5g-automotive-modules-manufactured-in-germany)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/kontron-secures-european-oem-customer-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/kontron-secures-european-oem-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/kontron-secures-european-oem-deal-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/kontron-secures-major-european-oem-contract-for-5g-automotive-modules-boosting-european-digital-sovereignty)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/kontron-wins-european-oem-contract-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/kontron-secures-major-european-oem-for-5g-automotive-modules-strengthening-european-tech-sovereignty)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/91684399b1d9161fe37128fc4aa16f97)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/kontron-wins-european-oem-contract-for-german-made-5g-automotive-modules)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/kontron-wins-european-customer-for-5g-automotive-modules-bolstering-eu-tech-sovereignty)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/kontron-secures-major-european-oem-for-5g-automotive-modules-bolstering-european-tech-sovereignty)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/kontron-secures-major-european-oem-for-5g-automotive-modules-made-in-germany)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/kontron-secures-european-oem-for-5g-automotive-modules-bolstering-digital-sovereignty)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/kontron-secures-5g-module-deal-with-european-automaker-strengthening-regional-supply-chains)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/kontron-to-supply-5g-automotive-modules-to-european-oem-boosting/202635754)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/91684399b1d9161fe37128fc4aa16f97)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/21/jinxamt6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/21/milkXFoz.webp)
