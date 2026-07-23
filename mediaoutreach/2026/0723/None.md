@@ -1,0 +1,48 @@
+# Thailand Secures $43.6bn 1H 2026 Investment Surge as Big Tech Accelerates Southeast Asia AI Infrastructure Push
+
+BANGKOK, THAILAND - [Media OutReach Newswire](https://www.media-outreach.com) - 23 July 2026 - Thailand's foreign and domestic investment applications surged 37% year-on-year to hit $43.6 billion (approx. 1.47 trillion baht) across 1,299 projects in the first half of 2026, driven by a massive wave of capital flowing into digital infrastructure and artificial intelligence (AI) data centers.    The surge comes even as the global economy faces real headwinds — geopolitical tensions, energy price volatility, and the restructuring of global supply chains — with Thailand emerging as a preferred base for investment across Southeast Asia.   Leading the capital influx is the digital sector, which reached a commanding $33 billion (approx. 1.12 trillion baht) in investment applications.   "Thailand's investment growth held steady even as the world economy faced real turbulence," said Mr. Narit Therdsteerasukdi, Secretary General of the Thailand Board of Investment (BOI). "This reflects strong investor confidence in Thailand's potential as a base for the industries of the future."   This digital windfall was accompanied by robust capital commitments across other high-value industries. The electrical appliances and electronics sector drew $3.56 billion (approx. 120.2 billion baht) across 179 projects, while agriculture and food processing secured $1.82 billion (approx. 61.4 billion baht) across 131 projects. Additionally, logistics and high-value services attracted $1.19 billion (approx. 40.2 billion baht) across 170 projects, and the automotive sector drew $759.2 million (approx. 25.7 billion baht) across 122 projects.   Other notable sectors included mining, metals and materials at $603.5 million (approx. 20.4 billion baht) across 128 projects, chemicals and petrochemicals at $489.1 million (approx. 16.5 billion baht) across 110 projects, and machinery, automation and robotics at $387.4 million (approx. 13.1 billion baht) across 82 projects, signaling broad-based industrial modernization.   Foreign Direct Investment (FDI) applications drove the bulk of the growth, skyrocketing 80% year-on-year to $40.5 billion (approx. 1.37 trillion baht) across 877 projects.   Singapore emerged as the top source of FDI, filing applications worth $33.2 billion (approx. 1.12 trillion baht) across 158 projects. The United Kingdom followed as the second-largest investor at $1.40 billion (approx. 47.2 billion baht) across 11 projects, with China close behind at $1.35 billion (approx. 45.8 billion baht) across 321 projects, Taiwan at $1.12 billion (approx. 38.0 billion baht) across 47 projects, and Japan at $970.1 million (approx. 32.8 billion baht) across 123 projects.   These investments remain heavily concentrated in digital technology — including data centers, data hosting, and cloud services — followed by electronics and electrical appliances such as optical transceivers, printed circuit boards, hard disk drives, and data-center networking and cooling systems, along with humanoid robotics parts, automotive parts, food and beverage, and advanced materials. Geographically, Thailand's industrialized Central region claimed the largest share of capital at $26.7 billion (approx. 903.8 billion baht) across 513 projects, followed by the Eastern region at $14.7 billion (approx. 495.7 billion baht). The Northeastern, Southern, Western, and Northern regions each drew smaller totals, but the North stood out with investment value up 93 percent year-on-year, led by energy and utilities, agriculture and food processing, and medical projects.   To support the massive power requirements of next-generation data centers, Thailand is seeing a parallel surge in renewable energy infrastructure. The energy and utilities sector recorded 221 projects worth $1.17 billion (approx. 39.5 billion baht) during the first half of the year, dominated by 198 clean energy initiatives—including solar, wind, biomass, and biogas power plants—valued at $779.7 million (approx. 26.4 billion baht).   Concurrently, manufacturers are investing in automation to remain competitive on the global stage. Under the BOI's "Smart and Sustainable Industry" initiative, companies submitted 132 applications valued at $507.6 million (approx. 17.2 billion baht) to upgrade machinery, adopt digital technology, and integrate automation and robotics into production and services, raising productivity and moving Thai industry toward higher-value, sustainable manufacturing.   The projects approved by the BOI in the first half of 2026 will generate over 82,000 jobs for Thai workers and consume approximately $11.4 billion (approx. 386 billion baht) in domestic raw materials annually, accounting for 42 percent of the projects' total raw material use, and is expected to boost the nation's export capacity by more than $36.8 billion (approx. 1.24 trillion baht) per year.   The BOI approved investment promotion applications for 1,300 projects valued at $38.7 billion (approx. 1.31 trillion baht) in the first half of 2026.   "Investment value is not the only goal," Mr. Narit said. "Real success means quality jobs, higher skills, and better income for Thai workers." "It means real opportunities for Thai businesses inside the supply chain, and growth that reaches every region, not just a few. That is why we will keep pushing for actual investment to happen as quickly as possible through the Thailand FastPass mechanism, driving economic growth and letting Thai people share directly in the shift to the industries of the future."   Note: Currency conversions are based on the Bank of Thailand's average selling rate of approximately 1 USD = 33.80 THB.  Hashtag: #Thailandboardofinvestment #BOI #FDI #Investment #business #technology[https://www.boi.go.th/en/index/](https://www.boi.go.th/en/index/)The issuer is solely responsible for the content of this announcement.
+
+Thailand Board of Investment (BOI)Established in 1966, the Office of the Board of Investment (BOI) has continuously played an essential role for over 60 years in promoting value-adding investment for the country, from both foreign and Thai investors, to enhance national competitiveness and drive towards a new era of sustainable and balanced growth.   Investment Services Center — PR Section, The Office of the Board of Investment (BOI)   555 Vibhavadi-Rangsit Road, Chatuchak Bangkok 10900 Tel. +66 (0) 2553 8111, Fax: +66 (0) 2553 8222
+
+![](//track.media-outreach.com/index.php/WebView/477696/279561) 
+
+---
+
+[Original/Source Press Release](https://www.media-outreach.com/news/thailand/2026/07/23/477696/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thailand-investment-surges-37-to-43-6b-led-by-digital-and-ai/ee5e3983b0a6c3c76748fe8fcaff6af9) 
+
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/thailand-secures-436bn-1h-2026-investment-surge-as-big-tech-accelerates-southeast-asia-ai-infrastructure-push)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/thailand-attracts-436-billion-in-investment-applications-in-first-half-of-2026-driven-by-ai-and-data-center-boom/)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/267/23/cakeG4RB.webp)
