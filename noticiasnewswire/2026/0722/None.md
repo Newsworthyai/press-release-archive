@@ -1,38 +1,33 @@
-# Verizon Launches Exclusive Back-to-School Deals
+# Debt.com Survey: Americans Living Paycheck to Paycheck Falls to Five-Year Low, But Financial Anxiety Remains Near Record High
 
-NEW YORK, NY — July 22, 2026 — (NOTICIAS NEWSWIRE) — Getting your family tech-ready for the classroom shouldn’t break the bank or cause unnecessary stress. As the new school year approaches, Verizon is taking the guesswork out of back-to-school prep by making essential tech easy and affordable. From simple plans that fit your budget to exclusive savings on the latest devices, Verizon is offering big deals and built-in digital safety tools to give parents peace of mind.
+FT. LAUDERDALE, Fla., July 22, 2026 /Noticias Newswire/ — Americans may finally be gaining some financial breathing room, but confidence has yet to follow. According to Debt.com‘s 9th Annual Budgeting Survey, the percentage of Americans living paycheck to paycheck has fallen to its lowest level in five years, marking one of the most significant improvements since the survey began tracking the trend.
 
- Essential Back-to-School Deals only from Verizon
+ The nationwide survey of more than 1,000 U.S. adults found that 48% of Americans now report living paycheck to paycheck—down dramatically from 69% in 2025, a remarkable 21-point decline and the lowest percentage recorded in the survey’s nine-year history.
 
- * Gizmo Watch 4: New and existing customers can get a free Gizmo Watch 4, which offers parents peace of mind through location tracking, school mode, and approved-contact-only communication when purchasing the device on a 36-month payment plan with a new watch line, no trade-in required.
-* Kids Bundle (Watch and Tablet): New and existing customers can buy any Android phone and get the Gizmo Watch 4 with the Samsung Galaxy Tab A11+ on us, with a new line and service plan on each device.
-* Samsung Ultimate Bundle: Eligible customers can buy a new Samsung phone on a payment plan or bring their own Android phone with a new line and get a Galaxy Watch9 and a Galaxy Tab S10 FE on us with a service plan on each device.
-* Discounts for College Students & Teachers: Teachers can get our best 5G network for just $25/line/month with four lines on Unlimited Welcome, plus additional discounts that stack. College students can save up to $25/month on two lines of mobile service with additional discounts when bundled with home internet.
+ Despite this encouraging milestone, consumers remain deeply concerned about their financial future. An overwhelming 95% of respondents say economic uncertainty, inflation, and rising living costs have made budgeting more important than ever, underscoring that while financial conditions may be improving, Americans are still approaching their money with caution.
 
- Families-First: Technology That Connects with Intention As families prepare for the upcoming school year, the biggest back-to-school challenge isn’t school supplies – it’s navigating the digital landscape and prioritizing online safety. For the upcoming school year, Verizon is a one-stop shop for simple plans and powerful digital wellness tools – along with expert advice – to make the transition easier, safer, and more rewarding for every family.
+ This year’s findings suggest that fewer households are struggling to cover monthly expenses, but widespread concerns about the economy continue to shape financial decisions, making careful budgeting a priority for nearly every American.
 
- * Family Tech Agreement: A downloadable, printable agreement designed for families to establish mutual boundaries, ensuring that screen-free time at the dinner table applies to parents, too.
-* Safety-First Tech: Verizon is streamlining back-to-school logistics with tools built for connection, not distraction. This includes the new Gizmo Watch 4, and the Verizon Family App, which provides parental controls and centralized tools to manage screen time, teen driving insights, and location check-ins.
-* Free Digital Wellness Resources: Access free parenting advice from the experts in our Parenting in a Digital World site and digital wellness resources for parents, caregivers, students, teachers and schools here.
+ “A 21-point drop in Americans living paycheck to paycheck is a massive victory on paper, but context is everything,” says [Howard Dvorkin, CPA](https://www.howarddvorkin.com/) and Chairman of Debt.com. “We cannot look at 48% and think the battle is won. Nearly half of our country is still one missed paycheck away from a financial crisis.”![Personal Finance Expert, Consumer Advocate – Howard Dvorkin](https://www.noticiasnewswire.com/wp-content/uploads/2023/07/banners-v4-a-mo-150x150.jpg)
 
- From the classroom to the living room, Verizon is committed to providing the ultimate combination of value, connection, and digital safety tools to power a successful school year.
+ [Howard Dvorkin](https://www.debt.com/author/hdvorkin/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) [CPA and chairman](https://www.debt.com/author/hdvorkin/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) of Debt.com While the media focuses on high inflation and rising interest rates, Debt.com’s 2026 survey shows a major gap; economic data might look better, but everyday consumers remain worried. Key findings:
 
- For more information, visit verizon.com/family-tech, verizon.com/deals, the My Verizon app or find a local store at verizon.com/stores.
+ * Budgeting Works: 85% of Americans maintain a budget, and 88% of them say it has actively helped them get out or stay out of debt.
+* Retirement Over Inflation: Retirement climbed to 20% as a primary budgeting motivator, the highest in survey history, while inflation as a trigger dropped from 31% to 23%.
+* Household Alignment: 44% of respondents report that their entire household works together to stay on budget.
 
- This announcement was originally published by Verizon. Read the original press release.
+ “Budgeting isn’t a luxury hobby, it’s a financial seatbelt. The data shows that 88% of budgeters successfully manage or [avoid debt](https://www.debt.com/budgeting/for-families/#h-navigating-the-financial-journey?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral). Whether you stick to traditional pen and paper or adopt a mobile app, leaning into consistency is what protects you from the next economic shift.” [Dvorkin](https://www.howarddvorkin.com/) concludes.![Personal Finance Expert, Consumer Advocate – Howard Dvorkin](https://www.noticiasnewswire.com/wp-content/uploads/2023/07/banners-v4-a-mo-150x150.jpg)
 
- About Verizon Communications Inc.  About Verizon Communications Inc. (NYSE, Nasdaq: VZ) powers and empowers how its millions of customers live, work and play, delivering on their demand for mobility, reliable network connectivity and security. Headquartered in New York City, serving countries worldwide and nearly all of the Fortune 500, Verizon generated revenues of $138.2 billion in 2025. Verizon’s world-class team never stops innovating to meet customers where they are today and equip them for the needs of tomorrow. For more, visit verizon.com or find a retail location at verizon.com/stores
+ [Howard Dvorkin](https://www.debt.com/author/hdvorkin/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) [CPA and chairman](https://www.debt.com/author/hdvorkin/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) of Debt.com About [Debt.com](https://www.debt.com/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral): has helped millions of people get out of more than $12 billion in debt. As a personal finance platform, Debt.com empowers consumers with trustworthy content and comprehensive comparison tools on debt relief solutions. Collectively, our staff of CPAs, certified financial counselors, and debt specialists have more than a century of experience in the personal finance field. Survey Methodology: Debt.com has conducted its annual budgeting survey since 2018. The 2026 iteration surveyed 1,051 Americans regarding their self-reported financial habits and situations.
 
- VERIZON’S ONLINE MEDIA CENTER: News releases, stories, media contacts and other resources are available at verizon.com/news. News releases are also available through an RSS feed. To subscribe, visit www.verizon.com/about/rss-feeds/
-
- CONTACT: Carolina Sato VZsegmentsnews@verizon.com 
+ SOURCE Debt.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/verizon-launches-exclusive-deals/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/financial-anxiety-remains-near-record-high/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/verizon-unveils-back-to-school-deals-and-digital-safety-tools/52a26bccec419c378897b4610fb1cdab) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paycheck-to-paycheck-living-hits-5-year-low-yet-anxiety-persists/98eed327f2c58dec1e672b7fcbd6faee) 
 
  
 
@@ -40,4 +35,4 @@ NEW YORK, NY — July 22, 2026 — (NOTICIAS NEWSWIRE) — Getting your family t
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/22/herbL3Fd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/267/22/ninaAYul.webp)
