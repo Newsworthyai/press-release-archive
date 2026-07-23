@@ -1,94 +1,52 @@
-# Leading Estates of the World and KeyCrew Media Join Forces to Expand Luxury Real Estate Coverage
+# Why New York Investors Are Choosing Construction Loans Over Fix And Flips
 
-A 57-year publishing legacy joins forces with a modern editorial studio to deepen coverage and reach a new generation.
+Fix and flip investing built the private lending business in New York. Now that business is shifting. Ruben Izgelov, CEO and Founder of We Lend, says a growing share of the company’s loan volume is going toward construction projects that go far beyond a standard renovation, and he expects that trend to continue through the rest of the year.
 
- SANTA FE, N.M. – July 23, 2026: Leading Estates of the World, the original luxury estates and lifestyle publication, today announced a partnership with KeyCrew Media to strengthen and elevate its coverage of the world’s finest properties. Founded in 1969, Leading Estates of the World pioneered the luxury real estate publishing category, building a legacy across more than 100 magazine issues featuring an exclusive global network of elite brokers representing the most extraordinary estates across five continents.
+ We Lend is a private direct lender and one of the more active private lenders for real estate investors based in New York that has funded loans across New York and New Jersey for years, historically known for financing quick turnaround fix-and-flip loans in New York. Izgelov says that reputation is now outdated. The firm is backed by the entire capital stack and makes every underwriting and funding decision in-house, which lets it take on ground-up construction loans, condo conversions, and vertical and horizontal building extensions, in addition to traditional renovation work.
 
- Over the decades, the publication has showcased some of the world’s most storied properties, from the half-million-acre W.T. Waggoner Ranch in Texas, listed at $725 million; to the late Joan Rivers’ pre-war Manhattan penthouse; to an Italian villa where Leonardo da Vinci painted Lisa del Giocondo’s portrait, now known as the Mona Lisa; to Frank Sinatra’s Malibu estate, and Luggala Lodge, the storied Guinness family estate in Ireland.
+ The Fix And Flip Math Has Changed According to Izgelov, the standard fix and flip model, buying a property and putting $50,000 to $100,000 into cosmetic work before reselling, does not generate the returns it used to. Rising costs and tighter margins have pushed investors toward larger, more involved projects.
 
- KeyCrew Media, founded by serial entrepreneurs at the intersection of technology and real estate media, builds its market coverage from the ground up – starting with interviews with experts who know their markets firsthand – then publishes and syndicates that coverage across an expanding portfolio of publications.Chris Webster, CEO and Publisher of Leading Estates of the World and head of Webster Estates in Santa Fe, together with his son, Christopher Webster III, acquired Leading Estates of the World in 2015.
+ “Our borrowers’ returns have been compressing,” Izgelov said. “The general fix and flip model doesn’t work as much as it used to, so investors have had to get creative, and that requires heavier, more substantial construction and rehab work.”
 
- “Since acquiring Leading Estates, we’ve been proud to steward this legacy brand, the original publication of the world’s finest estates,” said Chris Webster. “Upon meeting the KeyCrew Media team, we were deeply impressed by their editorial capabilities and tech-forward approach to real estate media. We’re delighted to partner with them to bring Leading Estates to new audiences and strengthen everything we do.”
+ That shift shows up in the numbers. Izgelov said construction budgets on deals coming through We Lend have grown from the $100,000 to $200,000 range into the $1 million to $2 million range, and in some cases the construction budget now exceeds the purchase price of the property itself.
 
- “When I started exploring Leading Estates, I immediately fell in love with the brand and the vision behind it,” said Steve Marcinuk, Co-Founder and CEO of KeyCrew Media. “Here’s an incredible luxury publication with a long legacy of publishing some of the world’s most remarkable properties. The passion and dedication of Chris and Christopher Webster to Leading Estates is unmatched, and we’re thrilled to bring fresh editorial craft and curation to the brand and take it even further.”
+ What A Bigger Construction Loan Actually Requires Bigger projects come with more risk, and Izgelov said We Lend manages that risk by staying narrowly focused on markets it knows well and by requiring documentation most lenders skip.
 
- The partnership’s vision includes expanded relationships with leading agents and brokers across U.S. and international markets, showcasing their finest listings, and curating expert perspectives on where the luxury market is really moving. It will also draw on KeyCrew’s experienced editorial craft to produce distinctive, high-quality content, then license and syndicate that coverage across its publisher network to further amplify Leading Estates’ reach.
+ Before financing a conversion or extension, the firm requires an architect’s letter confirming the work can proceed as of right, without a rezoning or variance application. On larger jobs, the company also requires general contractors to sign completion guarantees.
 
- Chris Webster summed up the Leading Estates ethos this way: “For those with the means, indulge yourself; for those with the dreams, enjoy yourself.”
+ “We want GCs committed to the project just as much as the borrower is, without having to personally guarantee the loan. They’re guaranteeing that the project gets completed,” Izgelov said. “That keeps the playing field level between the borrower and the GC, especially when the borrower hasn’t worked at this scale before.”
 
- About Leading Estates of the World: Founded in 1969 by Robert and Pamela Kelsey, Leading Estates of the World is the original publication dedicated to showcasing the world’s preeminent residential estates – historic castles, villas, seaside mansions, penthouses, ranches, and private islands. Through its print and digital platforms, the brand connects the world’s finest properties with a discerning international audience – the estate owners and connoisseurs who acquire them, and the global readership who aspire to own them. Leading Estates of the World is headquartered on The Plaza in Santa Fe, New Mexico. Learn more at LeadingEstates.com.
+ Two Recent Deals Show The Range In one recent deal, a borrower bought an eight-unit building as a bank-owned property after the previous lender declined to finance improvements on it. We Lend financed the conversion of that building into 16 fully leased units. The borrower is now in discussions with several banks about a refinance that would return some of the original equity for the next project.
 
- About KeyCrew Media: KeyCrew Media produces high-quality real estate market coverage rooted in expert interviews, then syndicates and licenses that coverage across a network of publications. Combining editorial rigor with technology-forward methodology, KeyCrew partners with leading agents, brokers, and brands to capture on-the-ground perspectives and amplify them at scale. Learn more at KeyCrew.co.
+ In a separate deal in an affluent New Jersey suburb, a borrower was about 85 percent finished building a 22,000 square foot spec home when a lot line sale to a neighbor required paying off an existing private loan. We Lend restructured and refinanced that loan, providing the payoff along with a small cash infusion to complete the remaining construction.
 
- Media Contacts:Chris WebsterLeading Estates of the WorldChris@LeadingEstates.com(505) 780-9500
+ What Borrowers Should Plan For Izgelov said the biggest miscalculation he sees from fix and flip investors moving into larger projects is timeline. A typical fix and flip loan runs six to eight months. Ground-up construction, major conversions, and extensions often take much longer.
 
- Steve MarcinukKeyCrew MediaSteve@KeyCrew.co1 (855) 273-9123 
+ “Budget carefully for the interest that has to be paid over that term,” he said. “Built-in extension options with your lender help, or better yet, start with a term longer than 12 months. We offer 18-month terms, and we’ve done at least one loan at 24 months.”
+
+ He also cautioned against building to a trend rather than to demand. “If there’s demand for a project of that size or caliber, great. But don’t build a mega mansion in a neighborhood that can’t support it just because that’s the trend,” he said.
+
+ More information on how We Lend structures its loans is available on the company’s How It Works page.
+
+ About We Lend We Lend is a private direct lender providing fast, flexible financing for real estate investors across New York and New Jersey, including commercial bridge loans, multifamily and mixed-use loans, acquisition, renovation, and ground-up construction loans.Learn more at welendllc.com.
+
+ Disclaimer This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions.
+
+ Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/leading-estates-of-the-world-and-keycrew-media-join-forces-to-expand-luxury-real-estate-coverage/)
+[Original/Source Press Release](https://keycrew.co/journal/why-new-york-investors-are-choosing-construction-loans-over-fix-and-flips/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-estates-partners-with-keycrew-media-to-elevate-luxury-real-estate-coverage/c614a3f178da24fdf3ead74a3da594bd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/from-fix-and-flip-to-mega-builds-private-lending-evolves/42a356868c2b155933eecc7fcdb3c77c) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/leading-estates-of-the-world-se-asocia-con-keycrew-media-para-expandir-la-cobertura-de-bienes-raices-de-lujo)
-
-Pickup - [https://burstable.news](https://burstable.news/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/leading-estates-of-the-world-schliesst-partnerschaft-mit-keycrew-media-zur-ausweitung-der-luxusimmobilien-berichterstattung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/leading-estates-of-the-world-se-asocia-con-keycrew-media-para-ampliar-la-cobertura-de-bienes-raices-de-lujo)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/leading-estates-of-the-world-sassocie-a-keycrew-media-pour-elargir-la-couverture-de-limmobilier-de-luxe)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/leading-estates-of-the-world-faz-parceria-com-keycrew-media-para-expandir-cobertura-de-imoveis-de-luxo)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/leading-estates-of-the-world-and-keycrew-media-partner-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/c614a3f178da24fdf3ead74a3da594bd)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/leading-estates-of-the-world-partners-with-keycrew-media-to-expa/202635854)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/c614a3f178da24fdf3ead74a3da594bd)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/leading-estates-of-the-world-partners-with-keycrew-media-to-expand-luxury-real-estate-coverage/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/new-york-private-lender-sees-shift-from-fix-and-flips-to-larger-construction-loans/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/267/23/quiztbbj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/267/23/echovH4p.webp)
