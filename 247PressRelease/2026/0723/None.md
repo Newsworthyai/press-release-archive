@@ -1,68 +1,20 @@
-# Heidi G. Villari of The Villari Firm, PLLC Named to Super Lawyers for the Tenth Consecutive Year
+# Honoring the Marines He Led
 
-PHILADELPHIA, PA, July 23, 2026 /24-7PressRelease/ -- Heidi G. Villari, managing partner of The Villari Firm, PLLC in Philadelphia, has been selected to Super Lawyers for 2026, marking her tenth straight year on the list since 2017. The 2026 selection continues one of the more consistent recognition records among Pennsylvania personal injury and medical malpractice attorneys.  Alongside the general selection, Villari again appears on three of the publication's most selective top lists. She was named to the Top 100: 2026 Philadelphia Super Lawyers and the Top 100: 2026 Pennsylvania Super Lawyers, extending runs on both lists that began in 2022. She was also named to the Top 50: 2026 Women Pennsylvania Super Lawyers, a list she has appeared on every year since 2020. Super Lawyers selections are based on peer nominations, independent research, and evaluation across a range of professional achievement indicators, with only a small percentage of attorneys in each state selected annually.  Licensed in Pennsylvania since 1998 and admitted in New Jersey as well, Villari represents individuals and families harmed by catastrophic injury, wrongful death, and medical malpractice. She began her career on the other side of the docket, defending clients against personal injury claims, and has said that experience shapes how she builds cases today. Knowing how insurers and institutional defendants evaluate exposure informs her approach to discovery, negotiation, and trial preparation.  Her results reflect that approach. Villari has obtained up to $135 million in settlements and awards over the course of her career. Notable outcomes include a $20 million settlement in a brain-damaged baby case, an $11 million jury award for a woman who suffered a vaginal tear during labor and delivery, a $9.75 million settlement for a man left completely blind after surgery, and an $8 million verdict following a helicopter crash that she tried to a jury. More recently she resolved a leg injury case for $4 million and a neck fusion claim for $1.95 million. She holds an Avvo "Excellent" rating.  Villari's professional service extends beyond her caseload. She has sat on the board of the Pennsylvania Trial Lawyers Association, served as a senior hearing officer for the Disciplinary Board of the Commonwealth of Pennsylvania, served as a judge pro tempore and teaches continuing legal education courses for fellow attorneys. Her memberships include the Pennsylvania Association for Justice, the Pennsylvania Bar Association, the Philadelphia Bar Association, and the Justinian Society. She earned her law degree from Widener University Delaware Law School.  The Villari Firm, PLLC handles medical malpractice, birth injury, catastrophic injury, and wrongful death matters for clients throughout Pennsylvania and New Jersey from its office at 258 S. 11th Street in Philadelphia. Prospective clients can reach the firm at 215-372-8889 or through thevillarifirm.com to discuss a potential claim. 
+HILLSBORO, OR, July 23, 2026 /24-7PressRelease/ -- Retired Marine Colonel Thomas J. Flaherty has spent much of his life ensuring the courage of the young Marines he led in Vietnam is remembered accurately.  That commitment began on May 5, 1968, when then-Marine Lieutenant Thomas J. Flaherty led his platoon into combat as his rifle company encountered the lead battalion of a North Vietnamese Army regiment. During the fighting, he was wounded three times while helping rescue fellow Marines whose platoon had become surrounded.  Evacuated to a naval hospital in Japan, Flaherty spent weeks recovering from injuries that left him unable to walk. Before his own rehabilitation was complete, he began writing recommendations recognizing the Marines whose actions he believed deserved official recognition. From his hospital bed, he documented what he had witnessed on the battlefield, determined to ensure their actions would be accurately recorded and never forgotten.  That effort, begun in a hospital room thousands of miles from home, continues today.  Years later, after advancing through the ranks to become a Marine Corps Colonel, Flaherty learned that although several of those recommendations ultimately resulted in military awards, many had been downgraded during the approval process.  Rather than accepting those decisions as the final record, Flaherty began assembling military records, battlefield maps, operational reports, command chronologies, award recommendations, and firsthand accounts from Marines who survived the battle. Working from those materials, he painstakingly reconstructed the events of May 5, 1968, applying the same discipline and attention to detail that once guided him as a Marine officer.  "My responsibility to those young Marines did not end when the battle was over," Flaherty said. "Many of them were only eighteen or nineteen years old. They carried out extraordinary acts of courage under impossible circumstances, and I believe history deserves to remember them accurately."  The recommendations he prepared from his hospital bed documented what he had witnessed firsthand and reflected his determination to ensure the actions of the Marines under his command would not be lost to history.  After leaving the Marine Corps, Flaherty built a nationally respected aviation law practice representing pilots, mechanics, aircraft owners, airlines, manufacturers, and aviation professionals in complex litigation and regulatory matters. As both a pilot and attorney, he became known for careful preparation, professionalism, and steadfast advocacy.  Although his legal career earned national respect, Flaherty has consistently redirected attention away from himself and toward the Marines whose courage continues to inspire his work.  "The story has never been about me," Flaherty said. "It's about those young Marines who went on patrol every day, knowing exactly what they might face, and who never backed down from their duty. They deserve to be remembered for what they did."  The thousands of pages of battlefield records, military documents, award recommendations, and firsthand accounts he has assembled over the years were never intended to elevate his own story. They preserve the stories of the Marines he believes history has not fully recognized while providing a detailed record of the events that unfolded on May 5, 1968.  "As the years pass, firsthand witnesses become fewer," Flaherty said. "That makes it even more important to preserve the facts, protect the historical record, and make every effort to ensure these Marines receive the recognition they earned."  The work continues.  About Thomas J. Flaherty  Thomas J. Flaherty is a retired United States Marine Corps Colonel, attorney, aviator, and Vietnam combat veteran. Throughout his distinguished military and legal career, he has remained committed to preserving the historical record of the Marines who served beside him during the Vietnam War. Through meticulous research and firsthand documentation, he continues to advocate for the accurate recognition of acts of courage performed in combat while ensuring that future generations understand the sacrifices made by those who served. He is based in Hillsboro, Oregon.   Media Contact Thomas J. Flaherty Website: www.thomasjflaherty.com 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537100/heidi-g-villari-of-the-villari-firm-pllc-named-to-super-lawyers-for-the-tenth-consecutive-year)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537107/honoring-the-marines-he-led)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heidi-villari-earns-10th-straight-super-lawyers-recognition/fa951126627028bacb582defae056a61) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retired-marine-colonel-fights-to-preserve-vietnam-heroes-legacy/3f4eb06bbbe226d0add789fd5abb05c8) 
 
 
-Pickup - [https://x.com](https://twitter.com/i/status/2080397815486751228)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://burstable.news](https://burstable.news/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/heidi-g-villari-zum-zehnten-mal-in-folge-zu-super-lawyers-ernannt)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/heidi-g-villari-es-nombrada-en-super-lawyers-por-decimo-ano-consecutivo)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/heidi-g-villari-nommee-parmi-les-super-lawyers-pour-la-dixieme-annee-consecutive)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/heidi-g-villari-e-nomeada-para-super-lawyers-pelo-decimo-ano-consecutivo)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/heidi-g-villari-of-the-villari-firm-pllc-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/heidi-g-villari-named-to-super-lawyers-for-2026-marking-tenth-consecutive-year-on-list)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/heidi-g-villari-recognized-by-super-lawyers-for-tenth-consecutive-year)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-yea/202635887)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/retired-marine-colonel-continues-decades-long-effort-to-secure-recognition-for-vietnam-soldiers/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/23/pearmmNd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/24/pearB2Mx.webp)
