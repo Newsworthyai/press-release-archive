@@ -1,39 +1,96 @@
-# VERAXA Biotech (VRXA) Advances BiTAC®-TCE Development With Positive Regulatory Feedback From Germany
+# Novem Group S.A.: Invitation to the Q1 2026/27 Results Presentation on 30 July 2026
 
-* The company has received Scientific Advice from Germany’s Paul-Ehrlich-Institute (“PEI”) supporting the proposed development strategy for its lead BiTAC(R)-TCE program.
-* The regulatory feedback provides early guidance on the company’s biological rationale, safety assessments, and non-clinical development plan, for its novel therapeutic platform.
-* VERAXA believes the advice helps reduce development uncertainty by providing greater clarity before advancing toward clinical studies.
-* The company’s lead BiTAC(R)-TCE candidate previously generated encouraging preclinical data presented at the 2026 American Association for Cancer Research (“AACR”) Annual Meeting.
-* VERAXA continues to build a diversified oncology pipeline that includes bispecific T-cell engagers, antibody-drug conjugates (“ADCs”) and other engineered antibody formats.
-* The latest regulatory milestone follows continued progress in manufacturing and development as the company advances next-generation antibody therapeutics for cancer.
+LUXEMBOURG - July 23, 2026 (NEWMEDIAWIRE) - Novem Group S.A. invites investors and analysts to a conference call on 30 July 2026 from 14:00 to 15:00 p.m. CEST. Markus Wittmann (CEO) and Benjamin Retzer (CFO) will present the first quarter results 2026/27 (April to June 2026) followed by a Q&A session.
 
- LOS ANGELES, CA - July 23, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA), an emerging leader in designing novel cancer therapies, has taken another step in the development of its proprietary BiTAC(R)-TCE platform after receiving Scientific Advice from Germany’s Paul-Ehrlich-Institute (“PEI”), providing regulatory feedback on the biological rationale and proposed non-clinical development strategy for its lead therapeutic program. The announcement, released on July 20, signals progress as the biotechnology company prepares its most advanced BiTAC(R)-TCE candidate for future clinical development (https://ibn.fm/zBiDU).
+ The event can be followed via webcast:
 
- Scientific Advice procedures allow drug developers to consult with regulatory experts before clinical trials begin, helping companies align their development strategies with regulatory expectations regarding safety, tolerability and…
+ https://www.webcast-eqs.com/novem20260730Alternatively, you can listen to the presentation via conference call using the registration link below:
 
- Read More
+ https://services.choruscall.it/DiamondPassRegistration/register?confirmationNumber=3465287&linkSecurityString=a4c5e5404
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Please note that you can only ask questions via the conference call. After signing up for the conference call, you will receive a confirmation email with individual dial-in details.
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ The interim statement and presentation as well as a corresponding press release will be available on 30 July 2026 at 9:00 a.m. CEST on the Investor Relations website.
 
- Forward Looking Statements
+ About Novem
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law 
+ Luxembourg-headquartered Novem is a developer and supplier of exclusive trim elements and decorative functional components for mobility. As the global leader in high-end car interiors, the Company also leverages its expertise in the premium exterior trim market and further diversifies its portfolio into adjacent mobility segments. Across the range of key materials such as genuine wood, aluminium, carbon and premium synthetics, Novem offers unrivalled quality, technology and innovation to a globally diversified customer base including all major premium carmakers worldwide. Founded in 1947 in Vorbach, Germany, the Company has continuously expanded its global footprint in the Czech Republic, Germany, Slovenia, Honduras, Mexico, the USA and China. Novem employs about 4,100 people at 11 locations and achieved revenue of around EUR 511 million in FY 2025/26.
+
+ For more information, please visit www.novem.com.
+
+ Contact Investor Relations
+
+ Sophie BaduraInvestor Relations ManagerPhone: +49 9205 18 1676E-Mail: investor.relations@novem.com
+
+ 
+
+ 
+
+ 
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-advances-bitac-r-tce-development-with-positive-regulatory-feedback-from-germany-7087926)
+[Original/Source Press Release](https://www.newmediawire.com/news/novem-group-s-a-invitation-to-the-q1-2026-27-results-presentation-on-30-july-2026-7087932)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-advances-bitac-r-tce-with-positive-regulatory-feedback/4c353a13d2e326ff99f736c9ae8750af) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novem-group-invites-to-q1-2026-27-results-conference-call-on-july-30/76164f826ca33da1c6d3aea1dfec4386) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/veraxa-biotech-receives-regulatory-support-from-germanys-paul-ehrlich-institute-for-bitacr-tce-platform/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/novem-group-to-report-q1-202627-results-on-july-30/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/novem-group-to-report-q1-202627-results-on-july-30)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/novem-group-sa-to-present-q1-202627-results-on-july-30-2026)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://burstable.news](https://burstable.news/news/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/novem-group-sa-veroffentlicht-ergebnisse-fur-das-1-quartal-202627-am-30-juli)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/novem-group-sa-programa-la-presentacion-de-resultados-del-primer-trimestre-del-ejercicio-202627-para-el-30-de-julio)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/novem-group-sa-prevoit-la-presentation-de-ses-resultats-du-t1-202627-le-30-juillet)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/novem-group-sa-agendou-apresentacao-dos-resultados-do-1o-trimestre-de-202627-para-30-de-julho)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/novem-group-sa-to-report-q1-202627-results-on-july-30-2026)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/novem-group-sa-announces-q1-202627-results-webcast-and-conference-call)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/novem-group-sa-schedules-q1-202627-results-webcast-and-conference-call-for-july-30)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/novem-group-sa-to-report-q1-202627-results-on-july-30)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/76164f826ca33da1c6d3aea1dfec4386)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/novem-group-sa-to-report-q1-202627-results-on-july-30)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/novem-group-sa-to-report-q1-202627-results-on-july-30)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/novem-group-sa-to-report-q1-202627-results-on-july-30)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/novem-group-sa-schedules-q1-202627-results-webcast-and-conference-call-for-july-30)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/novem-group-sa-schedules-q1-202627-results-webcast-and-conference-call-for-july-30)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/novem-group-sa-schedules-q1-202627-results-presentation-for-july-30)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/novem-group-sa-schedules-q1-202627-results-webcast-and-conference-call)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/novem-group-sa-to-report-q1-202627-results-on-july-30/202635891)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/23/gluePbSU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/23/takeGGmK.webp)

@@ -1,50 +1,68 @@
-# The Knowledge Extraction Economy Is Here. Tina Brinkley Potts Says It's Time to Build Knowledge Royalty Systems™
+# Heidi G. Villari of The Villari Firm, PLLC Named to Super Lawyers for the Tenth Consecutive Year
 
-WILMINGTON, DE, July 23, 2026 /24-7PressRelease/ -- Every day, millions of professionals create value they never fully capture. Their expertise strengthens organizations, improves operations, generates revenue, solves complex problems, and increasingly becomes part of the data that powers artificial intelligence. Tina Brinkley Potts believes we have entered a new economic era, one where expertise has become one of the world's most valuable commodities, yet most professionals have no system for owning the long-term value of what they know. She calls this shift the Knowledge Extraction Economy.  "Your knowledge is being extracted," said Potts. "Right now. Today. Every time you answer an email for free. Every time you solve the problem nobody else could solve. Every time someone picks your brain over coffee and walks away with a strategy they'll use for years. Every time you give your best thinking to an organization that may replace you the moment it becomes financially advantageous to do so. Your knowledge is being extracted."  According to Potts, artificial intelligence has not created this shift. It has exposed and accelerated it. AI can now organize, summarize, retrieve, and deploy knowledge faster than ever before, making it more important for experts to understand the value of what they know and to intentionally build systems that allow that knowledge to continue creating value for them.  To help professionals navigate this new reality, Potts has launched the KnowNet Worth 30-Day Podcast Series, expanding on the ideas introduced in her book, KnowNet Worth: Turn Your Expertise Into Income, Your Systems Into Scale and Your Story into Legacy Using AI, Systems and Soul. Throughout the series, she introduces two foundational concepts that challenge conventional thinking about expertise in the AI era.  The first is the KnowNet Worth™ framework, a methodology that helps experts identify, quantify, and communicate the true value of their expertise, experience, and proprietary insight. Rather than defining themselves by job titles or hourly rates, the framework encourages professionals to recognize their knowledge as intellectual property with measurable value.  The second is the Knowledge Royalty System™, a business model built on that foundation. Inspired by the way songwriters continue earning royalties from music they created years earlier, the model explores how experts can structure, organize, and license their knowledge so it continues creating opportunities, authority, and recurring revenue rather than being exchanged only for time.  Potts is already applying these principles through her work with organizations across the country, helping businesses capture operational expertise, transform institutional knowledge into structured systems, and build digital assets that strengthen discoverability in an AI-driven world. She believes the same principles can help entrepreneurs, authors, consultants, healthcare organizations, educators, attorneys, and thought leaders build businesses that are no longer dependent solely on their hours.  "The future belongs to people who own their knowledge, not just the people who share it," Potts said. "If you don't intentionally build assets around your expertise, someone else will build value from it. The opportunity isn't to fear artificial intelligence. The opportunity is to ensure your knowledge continues working for you long after you've created it."  The KnowNet Worth 30-Day Podcast Series is available now at https://tinabrinkleypotts.com/amplify-your-expertise/ where listeners can access the series, explore additional educational resources, and learn more about the KnowNet Worth™ framework and the Knowledge Royalty System™.  About Tina Brinkley Potts Tina Brinkley Potts is a business strategist, speaker, author, and creator of the KnowNet Worth™ framework and the Knowledge Royalty System™. Her work helps entrepreneurs and organizations recognize the value of their intellectual capital, transform expertise into business assets, and build systems that increase authority, discoverability, and long-term enterprise value in the age of artificial intelligence. 
+PHILADELPHIA, PA, July 23, 2026 /24-7PressRelease/ -- Heidi G. Villari, managing partner of The Villari Firm, PLLC in Philadelphia, has been selected to Super Lawyers for 2026, marking her tenth straight year on the list since 2017. The 2026 selection continues one of the more consistent recognition records among Pennsylvania personal injury and medical malpractice attorneys.  Alongside the general selection, Villari again appears on three of the publication's most selective top lists. She was named to the Top 100: 2026 Philadelphia Super Lawyers and the Top 100: 2026 Pennsylvania Super Lawyers, extending runs on both lists that began in 2022. She was also named to the Top 50: 2026 Women Pennsylvania Super Lawyers, a list she has appeared on every year since 2020. Super Lawyers selections are based on peer nominations, independent research, and evaluation across a range of professional achievement indicators, with only a small percentage of attorneys in each state selected annually.  Licensed in Pennsylvania since 1998 and admitted in New Jersey as well, Villari represents individuals and families harmed by catastrophic injury, wrongful death, and medical malpractice. She began her career on the other side of the docket, defending clients against personal injury claims, and has said that experience shapes how she builds cases today. Knowing how insurers and institutional defendants evaluate exposure informs her approach to discovery, negotiation, and trial preparation.  Her results reflect that approach. Villari has obtained up to $135 million in settlements and awards over the course of her career. Notable outcomes include a $20 million settlement in a brain-damaged baby case, an $11 million jury award for a woman who suffered a vaginal tear during labor and delivery, a $9.75 million settlement for a man left completely blind after surgery, and an $8 million verdict following a helicopter crash that she tried to a jury. More recently she resolved a leg injury case for $4 million and a neck fusion claim for $1.95 million. She holds an Avvo "Excellent" rating.  Villari's professional service extends beyond her caseload. She has sat on the board of the Pennsylvania Trial Lawyers Association, served as a senior hearing officer for the Disciplinary Board of the Commonwealth of Pennsylvania, served as a judge pro tempore and teaches continuing legal education courses for fellow attorneys. Her memberships include the Pennsylvania Association for Justice, the Pennsylvania Bar Association, the Philadelphia Bar Association, and the Justinian Society. She earned her law degree from Widener University Delaware Law School.  The Villari Firm, PLLC handles medical malpractice, birth injury, catastrophic injury, and wrongful death matters for clients throughout Pennsylvania and New Jersey from its office at 258 S. 11th Street in Philadelphia. Prospective clients can reach the firm at 215-372-8889 or through thevillarifirm.com to discuss a potential claim. 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537089/the-knowledge-extraction-economy-is-here-tina-brinkley-potts-says-its-time-to-build-knowledge-royalty-systems)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537100/heidi-g-villari-of-the-villari-firm-pllc-named-to-super-lawyers-for-the-tenth-consecutive-year)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/your-expertise-is-being-extracted-how-to-own-your-knowledge-in-the-ai-era/f7f156481b8d9d16f79e02cc2ab0a121) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heidi-villari-earns-10th-straight-super-lawyers-recognition/fa951126627028bacb582defae056a61) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/knowledge-extraction-economy-emerges-expert-urges-professionals-to-build-knowledge-royalty-systems)
+Pickup - [https://x.com](https://twitter.com/i/status/2080397815486751228)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/knowledge-extraction-economy-emerges-tina-brinkley-potts-advocates-for-knowledge-royalty-systems)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year/)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/tina-brinkley-potts-introduces-knowledge-royalty-systems-for-the-knowledge-extraction-economy)
+Pickup - [https://advos.io/en](https://advos.io/en/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/expertise-in-the-ai-era-tina-brinkley-potts-introduces-knowledge-royalty-systems-to-help-professionals-own-their-intellectual-capital)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/expertise-as-capital-tina-brinkley-potts-introduces-knowledge-royalty-systems-for-the-ai-era)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/the-knowledge-extraction-economy-demands-new-systems-for-owning-expertise-says-tina-brinkley-potts)
+Pickup - [https://burstable.news](https://burstable.news/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/the-knowledge-extraction-economy-demands-new-models-for-expertise-ownership-says-tina-brinkley-potts)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/heidi-g-villari-zum-zehnten-mal-in-folge-zu-super-lawyers-ernannt)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/tina-brinkley-potts-introduces-knowledge-royalty-systems-for-the-knowledge-extraction-economy)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/heidi-g-villari-es-nombrada-en-super-lawyers-por-decimo-ano-consecutivo)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/tina-brinkley-potts-introduces-knowledge-royalty-systems-for-the-knowledge-extraction-economy)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/heidi-g-villari-nommee-parmi-les-super-lawyers-pour-la-dixieme-annee-consecutive)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/tina-brinkley-potts-introduces-knowledge-royalty-systems-for-the-knowledge-extraction-economy)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/heidi-g-villari-e-nomeada-para-super-lawyers-pelo-decimo-ano-consecutivo)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/tina-brinkley-potts-introduces-knowledge-royalty-systemstm-in-new-podcast-series)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/new-economic-era-emerges-the-knowledge-extraction-economy-calls-for-knowledge-royalty-systems)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/tina-brinkley-potts-introduces-knowledge-royalty-systemtm-to-help-professionals-own-the-value-of-their-expertise-in-the-ai-era)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/expertise-as-intellectual-property-tina-brinkley-potts-launches-knowledge-extraction-economy-podcast-series)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/knowledge-royalty-systems-a-new-model-for-the-knowledge-extracti/202635874)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/23/tina-brinkley-potts-launches-knownet-worth-podcast-urges-professionals-to-build-knowledge-royalty-systems-in-the-extraction-economy/)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/heidi-g-villari-of-the-villari-firm-pllc-named-to-super-lawyers-for-tenth-consecutive-year)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year)
+
+Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/heidi-g-villari-named-to-super-lawyers-for-2026-marking-tenth-consecutive-year-on-list)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/heidi-g-villari-recognized-by-super-lawyers-for-tenth-consecutive-year)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-year-highlighting-consistent-excellence-in-personal-injury-law)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/heidi-g-villari-named-to-super-lawyers-for-tenth-consecutive-yea/202635887)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/23/nukeUnsH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/23/pearmmNd.webp)
