@@ -1,44 +1,38 @@
-# JCB and Fiuu Collaborate to Expand JCB Acceptance Across Southeast Asia
+# SS Innovations International (SSII) to Showcase SSi Mantra Surgical Robotic System at SRS 2026
 
-The Collaboration Strengthens JCB Acceptance in Malaysia, Singapore, and the Philippines through Fiuu's Acquiring Capabilities
+* SS Innovations will showcase its SSi Mantra surgical robotic system at the Society of Robotic Surgery (“SRS”) 2026 Annual Meeting in Florida on July 23-26.
+* The presentation will feature a live kidney telesurgery broadcast from India, demonstrating the remote capabilities of the SSi Mantra platform.
+* Chairman and CEO Dr. Sudhir Srivastava to participate in multiple conference presentations covering telesurgery, robotic surgery adoption and regulatory developments.
+* As of July 6, 2026, more than 12,375 procedures have been completed using the SSi Mantra system, including cardiac, pediatric and telesurgical procedures.
+* Approximately 2,100 physicians have already been trained on the platform, which has been used across more than 170 different surgical procedures.
 
- TOKYO and SHAH ALAM, MALAYSIA - July 24, 2026 (NEWMEDIAWIRE) - JCB International Co., Ltd., the international operations subsidiary of JCB Co., Ltd., Japan’s only international payment brand, and Fiuu, a leading fintech platform in Southeast Asia, have entered into a direct acquiring partnership covering Malaysia, Singapore and the Philippines.
+ LOS ANGELES, CA - July 24, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII), a developer of innovative surgical robotic technologies, will bring its SSi Mantra surgical robotic system to one of the largest annual gatherings of robotic surgery specialists, highlighting the company’s expanding clinical experience and growing focus on remote surgical capabilities. The company announced that the SSi Mantra will be showcased during the Society of Robotic Surgery (“SRS”) 2026 Annual Meeting, scheduled for July 23-26 in Hollywood, Florida (https://ibn.fm/FkgsY).
 
- By enabling direct connectivity between JCB and Fiuu, this milestone supports payment processing across online and offline channels and contributes to a reliable and seamless payment experience for merchants and JCB Cardmembers.
+ The robotic platform will be demonstrated throughout the conference and featured in multiple technical sessions. One of the event’s focal points will be a live robotic telesurgery in which a partial nephrectomy will be performed remotely by…
 
- Southeast Asia’s digital commerce and payments landscape continues to evolve, with sustained growth across digital transactions and card usage. As consumers increasingly engage in both online and offline commerce across the region, the importance of broad and reliable card acceptance continues to grow. These market trends create further opportunities for JCB and Fiuu to expand JCB acceptance and enhance payment convenience for merchants and cardmembers across the region.
+ Read More
 
- “This milestone reflects the next phase of Fiuu’s regional acquiring growth. Businesses expanding across Southeast Asia need payment partners that can combine local market understanding, direct scheme connectivity, and operational depth. Our direct acquiring relationship with JCB strengthens that foundation, allowing us to support merchants with broader acceptance, greater consistency, and the confidence to serve customers across both digital and physical commerce,” said Eng Sheng Guan, CEO of Fiuu.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- “We are delighted to partner with Fiuu as our Regional Acquirer for Malaysia, Singapore, and the Philippines. As Southeast Asia's payments landscape continues to evolve rapidly, Fiuu’s regional expertise, fast-growing merchant network, and multi-channel payment capabilities make it an important partner in expanding JCB acceptance across this region. Together, we are committed to making JCB more accessible to merchants and cardmembers while expanding the payment network for JCB Cardmembers,” said Shimpei Yamaguchi, Managing Director of JCB International Asia Pacific Pte. Ltd.
+ The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
 
- Building on the collaboration in Malaysia, Singapore and the Philippines, JCB and Fiuu will continue to explore opportunities to expand JCB acceptance in additional markets across Southeast Asia, including Thailand, while supporting the evolving needs of merchants and enhancing payment convenience for consumers across the region. Together, JCB and Fiuu aim to further strengthen payment acceptance across Southeast Asia and deliver greater value to merchants and JCB Cardmembers.
+ Forward Looking Statements
 
- About Fiuu
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Established in 2005, Fiuu, formerly known as Razer Merchant Services (RMS), has grown to become one of the largest O2O (offline to online) digital payment networks in emerging markets. Fiuu recorded a Total Payment Volume (TPV) of over US$13 billion for FY2025, solidifying its position as one of the largest payment processors in Southeast Asia.
-
- Fiuu, a leading B2B (business-to-business) solution provider, offers comprehensive payment services across Malaysia, Singapore, the Philippines, Thailand, Indonesia, Taiwan, Vietnam, and Hong Kong through its robust payment processing gateway. Integrated with local, regional, and global banks and schemes, it supports over 110 payment methods, enabling seamless online and offline payments for global and regional blue-chip merchants. Fiuu also provides a wide range of value-added services, including bill payments, telco reloads, e-wallet top-up services, and more, catering to diverse business and consumer needs. For more information, please visit our website at fiuu.com.
-
- About JCB
-
- JCB is a major global payment brand and a leading credit card issuer and acquirer in Japan. JCB launched its card business in Japan in 1961 and began expanding worldwide in 1981. Its acceptance network includes about 72 million merchants around the world. JCB Cards are now issued mainly in Asian countries and territories, with more than 181 million cardmembers. As part of its international growth strategy, JCB has formed alliances with hundreds of leading banks and financial institutions globally to increase its merchant coverage and cardmember base. As a comprehensive payment solution provider, JCB commits to providing responsive and high-quality service and products to all customers worldwide. For more information, please visit: www.global.jcb/en/
-
- ContactAnna TakedaCorporate CommunicationsTel: +81-3-5778-8353Email: jcb-pr@info.jcb.co.jp 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/jcb-and-fiuu-collaborate-to-expand-jcb-acceptance-across-southeast-asia-7087942)
+[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-to-showcase-ssi-mantra-surgical-robotic-system-at-srs-2026-7087950)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/jcb-and-fiuu-partner-to-expand-card-acceptance-in-southeast-asia/9868269676748a157c9f29e583eabd40) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/24/jcb-and-fiuu-partner-to-expand-card-acceptance-in-southeast-asia/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-to-showcase-ssi-mantra-robotic-system-at-srs-2026/8489a763aa5adedfece34dfac1c460db) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/24/filogr4Y.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/24/roamA0xI.webp)

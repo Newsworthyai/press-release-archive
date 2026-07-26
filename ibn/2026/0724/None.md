@@ -1,16 +1,22 @@
-# NetworkNewsBreaks – Uranium Energy Corp. (NYSE American: UEC) Announces Annual Meeting Results and Executive Officer Reappointments
+# Regentis Biomaterials Ltd. (NYSE American: RGNT) Positioned to Benefit as Regenerative Medicine Reshapes the Growing $3 Billion Cartilage Repair Market
 
-Uranium Energy (NYSE American: UEC) announced the results of its annual meeting of stockholders held July 23, 2026. Stockholders elected Amir Adnani, Spencer Abraham, David Kong, Vincent Della Volpe, Gloria Ballesta and Trecia Canty to the board of directors, ratified PricewaterhouseCoopers LLP as the independent registered accounting firm for the fiscal year ending July 31, 2026, and approved a nonbinding advisory vote on named executive officer compensation.
+* Regentis is targeting an estimated $3 billion U.S. cartilage repair market opportunity, supported by approximately 470,000 annual knee cartilage repair procedures and growing demand for regenerative medicine solutions.
+* Regentis is advancing GelrinC, a potentially first-in-class, off-the-shelf cartilage regeneration platform designed to simplify treatment, improving patient outcomes while fitting current surgical workflows and supporting durable cartilage repair.
+* These developments underscore the company’s broader mission: To establish a new standard of care in cartilage repair through biomaterial-based regenerative technologies.
 
- Following the meeting, the board reappointed Adnani as president and CEO, Josephine Man as chief financial officer, treasurer and secretary, Scott Melbye as executive vice president and Brent Berg as senior vice president of U.S. operations. Complete voting results are available in the company Current Report on Form 8-K filed with the SEC.
+ Regentis Biomaterials (NYSE American: RGNT) is developing regenerative biomaterial technology as healthcare shifts toward therapies designed to restore damaged tissue rather than simply manage symptoms. With cartilage defects affecting hundreds of thousands of patients each year and contributing to pain, reduced mobility, and degenerative joint disease, the company is targeting one of orthopedic medicine’s largest unmet needs.
 
- To view the full press release, visit https://nnw.fm/KBRVK
+ GelrinC’s commercial potential is rooted in the combination of clinical differentiation and practical adoption. The product is designed to deliver advanced cartilage repair through a practical, approximately 10-minute, single-step procedure, without cell harvesting, laboratory expansion, patient-specific manufacturing, or a second surgery. At the same time, clinical data generated…
 
- About Uranium Energy Corp
+ Read More>>
 
- Uranium Energy Corp is America’s largest and fastest growing uranium company. The Company controls the largest uranium resource base and the most licensed production capacity in the United States, totaling approximately 12 million pounds per year across its Wyoming and South Texas platforms. In Canada, the Company controls one of the most extensive land and resource portfolios in the Athabasca Basin, anchored by the Roughrider Project in Saskatchewan. Through its wholly owned subsidiary, United States Uranium Refining & Conversion Corp, UEC is pursuing domestic refining and conversion capabilities to further strengthen the U.S. nuclear fuel supply chain. UEC maintains a 100% unhedged uranium strategy, providing full exposure to uranium market fundamentals. The Company is managed by professionals with decades of experience across uranium exploration, development, production, and fuel cycle infrastructure.
+ NOTE TO INVESTORS: The latest news and updates relating to RGNT are available in the company’s newsroom at https://nnw.fm/RGNT
 
- NOTE TO INVESTORS: The latest news and updates relating to UEC are available in the company’s newsroom at https://nnw.fm/UEC
+ This content was disseminated on behalf of Regentis Biomaterials Ltd. (NASDAQ: RGNT) as part of a paid marketing engagement with IBN.Ai
+
+ RGNT: IBN will receive $30,000 per quarter for a total of 180 days from RGNT for coverage via IBN
+
+ Please see full terms of use and disclaimers on the IBN website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
 
  About NetworkNewsWire
 
@@ -28,39 +34,15 @@ Uranium Energy (NYSE American: UEC) announced the results of its annual meeting 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/regentis-biomaterials-ltd-nyse-american-rgnt-positioned-to-benefit-as-regenerative-medicine-reshapes-the-growing-3-billion-cartilage-repair-market/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uranium-energy-corp-elects-board-reappoints-ceo-at-annual-meeting/642a84d671bf89053f9a3835d63a858a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regentis-biomaterials-targets-3-billion-cartilage-repair-market-with-gelrinc/a775be0e84dd10a5cd9125f8e161937d) 
 
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/networknewsbreaks-uranium-energy-corp-nyse-american-uec-announces-annual-meeting-results-and-executive-officer-reappointments)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/24/uranium-energy-corp-reappoints-leadership-advances-domestic-nuclear-fuel-strategy/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/24/takeK_gW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/24/riceweaL.webp)
