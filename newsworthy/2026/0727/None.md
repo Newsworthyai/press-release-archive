@@ -1,134 +1,117 @@
-# The Harvest Table Helps Consumers Choose the Right Collagen
+# From Wall Street to Rooftops: Lindsay Shappee's Bold Career Shift
 
-As collagen products continue to grow in popularity, many consumers are discovering that there is no one-size-fits-all approach to choosing a collagen product. The Harvest Table, the South African wellness brand known for its clean-label, whole-food nutrition products, is helping consumers better understand the differences between collagen formulations so they can make informed decisions based on their individual preferences and daily routines.
+Episode 83 of Rock Solid: Round Rock Business Leaders Podcast, titled "Lindsay Shappee | From Corporate Burnout to Entrepreneurial Freedom," hosted by Bryan Eisenberg, features a candid conversation with the co-owner of Family Friend Roofing & Construction. Published July 21, 2026, the episode traces Shappee's decision to leave a nearly two-decade banking career, most recently with JP Morgan, to bootstrap a Williamson County roofing company alongside three partners. Her story arrives as more corporate professionals rethink career identity, community investment, and what genuine culture looks like inside large institutions.
 
- From single-source collagen products to more comprehensive collagen formulations enhanced with complementary nutrients, today's consumers have more choices than ever before. According to The Harvest Table, understanding what distinguishes these formulations can help simplify the decision-making process without making wellness unnecessarily complicated.
+ Across the conversation, Shappee walks listeners through several concrete threads pulled from her own transition:
 
- "We believe consumers deserve clear information that helps them choose products with confidence," said Catherine Clark, Founder of The Harvest Table. "Rather than believing there is one perfect collagen for everyone, we encourage people to find the formulation that best complements their lifestyle, preferences, and daily wellness routine."
+ * How a breakfast meeting with now-partner Aaron Bernard turned from a consulting pitch into an operating role in roofing and construction.
+* Why she believes technology and AI are quietly reshaping the in-person banking relationship over the next five to ten years.
+* The company's community-first launch strategy, including early investments with the Round Rock Chamber and Five Point Board of Realtors.
+* A partnership with Matt Maples of USA Cares that delivered a Christmas roof to a veteran, coordinated alongside Will Williams and a donated power wheelchair.
 
- Understanding Different Collagen Options The Harvest Table offers multiple collagen formulations because different consumers have different priorities.
+ Shappee does not sanitize the emotional cost of the pivot. She recalls a corporate sales meeting where leadership preached that "our culture is family first, and we are a family," while she was privately navigating her aunt's terminal illness. The moment, she says, left her feeling isolated and questioning her reputation. Describing the weekend she decided to go on leave, she tells Eisenberg:
 
- For those seeking a straightforward daily collagen product, Grass Fed Bovine Collagen Granules provides Types I and III collagen sourced from grass-fed bovine collagen in a simple formulation made without added gums, fillers, preservatives, artificial flavors, or dyes. The tasteless, instant-dissolving granules mix easily into hot or cold beverages, making them convenient for everyday use.
+ "When I thought I felt so alone, and I thought I had hit rock bottom, there were some really unhealthy thoughts that were going in my head... The more time I spent by myself in my own space, trusting the very inner voice, it just said, 'This no longer serves you.'" The deeper context is a family legacy of caregiving and entrepreneurship. Shappee's grandmother nursed at Ben Taub Hospital, her aunt was a lifelong nurse who, with her husband, launched a home healthcare venture in the Houston area, and her biological father built a custom home business from a butcher's toolbox. That inheritance shapes Family Friend Roofing's operating philosophy: bootstrapped growth with no outside financing, intentional hiring over rapid scaling, and mandatory community involvement for every project manager. Shappee also serves on the executive committee of the Ascension Seton Williamson Foundation, the Chaparral Women's Club advisory board, and the governmental affairs board of the Five Point Board of Realtors, and she previews the upcoming Women of Wilco luncheon with the Round Rock Chamber as a room she believes can change careers.
 
- Consumers looking for a more comprehensive collagen formulation may prefer Multi Collagen Radiance, which features Types I, III, V and X collagen together with Vitamin C, Zinc and Cranberry as part of a thoughtfully developed daily nutrition product.
-
- For consumers who prefer a plant-based approach, The Harvest Table also offers Vegan Protein, a clean-label protein powder made with pea protein and brown rice protein, with added glycine and proline. The formulation is designed to fit easily into smoothies and other everyday nutrition routines while remaining free from added gums and fillers, preservatives, artificial flavors, and dyes.
-
- "The goal isn't to convince consumers that one collagen is better than another," said Sam Clark, CEO of The Harvest Table. "Each formulation was developed to meet different consumer preferences, allowing people to choose the product that best fits their own wellness routine."
-
- Choosing What Works for You When selecting a collagen product, The Harvest Table encourages consumers to consider factors such as ingredient composition, convenience, and how easily a product fits into an existing daily routine.
-
- For some, a simple collagen formulation may be the right choice. Others may prefer a formulation that combines multiple collagen types with additional nutrients. The Harvest Table believes that consistency is often more important than complexity, and that products designed for everyday use are more likely to become lasting wellness habits.
-
- Available on Amazon The Harvest Table's collagen collection currently available to U.S. consumers on Amazon includes:
-
- * Bovine Collagen Granules - 12.35 oz (350 g) Pouch
-* Multi Collagen Radiance - 12.35 oz (350 g) Pouch
-* Vegan Protein - 19.40 oz (550 g) Pouch
-
- Manufactured with Quality in South Africa All The Harvest Table products are manufactured in-house at the company's custom-built facility in KwaZulu-Natal, South Africa, where the brand maintains control over sourcing, formulation, and quality.
-
- The facility passes annual Food Safety Assessment (FSA) audits, meets GMP manufacturing requirements, and is recognized as a Food Safe Facility. The company also maintains Halaal certification for applicable markets.
-
- For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
-
- About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
-
- Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halaal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
-
- With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
+ About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits, and companies shaping Round Rock, Texas. Each episode explores the personal journeys, business models, and community commitments behind Central Texas's fastest-growing business corridor. Episode 83 with Lindsay Shappee is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607272667/the-harvest-table-helps-consumers-choose-the-right-collagen)
+[Original/Source Press Release](https://newsworthy.ai/news/202607272671/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-one-size-fits-all-the-harvest-table-guides-collagen-choices/10112404cce3ca1d92c8cfc26bc59cf9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/from-banker-to-roofer-a-story-of-corporate-burnout-and-entrepreneurial-freedom/95923f267d4e8d7bf1492793903296da) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/27/the-harvest-table-guides-consumers-through-collagen-choices-amid-growing-market/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/27/from-jp-morgan-to-roofing-why-one-executive-left-banking-for-williamson-county-construction/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://advos.io/en](https://advos.io/en/from-jp-morgan-to-roofing-lindsay-shappees-career-pivot-highlights-corporate-burnout-and-community-focus)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/from-corporate-burnout-to-entrepreneurial-freedom-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/from-jp-morgan-burnout-to-bootstrapped-roofing-lindsay-shappees-entrepreneurial-leap-in-williamson-county)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/del-agotamiento-en-jp-morgan-al-emprendimiento-en-techos-el-salto-empresarial-de-lindsay-shappee-en-el-condado-de-williamson)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://burstable.news](https://burstable.news/news/from-jp-morgan-to-roofing-lindsay-shappees-career-pivot-highlights-burnout-and-community-focus)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/von-jp-morgan-zum-dachdecken-lindsay-shappees-karrierewechsel-zeigt-burnout-und-gemeinschaftsfokus)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/de-jp-morgan-a-los-techados-el-giro-profesional-de-lindsay-shappee-destaca-el-agotamiento-y-el-enfoque-comunitario)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/de-jp-morgan-a-la-toiture-la-reconversion-de-lindsay-shappee-met-en-lumiere-lepuisement-professionnel-et-lengagement-communautaire)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/the-harvest-table-helps-consumers-choose-the-right-collagen)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/do-jp-morgan-aos-telhados-mudanca-de-carreira-de-lindsay-shappee-destaca-esgotamento-e-foco-na-comunidade)
 
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-supplement)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://advos.io/en](https://advos.io/en/the-harvest-table-guides-consumers-through-collagen-choices-amid-market-growth)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/from-banking-to-roofing-lindsay-shappees-career-pivot-highlights-corporate-burnout-and-community-commitment)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-product)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/from-jp-morgan-to-roofing-lindsay-shappees-career-shift-highlights-corporate-burnout-and-community-reinvestment)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/the-harvest-table-guides-consumers-through-collagen-choices-with-tailored-formulations)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://burstable.news](https://burstable.news/news/the-harvest-table-guides-consumers-through-collagen-choices)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/the-harvest-table-fuhrt-verbraucher-durch-die-auswahl-von-kollagen)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/from-wall-street-to-roofing-lindsay-shappees-pivot-to-community-focused-entrepreneurship)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/the-harvest-table-guia-a-los-consumidores-en-la-eleccion-de-colageno)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/95923f267d4e8d7bf1492793903296da)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/the-harvest-table-guide-les-consommateurs-dans-le-choix-des-collagenes)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/from-banking-to-roofing-lindsay-shappees-career-pivot-reflects-broader-corporate-disillusionment)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/the-harvest-table-orienta-consumidores-na-escolha-de-colageno)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/from-jp-morgan-to-roofing-lindsay-shappees-corporate-exodus-highlights-the-cost-of-culture)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices-with-tailored-formulations)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/from-jp-morgan-to-roofing-lindsay-shappees-journey-of-reinvention-and-community-focus)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices-as-market-expands)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/from-banking-to-roofing-lindsay-shappees-career-pivot-highlights-broader-shift-in-professional-identity)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-amid-growing-market-options)
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/from-banking-burnout-to-roofing-success-lindsay-shappees-entrepreneurial-leap)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/the-harvest-table-guides-consumers-through-collagen-choices-for-personalized-wellness)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/from-corporate-burnout-to-entrepreneurial-freedom-lindsay-shappees-journey-out-of-banking)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices-as-market-expands)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices-amid-growing-product-variety)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/from-banking-to-roofing-lindsay-shappee-on-leaving-corporate-burnout-for-entrepreneurial-freedom)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-for-their-wellness-routine)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift/202636042)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-formulation)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/95923f267d4e8d7bf1492793903296da)
 
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/the-harvest-table-helps-consumers-navigate-the-growing-collagen-market)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/the-harvest-table-guides-consumers-on-choosing-the-right-collagen-formulation)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-formulation)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/the-harvest-table-guides-consumers-through-collagen-choices-amid-growing-market)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/the-harvest-table-educates-consumers-on-choosing-the-right-collagen-for-their-lifestyle)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/the-harvest-table-guides-consumers-in-choosing-the-right-collagen-for-their-lifestyle)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-harvest-table-educates-consumers-on-choosing-the-right-colla/202636037)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/from-wall-street-to-rooftops-lindsay-shappees-bold-career-shift)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/27/cornu4zt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/27/gaingWp6.webp)
