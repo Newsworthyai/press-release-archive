@@ -1,124 +1,126 @@
-# Santos Muscle Nutrition Preparing for Amazon Launch in the United States
+# The Sounds We Share Project Launches: The First Kids' Music Channel Where No Child Is a Foreigner
 
-Santos Muscle Nutrition, the Netherlands-based sports nutrition brand focused on muscle growth, athletic performance, and active lifestyles, announced plans to launch its products on Amazon in the United States, marking the next phase of the company's U.S. expansion strategy.
+Traditionally, children's songs are bound by language barriers. The Sounds We Share, launching now at thesoundsweshare.com and on YouTube, erases it. The channel's songs contain no words in any language. Instead, they are composed from the hums, pops, rolls, and whooshes humans everywhere use to speak. The songs require no dubbing or translation. Every child on Earth hears the same song the same way.
 
- The planned Amazon launch follows Santos Muscle Nutrition's recent entry into the U.S. market through OneLavi and is expected to make the brand more accessible to athletes and fitness enthusiasts nationwide.
+ The Sounds We Share is a children's music channel whose songs use speech sounds from the world's languages instead of words.
 
- "Amazon represents an important milestone in our U.S. growth strategy," said Mike de Groot, Founder of Santos Muscle Nutrition. "Our goal is to make Santos products easier for American consumers to discover and purchase while continuing to build our brand in one of the world's most competitive sports nutrition markets."
+ Why wordless music works for young children Babies are born able to hear and distinguish the full range of human speech sounds. As they grow, their brains specialize in the sounds they hear at home every day. Research shows that babies start life able to hear speech differences from languages around the world. During the first year, their brains begin specializing in the sounds they hear most often, a process called perceptual narrowing. The Sounds We Share builds its songs inside that early window, pairing playful speech sounds with one simple movement per song that families can do together: bounce, march, twirl, sway, or rock.
 
- Three Core Products Planned for Amazon The initial Amazon lineup is expected to include three of Santos Muscle Nutrition's flagship products:
+ The channel is deliberate about what it does not claim. Its songs will not make a child bilingual or smarter, and the brand says so on its own website. What it promises instead: playful early sound exposure, listening, imitation, movement, and music children beg to replay.
 
- * Santos Muscle Nutrition® Cookies & Cream Whey Protein - 900g: A premium whey protein formula featuring a rich Cookies & Cream flavor, smooth mixability, and convenient everyday use for shakes, smoothies, and recipes.
-* Santos Muscle Nutrition Creatine Monohydrate: A premium-quality creatine formula designed to complement structured training routines with an easy-mixing, convenient daily format.
-* Santos Muscle Nutrition Pre-Workout - Bubblegum Flavor: A pre-workout formula developed to support energy, focus, and workout performance as part of an active fitness routine.
+ A 15 year idea that had to wait for the technology Creator Bryan Eisenberg began his career as an educator and social worker before becoming a digital marketing pioneer and New York Times bestselling author. At Wizard Academy in Austin, Texas, he encountered the science of phonemes, the universal building blocks of spoken language, and the idea never let go.
 
- Expanding Access to U.S. Consumers Amazon has become one of the leading destinations for sports nutrition products, providing consumers with convenient access to trusted domestic and international brands.
+ "Before children learn words, they learn sounds," said Eisenberg. "Words sometimes divide us. The sounds underneath them belong to everyone. After decades of waiting for the right technology, I created this channel with the dream of singing these songs with my grandchildren."
 
- The upcoming launch represents another important step in Santos Muscle Nutrition's long-term strategy to establish a broader retail presence throughout the United States.
+ Meet the Sound Explorers The songs live in a connected world of magical Sound Lands explored by three characters: Mavi, the blue Sound Explorer who discovers every new sound first; Kado, the orange Rhythm Explorer who turns every discovery into a bounce, clap, or dance; and Lila, the lavender Melody Explorer who transforms single sounds into melody and calm.
 
- "We're taking a measured approach to entering the U.S. market," de Groot added. "Launching on Amazon will help introduce Santos Muscle Nutrition to more athletes while supporting our continued expansion across additional retail channels."
+ Season One launches in two collections. Sound Adventures delivers daytime energy and family movement. Dream Sounds delivers gentle lullabies with rain, ocean waves, and the softest sounds human voices make, built for rocking and sleep.
 
- Growing U.S. Presence The planned Amazon launch builds on Santos Muscle Nutrition's ongoing expansion efforts, which recently included the company's first U.S. retail availability through OneLavi.
+ AI-made, human-judged, plainly disclosed The music and animation are produced with a number of AI tools, including Suno and Gemini then shaped and quality-gated by humans. The channel discloses this openly on its website. Every song must pass one test before it ships: would a child ask to hear it again, and would a parent survive the tenth replay?
 
- Additional retail announcements, including future availability through Walmart.com, are expected as the company continues expanding its U.S. distribution network.
+ "Families deserve two things kids' media rarely gives them: honesty about how the content is made and honesty about what it can do," said Eisenberg. "We put both on the front page."
 
- About [Santos Muscle Nutrition](https://santosmusclenutrition.nl/) Santos Muscle Nutrition is a Netherlands-based sports nutrition company focused on developing supplements intended to support structured fitness routines, muscle development, and consistent training habits. The company offers a growing range of products and plans continuous expansion based on consumer interest and performance trends.
+ “I have been pleasantly surprised by reactions from parents, kids and even neuroscientist researchers that have seen the videos.”
 
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ Key facts * What: The Sounds We Share, a children's music channel whose songs use speech sounds from the world's languages instead of words
+* Who: Created by Bryan Eisenberg, New York Times bestselling author and digital marketing pioneer, as an independent family project
+* Characters: Mavi (Sound Explorer), Kado (Rhythm Explorer), Lila (Melody Explorer)
+* Audience: Children ages 0 to 5 and their families
+* Formats: Sound Adventures (movement songs) and Dream Sounds (lullabies), on YouTube now, with streaming platforms to follow
+* Free resource: The Family Movement Guide, a printable showing the movement for every song, available at thesoundsweshare.com
+* Location: Round Rock, Texas
+* Watch: youtube.com/@MaviAndFriends
+* Learn more: thesoundsweshare.com
+
+ About The Sounds We Share The Sounds We Share is a children's music channel whose songs use speech sounds from the world's languages instead of words. Created by Mavi & Friends, the Sound Explorers, the songs pair playful global speech sounds with simple family movements so every child can sing along, no matter what language is spoken at home. Music and animation are created with AI tools and finished with human craft. Made with care in Round Rock, Texas.
+
+ About Bryan Eisenberg Bryan Eisenberg is a New York Times bestselling author, digital marketing pioneer, and entrepreneur who began his career as an educator and social worker. Over 30 years he has helped shape how businesses communicate and build relationships online. He is a father of three and co-owner of a home care agency serving seniors, veterans, and people with disabilities. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202607282682/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states)
+[Original/Source Press Release](https://newsworthy.ai/news/202607282683/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/santos-muscle-nutrition-to-launch-on-amazon-in-u-s-expansion/69c1bd7fa20c14fb2211379ab7b68bde) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wordless-children-s-songs-break-language-barriers-globally/24770051200a5db42722939e91f3335f) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://advos.io/en](https://advos.io/en/new-kids-music-channel-uses-wordless-songs-to-bridge-language-barriers-for-young-children)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/new-kids-music-channel-uses-wordless-songs-to-bridge-language-barriers)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/the-sounds-we-share-project-launches-wordless-kids-music-channel-aims-to-unite-children-worldwide)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://burstable.news](https://burstable.news/news/the-sounds-we-share-project-launches-wordless-music-channel-for-children-breaking-language-barriers)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/projekt-the-sounds-we-share-startet-wortlosen-musikkinderkanal-und-uberwindet-sprachbarrieren)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-proyecto-los-sonidos-que-compartimos-lanza-un-canal-musical-sin-palabras-para-ninos-derribando-barreras-idiomaticas)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-projet-the-sounds-we-share-lance-une-chaine-musicale-sans-paroles-pour-enfants-brisant-les-barrieres-linguistiques)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/projeto-the-sounds-we-share-lanca-canal-de-musica-sem-palavras-para-criancas-quebrando-barreiras-linguisticas)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/the-sounds-we-share-project-launches-wordless-childrens-music-channel-to-bridge-language-barriers)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/the-sounds-we-share-project-launches-wordless-kids-music-channel-to-bridge-language-barriers)
 
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/santos-muscle-nutrition-to-launch-on-amazon-in-us-expansion-push)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/the-sounds-we-share-first-kids-music-channel-breaks-language-barriers-with-wordless-songs)
 
-Pickup - [https://advos.io/en](https://advos.io/en/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/new-wordless-music-channel-aims-to-unite-children-across-language-barriers)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/the-sounds-we-share-project-launches-a-wordless-kids-music-channel-for-global-audiences)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/new-wordless-music-channel-the-sounds-we-share-uses-universal-speech-sounds-to-connect-children-worldwide)
 
-Pickup - [https://biohacker.news/biohacker-news](https://biohacker.news/biohacker-news/santos-muscle-nutrition-to-launch-on-amazon-in-the-us-with-three-core-supplements)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/the-sounds-we-share-project-launches-wordless-music-channel-for-children)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/santos-muscle-nutrition-to-launch-on-amazon-expanding-us-presence)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/new-kids-music-channel-uses-wordless-songs-to-bridge-language-barriers)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/santos-muscle-nutrition-se-lanzara-en-amazon-expandiendo-su-presencia-en-ee-uu)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/the-sounds-we-share-project-launches-wordless-kids-music-channel-to-bridge-language-barriers)
 
-Pickup - [https://burstable.news](https://burstable.news/news/santos-muscle-nutrition-plans-amazon-launch-in-the-united-states)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/santos-muscle-nutrition-plant-amazon-start-in-den-usa)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/new-kids-music-channel-uses-wordless-songs-to-bridge-language-barriers)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/santos-muscle-nutrition-planea-lanzamiento-en-amazon-en-estados-unidos)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/the-sounds-we-share-project-launches-wordless-music-channel-for-children)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/santos-muscle-nutrition-prevoit-un-lancement-sur-amazon-aux-etats-unis)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/the-sounds-we-share-project-launches-wordless-kids-music-channel-to-bridge-language-barriers)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/santos-muscle-nutrition-planeja-lancamento-na-amazon-nos-estados-unidos)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/new-kids-music-channel-uses-wordless-songs-to-bridge-language-ba/202636126)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/santos-muscle-nutrition-plans-amazon-launch-in-the-united-states)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/24770051200a5db42722939e91f3335f)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/24770051200a5db42722939e91f3335f)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/santos-muscle-nutrition-to-launch-on-amazon-in-us-expanding-sports-nutrition-reach)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/santos-muscle-nutrition-to-launch-three-core-supplements-on-amazon-in-us)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/santos-muscle-nutrition-to-launch-on-amazon-in-the-us-expanding-access-to-sports-nutrition-products)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://nutrition.in-focus.news/nutrition-news](https://nutrition.in-focus.news/nutrition-news/santos-muscle-nutrition-to-launch-three-core-supplements-on-amazon-in-us)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/santos-muscle-nutrition-plans-amazon-launch-to-expand-us-market-presence)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/santos-muscle-nutrition-plans-amazon-launch-in-the-united-states)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/the-sounds-we-share-project-launches-the-first-kids-music-channel-where-no-child-is-a-foreigner)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/santos-muscle-nutrition-to-launch-on-amazon-in-the-united-states/202636116)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/santos-muscle-nutrition-preparing-for-amazon-launch-in-the-united-states-3)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/28/santos-muscle-nutrition-to-launch-on-amazon-in-the-us-expanding-access-to-sports-nutrition-products/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/28/new-wordless-music-channel-aims-to-unite-children-across-language-barriers/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/28/keeppf8M.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/267/28/eachUePZ.webp)
