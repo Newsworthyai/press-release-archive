@@ -1,42 +1,41 @@
-# Symbiotic COO Says Lack of Political Will is Hindering Crypto Regulation
+# Earth Science Tech Inc. (ETST) Capitalizing on Diversified, Synergistic Operations to Deliver Dilution-Free and Cash-Flow Driven Growth
 
-Jillian Friedman, chief operating officer at Symbiotic, believes the biggest obstacle to crypto regulation has been political decision-making rather than a shortage of expertise among regulators.
+* Earth Science Tech, through its specialized subsidiaries, has created a vertically integrated healthcare platform that combines compounding pharmacy operations, telemedicine, clinical support, and fulfilment
+* RxCompoundStore and Mister Meds are licensed compounding pharmacies, which produce custom medications that are supplied wholesale to independent clinics and directly to consumers through ETST’s other subsidiary, Peaks Curative LLC
+* The subsidiaries create a dual-market operation that reduces reliance on one market segment and continues to contribute to Earth Science Tech’s cash-flow-driven and dilution-free growth
+* In fiscal year 2026, Earth Science Tech reduced its total liabilities and increased its total assets, resulting in a net increase in shareholder equity
 
- As cryptos become increasingly viewed as assets that can generate long-term value as evidenced by the holdings of companies like Strategy Inc. (NASDAQ: MSTR), regulation could evolve to catch up to these changing perspectives within the…
+ Earth Science Tech (OTC: ETST), a diversified holding company, is building a healthcare platform that vertically integrates various aspects of patient care, from consultation to fulfillment. The company achieves this through the synergy of its specialized subsidiaries RxCompoundStore (“RxCS”), Mister Meds, and Peaks Curative LLC.
+
+ RxCS is a Miami-based licensed compounding pharmacy that provides sterile and non-sterile medications. Mister Meds, on the other hand, is an Abilene-based compounding pharmacy that provides sterile medication and handles hazardous drugs. RxCS and Mister Meds compound ingredients, creating custom medications that they then supply wholesale to independent…
 
  Read More>>
 
- About CryptoCurrencyWire
+ NOTE TO INVESTORS: The latest news and updates relating to ETST are available in the company’s newsroom at https://ibn.fm/ETST
 
- CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
+ About InvestorWire
 
- To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.CryptoCurrencyWire.com
+ For more information, please visit https://www.InvestorWire.com
 
- Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- CryptoCurrencyWireAustin, Texaswww.CryptoCurrencyWire.com512.354.7000 OfficeEditor@CryptoCurrencyWire.com
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- CryptoCurrencyWire is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/symbiotic-coo-says-lack-of-political-will-is-hindering-crypto-regulation/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/earth-science-tech-inc-etst-capitalizing-on-diversified-synergistic-operations-to-deliver-dilution-free-and-cash-flow-driven-growth/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/political-will-not-expertise-blocks-crypto-regulation-symbiotic-coo/1ad24dd0518dbee97757c7c52fc8d639) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earth-science-tech-builds-integrated-healthcare-platform-for-growth/477baf4b5d706898a095fe05c4713d60) 
 
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/symbiotic-coo-says-lack-of-political-will-is-hindering-crypto-regulation)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/symbiotic-coo-says-lack-of-political-will-is-hindering-crypto-regulation)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/28/political-will-not-expertise-is-biggest-barrier-to-crypto-regulation-symbiotic-coo-says/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/28/iconVEmh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/28/chiplzmu.webp)
