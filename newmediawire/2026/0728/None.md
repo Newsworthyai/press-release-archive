@@ -1,36 +1,112 @@
-# Quantum BioPharma (QNTM) Executive Outlines Lucid-MS Development Strategy and Commercial Growth Plans
+# Hammond Manufacturing Company Limited Announces Declaration of Dividend Payment
 
-LOS ANGELES, CA - July 28, 2026 (NEWMEDIAWIRE) - Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM), a biopharmaceutical company focused on advancing innovative therapies and technologies, was featured in a recent episode of the BioMedWire Podcast. During the program, Executive Co-Chairman and Co-Founder Anthony Durkacz discussed the company’s strategy for advancing Lucid-MS, its lead drug candidate for multiple sclerosis, as well as the commercial opportunity surrounding its unbuzzd product. Durkacz highlighted Lucid-MS’s goal of addressing mobility damage associated with MS and noted that the company has filed an investigational new drug application for a Phase 2 clinical trial, which could represent the candidate’s first administration to human MS patients. He also discussed unbuzzd, a commercially available product designed to accelerate alcohol metabolism, underscoring Quantum BioPharma’s strategy of combining clinical-stage pharmaceutical development with commercial opportunities across neurodegenerative, metabolic and alcohol-misuse conditions.
+GUELPH, ONTARIO - July 28, 2026 (NEWMEDIAWIRE) - Hammond Manufacturing Company Limited (HMCL) (TSX: HMM.A) today announced that HMCL’s Board of Directors has declared a dividend of $0.03 per Class A Subordinate Voting Share and $0.03 per Class B Common share (not listed on the TSX) payable August 21, 2026, to shareholders of record at the close of business on August 10, 2026.
 
- To view the full article, visit https://ibn.fm/IWnPQ
+ The board has not adopted a formal dividend policy, and no decision has been made with respect to the declaration of any future dividend.
 
- About Quantum BioPharma Ltd.
+ Important Income Tax Information for Canadian Resident Shareholders
 
- Quantum BioPharma is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum BioPharma is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum BioPharma invented unbuzzd and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“UWI”), led by industry veterans. Quantum BioPharma retains ownership of 19.84% (as of March 31, 2026) of UWI at www.unbuzzd.com. The agreement with UWI also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum BioPharma total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum BioPharma retains 100% of the rights to develop similar product or alternative formulations specifically for pharmaceutical and medical uses.
+ HMCL designates the entire amount of this dividend to be an “eligible dividend”, as defined in subsection 89(1) of the Income Tax Act (Canada), as amended from time to time. This notice meets the requirement of the Income Tax Act (Canada). Please contact your tax advisor if you have any questions with regard to the designation of the eligible dividend.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ About Hammond Manufacturing Company Limited
 
- The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
+ Hammond Manufacturing Company Limited manufactures a broad range of products for the electronic and electrical products industry, including metallic and non-metallic enclosures, racks, small cases, outlet strips, surge suppressors and electronic transformers.
 
- Forward Looking Statements
+ For information, contact:Hammond Manufacturing Company LimitedRobert F. Hammond, Chairman and CEOTel. (519) 822-2960Fax. (519) 822-7289Email: ir@hammfg.com
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-executive-outlines-lucid-ms-development-strategy-and-commercial-growth-plans-7088020)
+[Original/Source Press Release](https://www.newmediawire.com/news/hammond-manufacturing-company-limited-announces-declaration-of-dividend-payment-7088025)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-s-dual-strategy-ms-drug-and-alcohol-metabolism-product/c5af0bad5575b24d4105cd9e33d8e88c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hammond-manufacturing-declares-0-03-dividend-per-share/51121e8f39c8aaebe89b79a044375e3c) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/28/quantum-biopharma-advances-lucid-ms-toward-phase-2-trial-explores-commercial-revenue-from-unbuzzd/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/28/hammond-manufacturing-declares-003-dividend-for-august-payment/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/hammond-manufacturing-declares-quarterly-dividend-of-003-per-share)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hammond-manufacturing-declares-003-per-share-dividend)
+
+Pickup - [https://burstable.news](https://burstable.news/news/hammond-manufacturing-declares-003-per-share-dividend)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hammond-manufacturing-kundigt-dividende-von-003-pro-aktie-an)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hammond-manufacturing-declara-dividendo-de-003-dolares-por-accion)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hammond-manufacturing-declare-un-dividende-de-003-par-action)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/hammond-manufacturing-declara-dividendo-de-003-por-acao)
+
+Pickup - [https://news.calgaryobserver.com/canadian-news](https://news.calgaryobserver.com/canadian-news/hammond-manufacturing-declares-quarterly-dividend-for-shareholders)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/hammond-manufacturing-declares-dividend-of-003-per-share)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://news.edmontonobserver.com/canadian-news](https://news.edmontonobserver.com/canadian-news/hammond-manufacturing-declares-quarterly-dividend-of-003-per-share)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hammond-manufacturing-declares-003-dividend-no-commitment-to-future-payments)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/hammond-manufacturing-announces-quarterly-dividend-payment)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/hammond-manufacturing-declares-003-per-share-dividend)
+
+Pickup - [https://news.manitobareporter.com/canadian-news](https://news.manitobareporter.com/canadian-news/hammond-manufacturing-declares-quarterly-dividend-for-class-a-and-class-b-shares)
+
+Pickup - [https://news.manitobareporter.com/les-informations](https://news.manitobareporter.com/les-informations/hammond-manufacturing-declare-un-dividende-trimestriel-pour-les-actions-de-categorie-a-et-de-categorie-b)
+
+Pickup - [https://news.mapleobserver.com/canadian-news](https://news.mapleobserver.com/canadian-news/hammond-manufacturing-declares-quarterly-dividend-of-003-per-share)
+
+Pickup - [https://news.mapleobserver.com/les-informations](https://news.mapleobserver.com/les-informations/hammond-manufacturing-declare-un-dividende-trimestriel-de-003-par-action)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://news.montrealbreaking.com/canadian-news](https://news.montrealbreaking.com/canadian-news/hammond-manufacturing-declares-dividend-of-003-per-share-payable-august-21)
+
+Pickup - [https://news.montrealbreaking.com/les-informations](https://news.montrealbreaking.com/les-informations/hammond-manufacturing-declare-un-dividende-de-003-par-action-payable-le-21-aout)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/hammond-manufacturing-declares-003-dividend-per-share)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://news.ontariosun.com/canadian-news](https://news.ontariosun.com/canadian-news/hammond-manufacturing-declares-dividend-for-shareholders)
+
+Pickup - [https://news.ontnnariosun.com/les-informations](https://news.ontnnariosun.com/les-informations/hammond-manufacturing-declare-un-dividende-pour-ses-actionnaires)
+
+Pickup - [https://news.ottawarecorder.com/canadian-news](https://news.ottawarecorder.com/canadian-news/hammond-manufacturing-declares-003-dividend-per-share)
+
+Pickup - [https://news.ottawarecorder.com/les-informations](https://news.ottawarecorder.com/les-informations/hammond-manufacturing-declare-un-dividende-de-003-par-action)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/hammond-manufacturing-declares-quarterly-dividend)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/hammond-manufacturing-declares-003-dividend-per-share)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/hammond-manufacturing-declares-003-per-share-dividend)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/hammond-manufacturing-declares-003-per-share-dividend-for-august-2026)
+
+Pickup - [https://news.torontodailyreport.com/canadian-news](https://news.torontodailyreport.com/canadian-news/hammond-manufacturing-declares-003-per-share-dividend-payable-august-21)
+
+Pickup - [https://news.torontodailyreport.com/les-informations](https://news.torontodailyreport.com/les-informations/hammond-manufacturing-declare-un-dividende-de-003-par-action-payable-le-21-aout)
+
+Pickup - [https://news.vancouverchronicles.com/canadian-news](https://news.vancouverchronicles.com/canadian-news/hammond-manufacturing-declares-quarterly-dividend-for-shareholders)
+
+Pickup - [https://news.vancouverchronicles.com/les-informations](https://news.vancouverchronicles.com/les-informations/hammond-manufacturing-declare-un-dividende-trimestriel-pour-ses-actionnaires)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hammond-manufacturing-declares-quarterly-dividend/202636163)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/28/duneXNX9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/28/mielZHLH.webp)
