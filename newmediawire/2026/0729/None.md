@@ -1,56 +1,38 @@
-# NeuroThera Labs Advances Its Quantum Platform for Clinical Data Analytics on a Platform of an S&amp;P 500 Company
+# VERAXA Biotech (VRXA) Expands Patent Portfolio to Support Next-Generation Cancer Therapy Platforms
 
-Company Validates Proprietary Quantum Sampling Workflow, Enabling Representations of Continuous Clinical Data Within a Quantum Computing Framework
+LOS ANGELES, CA - July 29, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) announced an expansion of its intellectual property portfolio, filing new patent applications during the first half of 2026 covering its next-generation BiTAC-TCE and BiTAC-ADC technology platforms and related therapeutic programs. The company said previously granted patents protecting supporting technologies have also cleared the opposition period, bringing its portfolio to more than 50 granted owned or exclusively licensed patents across 14 countries and 26 patent families. Pending approval of the latest filings, VERAXA expects its core technologies to be protected through at least 2047.
 
- TORONTO, ONTARIO - July 29, 2026 (NEWMEDIAWIRE) - NeuroThera Labs Inc. (TSXV: NTLX) (the "Company" or "NeuroThera"), a clinical-stage biotech company, today announced that it has successfully completed internal validation of a proprietary quantum sampling workflow developed platform for clinical trials data analysis (the “Platform”).
+ The company said its BiTAC platform is designed to improve the selectivity and safety of cancer therapies by activating treatments only when multiple tumor-associated targets are present. VERAXA also highlighted proprietary click chemistry, conjugation, linker and payload technologies intended to enhance the safety, efficacy and manufacturability of its antibody-drug conjugate and T-cell engager pipelines, reinforcing its long-term strategy to develop next-generation oncology therapeutics.
 
- The validated workflow enables continuous probability distributions to be represented and analyzed within a quantum computing framework. The implementation was developed and evaluated using an S&P 500 company platform for hybrid quantum-classical computing. The validation supports a key component of the Platform's computational architecture and is expected to further expand its capabilities for addressing complex analytical challenges involving large-scale clinical and biomedical datasets.
+ To view the full press release, visit https://ibn.fm/BqhFS
 
- Many real-world challenges in healthcare, life sciences, drug development and advanced analytics are naturally represented as continuous probability distributions. The Platform’s proprietary methodology converts these continuous datasets into quantum-operable energy landscape representations, enabling the application of Quantum Markov Chain Monte Carlo (“QMCMC”) techniques while preserving the statistical characteristics of the original data.
+ About VERAXA Biotech AG
 
- By using the Platform, quantum dynamics generate proposed samples while a classical acceptance mechanism preserves the target probability distribution. This hybrid quantum-classical architecture enables continuous datasets to be explored through quantum-generated proposals while maintaining established statistical guarantees.
+ At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
 
- The validated workflow represents an important step toward enabling increasingly sophisticated quantum-enabled analytical capabilities as quantum computing technologies continue to evolve. The Company believes efficient representation of continuous data within quantum systems will play an increasingly important role in next-generation computational approaches for healthcare and life sciences.
+ BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
 
- The Platform is being advanced through CliniQuantum, a quantum-focused technology initiative developing proprietary computational solutions for complex clinical data analytics, in which the Company holds 54.01%.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About NeuroTera Labs Inc.
+ The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
 
- NeuroThera Labs Inc. (TSXV: NTLX) is a clinical-stage pharmaceutical company focused on developing novel therapeutics for central nervous system disorders and other underserved health conditions through collaborations and innovative combinations.
+ Forward Looking Statements
 
- For further information, please contact:
-
- Michal EfratyIRManagerNeuroThera Labs Inc.Telephone: +972-3-7617108Email: michal@efraty.com
-
- Neither the TSXV nor its Regulation Services Provider (as that term is defined in the policies of the TSXV) accepts responsibility for the adequacy or accuracy of this release.
-
- Cautionary Notice on Forward-Looking Statements
-
- This news release contains "forward-looking information" and "forward-looking statements" within the meaning of applicable Canadian securities legislation (collectively, "forward-looking statements"). Forward-looking statements are frequently, but not always, identified by words such as "expects," "anticipates," "believes," "intends," "estimates," "potential," "possible," "will," "would," "may," "plans," "advances," "toward" and similar expressions, or by statements that certain actions, events or results "may," "could," "should" or "will" be taken, occur or be achieved.
-
- Forward-looking statements in this news release include, without limitation, statements regarding: the anticipated capabilities, performance, scalability and utility of the Company's quantum platform and of the validated quantum sampling workflow; the belief that efficient representation of continuous data within quantum systems will play an increasingly important role in next-generation computational approaches for healthcare and life sciences; the expectation that quantum computing technologies will continue to evolve in a manner that supports increasingly sophisticated analytical capabilities; the applicability of the platform to clinical, biomedical and drug development datasets; the continued development of the platform through CliniQuantum; the Company's ownership interest in CliniQuantum; and the Company's business objectives, plans and strategy generally.
-
- Forward-looking statements are based on assumptions management considers reasonable as of the date hereof, including that: internal validation results are indicative of performance at larger scale and on real-world datasets; quantum computing hardware of sufficient capability, availability and cost will exist when required; third-party hardware, cloud and technology providers will continue to make their platforms available on acceptable terms; the Company will have access to sufficient capital and qualified personnel; the Company will maintain its interest in CliniQuantum; and no material adverse change occurs in applicable regulatory, market or competitive conditions.
-
- Forward-looking statements are subject to known and unknown risks and uncertainties that may cause actual results to differ materially. These include, among others: quantum computing is an emerging and unproven technology, and there is no assurance that any quantum advantage over classical methods will be achieved or that the Company's technology will be commercially viable for the Company's use cases, or achieved on any particular timeline or at all; the validation described in this news release is preliminary, was conducted internally, has not been peer-reviewed or independently verified, and may not be replicable or predictive of results at commercial scale; the platform is a research and analytics tool, is not a medical device or diagnostic, has not been reviewed or approved by Health Canada, the U.S. Food and Drug Administration or any other regulatory authority, and is not being offered for clinical use; the Company may never generate revenue from the platform; risks inherent in clinical-stage biotechnology, including that preclinical or clinical results may not be predictive of future results; dependence on third-party quantum hardware and software providers over which the Company has no control; the Company's dependence on, and relationship with, its majority shareholder; the Company's ownership interest in CliniQuantum may be diluted or otherwise change; the ability to obtain, maintain and enforce intellectual property protection; competition from better-resourced participants; the need for additional financing and the availability of financing on acceptable terms; the Company's history of losses and limited operating history; and the other risk factors disclosed in the Company's continuous disclosure filings available under its profile on SEDAR+ at www.sedarplus.ca.
-
- Readers are cautioned not to place undue reliance on forward-looking statements, which speak only as of the date of this news release. The Company undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by applicable securities laws.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/neurothera-labs-advances-its-quantum-platform-for-clinical-data-analytics-on-a-platform-of-an-s-p-500-company-7088043)
+[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-expands-patent-portfolio-to-support-next-generation-cancer-therapy-platforms-7088047)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/neurothera-validates-quantum-sampling-for-clinical-data/ceef277e85c352a48107446caba4d39e) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/29/neurothera-labs-validates-quantum-sampling-workflow-on-sp-500-company-platform-advancing-clinical-data-analytics/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-bolsters-ip-portfolio-with-new-patent-filings-for-cancer-platforms/e2adecffc2b86f96c597391c4d826c7a) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/29/pave23_U.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/29/knobSDKR.webp)
