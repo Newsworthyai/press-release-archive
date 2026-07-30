@@ -1,46 +1,53 @@
-# PXG Expands Zero Torque Putter Lineup With New PXG One & Done ZT Putter
+# Nancy Brown Earns National Recognition for Nonprofit Leadership and Impact
 
-New High-MOI Mallet Pairs Zero Torque Stability With Advanced Face Technology and Precision Weighting to Deliver a More Repeatable Putting Stroke
+DALLAS - July 30, 2026 (NEWMEDIAWIRE) - Nancy Brown, chief executive officer of the American Heart Association, has again been recognized as one of the most influential leaders in healthcare. Brown has been named to The NonProfit Times 29th annual Power and Influence Top 50.
 
-SCOTTSDALE, AZ - July 30, 2026 (NEWMEDIAWIRE) - PXG has announced the launch of the new PXG® One & Done® ZT Putter, a high-stability mallet engineered to help golfers simplify face control and produce a more consistent start line on the greens. Designed around PXG’s growing Zero Torque (ZT) platform, the PXG One & Done ZT Putter combines a new onset hosel configuration, hollow-body construction, advanced face milling, and perimeter weighting to create a putter that naturally resists twisting throughout the stroke.
+ The NonProfit Times Power and Influence Top 50 list honors leaders who have distinguished themselves as initiators and innovators. This marks the 11th time that the publication has recognized Brown for her leadership.
 
-As the zero torque category continues to gain momentum across the industry, PXG’s latest addition is designed to broaden the appeal of the technology with a highly stable, confidence-inspiring mallet putter that fits a wide range of players. It also further expands PXG’s ZT Putter family, which includes multiple head shapes from traditional blade profiles to high moment of inertia (MOI) mallets and long putter options.
+ Brown’s professional journey with the Association began in 1986 in Michigan. In July 2026, the Association celebrates her 40 years of service and leadership advancing its lifesaving mission. She ascended to the role of CEO in 2008, earning a reputation for her relentless ability to build impactful partnerships, and engage and unite volunteers, supporters and staff to advance the Association’s mission. Under her leadership, the organization has expanded its global influence in cardiovascular and brain health, accelerated scientific discovery, advanced quality improvement programs, strengthened advocacy for healthier communities, elevated women’s health through Go Red for Women and launched lifesaving initiatives such as Nation of Lifesavers. The organization also has successfully launched numerous multi-million-dollar research initiatives that are changing the future of heart and brain health for patients and communities. Today, the American Heart Association is the largest non-governmental funder of cardiovascular research in the United States.
 
-“This putter is designed to work with the golfer, not against them,” said PXG Design Engineer Matt Andrews. “By positioning the shaft axis just above the center of gravity, we significantly reduce the torque forces that cause the face to rotate during the stroke. The result is a putter that stays remarkably square to path and helps golfers produce a more repeatable roll.”
+ “Being recognized alongside other remarkable leaders is truly an honor, especially as I reflect on 40 years of service to the American Heart Association,” said Brown. “It is my greatest honor to continue to serve this mission after four decades. I am deeply grateful for the colleagues, mentors, volunteers, supporters, patients, survivors and staff who have been part of this journey, and I am excited to see the impact we will continue to make together.”
 
-At the center of the design is PXG’s patented onset hosel configuration, which aligns the shaft axis near the putter’s center of gravity to create a toe-up balance point. This geometry minimizes rotational forces throughout the putting motion, helping golfers maintain face stability from takeaway through impact. The putter incorporates an integrated forward press design that positions the hands naturally at address while maintaining effective loft at impact.
+ Brown’s bold vision has resulted in measurable progress for communities worldwide.
 
-The PXG One & Done ZT Putter also has one of the most technically advanced putter constructions in PXG’s lineup. Its hollow 303 stainless steel body is injected with PXG’s proprietary lightweight S CORTM polymer, allowing our engineers to remove discretionary mass from the center of the putter and reposition weight to the extreme perimeter for substantially higher MOI. The S COR polymer accounts for more than 50 percent of the putter’s internal volume, supporting both stability and vibration control.
+ “Nancy’s 40 years of service are a testament to the kind of visionary, mission-centered leadership that moves organizations - and entire fields - forward,” said Lee Shapiro, American Heart Association volunteer board chair and managing partner at the investment firm 7wireVentures. “Her ability to unite volunteers, staff, supporters and sponsors around bold goals has helped expand the Association’s reach and impact in profound ways. Nancy’s leadership continues to position the American Heart Association to save more lives and create longer, healthier futures for people everywhere.”
 
-The face structure pushes performance further. PXG’s third-generation pyramid face milling pattern features an aggressive geometry engineered to improve roll consistency while preserving the responsive feel preferred by accomplished golfers. The milled pyramid density is optimized to interact more consistently with golf ball dimples, producing a uniform sound and launch characteristic across the face.
+ Brown’s four decades of service reflect a career dedicated to advancing science, improving care, expanding access to lifesaving education and inspiring people around the world to live longer, healthier lives.
 
-Engineers also developed an ultra-thin face construction measuring just 0.055 inches thick, an aggressive design decision to reposition additional mass for perimeter weighting. The ultra-thin face is structurally supported by the S COR polymer.
+ For more information, visit The NonProfit Times Power and Influence Top 50.
 
-Adjustable sole weights enable fitters to fine-tune total head weight and bias preferences for different player setups and stroke styles.
+ Additional Resources:
 
-The PXG One & Done ZT Putter is available in both right- and left-handed models for $449.99 at PXG Retail Stores, online at PXG.com, and through select fitting and retail partners worldwide. For more information or to schedule a fitting, visit www.PXG.com.
+ * American Heart Association website
+* Follow AHA/ASA news on X @HeartNews
 
-About PXG (Parsons Xtreme Golf)
+ About the American Heart Association
 
-Founded by American entrepreneur and self-proclaimed golf nut Bob Parsons, PXG embodies his belief that every new product – from clubs to apparel – should be markedly better. Every innovation should noticeably improve performance, and every moment of impact should elevate enjoyment.
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
-Today, PXG offers a complete lineup of both right- and left-handed golf clubs, including drivers, fairway woods, hybrids, irons, wedges, and putters, engineered to be custom fit and built to every golfer’s unique specification. The company also designs and delivers high-performance golf apparel and accessories.
+ For Media Inquiries: 214-706-1173
 
-PXG’s professional staff includes Christiaan Bezuidenhout, Eric Cole, Patrick Fishburn, Jake Knapp, David Lipsky, Marco Penge, Aldrich Potgieter, Chad Ramey, Mason Andersen, Christian Banke, Paul Barjon, Sebastian Cappelen, Patrick Cover, Cristobal Del Solar, Keven Dougherty, Joey Garber, Ryan McCormick, Henrik Norlander, Augusto Nunez, Nathan Petronzio, Garrett Reband, Shad Tuten, Celine Boutier, Olivia Cowan, Minji Kang, Megan Khang, Auston Kim, Christina Kim, Gina Kim, Mina Kreiter, Kaitlin Milligan, and Linnea Storm.
+ American Heart Association: Liz Bonet, Liz.Bonet@heart.org
 
-Contact:Leela BrennanPress@pxg.com 
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+
+ heart.org and stroke.org
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pxg-expands-zero-torque-putter-lineup-with-new-pxg-one-done-zt-putter-7088058)
+[Original/Source Press Release](https://www.newmediawire.com/news/nancy-brown-earns-national-recognition-for-nonprofit-leadership-and-impact-7088064)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pxg-launches-zero-torque-mallet-for-consistent-putting/18062ef74218f8ed4c40fb67de92341a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-ceo-nancy-brown-honored-again-for-nonprofit-leadership/c482cb82d0b344519686f3233d245051) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/30/nancy-brown-honored-again-on-nonprofit-times-power-and-influence-top-50-for-40-years-of-leadership/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/30/bakeBTVT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/30/takeXSgY.webp)
