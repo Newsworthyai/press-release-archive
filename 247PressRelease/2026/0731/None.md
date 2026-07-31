@@ -1,0 +1,18 @@
+# Arizona Appeal Challenges Constitutional Violations in Case Where Billionaire Secured Permanent Injunction Without Evidence
+
+PHOENIX, AZ, July 31, 2026 /24-7PressRelease/ -- What Prior Restraint Is — and Why It's Illegal  Under the First Amendment, prior restraint is illegal government censorship — a prohibition on speech imposed before the speech occurs. The U.S. Supreme Court has repeatedly held that prior restraint carries a "heavy presumption against constitutional validity" and is permissible only in the rarest circumstances. Courts must make specific factual findings before restricting speech, and those findings must be supported by evidence.  In this case, the permanent injunction was issued while allowing the billionaire plaintiff to plead at a lower, non‑constitutional standard, a deviation from the heightened requirements that apply to public figures. At the same time, the court refused to rule on preserved constitutional rights, including First Amendment protections that were properly raised and briefed. The injunction was entered without evidentiary support, without First Amendment analysis, and without any appellee justification — placing the order far outside constitutional boundaries.  Destroyed Discovery and Undisclosed Judicial Relationship  The injunction remained in place for years despite the plaintiff's refusal to produce court‑ordered discovery — discovery the Court of Appeals previously ruled was relevant — and the plaintiff's subsequent destruction of those materials.  According to filings, the destroyed documents contained information indicating a business relationship between the plaintiff and the presiding judge of the Maricopa County Superior Court. This relationship was never disclosed to the parties, despite the judge's involvement in proceedings connected to the injunction.  Structural Failures Identified in the Appeal  The appeal argues that these circumstances collectively represent:  • A constitutionally defective prior restraint • A due‑process failure caused by the absence of evidentiary support • A procedural breakdown resulting from destroyed discovery • A potential conflict of interest involving the presiding judge • A structural integrity issue within the Maricopa County civil division • A departure from constitutional pleading standards • A refusal to adjudicate preserved constitutional rights  The opening brief, now formally filed and docketed by the Court of Appeals, places these issues before an appellate panel for the first time. The case is expected to draw attention from First Amendment advocates, judicial‑ethics organizations, and legal observers concerned with transparency and accountability in Arizona's courts.  Next Steps  A three‑judge panel is expected to be assigned shortly. The appeal seeks full vacatur of the injunction and clarification of the constitutional standards required before any Arizona court may restrict speech. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537315/arizona-appeal-challenges-constitutional-violations-in-case-where-billionaire-secured-permanent-injunction-without-evidence)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arizona-appeal-challenges-injunction-as-unconstitutional-prior-restraint/7777e97278d1b6532c142865a1061c88) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/267/31/archmqlQ.webp)
