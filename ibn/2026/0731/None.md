@@ -1,20 +1,14 @@
-# MissionIRNewsBreaks – Datavault AI Inc. (NASDAQ: DVLT) Schedules Second-Quarter 2026 Financial Results Conference Call
+# MissionIRNewsBreaks – Greenland Energy Company (NASDAQ: GLND) Targets Arctic Oil Potential as Global Energy Security Takes Center Stage
 
-Datavault AI (NASDAQ: DVLT) announced it will report financial results for the second quarter of 2026 before the market opens on Aug. 19, 2026. The company will host a conference call and live webcast at 8:30 a.m. ET the same day, with CEO Nathaniel Bradley and CFO Brett Moyer discussing the quarterly results and providing updates on the business.
+Greenland Energy (NASDAQ: GLND) is advancing exploration of Greenland’s Jameson Land Basin, a large undrilled Arctic petroleum basin that combines historical exploration data, modern seismic analysis and significant prospective resource potential. The company’s focus on Greenland’s stable, Western-aligned jurisdiction adds strategic value as global energy security concerns increase. With approximately 2.1 million acres under license, an estimated $81 million raised to fund its initial two-well program and drilling preparations underway, Greenland Energy expects to begin drilling the OPW-1 well in the fourth quarter of 2026. Although exploration and commercial risks remain, the project represents a potentially significant opportunity to develop new oil resources in a geopolitically stable Arctic region.
 
- To view the full press release, visit https://ibn.fm/dzbkO
+ To view the full article, visit https://ibn.fm/NQhI8
 
- About Datavault AI Inc.
+ About Greenland Energy Company
 
- Datavault AI(TM) (NASDAQ: DVLT) is leading the way in AI-driven data experiences, valuation and monetization of assets in the Web 3.0 environment. The Company’s cloud-based platform provides comprehensive solutions with a collaborative focus in its Acoustic Sciences and Data Sciences divisions.
+ GLND is an energy exploration company focused on responsibly developing Greenland’s hydrocarbon resources, with an emphasis on the Jameson Land Basin. The company aims to advance oil and gas exploration and create a publicly traded platform for Arctic energy development.
 
- Datavault AI’s Acoustic Sciences division features WiSA(R), ADIO(R) and Sumerian(R) patented technologies and industry-first foundational spatial and multichannel wireless, high-definition sound transmission technologies with intellectual property covering audio timing, synchronization and multi-channel interference cancellation. The Data Science division leverages the power of Web 3.0 and high-performance computing to provide solutions for experiential data perception, valuation and secure monetization.
-
- Datavault AI’s platform serves multiple industries, including high-performance computing software licensing for sports & entertainment, events & venues, biotech, education, fintech, real estate, healthcare, energy and more. The Information Data Exchange(R) enables Digital Twins and the licensing of name, image and likeness by securely attaching physical real-world objects to immutable metadata, fostering responsible AI with integrity. The Company’s technology suite is fully customizable and offers AI- and machine-learning-based automation, third-party integration, detailed analytics and data, marketing automation and advertising monitoring.
-
- The Company is headquartered in Philadelphia, PA. Learn more about Datavault AI at https://dvlt.ai.
-
- NOTE TO INVESTORS: The latest news and updates relating to DVLT are available in the company’s newsroom at https://ibn.fm/DVLT
+ NOTE TO INVESTORS: The latest news and updates relating to GLND are available in the company’s newsroom at https://ibn.fm/GLND
 
  About MissionIR
 
@@ -32,21 +26,15 @@ Datavault AI (NASDAQ: DVLT) announced it will report financial results for the s
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-datavault-ai-inc-nasdaq-dvlt-schedules-second-quarter-2026-financial-results-conference-call/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-greenland-energy-company-nasdaq-glnd-targets-arctic-oil-potential-as-global-energy-security-takes-center-stage/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-to-report-q2-2026-results-on-aug-19/1e4b68bbecfa2de40ecd7e2fec84002f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-energy-advances-arctic-drilling-plans-in-jameson-land-basin/c4ad31f51f80673f864e7097d46f13fb) 
 
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/missionirnewsbreaks-datavault-ai-inc-nasdaq-dvlt-schedules-second-quarter-2026-financial-results-conference-call)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/missionirnewsbreaks-datavault-ai-inc-nasdaq-dvlt-schedules-second-quarter-2026-financial-results-conference-call)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/31/datavault-ai-schedules-q2-2026-financial-results-call/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/31/pavexZHO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/267/31/riftBDlk.webp)
