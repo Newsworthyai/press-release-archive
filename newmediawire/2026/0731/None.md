@@ -1,100 +1,122 @@
-# Focus Universal Announces Deterministic AI Forms Auto-Populate Engine, Introducing a New Era of Autonomous Business Document Processing
+# LataMed AI Enters Agreement to Develop Digital Platform Supporting Access to IVIC Laboratory Services
 
-New AI Platform Automatically Converts Raw Business Documents Into Completed Business Forms Without Coding or Conventional AI Model Training Rather Focused on Proprietary Human-Approved Deterministic Learning Model
+CARACAS, VENEZUELA - July 31, 2026 (NEWMEDIAWIRE) - LataMed AI Corp. (OTC: LMED) (“LataMed AI” or the “Company”), a healthcare technology company developing digital health and artificial intelligence solutions for Latin America, today announced that, through its Venezuelan operating subsidiary LATAMEDAI VE, it has entered into an agreement with the Venezuelan Institute for Scientific Research, known as IVIC, to develop a digital platform module intended to support access to designated laboratory and scientific services.
 
- MONTEREY PARK, CA - July 31, 2026 (NEWMEDIAWIRE) - Focus Universal Inc. (NASDAQ: FCUV) ("Focus" or the "Company"), Focus Universal, a provider of patented hardware and software technologies for IoT, 5G, and AI-driven SEC financial reporting software, today announced the launch of its Deterministic AI Forms Auto-Populate Engine, an enterprise document platform designed to transform repetitive manual document processing into fully autonomous electronic workflows.
+ Under the agreement, LataMed AI and IVIC intend to collaborate on the design, development, testing, and implementation of a digital interface through which authorized business and institutional users may request available laboratory services, schedule appointments, monitor the status of submitted requests, access approved reports and documentation, and complete authorized payment-related processes.
 
- This Engine enables organizations to upload raw business documents from multiple sources and automatically identify, extract, validate, correlate, and populate information across downstream business forms. Unlike conventional software that depends on predefined templates or workflow programming, the platform is designed to process diverse document types using embedded domain knowledge and deterministic business logic.
+ The proposed module is intended to provide a centralized digital workflow for organizations seeking scientific and laboratory services in areas that may include healthcare, pharmaceuticals, food production, agriculture, and related industries. The specific services made available through the platform will be determined by IVIC and implemented in accordance with the technical, operational, security, and legal requirements established by the parties.
 
- Organizations simply upload their business documents - including purchase orders, bills of lading, arrival notices, invoices, contracts, shipping documents, customs documentation, and other structured or semi-structured business records. The platform automatically recognizes document types, understands relationships among documents, validates information across multiple sources, and generates completed business forms such as commercial invoices, packing lists, certificates of origin, customs declarations, shipping instructions, export documentation, financial reports, contracts, and other operational documents.
+ LataMed AI will begin working with IVIC to define the module’s functional requirements, user-access procedures, data architecture, payment workflows, document-management capabilities, and phased testing and implementation process. The parties will also establish appropriate procedures governing the handling, transmission, storage, and authorized access to laboratory-related information and documentation.
 
- Unlike probabilistic AI systems that generate responses based on statistical prediction, Focus Universal's Deterministic AI technology is designed to produce consistent, traceable, and repeatable results by applying deterministic business rules together with accumulated domain knowledge. The platform performs cross-document validation to identify inconsistencies, eliminate repetitive manual data entry, and maintain synchronization throughout the document workflow.
+ The contemplated platform functionality may include electronic service requests, appointment scheduling, request-status tracking, secure payment facilitation, and controlled access to laboratory reports or other authorized documentation. The final functionality, implementation schedule, and scope of available services remain subject to continued technical development, testing, and approval by the parties.
 
- The platform also supports fully autonomous batch processing. Operating 24 hours a day, seven days a week, the platform transforms document processing from an activity limited by business hours into an always-on electronic operation capable of significantly increasing document throughput while reducing manual labor.
+ “This agreement represents an opportunity to apply our technology to an important area of scientific and enterprise service delivery,” said Dr. Kevin Rodan Levy, Chief Executive Officer of LataMed AI Corp. “Our objective is to work with IVIC to develop a responsible digital framework that makes it easier for authorized users to request services, manage appointments, monitor processes, and access approved information through a centralized platform.”
 
- A distinguishing feature of the Engine is its human-approved deterministic learning model. During the initial implementation of a new workflow, the system automatically populate the desired output documents. Users review the results, verify their accuracy, and make any necessary corrections. Once approved, the validated workflow becomes the production standard in the process. The platform consistently applies the same approved deterministic rules to future document packages while expanding its knowledge base through additional human-approved workflows. This approach enables increasing intelligence without sacrificing consistency, traceability, or deterministic behavior.
+ Management believes the proposed module may expand LataMed AI’s capabilities beyond patient-facing telemedicine by demonstrating how its technology can support institutional and enterprise workflows involving healthcare, scientific services, laboratory coordination, and digital documentation.
 
- The platform is designed for business users rather than programmers. No coding, scripting, workflow programming or AI model training is required. Organizations can deploy intelligent documents simply by uploading their business documents, significantly reducing implementation complexity while accelerating adoption.
+ The initiative is also consistent with the Company’s broader strategy of developing digital infrastructure connecting patients, healthcare professionals, pharmacies, insurers, payment providers, wellness organizations, institutions, and other participants in the healthcare and scientific-services ecosystem.
 
- The Deterministic AI Forms Auto-Populate Engine is applicable across a broad range of industries, including freight forwarding, international trade, customs brokerage, logistics, manufacturing, banking, insurance, healthcare administration, accounting, regulatory compliance, legal services, and SEC financial reporting. Any organization that processes large volumes of business documents can benefit from autonomous document processing, deterministic validation, and continuous electronic operation.
+ If successfully implemented, management believes the module may provide a framework that could potentially be adapted for other institutional and enterprise service environments in Venezuela and elsewhere in Latin America. Any future expansion would remain subject to separate agreements, technical readiness, applicable regulatory requirements, and the needs of participating institutions.
 
- The launch of the Deterministic AI Forms Auto-Populate Engine further expands Focus Universal's Deterministic AI technology portfolio, which includes enterprise solutions for SEC financial reporting, EDGAR filing preparation, XBRL generation, and intelligent document processing.
+ The agreement establishes the framework under which LataMed AI and IVIC intend to develop and evaluate the proposed module. It does not guarantee a specific implementation date, level of user adoption, service volume, revenue, profitability, or expansion to additional institutions. The Company will provide further updates regarding development, testing, and implementation as appropriate.
 
- "Our vision is simple," said Dr. Desheng Wang, Chief Executive Officer of Focus Universal Inc. "For decades, businesses have relied on employees to repeatedly transfer information from one document to another. We believe those repetitive office tasks should be performed electronically rather than manually. With our Deterministic AI Forms Auto-Populate Engine, users simply upload their business documents, and the software automatically understands the documents, validates the information, and generates the required business forms. We believe this technology has the potential to fundamentally transform document-intensive business operations across numerous industries."
+ For additional information, please visit https://latamed.ai, follow the Company’s official social media channels, or review the Company’s filings with the U.S. Securities and Exchange Commission at www.sec.gov.
 
- About Focus Universal:Focus Universal Inc. is a provider of patented hardware and software design technologies for Internet of Things (IoT) and 5G. The company has developed five disruptive patented technology platforms with 26 patents and patents pending in various phases and eight trademarks pending in various phases to solve the major problems facing hardware and software design and production within the industry today. For maintenance cost control, the company has also omnibus patents encompassing these patents into patent family groups. These technologies combined to have the potential to reduce costs, product development timelines and energy usage while increasing range, speed, efficiency, and security. Focus Universal is a publicly listed company committed to innovation and long-term value creation through strategic investments and business development. Through its global subsidiaries, the Company continues to expand into high-growth markets while delivering sustainable business solutions to customers worldwide. Focus currently trades on the Nasdaq Markets.
+ About LataMed AI Corp.
 
- Forward-Looking Statements:Statements in this press release about future expectations, plans and prospects, as well as any other statements regarding matters that are not historical facts, may constitute "forward-looking statements" within the meaning of The Private Securities Litigation Reform Act of 1995. The words "anticipate," "believe," "continue," "could," "estimate," "expect," "intend," "may," "plan," "potential," "predict," "project," "should," "target," "will," "would" and similar expressions are intended to identify forward-looking statements, although not all forward-looking statements contain these identifying words. Forward looking statements include statements regarding the platform being designed to serve consumers and business partners across multiple international markets while supporting the growing demand for seamless global commerce; the Company strengthening its global competitiveness, diversifying its revenue streams, and creating lasting value for customers, business partners, and shareholders by expanding its presence in the international e-commerce sector; the new venture further enhancing the Company’s international footprint and supporting its long-term strategic objectives; the business beginning to generate both revenue and income in the near term and the Company creating long-term value through innovation, global collaboration, operational excellence, and exceptional customer service Actual results may differ materially from those indicated by such forward-looking statements as a result of various important factors, including: the uncertainties related to the Company’s ability to derive the benefits from the partnership including its ability to generate near term revenue, diversify revenue streams, strengthen its global competitiveness; expand its international presence and create value for shareholders; market conditions, and other factors discussed in the "Risk Factors" section of the Company’s most recent Annual Report on Form 10-K and its subsequent quarterly reports on Form10-Q filed with the SEC. Any forward-looking statements contained in this press release speak only as of the date hereof and Focus Universal specifically disclaims any obligation to update any forward-looking statement, whether because of new information, future events or otherwise.
+ LataMed AI Corp. is a healthcare technology company focused on developing digital health infrastructure and artificial intelligence-supported medical solutions for Latin America. The Company’s strategy includes the development of a telemedicine ecosystem designed to improve access to healthcare services and support connections among patients, medical professionals, pharmacies, insurers, payment providers, wellness organizations, institutions, and other participants in the healthcare system.
 
- For investor and media inquiries, please contact:
+ The Company is also developing CardioAI, PulmoAI, and NeuroAI, artificial intelligence-supported platforms intended to assist healthcare professionals in the evaluation and management of cardiovascular, pulmonary, and neurological health information. These platforms remain subject to continued development, testing, applicable regulatory requirements, and commercial implementation.
 
- Investor Relations626-272-3883ir@focusuniversal.com 
+ Forward-Looking Statements
+
+ This press release contains forward-looking statements within the meaning of applicable securities laws. These statements include, among others, statements regarding the agreement between LATAMEDAI VE and IVIC; the proposed design, development, testing, implementation, functionality, and commercial use of the digital platform module; the possible availability of electronic service requests, appointment scheduling, status tracking, payment facilitation, laboratory reports, and other authorized documentation; the potential use of the module by business and institutional users; and the Company’s broader enterprise technology and digital infrastructure strategies.
+
+ Forward-looking statements are based on current expectations, estimates, plans, and assumptions and are subject to risks and uncertainties that could cause actual results to differ materially. These risks include the Company’s ability to successfully develop and test the proposed module, satisfy IVIC’s technical and operational requirements, comply with applicable privacy, data-security, legal, and regulatory requirements, protect confidential and proprietary information, integrate with third-party systems, obtain necessary financing, achieve user adoption, generate revenue, and adapt the module for other institutional or enterprise environments.
+
+ There can be no assurance that the proposed module will be completed or implemented according to the anticipated scope or schedule, that users will adopt the platform, that the agreement will generate revenue, or that the module will be expanded to additional institutions.
+
+ The Company undertakes no obligation to update any forward-looking statement except as required by law.
+
+ Disclaimer
+
+ The Company’s technologies are under development and are not intended to replace the independent professional judgment of qualified scientists, laboratory personnel, healthcare providers, regulators, or other authorized professionals.
+
+ No statement in this release should be interpreted as a guarantee of platform completion, regulatory approval, service availability, user adoption, revenue, market acceptance, data-security performance, or financial results.
+
+ This announcement is being issued solely to provide shareholders and market participants with information regarding the Company’s business development activities. It does not constitute an offer to sell or the solicitation of an offer to buy any securities of the Company.
+
+ Investor RelationsLataMed AI Corp.ir@latamed.ai+1 (787) 476-2350https://latamed.ai
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/focus-universal-announces-deterministic-ai-forms-auto-populate-engine-introducing-a-new-era-of-autonomous-business-document-processing-7088105)
+[Original/Source Press Release](https://www.newmediawire.com/news/latamed-ai-enters-agreement-to-develop-digital-platform-supporting-access-to-ivic-laboratory-services-7088107)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/focus-universal-launches-deterministic-ai-forms-auto-populate-engine/a2ecb4f0fb227ef1b8ef4cd27d3d56d9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/latamed-ai-partners-with-ivic-to-digitize-lab-services/93d74a19e72b9e07ccba3e378cd8779a) 
 
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-transform-document-processing)
+Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/latamed-ai-partners-with-venezuelan-research-institute-to-digitize-laboratory-services)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/focus-universal-presenta-el-motor-de-autocompletado-de-formularios-con-ia-determinista-para-transformar-el-procesamiento-de-documentos)
+Pickup - [https://advos.io/en](https://advos.io/en/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-in-venezuela)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/focus-universal-launches-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/focus-universal-launches-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing)
+Pickup - [https://burstable.news](https://burstable.news/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-in-venezuela)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/31/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing/)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/latamed-ai-geht-partnerschaft-mit-ivic-ein-um-digitale-plattform-fur-labordienstleistungen-in-venezuela-zu-entwickeln)
 
-Pickup - [https://advos.io/en](https://advos.io/en/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/latamed-ai-se-asocia-con-el-ivic-para-desarrollar-una-plataforma-digital-para-servicios-de-laboratorio-en-venezuela)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-revolutionize-autonomous-document-processing)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/latamed-ai-sassocie-a-livic-pour-developper-une-plateforme-numerique-pour-les-services-de-laboratoire-au-venezuela)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/latamed-ai-faz-parceria-com-ivic-para-desenvolver-plataforma-digital-para-servicos-laboratoriais-na-venezuela)
 
-Pickup - [https://burstable.news](https://burstable.news/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-for-autonomous-document-processing)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/latamed-ai-and-ivic-partner-to-develop-digital-platform-for-laboratory-services)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/focus-universal-stellt-deterministische-ki-formular-autofill-engine-fur-autonome-dokumentenverarbeitung-vor)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/latamed-ai-partners-with-ivic-to-streamline-access-to-laboratory-services-via-digital-platform)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/focus-universal-presenta-su-motor-de-autocompletado-de-formularios-con-ia-determinista-para-el-procesamiento-autonomo-de-documentos)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/focus-universal-devoile-son-moteur-de-remplissage-automatique-de-formulaires-a-ia-deterministe-pour-le-traitement-autonome-des-documents)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/latamed-ai-partners-with-venezuelan-research-institute-to-develop-digital-laboratory-services-platform)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/focus-universal-apresenta-mecanismo-de-preenchimento-automatico-de-formularios-com-ia-deterministica-para-processamento-autonomo-de-documentos)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access-in-venezuela)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/focus-universal-unveils-deterministic-ai-engine-to-automate-business-document-processing)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/latamed-ai-and-ivic-partner-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/focus-universal-unveils-deterministic-ai-engine-to-automate-business-document-processing)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-for-autonomous-document-processing)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-in-venezuela)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/focus-universal-launches-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-automating-document-processing-with-human-approved-logic)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/focus-universal-launches-deterministic-ai-forms-auto-populate-engine-for-autonomous-document-processing)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/latamed-ai-and-ivic-partner-to-develop-digital-platform-for-laboratory-services-in-venezuela)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/latamed-ai-and-ivic-partner-to-develop-digital-platform-for-laboratory-services)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-laboratory-services-access)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/focus-universals-deterministic-ai-engine-automates-business-document-processing)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/latamed-ai-partners-with-venezuelan-research-institute-ivic-to-develop-digital-laboratory-services-platform)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-business-document-processing)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/latamed-ai-partners-with-ivic-to-develop-digital-platform-for-la/202636342)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/focus-universal-unveils-deterministic-ai-forms-auto-populate-engine-to-automate-document-processing)
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/93d74a19e72b9e07ccba3e378cd8779a)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/focus-universal-unveils-deterministic-ai-forms-auto-populate-eng/202636336)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/93d74a19e72b9e07ccba3e378cd8779a)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/07/31/latamed-ai-and-ivic-partner-to-build-digital-platform-for-laboratory-services-in-venezuela/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/31/roamt_0S.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/267/31/airy0Fc1.webp)
