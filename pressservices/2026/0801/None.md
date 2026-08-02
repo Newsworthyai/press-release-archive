@@ -1,110 +1,106 @@
-# Licensed Electrician Expands EV Charger and Plumbing Services
+# Fort Wayne Orthodontists Offer Braces and Clear Aligners
 
-Snohomish County Electrician Adds EV Charger Installs and 24/7 Emergency Plumbing
+Family-Owned Practice Brings Braces and Clear Aligners to Fort Wayne Patients
 
- Snohomish, United States - August 1, 2026 / Machias Power and Plumbing /
+ Fort Wayne, United States - August 1, 2026 / OMI Orthodontics /
 
- Machias Power and Plumbing has expanded its residential electrical and plumbing services across Snohomish County, adding electric vehicle charger installation to its offerings while extending 24/7 emergency response coverage to homeowners throughout the region. The expansion reflects the company's response to increasing requests from local residents seeking a licensed, insured contractor capable of handling both electrical and plumbing work under one roof.
+ O-M-I Orthodontics has formally introduced its team of orthodontists as the practice expands its presence across multiple locations in Fort Wayne, Indiana, bringing a full range of orthodontic services to children, teens, and adults throughout the region.
 
-Expanded Scope for Snohomish County Homeowners
+A Family-Owned Practice Built Around Personalized CareThe orthodontists at O-M-I Orthodontics have positioned the practice as a multi-location provider of orthodontic treatment in the Fort Wayne area, offering services that include braces in Fort Wayne IN, clear aligners, and early intervention treatment for younger patients. The family-owned practice operates across several locations, giving families throughout the region access to consistent, personalized treatment plans without traveling far from home.
 
-As an established electrician Snohomish WA residents have relied on for more than two decades, Machias Power and Plumbing now covers a broader range of residential services than at any previous point in its operations. The updated service lineup includes panel upgrades, outlet and wiring work, EV charger installation, water heater service, drain repair, fixture replacement, and leak detection. Each category is performed by technicians who are licensed and insured under Washington State requirements.
+The team at O-M-I Orthodontics uses advanced digital technology to map and monitor patient progress, allowing orthodontists to plan treatment with greater precision. Digital imaging and scanning tools replace traditional methods at many steps in the process, reducing discomfort and improving the accuracy of outcomes for patients at every stage of treatment.
 
-The addition of EV charger installation is particularly notable given the growing number of electric vehicle owners in Snohomish County. Residential EV charger installation requires a licensed electrician to assess panel capacity, run dedicated circuits, and meet local code requirements -- work that carries safety and permitting implications for homeowners who attempt to manage it independently. Machias Power and Plumbing performs these installations as permitted electrical work, ensuring that the completed system meets code and is eligible for any applicable utility or insurance documentation.
+Orthodontic Options for Every Age GroupO-M-I Orthodontics serves patients across multiple life stages, from early childhood orthodontic evaluations to adult treatment plans. The practice offers clear aligners in Fort Wayne IN as an alternative to traditional braces, providing a removable and less visible option for teens and adults who prefer a different approach to straightening teeth.
 
-Two Decades of Local Experience Behind the Expansion
+For younger patients, the practice emphasizes early treatment, which allows the orthodontic team to identify and address developing issues before they become more complex to correct. Parents seeking an orthodontist in Fort Wayne IN for their child can access these evaluations at any of the practice's locations, where the clinical team tailors recommendations to each patient's specific developmental needs.
 
-The company brings more than 20 years of experience serving residential customers in and around Snohomish, which informs how it approaches both routine service calls and more complex projects. That depth of local experience means technicians are familiar with the housing stock, utility infrastructure, and permitting processes specific to Snohomish County -- factors that can affect how electrical and plumbing projects are scoped and completed.
+Traditional braces remain a core offering at O-M-I Orthodontics, available in formats suited to different patient preferences and clinical requirements. The orthodontists work with each patient to determine which treatment path aligns with their goals, lifestyle, and timeline.
 
-For residential plumbing Snohomish County homeowners need handled quickly, the company now operates on a 24/7 emergency basis. Burst pipes, failed water heaters, and sudden drainage failures do not follow business hours, and the extended availability is designed to address those situations without requiring homeowners to wait until the following workday. The same emergency availability applies to electrical issues, including outages, tripped panels, and wiring faults that compromise a home's safety.
+Multiple Locations Supporting Fort Wayne FamiliesThe multi-location structure of O-M-I Orthodontics reflects a deliberate effort to reduce barriers to care for families across the Fort Wayne area. By maintaining several offices, the practice allows patients to schedule appointments closer to their homes or schools, making it more practical for families to stay consistent with their treatment schedules.
 
-Licensed, Insured Work Across Electrical and Plumbing Trades
+Each location operates under the same clinical standards, with the same orthodontic team available to patients regardless of which office they visit. This continuity means that a patient who begins treatment at one location can transition to another without interruption in care.
 
-Operating as both a licensed electrician and a plumbing contractor in Washington State requires meeting separate bonding and insurance requirements for each trade. Machias Power and Plumbing holds the credentials for both, which simplifies the process for homeowners who need work done across both systems -- eliminating the need to coordinate between separate contractors or manage multiple project timelines.
+The practice works with children, teenagers, and adults, recognizing that orthodontic needs and treatment preferences vary significantly between age groups. Treatment plans are developed individually, drawing on the digital diagnostic tools available at each location to inform the clinical decisions made for every patient.
 
-The licensing requirement is particularly relevant for safety-sensitive work such as EV charger installation and electrical panel service. Unpermitted or improperly performed electrical work can void homeowner's insurance coverage and create hazards that are not always immediately visible. By completing work to licensed, permitted standards, Machias Power and Plumbing ensures that projects are documented and inspectable.
+About O-M-I OrthodonticsO-M-I Orthodontics is a family-owned orthodontic practice serving Fort Wayne, Indiana and the surrounding area. The practice offers braces, clear aligners, and early orthodontic treatment for children, teens, and adults across multiple locations. The clinical team uses digital technology to develop and monitor personalized treatment plans for each patient.
 
-Service Area and Availability
+Learn more at OMI Orthodontics
 
-The expanded services are available to residential customers across Snohomish County, with the company based in Machias and serving surrounding communities. The 24/7 emergency line covers both electrical and plumbing calls, giving homeowners a single point of contact regardless of which system requires attention.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/SsYh47P7n6nLZ3rG7bFpc2w3o4xr5IWSUUGCC89Y.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/breNHKqfUTR4CRg6b3JweWsYXI0sEOs0JjElmpFg.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/CMVBL3q65OUrIn5lmRjNgNRg5Y8kSYwqyj97LJTc.jpg) [](https://www.omiortho.com) Contact Information:
 
-For homeowners evaluating contractors for upcoming electrical or plumbing projects -- including EV charger installation ahead of a vehicle purchase -- the combination of multi-trade licensing, local tenure, and around-the-clock availability positions Machias Power and Plumbing as a practical option within the county.
-
-About Machias Power and Plumbing
-
-Machias Power and Plumbing is a licensed and insured residential electrical and plumbing contractor serving Snohomish County, Washington. With more than 20 years of local experience, the company provides services including EV charger installation, panel work, drain and pipe repair, water heater service, and 24/7 emergency response for both electrical and plumbing needs.
-
-Learn more at Machias Power and Plumbing
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/kBIbrnJDRZtIGNwXQqyVWOyRbtTnL8Ctw7cIso7P.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/lSfzoN509SCUWF5XJTqIUSfhhjbrALUrP22PCVpR.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/6Ly2grTVMbpjeGiLEycCW9hc1oKuCwd31Xxmn2x4.jpg) [](https://machiaspower.com) Contact Information:
-
- Machias Power and Plumbing
+ OMI Orthodontics
 
  
 
-512 Newberg Rd  Snohomish, Washington 98290United States
+10211 Dupont Cir Dr W Ste A  Fort Wayne, IN 46825United States
 
- Kaitlin Gagnon +1 (425) 474-3680 https://machiaspower.com 
+ Michelle Keener +1-260-925-0300 https://www.omiortho.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/licensed-electrician-expands-ev-charger-and-plumbing-services-442669)
+[Original/Source Press Release](https://mediawiretoday.com/fort-wayne-orthodontists-offer-braces-and-clear-aligners-442692)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/snohomish-county-electrician-adds-ev-charger-installs-and-24-7-emergency-plumbing/3f52efe57e83dc0052eb28189048a91f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/o-m-i-orthodontics-expands-family-owned-practice-across-fort-wayne-with-advanced-care/b268a0eb29b6350ea5a72ada4170ae40) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://x.com](https://twitter.com/i/status/2083719570259419234)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/machias-power-and-plumbing-expands-ev-charger-installation-and-247-emergency-services-in-snohomish-county)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/01/family-owned-orthodontic-practice-expands-access-to-braces-and-clear-aligners-across-fort-wayne/)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/machias-power-and-plumbing-amplia-la-instalacion-de-cargadores-para-vehiculos-electricos-y-los-servicios-de-emergencia-247-en-el-condado-de-snohomish)
+Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/o-m-i-orthodontics-expands-multi-location-presence-in-fort-wayne-enhancing-access-to-orthodontic-care)
 
-Pickup - [https://burstable.news](https://burstable.news/news/machias-power-and-plumbing-expands-services-in-snohomish-county-with-ev-charger-installations-and-247-emergency-response)
+Pickup - [https://advos.io/en](https://advos.io/en/fort-wayne-orthodontists-expand-multi-location-practice-with-braces-and-clear-aligners)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/machias-power-and-plumbing-erweitert-dienstleistungen-im-snohomish-county-um-ev-ladestation-installationen-und-247-notdienst)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fort-wayne-orthodontists-expand-access-to-braces-and-clear-aligners)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/machias-power-and-plumbing-amplia-sus-servicios-en-el-condado-de-snohomish-con-instalaciones-de-cargadores-para-vehiculos-electricos-y-respuesta-de-emergencia-las-24-horas)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/machias-power-and-plumbing-etend-ses-services-dans-le-comte-de-snohomish-avec-linstallation-de-bornes-de-recharge-pour-vehicules-electriques-et-une-intervention-durgence-24h24-et-7j7)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/o-m-i-orthodontics-expands-multi-location-presence-in-fort-wayne-offering-advanced-orthodontic-care)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/machias-power-and-plumbing-expande-servicos-no-condado-de-snohomish-com-instalacao-de-carregadores-de-ve-e-atendimento-de-emergencia-247)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/o-m-i-orthodontics-amplia-su-presencia-en-multiples-ubicaciones-en-fort-wayne-ofreciendo-atencion-ortodoncica-avanzada)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/machias-power-and-plumbing-expands-services-to-include-ev-charger-installation-and-247-emergency-response)
+Pickup - [https://burstable.news](https://burstable.news/news/o-m-i-orthodontics-expands-multi-location-orthodontic-services-across-fort-wayne)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/o-m-i-orthodontics-erweitert-kieferorthopadische-dienstleistungen-an-mehreren-standorten-in-fort-wayne)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/machias-power-and-plumbing-expands-services-with-ev-charger-installation-and-247-emergency-response-in-snohomish-county)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/o-m-i-orthodontics-expande-sus-servicios-de-ortodoncia-en-multiples-ubicaciones-en-fort-wayne)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/machias-power-and-plumbing-expands-ev-charger-installation-and-247-emergency-services-in-snohomish-county)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/o-m-i-orthodontics-etend-ses-services-orthodontiques-multi-sites-a-fort-wayne)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/machias-power-and-plumbing-expands-ev-charger-and-247-emergency-services-in-snohomish-county)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/o-m-i-ortodontia-expande-servicos-ortodonticos-em-varias-localidades-em-fort-wayne)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fort-wayne-orthodontists-expand-access-to-braces-and-clear-aligners-across-multiple-locations)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/machias-power-and-plumbing-expands-ev-charger-installation-and-247-emergency-services-in-snohomish-county)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/fort-wayne-orthodontists-expand-access-to-braces-and-clear-aligners-across-multiple-locations)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners-across-multiple-locations)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/snohomish-county-electrician-expands-services-with-ev-charger-installation-and-247-emergency-plumbing)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/fort-wayne-orthodontists-expand-multi-location-practice-with-braces-and-clear-aligners)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/o-m-i-orthodontics-expands-multi-location-orthodontic-services-in-fort-wayne)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/licensed-electrician-expands-ev-charger-and-plumbing-services-in-snohomish-county)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/o-m-i-orthodontics-expands-multi-location-orthodontic-services-across-fort-wayne)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/licensed-electrician-expands-ev-charger-and-plumbing-services-in/202636505)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3f52efe57e83dc0052eb28189048a91f)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/01/machias-power-and-plumbing-expands-ev-charger-and-247-emergency-services-in-snohomish-county/)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/fort-wayne-orthodontists-expand-services-with-braces-and-clear-aligners)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/fort-wayne-orthodontists-expand-access-to-braces-and-clear-aligners)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fort-wayne-orthodontists-expand-services-with-braces-and-clear-a/202636506)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/1/navyHWXf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/1/chipoBBo.webp)
