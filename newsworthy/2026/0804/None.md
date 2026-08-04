@@ -1,35 +1,33 @@
-# Texas State Interior Design Professor Advances Cognitive Accessibility Through Research, Teaching, and AI Tool NuroNest
+# Catch Nathan Macintosh Live: Three Nights of Laughter in the Midwest!
 
-As populations age and more families confront dementia and Alzheimer's disease, the need for cognitive accessibility in everyday environments has never been clearer. Lighting, contrast, clutter, signage, furniture placement, wayfinding, and sensory cues can support dignity and independence, or make daily life more confusing, stressful, and unsafe. Families and care teams often focus on medication and monitoring while overlooking the physical environment as part of care.
+Comedian Nathan Macintosh brings his sharp observational comedy to the Midwest for three performances in three cities over three consecutive nights. Fans can catch Macintosh at Helium Comedy Club in Indianapolis on Aug. 12, Funny Bone in Toledo on Aug. 13, and Commonwealth Comedy Club in Cincinnati on Aug. 14.
 
- Assistant Professor Nadim Adi, PhD, M.Arch, B.Arch, of Texas State University's Department of Interior Design in the School of Family and Consumer Sciences is advancing that agenda through scholarship, a pioneering university course, and NuroNest, an early-stage AI platform being developed to help identify environmental risks in everyday interiors.
+ Known for his quick wit, conversational storytelling, and appearances on The Tonight Show Starring Jimmy Fallon, Conan, and multiple comedy specials, Macintosh continues to build a loyal audience across North America with material that blends everyday experiences with unexpected perspectives.
 
- Grounded in more than a decade of research in dementia-supportive design and environmental psychology, NuroNest is intended to support (not replace) designers, healthcare professionals, occupational therapists, and caregivers.
+ The August run gives comedy fans across Indiana and Ohio an opportunity to see one of stand-up's rising performers in intimate club settings.
 
- "If we design for physical accessibility, why should we not also design for cognitive accessibility?" Adi said. "Homes, clinics, senior living communities, and public spaces can unintentionally create risk when they are visually confusing, poorly lit, or hard to navigate. The built environment itself can - and should - be part of the care equation."
+ Tour Schedule
 
- NuroNest is being developed as an AI-supported design assessment tool that analyzes images of interior spaces and flags features that may affect people living with dementia or aging-related cognitive changes. These features include low contrast between furniture and floors or walls, unclear pathways, visual clutter, and weak wayfinding cues. The long-term vision is to make dementia-supportive design more accessible to families, caregivers, and organizations that sense a space "doesn't feel right" but lack ready access to a specialist.
+ • Aug. 12: Helium Comedy Club, Indianapolis, Indiana• Aug. 13: Funny Bone, Toledo, Ohio• Aug. 14: Commonwealth Comedy Club, Cincinnati, Ohio
 
- NuroNest remains in its early stages. Adi and his team are refining the technology, gathering feedback, and exploring research validation and partnerships. The tool is intended to raise awareness and guide better conversations, rather than replacing designers, clinicians, occupational therapists, caregivers, or dementia care professionals.
+ "These are some of my favorite kinds of weekends," said Nathan Macintosh. "Three cities, three nights, and a chance to meet comedy fans across the Midwest. Looking forward to seeing everyone."
 
- Adi's research and teaching underpin that product vision. With Dr. Mais Aljunaidy, assistant professor of psychology at Texas State, he co-authored An Introduction to Architectural Psychopathology, a textbook focused on how interior design can support people experiencing mental disorders, including dementia. The pair also developed Texas State's interdisciplinary architectural psychopathology course, offered beginning fall 2025, which trains students to design spaces that actively support individuals living with conditions such as autism, dementia, depression, schizophrenia, and anxiety disorders. The course has been covered by Texas State News, Texas Public Radio, and Community Impact.
+ Purchase tickets through each venue's website:
 
- Adi's peer-reviewed work includes a systematic study of architecture and mental disorders in HERD: Health Environments Research & Design Journal, research on using virtual reality to assess elderly and dementia-friendly hospital design, and writing on artificial intelligence and mental disorder art therapy. He has also spoken publicly on aging-ready environments, including a TEDx Texas State University talk on preparing buildings for an aging population, and hosts conversations on design and mental health through Mental Design Labs.
+ * Indianapolis, IN, Aug. 12  Helium Comedy Club Nathan Macintosh at Helium Comedy Club
+* Toledo, OH, Aug. 13  Funny Bone Comedy Club Nathan Macintosh at Toledo Funny Bone
+* Cincinnati, OH, Aug. 14  Commonwealth Comedy Club Nathan Macintosh at Commonwealth Comedy Club
 
- Dr. Adi and the NuroNest team are actively seeking research collaborators, pilot partners, and organizations (including community groups, senior living providers, healthcare organizations, dementia care advocates, researchers, designers, and technology partners) interested in validating and advancing the technology and improving environments for older adults and people living with dementia.
+ About Nathan Macintosh
 
- About Dr. Nadim Adi Dr. Mohamad Nadim Adi is an Assistant Professor of Interior Design in the School of Family and Consumer Sciences at Texas State University. His work sits at the intersection of interior design, aging, dementia care, mental health, and emerging technology. He co-authored An Introduction to Architectural Psychopathology, co-developed Texas State's interdisciplinary architectural psychopathology course with Dr. Mais Aljunaidy, and is developing NuroNest, an early-stage AI-supported tool to assess interior environments for dementia- and aging-related design risks.
-
- About NuroNest NuroNest is an early-stage AI-supported design assessment platform, rooted in more than a decade of research in dementia-supportive design and environmental psychology, that analyzes images of interior spaces to flag environmental features that may affect safety, independence, and quality of life for people living with dementia or aging-related cognitive changes. It is designed as a supportive tool for awareness and decision-making, not as a replacement for clinicians, designers, or care professionals.
-
- Media Contact Dr. Nadim AdiAssistant Professor, Department of Interior DesignSchool of Family and Consumer SciencesTexas State UniversityEmail Contacthttps://www.linkedin.com/in/dr-mohamad-nadim-adi-5179283Faculty profile: https://faculty.txst.edu/profile/2380789 
+ Nathan Macintosh is a Canadian comedian, writer, and actor known for his intelligent, observational stand-up. He has appeared on The Tonight Show Starring Jimmy Fallon and Conan, released multiple acclaimed comedy specials, and regularly headlines clubs and theaters throughout North America. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608042704/texas-state-interior-design-professor-advances-cognitive-accessibility-through-research-teaching-and-ai-tool-nuronest)
+[Original/Source Press Release](https://newsworthy.ai/news/202608042709/catch-nathan-macintosh-live-three-nights-of-laughter-in-the-midwest)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-tool-nuronest-aims-to-make-homes-dementia-friendly/927e45cdb5b85981073fd662409899e3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-macintosh-brings-comedy-tour-to-three-midwest-cities/8b1f9bdbc6165930ad0dace5cfb0cfbe) 
 
  
 
@@ -37,4 +35,4 @@ As populations age and more families confront dementia and Alzheimer's disease, 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/4/palercqp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/4/norawfd3.webp)
