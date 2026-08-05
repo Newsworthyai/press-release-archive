@@ -1,54 +1,47 @@
-# SC Codeworks' H1 2026 Freight Data Shows Supply Chains Moving Faster Despite Continued Market Pressures
+# Wrap Technologies (WRAP) Schedules Second Quarter 2026 Results Call
 
-Warehouse Management Platform Analysis Reveals Operators are Accelerating Order Fulfillment While Improving Freight Efficiency Amid Rising Transportation Costs
+LOS ANGELES, CA - August 5, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP) announced it will host a conference call on Tuesday, Aug. 11, 2026, at 4:30 p.m. ET to discuss financial and operational results for the second quarter ended June 30, 2026. Company management will provide an update on quarterly performance followed by a question-and-answer session. Investors may submit questions in advance by email through 5 p.m. ET on Aug. 10, with responses subject to relevance and public disclosure considerations.
 
- KEY TAKEAWAYS
+ The company said its second-quarter 2026 earnings release and related materials will be available in the Investors section of its website before the call. Participants may join the webcast or register for dial-in access through the links provided by the company.
 
- * SC Codeworks’ H1 2026 platform data shows the logistics industry is moving faster, with total freight orders up 6.9% year over year and June posting the strongest month at 14.6% growth over June 2025.
-* Average order-to-ship cycle times fell 34% year over year - from 19.76 days in H1 2025 to 13.04 days in H1 2026 - as businesses ordered closer to actual demand and expected faster warehouse execution.
-* Warehouse operators consolidated LTL freight more efficiently, raising average orders per load 19% (from 4.87 to 5.79) and growing high-density loads of 20+ orders from 5.2% to 6.5% of all consolidations.
-* Even as diesel prices climbed after geopolitical disruptions, operators shipped 26% more LTL volume while holding consolidation rates steady at 74–75% - maximizing trailer utilization instead of adding trucks.
+ To view the full press release, visit https://ibn.fm/wQrcn
 
- COLUMBUS, OH - August 5, 2026 (NEWMEDIAWIRE) - SC Codeworks, a provider of warehouse management software (WMS) for logistics operators, released its H1 2026 supply chain performance data, revealing a logistics industry that is becoming faster, more efficient and increasingly resilient despite ongoing economic and transportation challenges.
+ About Wrap Technologies, Inc.
 
- Supply Chains Are Moving Faster
+ Wrap Technologies, Inc., a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
 
- Using SC Codeworks platform data to compare the first-half of 2026 performance against the same period in 2025, the report found total freight orders increased 6.9% year over year during the first half of 2026, signaling continued demand across the logistics sector. June recorded the strongest monthly performance, with freight orders climbing 14.6% compared to June 2025.
+ WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
 
- At the same time, average order-to-ship cycle times fell dramatically. Average fulfillment time decreased 34% year over year, dropping from 19.76 days in H1 2025 to 13.04 days in H1 2026.
+ With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
 
- The trend suggests businesses are placing orders closer to actual demand while expecting significantly faster warehouse execution, reflecting a more agile and responsive supply chain environment.
+ Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
 
- Operators Improve LTL Efficiency as Transportation Costs Rise
+ WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
 
- The report also found that warehouse operators became more efficient in consolidating less-than-truckload (LTL) shipments during a period of elevated fuel costs.
+ As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
 
- From January through April 2026:
+ WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
 
- * Average orders per consolidation load increased 19%, rising from 4.87 to 5.79 orders per load.
-* High-density loads carrying 20 or more orders grew from 5.2% of all consolidations in January to 6.5% in February, remaining elevated through April.
-* Overall shipped LTL volume increased 26%, while consolidation rates remained consistently between 74% and 75%, demonstrating that operators maintained shipping discipline even as freight volumes increased.
+ Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
 
- These trends coincided with a significant increase in diesel prices following geopolitical disruptions earlier this year, suggesting organizations responded by maximizing trailer utilization instead of increasing truck deployments.
+ The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
 
- "The data tells a clear story. Companies are compressing their planning horizons, ordering closer to actual need and expecting the supply chain to keep pace," said Amy Dean, Vice President of Operations at SC Codeworks. "On the LTL side, operators are responding the right way, packing more work into every load rather than adding trucks. And underneath all of it, volume is growing. That combination tells us the logistics industry is not just surviving a demanding environment. It is adapting to it."
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- SC Codeworks is an award-winning logistics software company, including recent recognitions from the Institute for Supply Management's Supply Chain Trailblazer Awards, Inbound Logistics' Top 100 Logistics & Supply Chain Technology Providers list and the SupplyTech Breakthrough Awards as Warehouse Automation Platform of the Year. To learn more about SC Codeworks, please visit https://www.sccodeworks.com/.
+ The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
 
- About SC Codeworks
+ Forward Looking Statements
 
- SC Codeworks, headquartered in Columbus, OH, offers multiple warehouse management system platforms including Codeworks Essentials and Codeworks Enterprise, which can be tailored to meet the needs of warehouse logistics companies of all sizes. Built by logistics experts for logistics experts, the platforms provide a fully integrated, one-stop solution that includes essential modules like yard management and inventory control, coupled with more advanced features such as line-side knitting and CODI, the company’s AI-powered orchestration engine that supports day-to-day warehouse decisions. In addition to its leading software solution, SC Codeworks provides consultancy services to logistics companies, offering operational support to clients with varying technology needs.
-
- For media inquiries, contact:Virgo PR sccodeworks@virgo-pr.com
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/sc-codeworks-h1-2026-freight-data-shows-supply-chains-moving-faster-despite-continued-market-pressures-7088231)
+[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-schedules-second-quarter-2026-results-call-7088236)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sc-codeworks-h1-2026-data-reveals-faster-more-efficient-supply-chains/f77d687da11a39af05d2da29a5ff8785) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-schedules-q2-2026-results-call/0ec35bff8655033a871f55fb8ac07eb1) 
 
  
 
@@ -56,4 +49,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/5/cool_yak.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/5/quaysWOI.webp)

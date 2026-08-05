@@ -1,62 +1,52 @@
-# Baker Home Energy Places #22 in North America on 2026 Solar Rankings
+# Missouri IT Provider Shifts SLA Metric From Response to Restoration
 
-2026 Solar Power World Rankings Place Baker Home Energy #22 Among North American Residential Installers
+Missouri IT Consultants Formalize Restoration-Based SLAs and No-Condition Documentation Access
 
- Escondido, United States - July 31, 2026 / Baker Home Energy /
+ Washington, United States - August 5, 2026 / NOC Technology /
 
- ESCONDIDO, Calif., July 2026 - Baker Home Energy, a home energy company based in Southern California, has been ranked the #1 Residential Solar + Storage Contractor in San Diego County in the 2026 Solar Power World Top Solar Contractors rankings.
+ NOC Technology, a managed IT services provider operating across the St. Louis metro and surrounding Missouri counties, has established two service commitments that differ from standard industry practice: measuring resolution time rather than first response within its service level agreements, and granting clients unconditional ownership of their IT documentation throughout the engagement.
 
-The company also received additional placement across statewide and national categories, including:
+How NOC Technology Defines SLA PerformanceThe majority of providers in the IT support services market structure their SLAs around first response - the moment a technician acknowledges a ticket. NOC Technology measures a different endpoint: the moment the client is fully operational again. That distinction carries real weight because an acknowledgment alone does not restore productivity. Under a conventional first-response model, a provider can satisfy its SLA target while a business remains offline for hours. NOC Technology's performance metric is tied directly to the point at which the client is back to functioning operations.
 
-* #1 Residential Solar + Storage Contractor in Southern California
-* #3 Residential Solar + Storage Contractor in California
-* #22 Residential Solar + Storage Contractor in North America
+That framing changes how business IT support in St. Louis gets evaluated. For organizations that depend on continuous uptime - across manufacturing, professional services, healthcare administration, and other sectors active throughout the St. Louis metro and Franklin County - the gap between "we responded" and "you are back up" represents a concrete operational difference, not a matter of terminology.
 
-The annual rankings, published by Solar Power World, evaluate contractors based on the volume of solar capacity installed during the prior year and are widely regarded as a key benchmark within the solar industry.
+Client IT Documentation Stays With the ClientThe second commitment addresses a structural pattern common to outsourced IT support: documentation lock-in. When a business engages a managed IT provider, that provider typically builds and maintains detailed records covering network configurations, credentials, software licenses, hardware inventory, and system architecture. In many arrangements, those records are held exclusively by the provider and become a source of friction when a client considers changing vendors.
 
-"Our team is honored to be recognized as the top residential solar contractor in San Diego County," said Mike Teresso, President of Baker Home Energy. "This achievement reflects the trust our customers place in us every day and the dedication of our employees who work hard to deliver exceptional service and long-term value to homeowners across Southern California."
+NOC Technology's policy allows clients to request and receive their complete IT documentation at any time, without conditions attached. Ownership of that documentation resides with the client, regardless of contract status, and no formal transition process is required to access it.
 
-Founded on a legacy dating back to 1938, Baker Home Energy has expanded into a full-service home energy provider. The company offers solar energy systems, battery storage, heating and air conditioning, roofing, EV charging, water solutions, and energy management services. Over the years, the company has assisted thousands of California homeowners in reducing utility costs while improving home comfort and energy independence.
+For companies evaluating managed IT support arrangements, documentation portability carries direct operational consequences. A business unable to retrieve its own network records faces extended recovery time if it needs to bring in another provider quickly - whether the situation involves a planned transition or an unplanned service disruption.
 
-Beyond its latest industry rankings, Baker Home Energy has received a range of consumer-focused recognitions, including SD Reader North County Best Solar and Heating & Air Company, People Love Us on Yelp awards, Angie's List Super Service Awards, Nextdoor Neighborhood Faves, and placement among San Diego Metro Magazine's Most Admired Companies.
+Service Coverage Across the St. Louis RegionNOC Technology provides IT support in St. Louis, Washington MO, St. Charles MO, and Franklin County MO. Service delivery includes both onsite IT support in St. Louis and remote IT support, structured around the nature of the issue and the preferences of the client. The company also maintains an IT help desk support function dedicated to day-to-day ticket resolution for businesses across the region.
 
-As utility costs in California continue to rise and demand for resilient home energy solutions grows, Baker Home Energy maintains its focus on delivering advanced technologies, professional installation, and ongoing customer support.
+As an MSP in St. Louis, NOC Technology works primarily with small and mid-size businesses that use IT outsourcing in St. Louis as an alternative to staffing internal technical teams. For those organizations, the relevant measure is not whether a provider logged a response to a ticket - it is how long the business was offline and whether it retains full visibility into its own infrastructure at the close of any engagement.
 
-"This recognition validates our commitment to helping homeowners take control of their energy future," added Teresso. "We're proud to be a trusted partner for families throughout Southern California and look forward to continuing to serve our communities for many years to come."
+About NOC TechnologyNOC Technology is a Missouri IT support and managed services provider headquartered in the St. Louis area. The company delivers business technology support, IT consulting, help desk services, and managed IT infrastructure management to businesses across St. Louis, St. Charles MO, Washington MO, and Franklin County MO. As both an onsite and remote provider, NOC Technology serves clients requiring small business IT support without the overhead of maintaining internal IT departments.
 
-About Baker Home EnergyBaker Home Energy is a Southern California provider of home energy solutions, helping homeowners generate, store, manage, and optimize their energy usage. Founded on a tradition dating back to 1938, the company offers solar energy systems, battery storage, heating and air conditioning, roofing, water solutions, EV charging, and energy management services throughout Southern California. Learn more at BakerHomeEnergy.com.
+Learn more at NOC Technology
 
-Media ContactJeremy Smith
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/KgwiJqr4jgH4dqIasuhdYGC69Q6mLAhDUSlsQ9zl.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Q1BV7S7GG5142RYwhtJPtDQ7Z7PsbW8jfxlqvroQ.png) [](https://www.noctechnology.com) Contact Information:
 
-Marketing Manager
-
-Baker Home Energy
-
-877.578.8080
-
-jsmith@bakerhomeenergy.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/WOFbBcoftkZ2jbeX9oEx5GhsAMnRN4tnWE5XtH7G.png) [](https://bakerhomeenergy.com) Contact Information:
-
- Baker Home Energy
+ NOC Technology
 
  
 
-2060 Wineridge Place  Escondido, California 92029United States
+1816 Highway A  Washington, Missouri 63090-3111United States
 
- Jeremy Smith +1-760-708-9292 https://bakerhomeenergy.com 
+ Jon Lober +1-636-390-6621 https://www.noctechnology.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/baker-home-energy-places-22-in-north-america-on-2026-solar-rankings-442458)
+[Original/Source Press Release](https://mediawiretoday.com/missouri-it-provider-shifts-sla-metric-from-response-to-restoration-443041)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/baker-home-energy-tops-san-diego-solar-rankings-in-2026/73e29462160d73a3cb0d9f53d704e20a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/noc-technology-redefines-it-support-with-resolution-based-slas-and-documentation-ownership/3f1f79792024120dd54fdab843d8e3e6) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/05/missouri-it-provider-shifts-sla-metric-from-response-to-restoration/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/5/beanBBBT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/5/flax8PfD.webp)
