@@ -1,36 +1,59 @@
-# SRX Global (SRXH) Acquires Stake in Vistagen Therapeutics
+# LR Health &amp; Beauty SE Publishes Final 2025 Annual Report and Continues to Execute Its Strategic Initiatives
 
-LOS ANGELES, CA - August 4, 2026 (NEWMEDIAWIRE) - SRX Global (NYSE American: SRXH) announced that it has acquired a stake in Vistagen Therapeutics, a late clinical-stage biopharmaceutical company developing intranasal neuroscience therapies based on its proprietary pherine platform. SRX said the investment aligns with its strategy of creating long-term shareholder value through investments in high-conviction operating companies and strategic assets.
+* Preliminary FY 2025 sales and EBITDA confirmed
+* Solid financial footing provides scope to consistently advance strategic initiatives aimed at optimizing production, logistics and sales
 
- SRX said it believes Vistagen shares are undervalued and intends to engage constructively with the company’s leadership team and board of directors to discuss opportunities to unlock shareholder value.
+ AHLEN, GERMANY - August 4, 2026 (NEWMEDIAWIRE) - LR Health & Beauty SE, Europe’s leading social commerce company for high-quality nutritional supplements and beauty products, has today published its final annual report for 2025.
 
- To view the full press release, visit https://ibn.fm/NEczV
+ The sales and earnings figures for the 2025 financial year, as communicated in the preliminary results, are thereby confirmed: for the full 2025 year, the LR Group generated sales (revenue from goods sold) of EUR 277.1 million (2024: EUR 289.2 million). Meanwhile, one-off effects arising from the reorganization of the financing structure weighed on earnings performance. For the full 2025 year, this resulted in reported EBITDA of EUR 16.5 million, compared with EUR 27.3 million in the previous year. Normalized EBITDA for the year amounted to EUR 22.5 million (2024: EUR 32.6 million).
 
- About SRX Global Inc.
+ Jorg Korfer, CEO of LR Health & Beauty SE, comments: “The 2026 financial year is a transitional year for LR, during which we have laid the groundwork – both financially and strategically – for sustainable business growth and performance. The newly established financing structure gives us the momentum we need to continue to consistently pursue the initiatives we have launched in production, logistics and sales in the second half of the year. In this context, we are committed to working closely with our partners and are continuing to expand these relationships internationally.”
 
- SRX Global is an AI-driven platform focused on generating long-term shareholder value through investments in high-conviction operating companies, strategic assets, and technology-enabled opportunities. The Company leverages proprietary technology, data analytics, and disciplined capital allocation to identify and manage investments across multiple sectors.
+ Expanding in-house production is a key strategic pillar. As part of its strategic measures, LR is investing over 2 million euros in a new, high-performance production line, thereby centralizing the manufacture of the 5in1 product category entirely at its site in Ahlen in the future. This includes the established products LR 5in1 Beauty Elixir and LR 5in1 Men’s Shot. The new production facility is designed to have an annual capacity of up to 40 million units and also paves the way for further product innovations in the area of modern nutritional supplement concepts.
 
- For more information on the company, please visit: www.SRXGlobalInc.com
+ The full 2025 Annual Report is available from today on the company’s website at https://ir.lrworld.com.LR Group
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Under the motto “More quality for your life”, the LR Group – headquartered in the town of Ahlen/Westphalia – successfully produces and distributes various high-quality nutritional supplements and cosmetic products in 32 countries. As an attractive Social Commerce Company, LR supports the personal exchange in its community with efficient, digital solutions. The holistic tool “LR neo” offers the international partnership all business-relevant key figures and information for their LR business in one dashboard.
 
- Forward Looking Statements
+ Since 1985, LR has been firmly established in the market as a “people business” with a focus on people and personal consultation. In times of changing working environments, the business model is particularly appealing to those who are looking for more flexibility, a better work-life balance and greater financial independence.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ The processing of aloe vera has been one of LR’s core competencies for over 20 years. Only the leaf’s valuable inside is used for the products. In Ahlen, the company has built one of the most modern aloe vera production facilities for aloe vera drinking gels in Europe.
+
+ In the fall of 2009, LR founded the LR Global Kids Fund e.V., which supports disadvantaged children and their families in many countries around the world efficiently and without the usual red tape in cooperation with local institutions. For further information on our commitment to sustainability, please read our Sustainability Report.Contact:
+
+ PR Contact:
+
+ LR Health & Beauty SE Almut Kellermeyer Head of Corporate CommunicationKruppstraBe 55 59227 Ahlen Phone: +49(0)2382 7658-106E-mail: a.kellermeyer@LRworld.comhttps://ir.LRworld.com/IR Contact:
+
+ cometis AGThorben BurbachFriedrichstraBe 2265185 WiesbadenPhone: +49(0)611 - 205855-23Fax: +49(0)611 - 205855-66E-mail: burbach@cometis.de
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/srx-global-srxh-acquires-stake-in-vistagen-therapeutics-7088192)
+[Original/Source Press Release](https://www.newmediawire.com/news/lr-health-beauty-se-publishes-final-2025-annual-report-and-continues-to-execute-its-strategic-initiatives-7088199)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/srx-global-acquires-stake-in-vistagen-therapeutics-to-unlock-value/ff570e2bc3630bd69a66ba8ccccbd0c9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lr-health-beauty-confirms-2025-results-invests-eur2m-in-production/abc769dcf685f17968658fb5f51d703c) 
 
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lr-health-beauty-se-publishes-final-2025-annual-report-confirms/202636618)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/abc769dcf685f17968658fb5f51d703c)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/abc769dcf685f17968658fb5f51d703c)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/abc769dcf685f17968658fb5f51d703c)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/4/airymr_8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/4/zealLFj_.webp)
