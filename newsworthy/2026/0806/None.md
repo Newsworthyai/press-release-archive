@@ -1,120 +1,82 @@
-# Keyrenter Riding a Summer Hot Streak with 14 New Deals
+# More Than a Store: The Personal-Styling and Private-Event Experience Coming to Monkee's of Fair Oaks Ranch
 
-Keyrenter Property Management, one of the leading residential real estate franchisors, is on a hot streak this summer, surpassing a significant milestone by establishing their 100th location since they began franchising the concept back in 2014. Since the beginning of 2026, Keyrenter has awarded a total of 14 new territories, with five candidates currently prepping for their Discovery Day sessions as early as next week. The territories recently claimed in this wave of new signings include new Keyrenter Property Management locations in Colorado, California, Texas, Florida, Virginia, Illinois, North Carolina, Michigan, and New Mexico.
+When Monkee's of Fair Oaks Ranch opens its doors on August 20, owner Kelli Hull will make a promise that has nothing to do with the brands on the racks: that no one will ever leave her store in something that doesn't look phenomenal on them. That promise is set to become the boutique's signature, representing a deliberate bet that in an era of self-checkout and shrinking customer service, women are looking for an experience, not just a transaction.
 
- As a result of this rapid expansion over the last few months, Keyrenter has appointed franchise industry veteran Eric Steward to serve as the organization’s new Vice-President of Onboarding.
+ "People are a little bit frustrated with a lack of customer service, not only in retail but in industries at large," Hull said. "We want every single person who comes in to feel a very elevated, experiential shopping experience."
 
- 
+ Retail as hospitality When customers walk into Monkee's of Fair Oaks Ranch, the first thing on offer may not be a fitting room, but a seat. Hull is building the roughly 1,200-square-foot boutique around the idea that shopping should feel less like an errand and more like an afternoon with friends.
 
- “On behalf of the brand and all of our valued stakeholders, we’re pleased to announce the awarding of these 14 new territories,” stated Nate Tew, co-founder and CEO of Keyrenter Property Management. “Not only does this greatly expand our brand’s footprint, but we’ve also surpassed a significant milestone of establishing more than 100 franchise locations coast-to-coast. We’re also honored to have Eric Steward join us here at Keyrenter Property Management, who will be overseeing all activities from signed franchise agreements through the rest of the onboarding process for our growing network of franchisee partners.”
+ "Having a glass of wine, sitting on the couch talking to your girlfriends about your events and what's going on in your life and your family; that's going to be something that everyone experiences," Hull said.
 
- Eric Steward, CFE has a well-established track record of success in the franchising industry, especially in the residential real estate space, having spent over a dozen years working in various recruiting roles at Pillar to Post. In his time with the brand he worked his way up the corporate ladder, beginning as a marketing coordinator before being promoted to manager, then director, and ultimately serving as the organization’s senior director of franchise recruiting.
+ From there, the service gets personal. Customers will be able to be wardrobed head to toe, with Hull and her team offering the kind of honest, encouraging guidance she says many women are quietly hoping for.
 
- “Joining the team of an industry leading brand like Keyrenter is a dream come true opportunity,” stated Eric Steward, CFE. “The fact that they also operate in the residential real estate space where I have direct category experience is a plus and I hope to make several meaningful contributions in my new role as the head of onboarding activities. With the recent awarding of over a dozen new locations, I have my work cut out for me, but I can’t wait to roll up my sleeves and get started.”
+ "A lot of women just need someone to say, 'You're beautiful, that looks good on you, but I think we can do even better,'" Hull said. "I think we can make you feel amazing and have that come through in your personality when you walk into an event. When you look good, you feel good, and that projects out."
 
- Founded in 2007 in Midvale, Utah, Keyrenter Property Management began franchising the concept in 2014 and has now grown into a thriving network of 94 franchisee partners representing 101 locations in all. As a franchisee in the Keyrenter network, owners provide a wide range of routine residential property management services in their established territories such as rent collection, repair, routine maintenance, and securing tenants for vacant homes. As a whole, the residential real estate industry continues to thrive thanks to highly favorable marketplace conditions. It’s estimated there are approximately 25 million single-family rental (SFR) units in play, of which only 4% are institutionally owned and operated. Robust marketplace conditions continue to attract interest in residential property management from qualified candidates, bolstered by external factors such as an increasingly high ratio of renters-to-buyers, stubbornly high mortgage interest rates, and a tightening lending environment.
+ Private events, after hours Beyond everyday shopping, the boutique will host private events after the store closes to the public, a setting Hull describes as fully dedicated to one customer and her circle.
 
- About Keyrenter Property Management Founded in 2007 and franchising since 2014, Keyrenter Property Management is a recession-resistant residential real estate franchise opportunity, offering a wide range of tenant-facing property management solutions. With a proven business model predicated on recurring monthly revenue and generous territorial boundaries, Keyrenter is an ideal choice for candidates looking to establish an entrepreneurial future in property management at the community level. To date, the Keyrenter network has grown to 94 franchisees in 101 different territories across the U.S. For more information about becoming a Keyrenter Property Management franchisee, please visit: https://franchising.keyrenter.com. 
+ "Those happen after hours, after we close to the public," Hull said. "It's myself and some of my team, and we are just dedicated to you and your friends, bringing you a great experience."
+
+ The format lends itself to birthdays, girls' nights, bridal parties and seasonal gatherings. With fall events and the holiday party season on the horizon, Hull expects demand to build quickly once the doors open.
+
+ Sundays, by appointment In a twist most retailers don't offer, Monkee's of Fair Oaks Ranch will be closed to the public on Sundays but open by private appointment. This is a nod to the busy, often-traveling customers Hull knows well from her own years on the road.
+
+ "If you're a busy traveling mom like I used to be, you can call the store and say, 'I want to come in Sunday afternoon at two o'clock,'" Hull said. "We'll meet you there, and it's just you in the store telling us what you need. If you tell us in advance what you're looking for, we'll go ahead and pull some styles for you and wardrobe you from head to toe and get you on your way."
+
+ The appointment model will turn a quiet Sunday into a one-on-one styling session with no crowds, no waiting, and merchandise pre-pulled to a customer's brief before she arrives.
+
+ A promise rooted in experience For Hull, the emphasis on service is personal. A self-described lifelong fashionista, she has navigated her own seasons of not knowing what to wear, including after having children, and says that experience will shape how her team treats every customer.
+
+ "That season after we have children is very difficult for women. I used to dread going to events simply because I didn't know what to wear and nothing was fitting properly," Hull said. "A lot of women feel that way, and they just need someone to bounce ideas off of."
+
+ It is why, she says, the boutique's defining feature isn't a label at all: it's a vow.
+
+ "It is my solemn vow that I will never let anyone leave Monkee's of Fair Oaks Ranch in something that doesn't look phenomenal on them," Hull said. "I promise."
+
+ Book an experience Monkee's of Fair Oaks Ranch opens August 20, 2026 in the Lemon Creek Ranch development near Fair Oaks Ranch and Boerne. Once open, customers can call the store to book a private event or a Sunday styling appointment, and can follow along on Instagram at @monkeesoffairoaks for opening updates, the latest brands, arrivals and event news, with additional updates on Facebook and TikTok. The store's website, monkeesoffairoaks.com, is live with store information, with online shopping planned to launch in 2027.
+
+ About Monkee's of Fair Oaks Ranch
+
+ Monkee's of Fair Oaks Ranch is a locally owned, veteran-owned women's contemporary boutique serving the Fair Oaks Ranch and Boerne communities from the Lemon Creek Ranch development in Bexar County, Texas. Part of the North Carolina based Monkee's franchise, the boutique brings nationally recognized contemporary designers and an elevated, personal shopping experience to the Texas Hill Country. Learn more at monkeesoffairoaks.com or follow @monkeesoffairoaks on Instagram. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608062717/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+[Original/Source Press Release](https://newsworthy.ai/news/202608062720/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/keyrenter-hits-100-locations-appoints-new-vp-of-onboarding/759bd5768c0a7a53f9c31cd57de86384) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monkee-s-of-fair-oaks-ranch-to-open-with-promise-of-phenomenal-looks/bd221c82d27754b6977df70be7d73f43) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/06/monkees-of-fair-oaks-ranch-to-open-with-a-focus-on-personalized-service-and-private-events/)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://x.com](https://twitter.com/i/status/2085350854769438798)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/06/keyrenter-property-management-hits-100-locations-adds-vp-of-onboarding/)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
-
-Pickup - [https://advos.io/en](https://advos.io/en/keyrenter-property-management-expands-to-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/keyrenter-hits-100-locations-with-14-new-deals)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/keyrenter-property-management-supera-las-100-ubicaciones-con-14-nuevos-acuerdos-de-franquicia)
-
-Pickup - [https://burstable.news](https://burstable.news/news/keyrenter-property-management-hits-100-locations-adds-14-new-territories-and-appoints-vp-of-onboarding)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/keyrenter-property-management-erreicht-100-standorte-fugt-14-neue-gebiete-hinzu-und-ernennt-vp-of-onboarding)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/keyrenter-property-management-alcanza-100-ubicaciones-agrega-14-nuevos-territorios-y-nombra-vicepresidente-de-onboarding)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/keyrenter-property-management-atteint-100-emplacements-ajoute-14-nouveaux-territoires-et-nomme-un-vp-de-lintegration)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/keyrenter-property-management-atinge-100-unidades-adiciona-14-novos-territorios-e-nomeia-vp-de-onboarding)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-appoints-eric-steward-as-vp-of-onboarding)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/keyrenter-property-management-hits-100-locations-adds-14-new-territories-amid-summer-expansion)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/keyrenter-surpasses-100-locations-with-14-new-deals-appoints-eric-steward-as-vp-of-onboarding)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/keyrenter-property-management-hits-100-locations-adds-14-new-territories-amid-summer-surge)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/keyrenter-property-management-expands-to-over-100-locations-with-14-new-deals)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/keyrenter-property-management-achieves-100th-location-milestone-with-14-new-franchise-deals)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/keyrenter-property-management-expands-with-14-new-franchise-deals-surpassing-100-locations)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/keyrenter-property-management-hits-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/keyrenter-property-management-hits-100-locations-adds-industry-veteran-to-onboarding-role)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-deals-this-summer)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/keyrenter-property-management-hits-100-locations-with-14-new-franchise-deals)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/keyrenter-property-management-hits-100-locations-appoints-new-vp-of-onboarding-amid-summer-expansion)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/keyrenter-property-management-hits-100-locations-appoints-eric-steward-as-vp-of-onboarding)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/keyrenter-property-management-hits-100-locations-adds-14-new-ter/202636735)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
-
-Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/more-than-a-store-the-personal-styling-and-private-event-experience-coming-to-monkees-of-fair-oaks-ranch)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/6/vastQF1n.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/6/cakeTH6T.webp)
