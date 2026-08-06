@@ -1,52 +1,102 @@
-# Wrap Technologies (WRAP) Schedules Second Quarter 2026 Results Call
+# Accelleron Appoints Ravin Pillay-Ramsamy as President of the Service Division
 
-LOS ANGELES, CA - August 5, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP) announced it will host a conference call on Tuesday, Aug. 11, 2026, at 4:30 p.m. ET to discuss financial and operational results for the second quarter ended June 30, 2026. Company management will provide an update on quarterly performance followed by a question-and-answer session. Investors may submit questions in advance by email through 5 p.m. ET on Aug. 10, with responses subject to relevance and public disclosure considerations.
+BADEN, SWITZERLAND - August 5, 2026 (NEWMEDIAWIRE) - Accelleron today announced the appointment of Ravin Pillay-Ramsamy as President of the Service Division and member of the Executive Committee, effective October 1, 2026. He will be based in Baden.
 
- The company said its second-quarter 2026 earnings release and related materials will be available in the Investors section of its website before the call. Participants may join the webcast or register for dial-in access through the links provided by the company.
+ Ravin Pillay-Ramsamy will succeed Roland Schwarz, who has been appointed CEO of OMT, an Accelleron company specialized in fuel injection. Klaus Heim, currently CEO of OMT, will retire at the end of September 2026.
 
- To view the full press release, visit https://ibn.fm/wQrcn
+ “We are very pleased to welcome Ravin to Accelleron,” said Daniel Bischofberger, CEO of Accelleron. “He brings extensive international leadership experience in industrial services, engineering, business development and M&A, combined with deep expertise in power generation, oil and gas, and industrial infrastructure. His proven track record in leading global service organizations will be highly valuable as we continue to strengthen our service business and create value for our customers worldwide.”
 
- About Wrap Technologies, Inc.
+ Ravin Pillay-Ramsamy joins Accelleron from Sulzer, where he currently serves as Division President Services and is a member of the Executive Committee. Previously, he held several senior leadership positions within Sulzer’s Services division across EMEA and Asia Pacific. He began his career in the United States at Turbine Services Ltd., where he served as Business Development Director and Vice President Engineering. He holds a Global MBA from Columbia Business School and London Business School, a Master’s degree in Management and Finance from Rensselaer Polytechnic Institute, and a Bachelor of Science in Electrical and Computer Engineering from The Ohio State University.
 
- Wrap Technologies, Inc., a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
+ Accelleron Industries Ltd (ACLN: SIX Swiss Exchange) is accelerating sustainability in the marine and energy industries as a global technology leader in turbocharging, fuel injection, and digital solutions for heavy-duty applications. Building on a heritage of over 100 years as a trusted industry partner, the company serves customers in more than 100 locations in over 50 countries. Accelleron’s more than 3,200 employees are continuously innovating to deliver best-in-class products, services, and solutions that are mission-critical for the energy transition.
 
- WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
+ Media resources
 
- With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
+ Images and other digital assets are available at: https://accelleron.com/media/media-resources
 
- Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
+ For more information please contact:
 
- WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
+ Media RelationsSandro HoferPhone: +41 79 644 76 55Email: media@accelleron-industries.com
 
- As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
+ Accelleron Industries LtdBruggerstrasse 71A5400 BadenSchweizhttps://accelleron.com
 
- WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
+ Additional features:File: [Press Release (PDF)](https://nwr.eqs-cockpit.com/fncls2.ssx?fn=redirect&url=3b4bb08c07558a0adb5b3051a640c5a6&application_id=2377044&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)File: [Ravin Pillay-Ramsamy (PNG)](https://nwr.eqs-cockpit.com/fncls2.ssx?fn=redirect&url=eff3c763b9ac86d2779a9e19ed44e940&application_id=2377044&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
 
- Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
+ 
 
- The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
-
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
-
- The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-schedules-second-quarter-2026-results-call-7088236)
+[Original/Source Press Release](https://www.newmediawire.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-the-service-division-7088239)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-schedules-q2-2026-results-call/0ec35bff8655033a871f55fb8ac07eb1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accelleron-appoints-ravin-pillay-ramsamy-as-service-division-president/12385f2930b4694db5a26f88fdfcaacb) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/05/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/accelleron-nombra-a-ravin-pillay-ramsamy-como-presidente-de-la-division-de-servicio)
+
+Pickup - [https://burstable.news](https://burstable.news/news/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/accelleron-ernennt-ravin-pillay-ramsamy-zum-leiter-der-service-division)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/accelleron-nombra-a-ravin-pillay-ramsamy-para-liderar-la-division-de-servicios)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/accelleron-nomme-ravin-pillay-ramsamy-a-la-tete-de-la-division-service)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/accelleron-nomeia-ravin-pillay-ramsamy-para-liderar-a-divisao-de-servicos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-the-service-division)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/accelleron-appoints-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-president-of-service-division)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/12385f2930b4694db5a26f88fdfcaacb)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/accelleron-names-ravin-pillay-ramsamy-as-service-division-president)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/accelleron-appoints-ravin-pillay-ramsamy-as-president-of-service-division)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/accelleron-names-ravin-pillay-ramsamy-to-lead-service-division/202636690)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/5/quaysWOI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/5/tileAURr.webp)
