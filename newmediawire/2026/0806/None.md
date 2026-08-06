@@ -1,226 +1,78 @@
-# HKTDC August Events Open Next Week With Wellness Focus
+# tZERO Introduces Its Next-Generation Platform
 
-Showcasing Global Foods, Tea Culture, Healthy Living and Smart Home Innovations Under "Live Well.Stay Well" Theme
+The New tZERO UX Brings Together Onboarding, Primary Offerings, Secondary Trading, and Custody for Tokenized Securities Through a Single Platform Available as part of tZERO’s End-To-End, Multi-Asset Infrastructure for Institutional Clients, as Well as for Direct Investors
 
- HONG KONG - August 6, 2026 (NEWMEDIAWIRE) - Organised by the Hong Kong Trade Development Council (HKTDC), the 36th Food Expo, 10th Beauty & Wellness Expo and 12th Home Delights Expo will be held from 13 to 17 August at the Hong Kong Convention and Exhibition Centre (HKCEC). The 4th Food Expo PRO and 17th Hong Kong International Tea Fair take place from 13 to 15 August, with the Tea Fair once again fully open to both trade buyers and public.
+ NEW YORK, NY - August 6, 2026 (NEWMEDIAWIRE) - tZERO Group, Inc., a leader in blockchain-based financial infrastructure, unveiled a next-generation user experience (UX) for its tokenized securities platform and white label infrastructure offering, bringing onboarding, investing, trading, custody and payments together through a single, seamless experience, with additional asset classes to come.
 
- The five fairs will bring together more than 1,850 exhibitors from over 30 countries and regions, featuring international delicacies, premium teas and innovative tea beverages, health and beauty products, as well as smart home solutions. The events offer a one-stop platform for sourcing, business networking and retail experiences for both industry professionals and the public.
+ The launch of the new UX represents a significant milestone in tZERO's evolution. For the first time, it will be complemented with a native iOS mobile app that will be available shortly, once pending App Store review is completed, followed by an Android version.
 
- Also running from 13 to 15 August is the International Conference of the Modernization of Chinese Medicine and Health Products (ICMCM), jointly organised by the Modernized Chinese Medicine International Association (MCMIA), the HKTDC and 10 scientific research institutions. The event will provide industry participants with the latest developments in Chinese medicine while fostering the advancement of the sector.
+ For institutional infrastructure clients, tZERO’s B2B2C offering makes the same technology available through co-brand and white label deployments, enabling broker-dealers and other partners to deliver branded digital investment experiences powered by tZERO’s regulated brokerage, custody, clearing, settlement, transfer agency and tokenization infrastructure. Broker-dealer partners can enable custody solutions for their end customers using tZERO’s correspondent clearing and custody model.
 
- HKTDC Associate Executive Director Smilely Lam said: “Under the theme of ‘Live Well.Stay Well’, the fairs reflect growing market interest in wellness, quality living and holistic wellbeing. As an international food trading hub, Hong Kong provides food companies with an ideal gateway to the Chinese Mainland and global markets. For the first time, the two trade fairs bring together exhibitors from all ASEAN member states, including debut participations from Brunei and Timor-Leste. We are also delighted to welcome exhibitors from Colombia and Greece for the first time. In addition, the Agricultural Trade Promotion Center of the Ministry of Agriculture and Rural Affairs of China has organised delegations from multiple provinces and municipalities to showcase premium agricultural products, using Hong Kong as a platform to expand overseas.”
+ For individual investors, the new tZERO platform provides a direct, intuitive way to discover investment opportunities, participate in primary offerings and trade eligible securities in secondary markets – all through a single, connected account.
 
- This year, the five fairs feature a total of 43 group pavilions, showcasing distinctive products from around the world, including pavilions from various provinces and municipalities in the Chinese Mainland, as well as Brazil, Malaysia, the Philippines, Sri Lanka and Thailand. The Korea Pavilion has expanded by 40% compared to last year, hosting more than 130 exhibitors to make it the largest overseas pavilion at the fairs.
+ The platform introduces a streamlined, single sign-on experience that simplifies every stage of the investment journey – from opening an account and funding it to investing in primary offerings and trading in secondary markets. The platform has been architected to support a broad range of asset classes (including prediction markets and crypto), AI-driven capabilities, and expanded DeFi functionality.
 
- Food Expo PRO introduces new “Meat Zone” and a more international “Coffee Zone”
+ "We built the new tZERO platform to bring investing, trading and digital asset infrastructure together in a single, unified experience,” said Alan Konevsky, Chief Executive Officer of tZERO. “As more assets move on-chain, investors and institutions should have one secure gateway into digital markets - not a collection of disconnected systems. This also slots into our unique, vertically integrated infrastructure stack for tokenized assets, providing a flexible front-end available for a range of financial institutions and other customers."
 
- In response to increasing market demand for premium meat products, Food Expo PRO introduces a brand-new “Meat Zone”, showcasing quality meats and related products. Highlights include Korean exhibitors featuring frozen marinated Korean barbecue products that can be served in just three minutes, while a long-established Hong Kong brand enters the business-to-business (B2B) market with halal-certified beef tendon balls made entirely from premium beef and manufactured locally.
+ The new tZERO delivers:
 
- The popular “Coffee Zone” returns, featuring exhibitors from Yunnan - the largest coffee-producing region in the Chinese Mainland - alongside new exhibitors from Colombia, Macao, Myanmar, Thailand and the United States, highlighting a wider range of coffee beans, accessories and brewing equipment.
+ * A single sign-on account experience
+* Streamlined investor onboarding
+* Integrated payment setup
+* Access to primary investment opportunities
+* Secondary market trading
+* White label platform for financial institutions
+* Architecture designed to support multiple asset classes (including prediction markets and crypto) and DeFi interoperability
 
- The “Food Science and Technology Zone” focuses on the rapidly growing wellness market, featuring alternative and future foods as well as the latest food-service technologies. Highlights include a Hong Kong exhibitor demonstrating an intelligent food-service robot that showcases how automation and artificial intelligence can deliver highly efficient dining solutions. Held during the fair, the Food Tech Symposium will explore how emerging technologies are driving innovation in the food industry and supporting healthier lifestyles.
+ Today’s launch marks a major milestone in the platform's evolution. Future releases will expand payment options, introduce additional onboarding capabilities, launch mobile iOS and Android versions, and extend support for additional asset classes and emerging technologies.
 
- Hong Kong’s pet-friendly market continues to expand. This year, Food Expo PRO introduces Pet Food products for the first time. A Hong Kong exhibitor uses patented packaging technology to preserve the nutritional value of pet food meat without preservatives or cold-chain logistics, enabling room-temperature storage and unlocking new opportunities in the pet economy.
+ "The new tZERO platform reflects where financial markets are heading," added Konevsky. "Our goal is to remove complexity so institutions can enable their customers to access the benefits of modern market infrastructure through a single, intuitive experience available as part of our end-to-end, turnkey solution."
 
- Demand for Halal food continues to grow. For the third consecutive year, Food Expo PRO and Food Expo feature the halal food and beverage label, with more than 130 exhibitors from the Chinese Mainland, Brunei, Colombia, Korea, Singapore, Taiwan, Thailand and other markets participating. A networking reception on 14 August will connect halal food exhibitors and buyers to facilitate business opportunities.
+ Sign in to an existing account or create a new account.
 
- Tea culture meets contemporary lifestyle
+ MEDIA CONTACTS:
 
- This year’s Hong Kong International Tea Fair showcases renowned teas and specialty tea beverages from around the world, including the extremely rare first-flush Kunlu Mountain naturally mutated purple bud raw pu'er tea from Yunnan, white tea from Laos, premium tea from Kenya and world-renowned Ceylon tea from Sri Lanka.
+ tZEROJulie Ros, Head of Marketing & Communicationsjros@tzero.com
 
- The new Chinese Mainland Matcha Pavilion makes its debut, presented by Guizhou and Zhejiang - the mainland’s two leading matcha-exporting regions – showcasing ceremonial-grade matcha, beverage-grade matcha and matcha desserts. The inaugural Yixing Zisha Teaware Pavilion highlights the exquisite craftsmanship of traditional Yixing purple clay teaware.
+ KCSA Strategic Communicationstzero@kcsa.com
 
- Going beyond traditional tea appreciation, the Tea Fair’s new “Tea Lifestyle” zone introduces a range of innovative tea products, including sparkling tea, tea-based cocktails and Pu-er coffee blend tea. Visitors can also explore tea pastries, Zen-inspired bonsai, elegant teaware and immersive tea meditation experiences, demonstrating how tea culture can be seamlessly integrated into modern living.
+ About tZERO Group, Inc.
 
- During the fair, the Hong Kong International Tea Culture Forum will explore opportunities for the internationalisation of Chinese tea brands. A series of tea art performances, themed seminars by contemporary tea beverage brands and cultural programmes will also be staged, allowing both industry players and the public to gain a deeper understanding of the heritage, innovation and enduring appeal of tea culture.
+ tZERO Group, Inc. (tZERO) and its broker-dealer subsidiaries provide an innovative liquidity platform for private companies and assets. We offer institutional-grade solutions for issuers looking to digitize their capital table through blockchain technology, and make such equity available for trading on an alternative trading system. tZERO, through its broker-dealer subsidiaries, democratizes access to private assets by providing a simple, automated, and efficient trading venue to broker-dealers, institutions, and investors. All technology services are offered through tZERO Technologies, LLC. For more information, please visit our website.
 
- Five Themed Days highlight the “Live Well.Stay Well” experience
+ About tZERO Digital Asset Securities, LLC
 
- This year’s fairs adopt the new theme “Live Well.Stay Well” and feature the Five Themed Days: “Happy Eat Happy Life”, “The World in Blink”, “Coffee or Tea'”, “Stay Fresh, Stay Ahead”, and “Let’s Chill”. Through different elements covering food, wellness, quality sleep and lifestyle inspirations, the themed days encourage visitors to explore wellness trends and discover new ideas for better living. Programmes include celebrity chef demonstrations, health seminars, silver-age products and technology showcases, hand-drip coffee demonstrations, wellness forums and horticultural therapy workshops.
+ tZERO Digital Asset Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the broker-dealer custodian of all digital asset securities offered on tZERO’s online brokerage platform. Digital asset securities may not be “securities” as defined under the Securities Investor Protection Act (SIPA) – and in particular, digital asset securities that are “investment contracts” under the Howey test but are not registered with the Securities and Exchange Commission are excluded from SIPA’s definition of “securities” – and thus the protections afforded to securities customers under SIPA may not apply. More information about tZERO Digital Asset Securities may be found on FINRA’s BrokerCheck.
 
- Food Expo showcases global gourmet delights with dessert and gelato highlights
+ About tZERO Securities, LLC
 
- The 36th Food Expo returns with five days of gastronomic delights from around the world. Highlights include pandan chiffon cakes and premium cookies from Singapore’s iconic confectionery brand Old Seng Choong, freshly made artisanal doughnuts from Thailand’s popular donut brand Drop by Dough, Korean probiotic yoghurt products, local delicacies from Hualien and Taitung, alongside KUAICHE, one of Taiwan’s most renowned jerky brands, Macao’s famous shrimp roe noodles, and specialty products from 16 provinces and regions across the Chinese Mainland, including Sichuan, Henan, Yunnan and Tibet.
+ tZERO Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the operator of the tZERO Securities ATS. More information about tZERO Securities may be found on FINRA’s BrokerCheck.
 
- The Agricultural Trade Promotion Center of the Ministry of Agriculture and Rural Affairs of China has organised exhibitors from Hunan, Hainan, Anhui, Guangdong, Shandong, Xinjiang, Hebei and other provinces and regions, leveraging Hong Kong as a gateway to international markets.
+ Investor Notice
 
- In addition, Hong Kong’s Fish Marketing Organization and Vegetable Marketing Organization have expanded their participation this year and will promote a new unified brand, “Hong Kong Harvest”, showcasing the unique appeal of local fishery and agricultural products.
+ Digital asset securities, as well as any particular investment, may not be suitable or appropriate for everyone. Investors should note that investing or trading in securities could involve substantial risks, including no guarantee of returns, costs associated with selling and purchasing, and no assurance of liquidity which could impact their price and investors’ ability to sell, and possible loss of principal invested. There is always the potential of losing money when you invest in securities. There are also unique risks specific to digital asset securities, including, without limitation, fraud, manipulation, theft, and loss.
 
- The Food Expo has also sourced more than 100 dessert products and will introduce a brand-new Dessert and Gelato Theme. Highlights include innovative ice cream flavours and Hong Kong people’s beloved chewy traditional desserts. Local exhibitor AkkMore Gelato will showcase low-fat gelato made with patented AkkMore mushroom extract developed by Hong Kong Polytechnic University to replace conventional animal fats. Another local ice cream brand, Cookieism, will present its summer signature dessert, Cookie and Cream Carnival, combining chocolate cookies with creamy ice cream.
+ No Offer, Solicitation, Investment Advice or Recommendations
 
- Celebrating its 15th edition, the Gourmet Zone will host 15 celebrity chefs to demonstrate the preparation of a range of exquisite dishes. A commemorative premium recipe book, “Star Chef’s Culinary Creations”, jointly presented with food distributor Ng Fung Hong, which celebrates its 75th anniversary this year, will be made available to participants in the cooking demonstrations. Participants will also be able to sample the dishes prepared on-site.
+ This release is for informational purposes only and does not constitute an offer to sell, a solicitation to buy, or a recommendation for any security, nor does it constitute an offer to provide investment advisory or other services by tZERO or any of its affiliates, subsidiaries, officers, directors or employees. No reference to any specific security constitutes a recommendation to buy, sell, or hold that security or any other security. Nothing in this release shall be considered a solicitation or offer to buy or sell any security, future, option or other financial instrument or to offer or provide any investment advice or service to any person in any jurisdiction. Nothing contained in this release constitutes investment advice or offers any opinion with respect to the suitability of any security, and the views expressed in this release should not be taken as advice to buy, sell or hold any security. In preparing the information contained in this release, we have not taken into account the investment needs, objectives, and financial circumstances of any particular investor. This information has no regard to the specific investment objectives, financial situation, and particular needs of any specific recipient of this information and investments discussed may not be suitable for all investors. Any views expressed in this release by us were prepared based upon the information available to us at the time such views were written. Changed or additional information could cause such views to change. All information is subject to possible corrections. Information may quickly become unreliable for various reasons, including changes in market conditions or economic circumstances.
 
- The fair also pays close attention to the dietary needs of the elderly. On 16 August, the “Silver Q-Mark "Care Food" Culinary Competition”, organised by the Federation of Hong Kong Industries and the Hong Kong Q-Mark Council, will demonstrate the diversity of care foods and promote awareness of care food preparation and certification among caregivers. Exhibitors will also feature innovative food-processing equipment capable of transforming everyday dishes into refined care food that meet international standards.
+ Forward-Looking Statements by tZERO
 
- Beauty & Wellness Expo highlights holistic wellbeing
-
- The 10th Beauty & Wellness Expo welcomes back the popular “Scentsation” zone dedicated to perfume and fragrance experiences. Making its debut this year is the Xuelei Fragrance Museum, which presents “Meet Yourself Through Fragrance” – an interactive experience that allows visitors to explore their emotions through scent. Participants can also receive a limited-edition commemorative fragrance created exclusively celebrating the 10th edition of the Expo.
-
- Keeping pace with the public’s growing pursuit of holistic wellness, the expo introduces the brand-new “Stay Relax” zone, featuring products such as red-light therapy capsules and medicated wellness balms, allowing visitors to experience innovative solutions for relieving fatigue and promoting relaxation firsthand. With regular exercise forming an essential part of a healthy lifestyle, the Hong Kong Ballet Group, Hong Kong China Bodybuilding and Fitness Association and the Physical Fitness Association of Hong Kong, China will stage demonstrations at the venue, teaching simple exercises to visitors that can be performed at home without the need for specialised equipment.
-
- Home Delights Expo – from quality sleep to smart living
-
- The 12th Home Delights Expo highlights quality sleep and smart living as its key themes. The Sleep Health Association will participate for the first time and launch the dedicated “Go Sleep Exp”, where visitors can learn about healthy sleep habits and discover a wide range of innovative sleep-related products and solutions.
-
- As smart-home technology becomes increasingly popular, HKT will offer exclusive discounts of up to 70% on smart home appliances. The company will also showcase its F5G-A 2500M Super Broadband service, recipient of six awards including recognition as Hong Kong’s and East Asia’s “Fastest” and “Best” fixed broadband service, giving visitors a firsthand experience of the next generation of connectivity.
-
- Chinese Medicine Conference promotes international exchange
-
- The International Conference of the Modernization of Chinese Medicine & Health Products, organised by the Modernized Chinese Medicine International Association (MCMIA) together with the HKTDC and 10 scientific research institutions, is supported this year by the Chinese Medicine Development Fund of the Hong Kong SAR Government. Under the theme “Clinical Translation, Regulatory Policies and Global Innovative Pathways of Traditional Medicine”, the conference will focus on the twin concepts of “bringing in” and “going global”. It will introduce Hong Kong’s Chinese medicine regulatory framework and support resources to participants from the Chinese Mainland and overseas, while inviting international regulatory authorities to share perspectives on traditional medicine regulations in their respective markets.
-
- The conference has been expanded from two days to three days this year and will feature over 30 renowned speakers. Experts from the Chinese Mainland, Hong Kong, Macao, Australia, Canada, Indonesia, Korea, Malaysia, Singapore, Thailand and the United Kingdom will discuss the latest developments in Chinese medicine research and development, regulatory trends and successful industry practices. Held in a hybrid physical-and-online format, the conference aims to facilitate wider participation and interaction between attendees and speakers. Registered Chinese medicine practitioners in Hong Kong can apply for continuing education credits by attending the conference.
-
- Public education on Chinese medicine features at Food Expo
-
- In addition to putting on the conference for industry professionals, the organisers are demonstrating their commitment to enhancing public understanding of Chinese medicine. A dedicated “Multi-Facet of Chinese Medicines” public education display will be set up at the Food Expo, featuring interactive and educational displays to improve awareness and confidence in Chinese medicine. In addition, the “ICMCM Public Forum” will be held on 15 August, promoting the advantages of Chinese medicine services and offering useful tips on Chinese medicine wellness and preventive healthcare.
-
- Admission privileges and shopping rewards for HKTDC’s 60th anniversary
-
- To celebrate the 60th anniversary of the HKTDC, a series of special promotions and consumer offers will be launched during the fairs. Members of the public presenting designated official promotional leaflets can enjoy free admission before 12pm each day, with a quota of 600 visitors per day. Exhibitors will also roll out a variety of “6”-themed offers, including stainless-steel cutlery sets for HK$6 and wild purple bud tea at 40% off. And visitors can participate in daily lucky draws and exhibition mini games, with prizes worth more than HK$1 million in total.
-
- The HKTDC will continue its “Food Expo VIP ticket online game” campaign. By participating in games on the HKTDC’s 60th Anniversary Facebook page, members of the public will have the opportunity to win VIP admission tickets to the Food Expo. Details will be announced through the HKTDC’s social media channels.
-
- Also returning is the “Smart Bidding” session, allowing visitors to bid for selected products starting from just 10% of the original price. For the latest promotions, flash sales and limited-time discounts, visitors are encouraged to visit the “August Happy Buy” campaign website, allowing them to enjoy great savings while shopping and dining in Hong Kong.
-
- No physical tickets will be issued for the August fairs. E-tickets can be purchased or redeemed in advance through the 01 Space e-ticketing platform, AlipayHK, Alipay, all 7-Eleven and Circle K convenience stores, the Octopus App and The Club App. Visitors may also purchase admission on-site at the venue entrance using AlipayHK, Alipay, Octopus, or WeChat Pay. In addition, Morning Admission Tickets and Evening Admission Tickets for designated dates will return this year.
-
- Photo download: https://bit.ly/4z3xlyU
-
- Opening dates and times of the exhibitions:
-
- Date
-
-HKTDC Food Expo PROOpen to trade buyers only: 13-14 August (Thursday to Friday)Open to trade buyers and public: 15 August (Saturday)
-
- Hong Kong International Tea FairOpen to trade buyers and public: 13-15 August (Thursday to Saturday)
-
- HKTDC Food Expo, HKTDC Beauty & Wellness Expo, HKTDC Home Delights Expo13-17 August (Thursday to Monday)
-
- International Conference of the Modernization of Chinese Medicine and Health Products13-15 August (Thursday to Friday)
-
- Time
-
-HKTDC Food Expo PRO, Hong Kong International Tea Fair13-14 August: 10am to 6pm15 August: 10am to 5pm
-
- HKTDC Food Expo, HKTDC Beauty & Wellness Expo, HKTDC Home Delights Expo13-16 August: 10am to 10pm17 August: 10am to 6pm
-
- Venue
-
-Hong Kong Convention and Exhibition Centre, Wan Chai
-
- Admission
-
-- Food Expo Public Hall, Home Delights Expo, Beauty & Wellness Expo and Hong Kong International Tea Fair 2026 single ticket: HK$30 per person (ticketholders can pay a top-up fee of HK$10 for admission to the Gourmet Zone on the same day)
-
- - Food Expo Public Hall and Gourmet Zone, Home Delights Expo, Beauty & Wellness Expo and Hong Kong International Tea Fair 2026 combo tickets: HK$40 per person*
-
- *HK$36 per person during the pre-sale period from 30 July to 12 August. (Tickets are available for pre-sale and walk-in at all 7-Eleven and Circle K convenience stores for HK$36 per person.)
-
- Remarks: Holders of the 15 August single ticket & combo ticket can visit the Food Expo PRO
-
- - Morning admission tickets: Entry before 12pm on 13, 14 and 17 August (Thursday, Friday and Monday) to the Food Expo Public Hall, Home Delights Expo, Beauty & Wellness Expo and Hong Kong International Tea Fair on the same day: HK$10 (pay directly by AlipayHK, Alipay, Octopus card or WeChat Pay for admission at the hall entrances only)
-
- - Night admission tickets: Entry after 6pm on 13 to 16 August, Thursday to Sunday, to the Food Expo Public Hall, Home Delights Expo, Beauty and Wellness Expo on the same day: HK$10 (pay directly by AlipayHK, Alipay, Octopus card or WeChat Pay for admission at the hall entrances only)
-
- - Concessionary price for persons with disabilities: HK$10 (top-up fee for the Gourmet Zone on the same day is HK$10)Note: Persons with disabilities need to present a “Registration Card for Persons with Disabilities”, issued by the Labour and Welfare Bureau (pay directly by AlipayHK, Alipay, Octopus card or WeChat Pay for admission at the hall entrances only)
-
- - Tourist tickets: HK$20 (HK$30 including admission to the Gourmet Zone)
-
- Note: Tourists need to present valid travel documents at the fairground to purchase tickets
-
- - Free admission is available for children aged three and under and senior citizens aged 65 or above (presenting valid age proof)
-
- Tickets
-
-E-tickets are available for sale at AlipayHK and Alipay, the 01 Space e-ticketing platform, all 7-Eleven and Circle K convenience stores, the Octopus app and The Club app.
-
- HKTDC Food Expo PRO
-
-foodexpopro.hktdc.com
-
- HKTDC Hong Kong International Tea Fair
-
-hkteafair.hktdc.com
-
- HKTDC Food Expo
-
-hkfoodexpo.hktdc.com
-
- HKTDC Beauty & Wellness Expo
-
-hkbeautyexpo.hktdc.com
-
- HKTDC Home Delights Expo
-
-homedelights.hktdc.com
-
- The International Conference of the Modernization of Chinese Medicine and Health Products (ICMCM)
-
-icmcm.hktdc.com
-
- August Happy Buy website
-
-ecoupon.hktdc.com/food/
-
- 
-
- Media enquiries
-
- HKTDC’s Communications & Public Affairs Department:
-
- Katy Wong
-
-Tel: (852) 2584 4524
-
-Email: katy.ky.wong@hktdc.org
-
- Winnie Kan
-
-Tel: (852) 2584 4055
-
-Email: winnie.wy.kan@hktdc.org
-
- Clayton Lauw
-
-Tel: (852) 2584 4472
-
-Email: clayton.y.lauw@hktdc.org
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- HKTDC Media Room: http://mediaroom.hktdc.com
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ This release contains forward-looking statements. In addition, from time to time, tZERO, its subsidiaries, or its representatives may make forward-looking statements orally or in writing. These forward-looking statements are based on expectations and projections about future events, which is derived from currently available information. Such forward-looking statements relate to future events or future performance, including financial performance and projections; growth in revenue and earnings; and business prospects and opportunities. You can identify forward-looking statements by those that are not historical in nature, particularly those that use terminology such as “may,” “should,” “expects,” “anticipates,” “contemplates,” “estimates,” “believes,” “plans,” “projected,” “predicts,” “potential,” or “hopes” or the negative of these or similar terms. In evaluating these forward-looking statements, you should consider various factors, including, without limitation: the ability of tZERO and its subsidiaries to change the direction; tZERO’s ability to keep pace with new technology and changing market needs; performance of individual transactions; regulatory developments and matters; and competition. These and other factors may cause actual results to differ materially from any forward-looking statement. Forward-looking statements are only predictions. The forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or their respective representatives, may not occur, and actual events and results may differ materially and are subject to risks, uncertainties and assumptions. tZERO, its subsidiaries, and its representatives are not obligated to publicly update or revise any forward-looking statement, whether as a result of uncertainties and assumptions, the forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or its representatives might not occur. This press release is for informational purposes only and does not constitute an offer to sell, a solicitation of an offer to buy, or a recommendation to purchase any security. The securities described herein are subject to qualification by the U.S. Securities and Exchange Commission under Regulation A+ (Tier 2) and have not yet been so qualified. No money or other consideration is being solicited, and if sent in response, will not be accepted. No offer to buy the securities can be accepted and no part of the purchase price can be received until the offering statement is qualified, and any such offer may be withdrawn or revoked, without obligation or commitment of any kind, at any time before notice of its acceptance given after the date of qualification. A person's indication of interest involves no obligation or commitment of any kind.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-august-events-open-next-week-with-wellness-focus-7088254)
+[Original/Source Press Release](https://www.newmediawire.com/news/tzero-introduces-its-next-generation-platform-7088257)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hktdc-august-fairs-showcase-global-foods-wellness-and-smart-living/ecc25635726ef51c36d70c73d3506e63) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/06/hktdc-august-fairs-to-spotlight-wellness-and-global-trade-opportunities/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tzero-unveils-unified-platform-for-tokenized-securities/e8156356e83ead5ce90648fd6190716d) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/6/chiplQ_n.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/6/maskWjYh.webp)
