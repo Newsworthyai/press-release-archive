@@ -1,95 +1,120 @@
-# July Wellness Index Report: Sourced From Within: Hormones, Cells and the Microbiome
+# Keyrenter Riding a Summer Hot Streak with 14 New Deals
 
-The July Wellness Index Report, published by Wellness Eternal's Biohacking Index, identifies a quiet reversal in how leading practitioners approach longevity. For a century, medicine's instinct was to override biology. A new generation is working with what the body already produces and asking it to do what it was built to do.
+Keyrenter Property Management, one of the leading residential real estate franchisors, is on a hot streak this summer, surpassing a significant milestone by establishing their 100th location since they began franchising the concept back in 2014. Since the beginning of 2026, Keyrenter has awarded a total of 14 new territories, with five candidates currently prepping for their Discovery Day sessions as early as next week. The territories recently claimed in this wave of new signings include new Keyrenter Property Management locations in Colorado, California, Texas, Florida, Virginia, Illinois, North Carolina, Michigan, and New Mexico.
 
- To view the full announcement, including downloadable images, bios, and more, click here.
+ As a result of this rapid expansion over the last few months, Keyrenter has appointed franchise industry veteran Eric Steward to serve as the organization’s new Vice-President of Onboarding.
 
- Key Takeaways * The July Wellness Index Report finds the most interesting question in longevity is no longer what can be added to the body, but what the body already has and why we stopped listening to it.
-* The report identifies three signals: midlife hormone health moving into legitimate clinical priority, regeneration replacing repair, and a microbiome category being reshaped by published evidence.
-* Three companies are featured across three depths of that idea: International Pause Institute, PUR-FORM, and FitBiomics.
-* The Wellness Index Report applies a four-step verification process built on expert nomination, customer and patient feedback, clinical review, and ongoing performance tracking.
+ 
 
- The Signals Midlife hormone health steps out of the shadows. Perimenopause, menopause and andropause are moving from whispered inconvenience to legitimate clinical priority. Consumers over 40 are rejecting the idea that fatigue, brain fog, weight change and loss of libido are simply the cost of getting older. Demand is climbing for integrative, root-cause care that treats hormones, the microbiome and lifestyle as one connected system.
+ “On behalf of the brand and all of our valued stakeholders, we’re pleased to announce the awarding of these 14 new territories,” stated Nate Tew, co-founder and CEO of Keyrenter Property Management. “Not only does this greatly expand our brand’s footprint, but we’ve also surpassed a significant milestone of establishing more than 100 franchise locations coast-to-coast. We’re also honored to have Eric Steward join us here at Keyrenter Property Management, who will be overseeing all activities from signed franchise agreements through the rest of the onboarding process for our growing network of franchisee partners.”
 
- Regeneration replaces repair. Patients facing joint pain, injury and inflammation are increasingly seeking alternatives to surgery and long-term pharmaceutical management. Interest continues to grow in approaches that use a person's own platelets, growth factors and cells, delivered by physicians and paired with technologies addressing oxygenation, inflammation and cellular stress.
+ Eric Steward, CFE has a well-established track record of success in the franchising industry, especially in the residential real estate space, having spent over a dozen years working in various recruiting roles at Pillar to Post. In his time with the brand he worked his way up the corporate ladder, beginning as a marketing coordinator before being promoted to manager, then director, and ultimately serving as the organization’s senior director of franchise recruiting.
 
- The microbiome grows up. After a decade of broad claims and thin evidence, the category is being reshaped by companies willing to run studies and publish them. Consumers are moving past generic probiotics toward strains with defined origins, specific functions and peer-reviewed clinical validation.
+ “Joining the team of an industry leading brand like Keyrenter is a dream come true opportunity,” stated Eric Steward, CFE. “The fact that they also operate in the residential real estate space where I have direct category experience is a plus and I hope to make several meaningful contributions in my new role as the head of onboarding activities. With the recent awarding of over a dozen new locations, I have my work cut out for me, but I can’t wait to roll up my sleeves and get started.”
 
- The July Features International Pause Institute (New Jersey). Founded by Dr. Betsy Greenleaf, DO, the first woman in the United States board certified in Urogynecology, the practice serves both women and men through perimenopause, menopause and andropause. Its integrative, functional approach spans hormone optimization, microbiome health, stress resilience and sexual wellness. Triple board certified with fellowship training in integrative medicine, Greenleaf is a bestselling author, award-winning speaker and founder of Femversity. Her programs, including the Pause Protocol, address the underlying drivers of fatigue, brain fog and lost vitality rather than treating each symptom in isolation.
+ Founded in 2007 in Midvale, Utah, Keyrenter Property Management began franchising the concept in 2014 and has now grown into a thriving network of 94 franchisee partners representing 101 locations in all. As a franchisee in the Keyrenter network, owners provide a wide range of routine residential property management services in their established territories such as rent collection, repair, routine maintenance, and securing tenants for vacant homes. As a whole, the residential real estate industry continues to thrive thanks to highly favorable marketplace conditions. It’s estimated there are approximately 25 million single-family rental (SFR) units in play, of which only 4% are institutionally owned and operated. Robust marketplace conditions continue to attract interest in residential property management from qualified candidates, bolstered by external factors such as an increasingly high ratio of renters-to-buyers, stubbornly high mortgage interest rates, and a tightening lending environment.
 
- PUR-FORM (Boca Raton, Florida). Medical Director Dr. Joseph Purita, MD, is a board certified orthopedic surgeon trained at Georgetown, a pioneer of Platelet Rich Plasma and orthopedic regenerative cell treatments, and inaugural president of the American Academy and Board of Regenerative Medicine. He has lectured at more than 200 conferences worldwide. The practice combines regenerative orthopedics and PRP with a technology stack including EBO2 and ozone therapy, hyperbaric oxygen, peptide therapy, NAD+, intermittent hypoxia and contrast therapy, alongside hormone health and medical weight loss. Procedures use patients' own autologous regenerative cells and growth factors, delivered under physician direction.
-
- FitBiomics (New York, New York). Spun out of Harvard's Wyss Institute in 2018 by Dr. Jonathan Scheiman, PhD, a former St. John's basketball player turned biomedicine PhD, FitBiomics decodes the microbiomes of elite athletes and translates them into next generation probiotics. Flagship product Nella uses three proprietary athlete-derived Lactobacillus strains and has been clinically studied for sleep and gut health, with results published in the peer-reviewed journal Microbiome. Companion product V-Nella is built on Veillonella, the lactic acid metabolizing genus first identified in ultramarathon runners. The company was co-founded with Harvard geneticist Dr. George Church.
-
- Commentary "The future of longevity may depend less on what we invent and more on what we finally learn to work with. Hormones, cells, microbes. The body has been offering the answer for a long time. We are only now building the tools to hear it," said Lindsay O'Neill-O'Keefe, Founder of Wellness Eternal and proprietor of the Wellness Index Report.
-
- "Different scales, one philosophy. Whether it is restoring the hormones of midlife, mobilizing the regenerative capacity already circulating in a patient's own blood, or borrowing the microbial advantages of the fittest people alive, these three practitioners are pointing at the same conclusion," O'Neill-O'Keefe added. "The most powerful pharmacy may be the one we were born with."
-
- About the [Wellness Index Report](https://www.biohackingcompanies.com/indexreports/wellness-index-report-%C2%B7-july-2026) The Wellness Index Report is an independent, practitioner-led research platform published monthly by Wellness Eternal. It evaluates wellness providers, technologies and protocols through a four-step process: expert nomination, customer and patient feedback, clinical review, and ongoing rating analysis.
-
- The report is distributed across major media outlets and reaches a global audience, providing visibility to solutions that meet its integrity-first standard.
-
- Practitioners, companies and innovators interested in being considered for future reports can participate by completing the official submission and review process. 
+ About Keyrenter Property Management Founded in 2007 and franchising since 2014, Keyrenter Property Management is a recession-resistant residential real estate franchise opportunity, offering a wide range of tenant-facing property management solutions. With a proven business model predicated on recurring monthly revenue and generous territorial boundaries, Keyrenter is an ideal choice for candidates looking to establish an entrepreneurial future in property management at the community level. To date, the Keyrenter network has grown to 94 franchisees in 101 different territories across the U.S. For more information about becoming a Keyrenter Property Management franchisee, please visit: https://franchising.keyrenter.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608062711/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome)
+[Original/Source Press Release](https://newsworthy.ai/news/202608062717/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/longevity-shift-working-with-the-body-not-against-it/99e9fccc0ef2e903dacbe9a2beecefaf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/keyrenter-hits-100-locations-appoints-new-vp-of-onboarding/759bd5768c0a7a53f9c31cd57de86384) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://advos.io/en](https://advos.io/en/july-wellness-index-report-highlights-shift-from-external-fixes-to-inner-biology)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://x.com](https://twitter.com/i/status/2085350854769438798)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/july-wellness-index-report-highlights-shift-toward-working-with-the-bodys-own-biology-2)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/06/keyrenter-property-management-hits-100-locations-adds-vp-of-onboarding/)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/wellness-index-report-highlights-shift-from-supplementation-to-working-with-the-bodys-own-biology)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://burstable.news](https://burstable.news/news/july-wellness-index-report-highlights-shift-toward-working-with-the-bodys-own-biology)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/keyrenter-riding-a-summer-hot-streak-with-14-new-deals)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/wellness-index-bericht-juli-zeigt-trend-zur-arbeit-mit-der-eigenen-biologie-des-korpers)
+Pickup - [https://advos.io/en](https://advos.io/en/keyrenter-property-management-expands-to-100-locations-with-14-new-franchise-deals)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-informe-del-indice-de-bienestar-de-julio-destaca-un-cambio-hacia-trabajar-con-la-propia-biologia-del-cuerpo-2)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/keyrenter-hits-100-locations-with-14-new-deals)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-rapport-de-lindice-de-bien-etre-de-juillet-met-en-evidence-une-evolution-vers-le-travail-avec-la-biologie-naturelle-du-corps)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/relatorio-do-indice-de-bem-estar-de-julho-destaca-mudanca-para-trabalhar-com-a-propria-biologia-do-corpo-2)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/july-wellness-index-report-the-bodys-own-pharmacy-takes-center-stage-in-longevity)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/keyrenter-property-management-supera-las-100-ubicaciones-con-14-nuevos-acuerdos-de-franquicia)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/july-wellness-index-report-highlights-shift-from-overriding-biology-to-restoring-bodys-natural-functions)
+Pickup - [https://burstable.news](https://burstable.news/news/keyrenter-property-management-hits-100-locations-adds-14-new-territories-and-appoints-vp-of-onboarding)
 
-Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/july-wellness-index-report-highlights-shift-toward-working-with-the-bodys-own-biology)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/keyrenter-property-management-erreicht-100-standorte-fugt-14-neue-gebiete-hinzu-und-ernennt-vp-of-onboarding)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/keyrenter-property-management-alcanza-100-ubicaciones-agrega-14-nuevos-territorios-y-nombra-vicepresidente-de-onboarding)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/july-wellness-index-report-sourced-from-within-hormones-cells-and-the-microbiome-2)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/keyrenter-property-management-atteint-100-emplacements-ajoute-14-nouveaux-territoires-et-nomme-un-vp-de-lintegration)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/keyrenter-property-management-atinge-100-unidades-adiciona-14-novos-territorios-e-nomeia-vp-de-onboarding)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-appoints-eric-steward-as-vp-of-onboarding)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-franchise-deals)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/keyrenter-property-management-hits-100-locations-adds-14-new-territories-amid-summer-expansion)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/keyrenter-surpasses-100-locations-with-14-new-deals-appoints-eric-steward-as-vp-of-onboarding)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/keyrenter-property-management-hits-100-locations-adds-14-new-territories-amid-summer-surge)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/keyrenter-property-management-expands-to-over-100-locations-with-14-new-deals)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/keyrenter-property-management-achieves-100th-location-milestone-with-14-new-franchise-deals)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/keyrenter-property-management-expands-with-14-new-franchise-deals-surpassing-100-locations)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/keyrenter-property-management-hits-100-locations-with-14-new-franchise-deals)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/keyrenter-property-management-hits-100-locations-adds-industry-veteran-to-onboarding-role)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/keyrenter-property-management-surpasses-100-locations-with-14-new-deals-this-summer)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/keyrenter-property-management-hits-100-locations-with-14-new-franchise-deals)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/keyrenter-property-management-hits-100-locations-appoints-new-vp-of-onboarding-amid-summer-expansion)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/keyrenter-property-management-hits-100-locations-appoints-eric-steward-as-vp-of-onboarding)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/keyrenter-property-management-hits-100-locations-adds-14-new-ter/202636735)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
+
+Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/759bd5768c0a7a53f9c31cd57de86384)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/6/gulfYcx2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/6/vastQF1n.webp)

@@ -1,78 +1,122 @@
-# tZERO Introduces Its Next-Generation Platform
+# Seanergy Maritime And United Maritime Report Q2 Results, Continue Dividend Track Records
 
-The New tZERO UX Brings Together Onboarding, Primary Offerings, Secondary Trading, and Custody for Tokenized Securities Through a Single Platform Available as part of tZERO’s End-To-End, Multi-Asset Infrastructure for Institutional Clients, as Well as for Direct Investors
+By Meg Flippin, Benzinga
 
- NEW YORK, NY - August 6, 2026 (NEWMEDIAWIRE) - tZERO Group, Inc., a leader in blockchain-based financial infrastructure, unveiled a next-generation user experience (UX) for its tokenized securities platform and white label infrastructure offering, bringing onboarding, investing, trading, custody and payments together through a single, seamless experience, with additional asset classes to come.
+ DETROIT, MICHIGAN - August 6, 2026 (NEWMEDIAWIRE) - Seanergy Maritime Holdings Corp. (NASDAQ: SHIP), the U.S.-listed pure-play Capesize shipping company, reported record revenue for the second quarter and six months ended June 30 and declared its 19th consecutive quarterly dividend, exceeding Wall Street expectations for the payout. Supported by record quarterly Chinese iron ore imports and continued strength in global bauxite trade, the Greece-based company said it delivered a strong second quarter that demonstrated the earnings power and operating leverage of its business model.
 
- The launch of the new UX represents a significant milestone in tZERO's evolution. For the first time, it will be complemented with a native iOS mobile app that will be available shortly, once pending App Store review is completed, followed by an Android version.
+ Seanergy currently operates a fleet of 19 large bulk carriers, including 2 Newcastlemax and 17 Capesize vessels, with an aggregate cargo carrying capacity of 3,463,843 dwt. Net revenue increased to $55.7 million, compared with $37.5 million in the prior-year period, while net income and adjusted net income surged to $26.2 million and $28.5 million, respectively, from $2.9 million and $3.8 million a year ago. The company generated EBITDA of $39.3 million and Adjusted EBITDA of $41.5 million, more than doubling year-over-year from $17.4 million and $18.3 million, respectively. Seanergy said this reflected strong market fundamentals and disciplined fleet management. Fleet performance remained robust, according to the company, with second-quarter time charter equivalent (TCE) rates reaching $32,355 per day, representing a 63% year-over-year increase. Seanergy said this highlighted the company's strong positioning in the large dry bulk segment. With global demand for iron ore, coal and bauxite continuing to support the dry bulk market, Seanergy said the company remains well positioned to benefit from favorable trade dynamics, strong cash generation and improving shareholder value creation.
 
- For institutional infrastructure clients, tZERO’s B2B2C offering makes the same technology available through co-brand and white label deployments, enabling broker-dealers and other partners to deliver branded digital investment experiences powered by tZERO’s regulated brokerage, custody, clearing, settlement, transfer agency and tokenization infrastructure. Broker-dealer partners can enable custody solutions for their end customers using tZERO’s correspondent clearing and custody model.
+ For the six months ended June 30, Seanergy reported net revenue of $97.8 million, up from $61.7 million in the first half of 2025. Meanwhile, net income was $35.9 million and adjusted net income was $42 million, compared to a net loss of $4 million and adjusted net loss of $1.7 million in the first half of 2025. Adjusted EBITDA increased by 165% to $69.6 million, while Adjusted EPS reached $1.96, compared to an adjusted loss per share of $0.09 in the prior-year period. Fleet TCE increased by 69% to $28,244 per day. Seanergy had $59.5 million in cash as of June 30.
 
- For individual investors, the new tZERO platform provides a direct, intuitive way to discover investment opportunities, participate in primary offerings and trade eligible securities in secondary markets – all through a single, connected account.
+ Quarterly Dividends Keep On Coming
 
- The platform introduces a streamlined, single sign-on experience that simplifies every stage of the investment journey – from opening an account and funding it to investing in primary offerings and trading in secondary markets. The platform has been architected to support a broad range of asset classes (including prediction markets and crypto), AI-driven capabilities, and expanded DeFi functionality.
+ As for its 19th quarterly dividend, which was $0.35 per common share, Seanergy said it underscores the company’s strong earnings generation and disciplined approach to capital allocation. “Building on our solid performance, we continued to execute on our disciplined capital return policy. Our board of directors declared a quarterly cash dividend of $0.35 per share, our 19th consecutive distribution, bringing cumulative dividends to $3.19 per share, or approximately $63.2 million in aggregate,” said Stamatis Tsantanis, Seanergy’s Chairman & Chief Executive Officer.
 
- "We built the new tZERO platform to bring investing, trading and digital asset infrastructure together in a single, unified experience,” said Alan Konevsky, Chief Executive Officer of tZERO. “As more assets move on-chain, investors and institutions should have one secure gateway into digital markets - not a collection of disconnected systems. This also slots into our unique, vertically integrated infrastructure stack for tokenized assets, providing a flexible front-end available for a range of financial institutions and other customers."
+ The quarterly dividend of $0.35 per share marked Seanergy’s 19th consecutive quarterly distribution. Seanergy said this reflected the company’s strong earnings generation and disciplined capital allocation approach. The dividend represented approximately 27% of Q2 Adjusted EPS, while Seanergy has returned approximately $108.4 million to shareholders since the inception of its capital return program through cash dividends and repurchases of shares, warrants and convertible notes. The distribution was also viewed positively by analysts, with Arctic Research noting that the payout exceeded its and consensus expectations.
 
- The new tZERO delivers:
+ Shoring Up Capital To Strengthen The Balance Sheet
 
- * A single sign-on account experience
-* Streamlined investor onboarding
-* Integrated payment setup
-* Access to primary investment opportunities
-* Secondary market trading
-* White label platform for financial institutions
-* Architecture designed to support multiple asset classes (including prediction markets and crypto) and DeFi interoperability
+ During the quarter, Seanergy also successfully completed a €100 million 5-year unsecured corporate bond offering in Greece, which it said further diversifies its capital resources and supports its fleet growth and renewal program. Seanergy also entered into a $60 million sale/leaseback agreement to partially fund the acquisition of a Capesize vessel due for delivery in the fourth quarter of 2027. Upon delivery, the vessel will be sold and chartered back for a period of 18 months.
 
- Today’s launch marks a major milestone in the platform's evolution. Future releases will expand payment options, introduce additional onboarding capabilities, launch mobile iOS and Android versions, and extend support for additional asset classes and emerging technologies.
+ “The bonds provide a shareholder-friendly funding of the company's newbuilding program and second-hand vessel acquisitions,” wrote B. Riley Securities, which raised its price target on Seanergy to $25 from $22 and reiterated its buy rating on the stock.
 
- "The new tZERO platform reflects where financial markets are heading," added Konevsky. "Our goal is to remove complexity so institutions can enable their customers to access the benefits of modern market infrastructure through a single, intuitive experience available as part of our end-to-end, turnkey solution."
+ Looking ahead, Seanergy said the market outlook remains “constructive” with a low orderbook against a rapidly ageing fleet, strong iron ore export growth and resilient coal and bauxite volumes. In this environment, the company said it has fixed about 55% of its ownership days for the second half of the year at a daily rate of $30,800, providing significant earnings visibility while preserving meaningful index-linked exposure in a strong Capesize market. What’s more, Seanergy expects third quarter 2026 daily TCE of approximately $31,000, which it says further reinforces its positive earnings outlook and its ability to continue generating attractive returns in the quarters ahead.
 
- Sign in to an existing account or create a new account.
+ “Our strategic direction remains clear: deliver consistent shareholder distributions, invest strategically in modern tonnage and preserve financial flexibility. We believe this balanced approach positions Seanergy to create meaningful long-term shareholder value,” said Tsantanis.
 
- MEDIA CONTACTS:
+ The company’s fleet growth strategy remains a key component of its long-term value creation plan. Upon the sale of the M/V Dukeship and the delivery of the seven newbuilding vessels and one secondhand Capesize vessel, the company will own or operate under finance lease 26 vessels (3 Newcastlemax and 23 Capesize), with an aggregate cargo carrying capacity of approximately 4,763,552 dwt.
 
- tZEROJulie Ros, Head of Marketing & Communicationsjros@tzero.com
+ United Maritime Unit Continues To Reward Shareholders, Too
 
- KCSA Strategic Communicationstzero@kcsa.com
+ Separately, Seanergy's spin-off, United Maritime Corp. (NASDAQ: USEA), reported net revenue for its second quarter of $10 million, which was flat year-over-year despite fewer ownership days, and paid a quarterly dividend, its 15th consecutive one. United Maritime said its quarterly performance was achieved despite fewer ownership days resulting from its ongoing fleet repositioning strategy.
 
- About tZERO Group, Inc.
+ “Based on our strong performance, United will distribute a quarterly dividend of $0.10 per share, corresponding to a running yield of 16% on our last closing share price. Our fifteenth consecutive quarterly cash dividend reflects a sustainable distribution supported by contracted cash flows and highlights our continued focus on delivering strong capital returns to shareholders,” said Tsantanis.
 
- tZERO Group, Inc. (tZERO) and its broker-dealer subsidiaries provide an innovative liquidity platform for private companies and assets. We offer institutional-grade solutions for issuers looking to digitize their capital table through blockchain technology, and make such equity available for trading on an alternative trading system. tZERO, through its broker-dealer subsidiaries, democratizes access to private assets by providing a simple, automated, and efficient trading venue to broker-dealers, institutions, and investors. All technology services are offered through tZERO Technologies, LLC. For more information, please visit our website.
+ Net Income and adjusted net Income for the quarter were $1.2 million and $1.5 million, respectively, compared to $1 million and $0.2 million, respectively, in the second quarter of 2025. Adjusted EBITDA remained stable at $5.2 million, compared to $5.1 million for the same period of 2025. The TCE rate of the fleet was $18,654 per day, compared to $15,421 for the same period of 2025. For the first six months of the year, United Maritime reported net revenue of $17.9 million, compared to $20.2 million a year earlier. The company ended the quarter with $12.1 million in cash.
 
- About tZERO Digital Asset Securities, LLC
+ United Maritime also continued executing its strategic fleet repositioning program during the quarter, strengthening its focus on the Capesize segment while enhancing earnings potential and financial flexibility. The company agreed to sell the 2011-built Panamax M/V Exelixsea for approximately $17.5 million, with expected net cash proceeds of approximately $8.5 million after debt repayment, following the earlier sale of the 2009-built Kamsarmax M/V Cretansea for $14.7 million. United also completed the profitable exit from its Offshore Energy Construction Vessel investment, generating approximately $15.1 million in cash proceeds, while continuing its transition toward a more Capesize-focused fleet with the acquisition and delivery of modern Capesize tonnage, including the 2010-built M/V Squireship. The company provided third-quarter 2026 TCE guidance of approximately $20,400 per day, reflecting the expected benefits of its repositioned fleet and supportive dry bulk market fundamentals.
 
- tZERO Digital Asset Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the broker-dealer custodian of all digital asset securities offered on tZERO’s online brokerage platform. Digital asset securities may not be “securities” as defined under the Securities Investor Protection Act (SIPA) – and in particular, digital asset securities that are “investment contracts” under the Howey test but are not registered with the Securities and Exchange Commission are excluded from SIPA’s definition of “securities” – and thus the protections afforded to securities customers under SIPA may not apply. More information about tZERO Digital Asset Securities may be found on FINRA’s BrokerCheck.
+ Following the completion of the M/V Exelixsea sale, United Maritime’s fleet will consist of five dry bulk vessels, including two Capesize, one Kamsarmax and two Panamax vessels, with an aggregate cargo carrying capacity of approximately 589,899 dwt, reflecting the Company’s continued strategic shift toward a more Capesize-focused fleet.
 
- About tZERO Securities, LLC
+ Looking out to the remainder of 2026, United Maritime said it expects a constructive outlook for freight rates. “Dry bulk market conditions remain strong, driven by strong growth in all major dry bulk commodities,” said Tsantanis. “With a repositioned fleet, improved earnings and a consistent distribution record, United is well positioned to benefit in this market environment.” To learn more about Seanergy and United Maritime, click here.
 
- tZERO Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the operator of the tZERO Securities ATS. More information about tZERO Securities may be found on FINRA’s BrokerCheck.
+ Featured image courtesy of Seanergy Maritime.
 
- Investor Notice
+ This content was originally published on Benzinga. Read further disclosures here.
 
- Digital asset securities, as well as any particular investment, may not be suitable or appropriate for everyone. Investors should note that investing or trading in securities could involve substantial risks, including no guarantee of returns, costs associated with selling and purchasing, and no assurance of liquidity which could impact their price and investors’ ability to sell, and possible loss of principal invested. There is always the potential of losing money when you invest in securities. There are also unique risks specific to digital asset securities, including, without limitation, fraud, manipulation, theft, and loss.
-
- No Offer, Solicitation, Investment Advice or Recommendations
-
- This release is for informational purposes only and does not constitute an offer to sell, a solicitation to buy, or a recommendation for any security, nor does it constitute an offer to provide investment advisory or other services by tZERO or any of its affiliates, subsidiaries, officers, directors or employees. No reference to any specific security constitutes a recommendation to buy, sell, or hold that security or any other security. Nothing in this release shall be considered a solicitation or offer to buy or sell any security, future, option or other financial instrument or to offer or provide any investment advice or service to any person in any jurisdiction. Nothing contained in this release constitutes investment advice or offers any opinion with respect to the suitability of any security, and the views expressed in this release should not be taken as advice to buy, sell or hold any security. In preparing the information contained in this release, we have not taken into account the investment needs, objectives, and financial circumstances of any particular investor. This information has no regard to the specific investment objectives, financial situation, and particular needs of any specific recipient of this information and investments discussed may not be suitable for all investors. Any views expressed in this release by us were prepared based upon the information available to us at the time such views were written. Changed or additional information could cause such views to change. All information is subject to possible corrections. Information may quickly become unreliable for various reasons, including changes in market conditions or economic circumstances.
-
- Forward-Looking Statements by tZERO
-
- This release contains forward-looking statements. In addition, from time to time, tZERO, its subsidiaries, or its representatives may make forward-looking statements orally or in writing. These forward-looking statements are based on expectations and projections about future events, which is derived from currently available information. Such forward-looking statements relate to future events or future performance, including financial performance and projections; growth in revenue and earnings; and business prospects and opportunities. You can identify forward-looking statements by those that are not historical in nature, particularly those that use terminology such as “may,” “should,” “expects,” “anticipates,” “contemplates,” “estimates,” “believes,” “plans,” “projected,” “predicts,” “potential,” or “hopes” or the negative of these or similar terms. In evaluating these forward-looking statements, you should consider various factors, including, without limitation: the ability of tZERO and its subsidiaries to change the direction; tZERO’s ability to keep pace with new technology and changing market needs; performance of individual transactions; regulatory developments and matters; and competition. These and other factors may cause actual results to differ materially from any forward-looking statement. Forward-looking statements are only predictions. The forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or their respective representatives, may not occur, and actual events and results may differ materially and are subject to risks, uncertainties and assumptions. tZERO, its subsidiaries, and its representatives are not obligated to publicly update or revise any forward-looking statement, whether as a result of uncertainties and assumptions, the forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or its representatives might not occur. This press release is for informational purposes only and does not constitute an offer to sell, a solicitation of an offer to buy, or a recommendation to purchase any security. The securities described herein are subject to qualification by the U.S. Securities and Exchange Commission under Regulation A+ (Tier 2) and have not yet been so qualified. No money or other consideration is being solicited, and if sent in response, will not be accepted. No offer to buy the securities can be accepted and no part of the purchase price can be received until the offering statement is qualified, and any such offer may be withdrawn or revoked, without obligation or commitment of any kind, at any time before notice of its acceptance given after the date of qualification. A person's indication of interest involves no obligation or commitment of any kind.
+ This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/tzero-introduces-its-next-generation-platform-7088257)
+[Original/Source Press Release](https://www.newmediawire.com/news/seanergy-maritime-and-united-maritime-report-q2-results-continue-dividend-track-records-7088261)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tzero-unveils-unified-platform-for-tokenized-securities/e8156356e83ead5ce90648fd6190716d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seanergy-and-united-maritime-report-record-q2-results-boost-dividends/fbea73e8bc4a59697e47166de1117943) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2085350452950860218)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/06/seanergy-and-united-maritime-report-strong-q2-results-continue-dividend-streaks/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/seanergy-and-united-maritime-report-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-payments)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-track-records)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/seanergy-and-united-maritime-report-strong-q2-results-continue-dividend-streaks)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/seanergy-y-united-maritime-reportan-solidos-resultados-del-segundo-trimestre-y-continuan-su-racha-de-dividendos)
+
+Pickup - [https://burstable.news](https://burstable.news/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-payments)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/seanergy-maritime-und-united-maritime-melden-starke-q2-ergebnisse-und-zahlen-weiterhin-dividenden)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/seanergy-maritime-y-united-maritime-reportan-solidos-resultados-del-segundo-trimestre-y-continuan-con-el-pago-de-dividendos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/seanergy-maritime-et-united-maritime-annoncent-de-solides-resultats-au-t2-et-poursuivent-le-versement-de-dividendes)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/seanergy-maritime-e-united-maritime-reportam-fortes-resultados-no-2o-trimestre-e-mantem-pagamentos-de-dividendos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/seanergy-and-united-maritime-post-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/seanergy-maritime-and-united-maritime-report-record-q2-results-continue-dividend-streaks)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/seanergy-maritime-and-united-maritime-report-q2-results-continue-dividend-track-records)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/seanergy-and-united-maritime-post-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-streaks)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-streaks)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/seanergy-and-united-maritime-report-strong-q2-results-continue-dividend-streaks)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/seanergy-maritime-and-united-maritime-report-q2-results-continue-dividend-track-records)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/fbea73e8bc4a59697e47166de1117943)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/seanergy-maritime-and-united-maritime-post-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/seanergy-maritime-and-united-maritime-report-strong-q2-results-continue-dividend-track-records)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/seanergy-maritime-and-united-maritime-report-q2-results-continue-dividend-track-records)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/seanergy-and-united-maritime-beat-expectations-with-strong-q2-results-and-continued-dividends)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/seanergy-and-united-maritime-post-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/seanergy-and-united-maritime-post-strong-q2-results-extend-dividend-streaks)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/seanergy-maritime-reports-record-q2-revenue-and-19th-consecutive-dividend)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/seanergy-maritime-and-united-maritime-report-q2-results-continue/202636738)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/6/maskWjYh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/6/herbb2Iw.webp)
