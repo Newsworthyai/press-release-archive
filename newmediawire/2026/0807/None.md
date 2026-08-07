@@ -1,128 +1,52 @@
-# Thorium Atomics Commences Pre-Application Regulatory Engagement With the U.S. Nuclear Regulatory Commission
+# Wrap Technologies (WRAP) Launches WrapTactics LMS, Completing WrapShield Training Foundation
 
-Following the Company’s Notice of Intent Letter for Pre-Application Regulatory Engagement on the Tesseract TGR Under the 10 CFR Part 53 Framework, the NRC has Assigned a Project Number and a Project Manager to Facilitate the Pre-Application Activities
+LOS ANGELES, CA - August 7, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP) announced the commercial launch of WrapTactics(TM) Learning Management System (“LMS”), completing the training foundation of its WrapShield(TM) six-tier human-centered response architecture. The platform provides digital learning, certification management, immersive virtual reality training, compliance reporting and mobile learning to support deployment of the company’s non-lethal response technologies, including BolaWrap(R) 150. The launch follows the U.S. Bureau of Alcohol, Tobacco, Firearms and Explosives’ 2026 classification of BolaWrap 150 as an instrument of restraint rather than a firearm or weapon, a determination the company said expands procurement opportunities beyond traditional law enforcement markets.
 
- TORONTO, ONTARIO and KNOXVILLE, TENN. - August 7, 2026 (NEWMEDIAWIRE) - Thorium Atomics Inc. today announced that it has commenced pre-application regulatory engagement with the U.S. Nuclear Regulatory Commission (NRC) for its Tesseract TGR advanced reactor, following the company’s submission of a notice of intent letter outlining its planned interactions with NRC staff.
+ Wrap said WrapTactics is designed to create recurring subscription revenue through ongoing certification, curriculum updates and compliance services while supporting expansion into adjacent markets including private security, healthcare, corrections, education and transportation. The company also plans to broaden the platform with AI-assisted training assessment, additional digital certifications, advanced analytics and partner-developed content as it targets federal, defense and international opportunities.
 
- Thorium Atomics submitted the notice of intent letter on June 23, 2026. In response, by letter dated July 24, 2026, the NRC assigned NRC Project No. 99902174 to the Tesseract TGR and designated a project manager in the NRC’s Office of Advanced Reactors to coordinate pre-application activities. The project number provides an administrative and tracking reference for future correspondence, meetings, submissions and staff reviews associated with the company’s pre-application activities. The notice letter is publicly available in the NRC’s Agencywide Documents Access and Management System (ADAMS) under Accession No. ML26189A392. Direct link: https://www.nrc.gov/docs/ML2618/ML26189A392.pdf
+ To view the full press release, visit https://nnw.fm/8oY2Z
 
- Important context. Assignment of a project number is an administrative step. It does not constitute submission or acceptance of a license application and does not represent NRC approval, endorsement or certification of the Tesseract TGR design.
+ About Wrap Technologies, Inc.
 
- Thorium Atomics plans to engage with the NRC under 10 CFR Part 53, the agency’s risk-informed, performance-based and technology-inclusive licensing framework for commercial nuclear power plants. Part 53 became available for use on April 29, 2026. The company is preparing a Regulatory Engagement Plan describing the Tesseract technology, its proposed licensing strategy and the sequence of planned pre-application submissions.
+ Wrap Technologies, Inc., a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
 
- “A project number and an assigned project manager give us a defined NRC point of contact and a trackable reference for our future pre-application work. Part 53 is risk-informed and technology-inclusive, making it well suited to a high-temperature gas-cooled reactor. Commencing that engagement while the design is still being developed serves to ensure that regulatory expectations are clearly understood and addressed, thereby informing the design development process and helping to de-risk the future licensing pathway.”
+ WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
 
- - Dr. Jack Vecchiarelli, Chief Scientific and Regulatory Officer, Thorium Atomics
+ With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
 
- “This is a clear external marker of where our program stands. It comes alongside our application to Idaho National Laboratory’s Nuclear Energy Launch Pad program and our proposed pathway for independent, qualified-code reactor-physics verification at a U.S. national laboratory. We are deliberately building the regulatory, engineering and technical-validation records in parallel.”
+ Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
 
- - Young Hwang, Founder and Chief Executive Officer, Thorium Atomics
+ WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
 
- About the Tesseract TGR
+ As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
 
- The Tesseract TGR (thorium-augmented gas-cooled reactor) is a pebble-bed type of high-temperature reactor rather than a conventional water-cooled design. It uses helium as a reactor coolant and coated-particle TRISO fuel, an architecture in which the advanced safety response is enabled by passive physical phenomena rather than by active systems and high-pressure water infrastructure. The design is in development and has not yet been built, licensed or independently validated.
+ WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
 
- This is a small modular reactor designed for a thermal output of 250 MWth, delivering approximately 100 MWe of firm electricity or industrial process heat at temperatures up to 750 degrees Celsius. Heat at that temperature is difficult to supply with electricity and is currently met almost entirely by combustion.
+ Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
 
- The Tesseract TGR uses uranium TRISO fuel enriched below 10% U-235 as its initial fissile driver. The reactor incorporates a thorium-bearing fertile blanket designed to capture neutrons that would otherwise leave the core and to convert thorium-232 into fissile uranium-233 during operation.
+ The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
 
- This uranium-fueled, thorium-augmented architecture is intended to diversify the nuclear fuel supply chain and improve lifetime uranium utilization while keeping the fuel and licensing pathway grounded in established uranium and TRISO-fuel infrastructure. Current analysis estimates that the architecture could reduce mined-uranium requirements by approximately half per unit of energy relative to a comparable Generation II light-water reactor. That estimate is subject to further engineering, design optimization and independent validation using qualified analysis codes.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About Thorium Atomics
+ The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
 
- Thorium Atomics Inc. is an advanced nuclear reactor developer with offices in Toronto, Ontario, and Knoxville, Tennessee. The company is developing the Tesseract TGR, a uranium-fueled, pebble-bed high-temperature gas-cooled reactor designed to provide firm electricity and high-temperature industrial process heat.
+ Forward Looking Statements
 
- Tesseract augments its uranium fuel cycle with a thorium-bearing fertile blanket intended to improve lifetime uranium utilization by breeding uranium-233 during operation. Thorium Atomics is conducting pre-application activities with the U.S. Nuclear Regulatory Commission and maintaining a parallel regulatory pathway with the Canadian Nuclear Safety Commission.
-
- Further information is available at thoriumatomics.com.
-
- Forward-Looking Statements
-
- This release contains forward-looking information within the meaning of applicable securities laws. Forward-looking information includes statements that are not statements of historical fact and may be identified by words such as “expects,” “anticipates,” “plans,” “estimates,” “believes,” “intends,” “may,” “could,” “would,” “might” or “will,” and similar expressions.
-
- Forward-looking information in this release includes statements concerning the company’s planned regulatory submissions and licensing strategy; the continued design and development of the Tesseract TGR; the company’s proposed engagement with national laboratories and other technical partners; anticipated reactor performance; fuel utilization; construction and deployment strategy; and the timing or outcome of regulatory, engineering and validation activities.
-
- Forward-looking information is based on assumptions that management considers reasonable in light of the information presently available. It is subject to known and unknown risks, uncertainties and other factors that may cause actual events, results or performance to differ materially from those expressed or implied.
-
- These risks and uncertainties include the timing and outcome of regulatory reviews; the availability of capital on acceptable terms; completion and results of engineering, testing and independent validation; future legislative and regulatory developments; availability of nuclear fuel, qualified suppliers and specialized personnel; intellectual-property risks; competition; general economic and market conditions; and other risks affecting the advanced nuclear industry.
-
- Forward-looking statements are made as of the date of this release. Thorium Atomics and its directors, officers and employees undertake no obligation to update forward-looking information as a result of new information, future events or otherwise, except as required by applicable law. There can be no assurance that forward-looking statements will prove accurate, and readers should not place undue reliance on them.
-
- This release does not constitute an offer to sell or the solicitation of an offer to purchase any securities and does not form part of any securities offering. No securities commission or other regulatory authority in Canada, the United States or any other jurisdiction has passed upon the information contained in this release.
-
- Media Contact
-
- Michael ChoThorium Atomics Inc.media@thoriumatomics.com
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/thorium-atomics-commences-pre-application-regulatory-engagement-with-the-u-s-nuclear-regulatory-commission-7088319)
+[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-launches-wraptactics-lms-completing-wrapshield-training-foundation-7088328)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thorium-atomics-begins-nrc-pre-application-for-tesseract-tgr/2a4a9c34eacafc506b52f69e28f89803) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-unveils-wraptactics-lms-to-complete-training-ecosystem/a2c96894c75356e96abdf4d8af4fc55e) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-advanced-reactor/)
-
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://advos.io/en](https://advos.io/en/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-tesseract-tgr)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/thorium-atomics-inicia-la-interaccion-previa-a-la-solicitud-con-la-nrc-para-el-tgr-tesseract)
-
-Pickup - [https://burstable.news](https://burstable.news/news/thorium-atomics-begins-pre-application-engagement-with-us-nuclear-regulatory-commission-for-tesseract-tgr)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/thorium-atomics-beginnt-vorantragsverfahren-mit-der-us-amerikanischen-nuklearaufsichtsbehorde-fur-tesseract-tgr)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/thorium-atomics-inicia-el-compromiso-previo-a-la-solicitud-con-la-comision-reguladora-nuclear-de-ee-uu-para-el-tesseract-tgr)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/thorium-atomics-entame-lengagement-prealable-a-la-demande-avec-la-commission-de-reglementation-nucleaire-des-etats-unis-pour-le-tesseract-tgr)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/thorium-atomics-inicia-engajamento-pre-solicitacao-com-a-comissao-reguladora-nuclear-dos-eua-para-o-tesseract-tgr)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-advanced-reactor)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nuclear-regulator)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr-reactor)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/thorium-atomics-begins-pre-application-regulatory-engagement-with-us-nrc-for-tesseract-tgr)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-advanced-reactor)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/thorium-atomics-begins-nrc-pre-application-engagement-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/thorium-atomics-begins-pre-application-regulatory-engagement-with-us-nrc-for-tesseract-tgr-advanced-reactor)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-tesseract-tgr)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/thorium-atomics-begins-pre-application-regulatory-engagement-with-us-nrc-for-tesseract-tgr)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-advanced-reactor)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/thorium-atomics-begins-pre-application-engagement-with-us-nrc-for-advanced-reactor-design)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/thorium-atomics-begins-pre-application-engagement-with-us-nuclea/202636815)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/2a4a9c34eacafc506b52f69e28f89803)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/7/maskyvoe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/7/chipivQe.webp)

@@ -1,100 +1,54 @@
-# Orlando Studio Wins Silver for Best Orthodontics Two Years Running
+# Sean Garner's Podcast Lands Top 10 on Feedspot's 2026 List
 
-Imagine Orthodontic Studio Earns Back-to-Back Silver in Central Florida Favorites Awards
+Feedspot's 2026 Rankings Place Sean Garner's Small Business Marketing Podcast in Top 10
 
- Orlando, United States - August 7, 2026 / Imagine Orthodontic Studio /
+ Tulsa, United States - August 7, 2026 / Sean Garner Consulting /
 
- Imagine Orthodontic Studio has received the Silver award for Best Orthodontics in the 2026 Central Florida Favorites readers' choice competition, marking the second consecutive year the Orlando practice has earned that distinction after claiming the same Silver honor in 2025.
+ Feedspot has named the Marketing Domination Podcast to its 2026 list of the best small business marketing podcasts, placing the show in the top 10 for digital marketing for small businesses. The ranking comes from Feedspot, a third-party content aggregator that monitors and evaluates podcasts across topic categories, and positions the show among a select group of programs serving small business owners working through the challenges of marketing online.
 
-The Central Florida Favorites program is a readers' choice awards program in which community members cast votes to recognize local businesses across a range of categories. The Best Orthodontics category places Imagine Orthodontic Studio among the most recognized orthodontic providers in the region, as determined directly by the votes of Central Florida residents.
+An Independent Ranking That Reflects the Show's FocusFeedspot assembles its lists by evaluating podcasts on factors that include content relevance, publishing consistency, audience engagement, and overall quality within a given category. A top 10 placement for digital marketing for small businesses on that list represents an earned position - not a paid placement or self-nomination. For a podcast aimed directly at local service-based business owners, the recognition indicates that the content is connecting with both listeners and independent evaluators.
 
-Back-to-Back Community RecognitionEarning Silver in both 2025 and 2026 reflects sustained recognition from the local community rather than a single standout year. Readers' choice programs are driven entirely by public participation, meaning the results represent the preferences of the people who live and work in the Orlando area. Repeating a Silver finish in consecutive cycles signals that the practice has maintained a consistent presence and reputation within the community it serves.
+The Marketing Domination Podcast is hosted by Sean Garner, a Certified StoryBrand Guide, marketing agency owner, and small business owner. That combination shapes the show's approach, which centers on practical, applicable marketing guidance rather than abstract theory. Garner addresses topics including SEO and local search, website design and conversion, sales funnels, StoryBrand messaging, and Google Business Profile optimization - the specific areas where many local service businesses find it difficult to gain traction.
 
-The Orlando location of Imagine Orthodontic Studio provides orthodontic care to children, teenagers, and adults, covering a broad range of patients across different age groups and treatment needs. The practice operates as a dedicated orthodontist in Orlando, FL, focusing specifically on orthodontic treatment rather than general dentistry.
+Built for Small Business Owners Who Want Consistent ResultsThe central theme running through the small business marketing podcast is that marketing should be simple, scalable, and produce consistent results. That perspective shapes how each episode is structured. Rather than framing marketing as a complex or overwhelming discipline, Garner breaks down strategies that small business owners can act on without a large team or an enterprise-level budget.
 
-Treatment Options Available at the Orlando PracticePatients seeking braces in Orlando, FL will find traditional orthodontic treatment among the services offered at the studio. The practice also provides Angel Aligners in Orlando, FL, giving patients and their families the ability to discuss multiple treatment pathways during a consultation.
+Episodes include both solo instruction and interviews with industry practitioners covering SEO, paid advertising, conversion optimization, and digital strategy. For a local plumber, landscaper, contractor, or any other service-based business working to get found online and turn that traffic into paying customers, the show addresses the marketing stack in concrete, actionable terms.
 
-The availability of both braces and clear aligner systems means the Orlando team works with patients whose clinical situations and personal preferences vary. Angel Aligners use a series of removable, transparent trays, while braces involve fixed brackets and wires; two distinct approaches that an orthodontist evaluates based on individual patient needs.
+StoryBrand Expertise at the CoreGarner's credential as a Certified StoryBrand Guide shapes much of the messaging and positioning work discussed on the show. The StoryBrand framework is a structured approach to clarifying a business's message so that potential customers immediately understand what the business does and why it matters to them. When applied to websites, sales funnels, and advertising, that clarity can produce measurable improvements in lead generation and conversion - outcomes that carry significant weight for small businesses operating with limited time and tight margins.
 
-Scheduling a ConsultationNew patients interested in orthodontic care for themselves or a family member can contact Imagine Orthodontic Studio directly to book an initial consultation. The practice serves children, teens, and adults from the Orlando area, and appointments can be arranged through the studio's website or by phone.
+The marketing domination podcast treats that kind of messaging work as foundational rather than optional. Garner's position is that strong SEO rankings and a well-optimized Google Business Profile lose much of their value if the website copy fails to communicate clearly - because those visitors are unlikely to convert. The show consistently connects those components into a cohesive strategy rather than presenting each tactic as a standalone effort.
 
-About Imagine Orthodontic StudioImagine Orthodontic Studio is an orthodontic practice located in Orlando, Lakeland, Tampa, and more, providing care for children, teenagers, and adults. The practice offers braces and Angel Aligner treatments to patients throughout the Central Florida area. The studio has earned Silver in the Best Orthodontics category of the Central Florida Favorites readers' choice awards in both 2025 and 2026.
+Where to ListenThe Marketing Domination Podcast is available on Spotify, YouTube, and Apple Podcasts, as well as directly at seangarner.co/podcast. New episodes are released on a regular schedule for local service business owners seeking straightforward marketing guidance from a host who operates within the same business environment as his audience.
 
-Learn more at Imagine Orthodontic Studio
+"Getting recognized by Feedspot as a top 10 show for digital marketing for small businesses is a reflection of the small business owners who tune in and apply what they hear," said Sean Garner, host of the Marketing Domination Podcast. "The goal has always been to give real, practical strategies that help local service businesses get seen online and dominate their market - this ranking tells me that message is landing."
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/IdLe3XDW1fLtgEZruztcrjoWdcd9ZUYFtd5cGM6m.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/BmQM6my9hMaYepOCuQEkcvcY2AHxVzYv8RJkzKh3.jpg) [](https://imagineorthostudio.com) Contact Information:
+About Marketing Domination PodcastThe Marketing Domination Podcast is hosted by Sean Garner, a Certified StoryBrand Guide, marketing agency owner, and small business owner. The show covers SEO and local search, website design and conversion, sales funnels, StoryBrand messaging, and Google Business Profile strategies for local service-based small business owners. It is available on Spotify, YouTube, Apple Podcasts, and at seangarner.co/podcast.
 
- Imagine Orthodontic Studio
+Learn more at Sean Garner Consulting
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/BngQUebMqjajluu5PKPsslYP47GPnw4ENNnoCVxH.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/evKXqofSs78gQFp7yEOrTSZx3uQOcalkmsU5kW8u.jpg) [](https://www.seangarner.co) Contact Information:
+
+ Sean Garner Consulting
 
  
 
-1411 W Sand Lake Rd.  Orlando, FL 32809United States
+5801 E 41st St, Suite 801  Tulsa, OK 74135United States
 
- Dr. Christman 18334672778 https://imagineorthostudio.com 
+ Sean Garner +1-918-212-5759 https://www.seangarner.co 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/orlando-studio-wins-silver-for-best-orthodontics-two-years-running-443257)
+[Original/Source Press Release](https://mediawiretoday.com/sean-garners-podcast-lands-top-10-on-feedspots-2026-list-443335)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/imagine-orthodontic-studio-wins-silver-again-in-2026-central-florida-favorites/afe290a66e60c0360f7c4f542123fff3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marketing-domination-podcast-ranked-top-10-by-feedspot/fdf93281d3f8144fab0d194044a1ad70) 
 
 
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/imagine-orthodontic-studio-earns-silver-in-central-florida-favorites-for-second-year)
-
-Pickup - [https://advos.io/en](https://advos.io/en/imagine-orthodontic-studio-wins-silver-for-best-orthodontics-two-years-running)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/imagine-orthodontic-studio-wins-silver-for-best-orthodontics-in-central-florida-for-second-consecutive-year)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites)
-
-Pickup - [https://burstable.news](https://burstable.news/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/imagine-orthodontic-studio-sichert-sich-zum-zweiten-mal-in-folge-silber-bei-central-florida-favorites)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/imagine-orthodontic-studio-obtiene-su-segundo-silver-consecutivo-en-central-florida-favorites)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/imagine-orthodontic-studio-remporte-une-deuxieme-argent-consecutive-dans-les-favoris-de-floride-centrale)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/imagine-orthodontic-studio-conquista-segundo-prata-consecutivo-no-central-florida-favorites)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/imagine-orthodontic-studio-wins-silver-for-best-orthodontics-in-central-florida-favorites-for-second-consecutive-year)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/imagine-orthodontic-studio-wins-silver-for-best-orthodontics-in-central-florida-for-second-consecutive-year)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/imagine-orthodontic-studio-secures-second-consecutive-silver-in-central-florida-favorites-awards)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/imagine-orthodontic-studio-secures-second-consecutive-silver-in/202636818)
-
-Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/afe290a66e60c0360f7c4f542123fff3)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/imagine-orthodontic-studio-wins-second-consecutive-silver-in-central-florida-favorites-awards/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/sean-garners-marketing-domination-podcast-earns-top-10-spot-in-feedspots-2026-rankings/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/7/ruby5FHv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/7/mielbzWn.webp)
