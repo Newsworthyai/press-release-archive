@@ -1,94 +1,50 @@
-# TNT Explains What Makes High-Quality Creatine
+# ClimateDoor Acquires Standard Demand Partners, Expanding Into the United States
 
-Creatine has become one of the most widely recognized sports nutrition ingredients, with growing interest extending beyond competitive athletes to everyday fitness enthusiasts and active adults. But while creatine products may appear similar on store shelves, True Nutrition Technology (TNT) says important differences in manufacturing quality, ingredient sourcing, and purity can influence the overall consumer experience.
+ClimateDoor, a growth partner for energy, agriculture and critical resource companies, has acquired the New York capital advisory firm Standard Demand Partners in its first acquisition and its expansion into the United States.
 
- Creatine monohydrate is one of the most extensively studied ingredients in sports nutrition, and consumers often focus on dosage while overlooking how the ingredient itself is produced. According to TNT, understanding quality standards can help consumers make more informed purchasing decisions.
+ This acquisition marks ClimateDoor’s largest expansion to date, cementing its transition from a Vancouver commercialization practice into a global firm supporting energy, agriculture, and resource companies across six continents. Operating with regional teams in Singapore, Europe, Brazil, and Kenya, ClimateDoor also leads European market entry initiatives and First Nations co-development through its sister organization, Unify Partners.
 
- "Consumers are becoming more knowledgeable about what goes into the products they use," said Markus Himmelstoss, Managing Director of True Nutrition Technology. "Creatine may be a simple ingredient, but the manufacturing process, raw material quality, and purity standards all contribute to delivering a premium product."
+ Why the two firms combined The thesis behind the deal is one ClimateDoor has held since it was founded: companies in these sectors rarely stall just on technology. They stall on commercialization and capital, the same problem at different stages. ClimateDoor has focused on the earlier end, embedding inside companies to build the commercial evidence that makes them fundable and raising grants and venture-stage investment against it. Standard Demand Partners brings the later end: project finance and institutional capital. The merged entity now offers a comprehensive end-to-end solution.
 
- One of the most recognized benchmarks for creatine quality is Creapure®, a branded form of creatine monohydrate manufactured in Germany under strict production and quality standards. Creapure® is known for its high purity and consistent manufacturing processes, making it a preferred choice for many athletes and sports nutrition brands worldwide.
+ "A founder who arrives at ClimateDoor at the seed stage can now stay with one partner through a later raise and into project finance, without rebuilding capital relationships at every stage" said Chad Rickaby, CEO of ClimateDoor. "That continuity is the point. Wherever a company is based, the capital it needs is rarely in the same place, and our job is to close that distance."
 
- Beyond the ingredient itself, TNT encourages consumers to look for manufacturers that emphasize quality assurance, transparent sourcing, and consistent production practices. These factors can help ensure that each serving delivers the same level of quality from one batch to the next.
+ Why Standard Demand Partners Co-founders Conor Wilmot and Liam Howe built Standard Demand Partners into a capital advisory that has supported more than 50 companies and holds relationships with over 750 institutional investors across project finance and growth equity. What made the firm the right fit was not the pipeline alone. It was how they work.
 
- TNT's own Creapure® Creatine Monohydrate reflects the company's broader commitment to premium sports nutrition. Manufactured in Germany, the product contains 99.99% pure Creapure® creatine monohydrate and is suitable for athletes, fitness enthusiasts, and anyone seeking a high-quality creatine option as part of an active lifestyle.
+ "Conor and Liam built a serious capital practice in a remarkably short time, and they built it the way we would have. Inside the business, doing the commercial work, not sitting above it," said Nick Findler, Co-founder of ClimateDoor. "Bringing that quality of capital access to our clients around the world was not an opportunity we were going to pass up."
 
- "At TNT, quality begins long before a product reaches the shelf," Himmelstoss said. "We believe consumers deserve transparency about what they're buying, and that starts with selecting premium ingredients and maintaining rigorous manufacturing standards."
+ "We spent four months getting to know this team and kept arriving at the same conclusion," said Conor Wilmot, Partner at ClimateDoor and co-founder of Standard Demand Partners. "They think about companies the way we do, from inside the business rather than across a table from it. Our clients need what both firms do, and now they can get it from one team."
 
- TNT continues to expand its presence in the United States, offering consumers access to German-engineered sports nutrition products that emphasize ingredient quality, formulation, and manufacturing excellence. In addition to Creapure® Creatine Monohydrate, the company's growing U.S. portfolio includes CLEAR WHEY protein isolate and Synapse Rush pre-workout, with additional products planned for future release.
+ Wilmot and Howe join ClimateDoor's partner team. Standard Demand Partners is retiring as a brand, and the two firms will now operate as one company. The combined team makes its first public appearance at New York Climate Week in September, where ClimateDoor will host an evening event for founders and investors.
 
- American consumers can already purchase TNT Creapure® Creatine Monohydrate, and TNT Synapsensause “Wild Berry” Pre-Workout Booster, through both Amazon and OneLavi. TNT Clear Whey Protein Isolate is also available on OneLavi.
+ Core Capabilities of the Combined Firm * ClimateDoor: Embedded commercial operators closing the gap from first pilot to first paying customer. Specializing in business development, strategic partnerships, capital raising, government relations, non-dilutive funding, market entry, and First Nations co-development.
+* Standard Demand Partners: Project finance, institutional capital raising, and the later-stage relationships that get infrastructure built.
 
- * TNT Creapure® Creatine Monohydrate Powder on Amazon
-* TNT Creapure® Creatine Monohydrate Powder on OneLavi
-* TNT Synapsensause "Wild Berry" Pre-Workout Booster on Amazon
-* TNT Synapsensause "Wild Berry" Pre-Workout Booster on OneLavi
-* TNT Clear Whey Protein Isolate - Peach Iced Tea on OneLavi
+ Key Client Benefits * One partner across the full capital path: ClimateDoor provides a single continuous relationship from early pilots to project finance, eliminating the need to rebuild investor relationships at each growth stage.
+* Commercial and capital work under one roof: ClimateDoor builds the exact revenue, offtake, and partnership evidence required for fundability while simultaneously raising capital against those milestones.
+* Global institutional reach: ClimateDoor provides access to over 750 investor relationshipsinvestor relationships across project finance and growth equity, supporting companies in North America, Europe, Latin America, Africa and Asia-Pacific.
 
- About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
+ The combined firm at close * Over 150 companies supported across energy, agriculture and critical resources
+* Over $600 million in capital facilitated across grants, venture and growth equity
+* More than 750 institutional investor relationships
+* Offices in Vancouver and New York
+* Dedicated teams in Singapore, Europe, Brazil and Kenya
+* Proprietary AI technology built to support clients’ capital, grants, and sales growth
 
- TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
+ About ClimateDoor ClimateDoor is a growth partner for energy, agriculture and critical resource companies. The firm embeds as an extension of the commercial team to drive customers, capital and market entry. Headquartered in Vancouver with an office in New York, ClimateDoor has supported more than 150 businesses across North America, Europe, Latin America, Africa and the Asia-Pacific region. Learn more at climatedoor.com.
 
- From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
-
- FDA Disclaimer
-
- These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ About Standard Demand Partners Standard Demand Partners is a New York capital advisory for the energy transition, working across renewables, infrastructure and cleantech. The firm has supported more than 50 companies and facilitated over $600 million in capital commitments across project finance and early to growth stage equity. Following the acquisition, its work continues within ClimateDoor. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608072724/tnt-explains-what-makes-high-quality-creatine)
+[Original/Source Press Release](https://newsworthy.ai/news/202608072727/climatedoor-acquires-standard-demand-partners-expanding-into-the-united-states)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tnt-highlights-quality-in-creatine-supplements/c78ea5916b454bf1e1341d255f72f73c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/climatedoor-acquires-standard-demand-partners-to-expand-global-reach/5a76e67490ddeafeffdc4c59a960191f) 
 
-
-Pickup - [https://burstable.news](https://burstable.news/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/tnt-hebt-schlusselfaktoren-bei-der-herstellung-von-hochwertigem-kreatin-hervor)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tnt-destaca-factores-clave-en-la-produccion-de-creatina-de-alta-calidad)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tnt-met-en-lumiere-les-facteurs-cles-de-la-production-de-creatine-de-haute-qualite)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/tnt-destaca-fatores-chave-na-producao-de-creatina-de-alta-qualidade)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/understanding-creatine-quality-tnt-highlights-key-factors-behind-premium-supplements)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/tnt-highlights-quality-standards-in-creatine-manufacturing)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/tnt-highlights-key-quality-factors-in-creatine-supplements)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/tnt-highlights-key-factors-behind-high-quality-creatine-supplements)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/tnt-highlights-key-factors-defining-high-quality-creatine-for-consumers)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/tnt-highlights-key-factors-behind-high-quality-creatine-supplements)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/tnt-highlights-key-factors-in-high-quality-creatine-production)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/tnt-highlights-key-factors-behind-high-quality-creatine-and-its-impact-on-consumer-choices)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tnt-highlights-quality-standards-in-creatine-manufacturing/202636814)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tnt-explains-what-makes-high-quality-creatine)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tnt-explains-what-makes-high-quality-creatine)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/tnt-highlights-quality-standards-in-creatine-supplements-as-consumer-demand-grows/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/7/glued9Cr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/7/bakeCYrh.webp)
