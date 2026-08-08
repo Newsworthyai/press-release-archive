@@ -1,54 +1,104 @@
-# Sean Garner's Podcast Lands Top 10 on Feedspot's 2026 List
+# Behl-Sponsored Robotics Team 122 Wins First Blue Banner in Eight Years
 
-Feedspot's 2026 Rankings Place Sean Garner's Small Business Marketing Podcast in Top 10
+Sponsored by Behl Orthodontics, FRC Team 122 Clinches Championship Season Title
 
- Tulsa, United States - August 7, 2026 / Sean Garner Consulting /
+ Virginia Beach, United States - August 7, 2026 / Behl Orthodontics /
 
- Feedspot has named the Marketing Domination Podcast to its 2026 list of the best small business marketing podcasts, placing the show in the top 10 for digital marketing for small businesses. The ranking comes from Feedspot, a third-party content aggregator that monitors and evaluates podcasts across topic categories, and positions the show among a select group of programs serving small business owners working through the challenges of marketing online.
+ Behl Orthodontics Celebrates Championship Season with Sponsored Robotics Team, FRC Team 122 “NASA Knights”CHESAPEAKE, Va. — Behl Orthodontics is celebrating a landmark season for FRC Team 122, the NASA Knights, the Hampton Roads student robotics team the practice has sponsored throughout the 2026 competition year. The team’s 2026 robot, Moon Knight, carried the Knights to their best finish in nearly a decade, culminating in their first blue banner win in eight years at the Chesapeake VA District Event.
 
-An Independent Ranking That Reflects the Show's FocusFeedspot assembles its lists by evaluating podcasts on factors that include content relevance, publishing consistency, audience engagement, and overall quality within a given category. A top 10 placement for digital marketing for small businesses on that list represents an earned position - not a paid placement or self-nomination. For a podcast aimed directly at local service-based business owners, the recognition indicates that the content is connecting with both listeners and independent evaluators.
+“Congratulations again to the whole team — what a season,” said Dr. Yugal Behl, DDS, DSc, lead orthodontist and owner of Behl Orthodontics. “Winning the Chesapeake District Event for their first blue banner in eight years, on top of the Team Spirit Award and a District Championship run, is a tremendous accomplishment. We’re proud to be in their corner, and we’re already looking forward to helping spread the word about their summer camps and Rumble 11 to families across Hampton Roads.”
 
-The Marketing Domination Podcast is hosted by Sean Garner, a Certified StoryBrand Guide, marketing agency owner, and small business owner. That combination shapes the show's approach, which centers on practical, applicable marketing guidance rather than abstract theory. Garner addresses topics including SEO and local search, website design and conversion, sales funnels, StoryBrand messaging, and Google Business Profile optimization - the specific areas where many local service businesses find it difficult to gain traction.
+Team 122 competed in 48 matches this season, finishing with a 25-23-0 record and a #24 ranking out of 118 teams in its region. The Knights’ win at the Chesapeake VA District Event, held at Hickory High School, was earned through strong robot design and teamwork — the program’s first district championship banner in eight years. The team also received the Team Spirit Award for its enthusiasm and partnership, and went on to qualify for the District Championship, where it competed against the region’s top programs and advanced to district playoffs.
 
-Built for Small Business Owners Who Want Consistent ResultsThe central theme running through the small business marketing podcast is that marketing should be simple, scalable, and produce consistent results. That perspective shapes how each episode is structured. Rather than framing marketing as a complex or overwhelming discipline, Garner breaks down strategies that small business owners can act on without a large team or an enterprise-level budget.
+FIRST Robotics Competition (FRC) pairs high school students with adult mentors to design, build, and program a competition robot in a six-week build season, then compete head-to-head at regional and district events. For Team 122, the season was as much about skill-building as it was about winning matches. Students on the NASA Knights gained hands-on experience in CAD design, mechanical fabrication, C++ programming, and electrical engineering, alongside the problem-solving, communication, and teamwork skills that come with high-level competition.
 
-Episodes include both solo instruction and interviews with industry practitioners covering SEO, paid advertising, conversion optimization, and digital strategy. For a local plumber, landscaper, contractor, or any other service-based business working to get found online and turn that traffic into paying customers, the show addresses the marketing stack in concrete, actionable terms.
+“Your support did more than just provide robot parts,” the team wrote in a note to Behl Orthodontics following the season. “It helped our students learn skills like CAD design, mechanical fabrication, C++ programming and electrical engineering. We displayed your logo at events and online, reaching thousands of people.”
 
-StoryBrand Expertise at the CoreGarner's credential as a Certified StoryBrand Guide shapes much of the messaging and positioning work discussed on the show. The StoryBrand framework is a structured approach to clarifying a business's message so that potential customers immediately understand what the business does and why it matters to them. When applied to websites, sales funnels, and advertising, that clarity can produce measurable improvements in lead generation and conversion - outcomes that carry significant weight for small businesses operating with limited time and tight margins.
+Behl Orthodontics’ sponsorship also helped extend the team’s reach into the community. The NASA Knights’ logo and outreach appeared throughout the season at competitions and online, and the team is now channeling that momentum into two weeks of summer youth camps designed to introduce the next generation of students to engineering and robotics. This year’s camps are already at full capacity.
 
-The marketing domination podcast treats that kind of messaging work as foundational rather than optional. Garner's position is that strong SEO rankings and a well-optimized Google Business Profile lose much of their value if the website copy fails to communicate clearly - because those visitors are unlikely to convert. The show consistently connects those components into a cohesive strategy rather than presenting each tactic as a standalone effort.
+“We are thrilled to have Dr. Behl share our season highlights and photos,” the team said. “Behl Ortho has a prominent logo on the front of our community shirts, and will be featured in our summer camps for camper shirts, with the practice’s logo displayed at each outreach event.”
 
-Where to ListenThe Marketing Domination Podcast is available on Spotify, YouTube, and Apple Podcasts, as well as directly at seangarner.co/podcast. New episodes are released on a regular schedule for local service business owners seeking straightforward marketing guidance from a host who operates within the same business environment as his audience.
+Looking ahead, the NASA Knights aren’t slowing down. The team competed at the RoboJawn Invitational in Philadelphia on July 11-12, and will co-host Rumble 11 at Deep Run High School on October 24-25, alongside continued off-season training, community outreach, and preparation for the 2027 season. Behl Orthodontics plans to continue its partnership with the team into next season.
 
-"Getting recognized by Feedspot as a top 10 show for digital marketing for small businesses is a reflection of the small business owners who tune in and apply what they hear," said Sean Garner, host of the Marketing Domination Podcast. "The goal has always been to give real, practical strategies that help local service businesses get seen online and dominate their market - this ranking tells me that message is landing."
+Fans and community members can follow Team 122’s season, including its winning playoff match, at Team122.org and on The Blue Alliance at thebluealliance.com/team/122/2026.
 
-About Marketing Domination PodcastThe Marketing Domination Podcast is hosted by Sean Garner, a Certified StoryBrand Guide, marketing agency owner, and small business owner. The show covers SEO and local search, website design and conversion, sales funnels, StoryBrand messaging, and Google Business Profile strategies for local service-based small business owners. It is available on Spotify, YouTube, Apple Podcasts, and at seangarner.co/podcast.
+About Behl OrthodonticsBehl Orthodontics, led by Dr. Yugal Behl, DDS, DSc, provides orthodontic care to patients across Hampton Roads, Virginia — including its Virginia Beach and Hampton orthodontic offices — with a commitment to giving back to the students and families of the communities it serves. The practice has proudly sponsored FRC Team 122, the NASA Knights, throughout the 2026 season.
 
-Learn more at Sean Garner Consulting
+About FRC Team 122, the NASA KnightsFRC Team 122, the NASA Knights, is a FIRST Robotics Competition team built on the motto “Ignite. Inspire. Impact.” The team brings together student engineers, programmers, and designers under the mentorship of adult volunteers to compete nationally while giving back through youth outreach, summer camps, and community events. Learn more at Team122.org.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/BngQUebMqjajluu5PKPsslYP47GPnw4ENNnoCVxH.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/evKXqofSs78gQFp7yEOrTSZx3uQOcalkmsU5kW8u.jpg) [](https://www.seangarner.co) Contact Information:
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/761qCSpmkMcE3farOV17O362f8g0lyOo1M5oirlu.jpg) [](https://behlorthodontics.com) Contact Information:
 
- Sean Garner Consulting
+ Behl Orthodontics
 
  
 
-5801 E 41st St, Suite 801  Tulsa, OK 74135United States
+2033 Fisher Arch #100  Virginia Beach, VA 23456United States
 
- Sean Garner +1-918-212-5759 https://www.seangarner.co 
+ Yugal Behl +1 (757) 654-5372 https://behlorthodontics.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/sean-garners-podcast-lands-top-10-on-feedspots-2026-list-443335)
+[Original/Source Press Release](https://mediawiretoday.com/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years-443354)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/marketing-domination-podcast-ranked-top-10-by-feedspot/fdf93281d3f8144fab0d194044a1ad70) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/behl-orthodontics-cheers-frc-team-122-s-championship-win/b2a693410ba750980e2c0440e0972f93) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/sean-garners-marketing-domination-podcast-earns-top-10-spot-in-feedspots-2026-rankings/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/07/behl-orthodontics-sponsored-frc-team-122-claims-first-blue-banner-in-eight-years/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://news.arlingtoncountystar.com/northern-va-news](https://news.arlingtoncountystar.com/northern-va-news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://burstable.news](https://burstable.news/news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/von-behl-orthodontics-gesponsertes-robotik-team-122-gewinnt-nach-acht-jahren-wieder-ein-blaues-banner)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-equipo-de-robotica-122-patrocinado-por-behl-orthodontics-gana-su-primer-banner-azul-en-ocho-anos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lequipe-de-robotique-122-sponsorisee-par-behl-orthodontics-remporte-sa-premiere-banniere-bleue-en-huit-ans)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/equipe-de-robotica-122-patrocinada-pela-behl-orthodontics-conquista-primeira-faixa-azul-em-oito-anos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/behl-orthodontics-sponsored-frc-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://news.districtofcolumbia.com/curated](https://news.districtofcolumbia.com/curated/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/behl-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/behl-orthodontics-sponsors-frc-team-122-to-first-blue-banner-in-eight-years)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/behl-orthodontics-sponsors-frc-team-122-to-first-blue-banner-in-eight-years)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/behl-orthodontics-sponsors-frc-team-122-to-first-blue-banner-in-eight-years)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-banner-in-eight-years)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/behl-orthodontics-sponsored-robotics-team-122-wins-first-blue-ba/202636856)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/b2a693410ba750980e2c0440e0972f93)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/7/mielbzWn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/7/dash16VH.webp)
