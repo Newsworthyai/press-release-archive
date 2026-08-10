@@ -1,92 +1,48 @@
-# National Fitness Lights Up the "Dual Olympic City": The 17th Beijing Sports Games Open
+# Photo Feature: Global Media Explore Hainan Free Trade Port, Unlocking the New Vitality of the "Ocean Economy"
 
-BEIJING, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 10 August 2026 – On August 8, China's 18th National Fitness Day, the opening ceremony of the 17th Beijing Sports Games was held at the National Indoor Stadium, with many champion athletes on hand to lend support.    The city is the arena, and its citizens are the athletes. This edition of the Games balances competitive and mass participation events, featuring both traditional disciplines like athletics and swimming, and emerging sports such as pickleball and breakdancing. Some events have already concluded or are currently underway, with all competitions running through October this year. This city‑wide sports extravaganza is expected to attract around 35,000 participants, including teenagers, college students, and the general public, setting new records in both the number of participants and events.   In recent years, Beijing has continuously integrated sports development into the fabric of the city. According to data from the Beijing Municipal Sports Bureau, the city has 3.27 square metres of sports venue space per capita, and 53.1% of its population regularly participates in physical exercise. Sports and fitness have become a new way of life in Beijing, the "Dual Olympic City." Yin Shen, a 20‑year‑old football enthusiast, told reporters after watching the ceremony that he found the mass participation content more relatable than purely competitive events. "It's great to see so many sports that ordinary people usually play. Sports are actually all around us," Yin said.   At the opening ceremony, 14 champion athletes trained in Beijing—Ma Long, Zhang Yining, Ding Ning, Wang Chuqin, Xiao Ruoteng, Teng Haibin, Li Na, Cao Yuan, Zhang Jiaqi, Chang Hao, Yang Ling, Liu Xiaotong, Zhang Zesen, and Zhang Ruiyang—were present to inspire more people to take up sports. Zhang Yining said, "I am especially grateful to Beijing, where I realised my dreams. I also hope that more children who love sports will hold on to their dreams. Beijing is a place where dreams come true."  Hashtag: #Beijing #DualOlympicCity #NationalFitnessDayThe issuer is solely responsible for the content of this announcement.
+HAIKOU, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 10 August 2026 – A delegation of journalists from nine major overseas media outlets, including the United States, France, Türkiye, Spain, and the Republic of Korea, recently visited China's Hainan Province for an in-depth tour across multiple cities including Haikou, Wanning, Lingshui, and Sanya. The mission was to investigate the region's marine cultural tourism, ecological conservation efforts, and innovative consumer models, and to witness firsthand the renewed dynamism of Hainan's "ocean economy."    As the first full year following the island-wide special customs operations of the Hainan Free Trade Port (FTP), 2026 has been designated the "Marine Tourism Year," with a strategic focus on ocean-themed cultural travel. Leveraging policy dividends such as visa-free access for citizens of 86 countries, expanded traffic rights, and offshore duty-free shopping, Hainan has consistently enhanced its openness to the world, fueling a surge in cultural tourism demand. In the first half of this year alone, the island recorded over 1 million inbound visits, a year-on-year increase of 48.8%, underscoring the robust growth momentum of the FTP's tourism sector.   In Wanning's Riyue Bay, the international media group experienced firsthand the rapid expansion of Hainan's coastal sports industry. Renowned as a world-class surfing destination, the bay receives more than 500,000 visits annually, drawing travelers from as far as Australia and Southeast Asia. A major highlight was the nation's first Olympic-standard artificial surf pool, which employs advanced wave-making technology to simulate 23 different wave types, enabling year-round, all-weather surfing regardless of natural conditions. Mr. Guney Isik Ganimgil, a contributor to Turkey's Aydınlık newspaper, remarked that Hainan's cultural tourism development has far exceeded expectations and holds tremendous investment potential.   Eco-empowered tourism and the protection of blue bays are the defining hallmarks of Hainan's development. The Hainan Ocean Paradise Resort adheres strictly to a policy against capturing wild marine life; its rescue center has successfully rehabilitated and released over 200 rare marine creatures, including sea turtles and hawksbills, back into the wild. Meanwhile, Wuzhizhou Island has pioneered an innovative model of eco-tourism, partnering with universities to develop a tropical marine ranch. Through the strategic deployment of artificial reefs and the transplantation of tens of thousands of coral colonies, the island now offers visitors the opportunity to participate in coral transplantation—a hands-on experience that fosters a virtuous cycle between ecological conservation and tourism engagement, earning high praise from the attending media.   Deepening the integration of culture and tourism has also revitalized Hainan's traditional maritime heritage. The Danjia fishing rafts continue to enrich their authentic marine-ethnic cultural offerings, continuously diversifying their "product portfolio". Tianya Town, built around a century-old fishing village, has evolved into a coastal leisure landmark, now home to nearly a hundred boutique homestays and specialty cafés. The Sanya International Duty-Free Shopping Complex, housing over 1,000 international brands, has introduced cutting-edge "duty-free + technology" consumption scenarios. And the Sanya Yacht Tourism Center, with a complete industrial chain, recorded over 220,000 yacht outings in 2025, cementing its status as a premier destination for high-end coastal tourism.   After four days of in-depth exploration, the media delegation witnessed a Hainan that is open, green, and vibrantly dynamic. Today's Hainan FTP has transcended the traditional model of seaside tourism, with policy as its backbone, ecology as its canvas, and culture as its soul. By continually energizing the blue economy, Hainan is presenting a compelling new vision of high-quality development to the world.  Hashtag: #HainanFreeTradePortThe issuer is solely responsible for the content of this announcement.
 
-![](//track.media-outreach.com/index.php/WebView/480244/279561) 
+![](//track.media-outreach.com/index.php/WebView/480265/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/08/10/480244/)
+[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/08/10/480265/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beijing-sports-games-open-with-record-participation-and-champion-athletes/844a07f0255f103dcc12e756d29c6be7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hainan-s-ocean-economy-surges-media-delegation-sees-marine-tourism-boom-and-eco-innovations/0745a34c87c9fb3c8b1133f932418e04) 
 
 
-Pickup - [https://news.adshealthcare.us/healthcare-news](https://news.adshealthcare.us/healthcare-news/beijing-sports-games-set-records-as-city-embraces-fitness-for-all)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://advos.io/en](https://advos.io/en/beijing-sports-games-open-with-record-participation-spotlight-on-national-fitness)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/17th-beijing-sports-games-opens-celebrating-national-fitness-in-the-dual-olympic-city)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-and-the-dual-olympic-city-legacy)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://burstable.news](https://burstable.news/news/beijing-opens-17th-sports-games-celebrating-national-fitness-day-with-record-participation)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/peking-eroffnet-die-17-sportspiele-und-feiert-den-nationalen-fitnesstag-mit-rekordbeteiligung)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/beijing-inaugura-los-17o-juegos-deportivos-celebrando-el-dia-nacional-de-la-aptitud-fisica-con-participacion-record)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/photo-feature-global-media-explore-hainan-free-trade-port-unlocking-the-new-vitality-of-the-ocean-economy)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pekin-ouvre-les-17e-jeux-sportifs-celebrant-la-journee-nationale-du-fitness-avec-une-participation-record)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pequim-abre-os-17o-jogos-esportivos-celebrando-o-dia-nacional-do-fitness-com-participacao-recorde)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/beijings-17th-sports-games-open-on-national-fitness-day-showcasing-the-dual-olympic-city-spirit)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-with-record-participation)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-and-the-dual-olympic-city-legacy)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-with-record-participation)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/beijings-17th-sports-games-a-milestone-for-national-fitness-and-the-dual-olympic-city)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/beijings-17th-sports-games-kick-off-celebrating-national-fitness-day-and-the-dual-olympic-city-legacy)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/beijings-17th-sports-games-kick-off-promoting-fitness-in-the-dual-olympic-city)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-and-the-dual-olympic-city-legacy)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/beijing-kicks-off-17th-sports-games-blending-elite-and-mass-participation)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/17th-beijing-sports-games-open-celebrating-national-fitness-day-in-chinas-dual-olympic-city)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/beijings-17th-sports-games-open-with-record-participation-highlighting-national-fitness-drive)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/beijings-17th-sports-games-open-showcasing-national-fitness-and-olympic-legacy)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/beijing-kicks-off-17th-sports-games-celebrating-national-fitness-day-with-record-participation)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/beijing-kicks-off-17th-sports-games-champion-athletes-rally-for-national-fitness-day)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beijing-kicks-off-17th-sports-games-celebrating-national-fitness/202636890)
-
-Pickup - [https://www.threads.net](https://www.threads.com/@newsramp_alerts/post/Db228nSjiHl)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/10/beijing-launches-17th-sports-games-celebrating-national-fitness-day-with-record-participation/)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/national-fitness-lights-up-the-dual-olympic-city-the-17th-beijing-sports-games-open)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/10/global-media-tour-highlights-hainans-booming-ocean-economy/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/10/herbjf9f.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/10/icy_YuL.webp)
