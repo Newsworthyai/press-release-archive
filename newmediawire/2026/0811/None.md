@@ -1,104 +1,64 @@
-# Andina Copper Reports Another Outstanding Drill Intercept, Further Expands Mineralized Footprint
+# Prime Ledger Expands Leadership Team With Appointment of Lesley O'Neill and Ankur Rakshit, Names Chuck Thompson to Board of Directors
 
-VANCOUVER, BC - August 11, 2026 (NEWMEDIAWIRE) - Andina Copper Corporation (TSX-V: ANDC | FSE: FIR | OTCQB: PMMCF) is pleased to report additional outstanding drill results from its large-scale Cobrasco Porphyry Copper-Moly Discovery in Choco, Colombia. Andina Copper is in the early stages of a systematic, wide-spaced scout drilling programme using substantial step-outs to delineate the lateral extent and limits of this exciting new discovery.
+Veteran Compliance, Finance, and Capital Markets Leaders Join as the Company Scales Its Digital Asset Advisory
 
- Hole CDH010, collared from the same drill pad as CDH006 - CDH009 (refer 24 June 2026 News Release) and drilled to the WSW, intersected a strongly mineralized upper interval commencing at 36m and extending to 540m downhole. Moderate to lower grade mineralization continues at depth to approximately 820m downhole. The hole was terminated at a final depth of 844.65m.
+ CHICAGO, IL - August 11, 2026 (NEWMEDIAWIRE) - Prime Ledger today announced three senior appointments as the company enters its next phase of growth. Lesley O’Neill joins as Chief Risk and Compliance Officer, and Ankur Rakshit joins as Chief Financial Officer, strengthening the company’s operating team across risk, regulatory, and financial functions. Separately, Chuck Thompson has been appointed to Prime Ledger’s Board of Directors.
 
- Hole CDH010 further extends and confirms the continuity of shallow Cu–Mo mineralization within the central portion of the Cobrasco system.
+ The appointments bring Prime Ledger decades of combined experience across regulated financial services, digital assets, and global capital markets at a moment when institutional expectations for compliance rigor and financial discipline in the sector have never been higher.
 
- HIGHLIGHTS:
+ “Building durable infrastructure in this industry demands more than technology; it demands people who have operated inside the most heavily scrutinized institutions in finance and know how to build for that standard from day one,” said Robert Hoffman, Chief Executive Officer and Co-Founder of Prime Ledger. “Lesley, Ankur, and Chuck each bring exactly that. Together they give us the depth to scale responsibly and the credibility to earn the trust of partners, regulators, and clients.”
 
- 504m @ 0.48% Cu, 37ppm Mo from 36m
+ Lesley O’Neill, Chief Risk & Compliance Officer
 
- Incl. 264m @ 0.63% Cu, 35ppm Mo from 36m
+ Lesley O’Neill brings more than 15 years of experience across fintech, digital assets and Web3, and artificial intelligence. A New York–admitted attorney and seasoned chief compliance officer, she has deep expertise building bank-grade BSA/AML, enterprise risk, and data protection programs, driving corporate governance, and scaling operational frameworks.
 
- and 36m @ 0.62% Cu from 486m
+ O’Neill joins Prime Ledger from Binance.US, where she served as Chief Compliance Officer overseeing the exchange’s AML/KYC, antifraud, internal audit, and risk management programs. She served on the exchange’s Listings Committee and supported banking partner relationships, and most recently led preparedness for the launch of its new CFTC-regulated products as the primary compliance liaison with the regulator.
 
- 84m @ 0.40% Cu, 91ppm Mo from 660m
+ Prior to Binance.US, O’Neill spent five years as Chief Compliance Officer, and interim General Counsel, at Prove Identity, where she stood up a global compliance program through three acquisitions and IPO readiness. Earlier in her career, she led global cybersecurity policy at Bloomberg and served as Global Privacy Counsel at EY. She is a Certified Information Privacy Professional (CIPP/E).
 
- Incl. 44m @ 0.45% Cu, 120ppm Mo from 700m
+ At Prime Ledger, O’Neill will lead risk and compliance across the organization.
 
- - An additional drillhole (CDH011) has been completed from the same pad as CDH006-CDH010 (Figure 1, Pad 3), and multiple holes have recently been drilled from a large step-out position located 350m to the NW. Results are pending.
+ “What drew me to Prime Ledger is a leadership team that treats compliance as core infrastructure rather than an afterthought,” said O’Neill. “The combination of digital assets, financial services regulation, privacy, and security is where the hardest problems in this industry live, and it’s where I’ve spent my career. I’m looking forward to building a program that scales with the business.”
 
- - A mineralized footprint of approximately 1,200m by 550-700m has been delineated from the initial 10 diamond drillholes reported to date for approximately 11,000m, and the system remains wide open in multiple directions.
+ Ankur Rakshit, Chief Financial Officer
 
- Joseph van den Elsen, Andina Copper President and CEO stated:
+ Ankur Rakshit is an executive finance and operations leader with nearly two decades of experience scaling high-growth Web3 protocols, digital asset exchanges, and Wall Street institutions, including Citigroup, American Express, Fidelity Investments, and Kraken.
 
- “Andina Copper continues to systematically advance its wide spaced scout drilling programme, with hole CDH010 returning another high grade near surface intercept. Every hole completed from this platform has intersected long runs of shallow copper mineralization, underlining the exceptional continuity of the Cobrasco system.
+ As a founder, CFO, and seasoned operator, Rakshit has built and led high-performing FP&A, strategic finance, and global treasury functions from the ground up, guiding organizations through periods of rapid scaling, complex capital allocation, and strategic expansion. His expertise spans long-range financial planning, capital markets, process optimization, AI-augmented financial operations, and corporate development and execution; enabling companies to build sustainable, scalable financial foundations while maintaining operational discipline and driving long-term value creation.
 
- "The drill defined footprint of the Cobrasco mineralized porphyry system now measures approximately 1,200m x 550-700m and remains open in all directions. With results from CDH011 imminent, and drilling continuing from a new platform 350m to the NW, we look forward to a continuing steady flow of results and the systematic expansion of the Cobrasco Deposit."
+ Rakshit holds an MBA in Finance & Strategy from Cornell University and a background in computer science engineering, combining technical depth with data-driven executive leadership.
 
- Figure 1: Cobrasco Project plan view - copper soil geochemistry and drillhole traces with downhole Cu assays. CDH010 intercepts as labelled; CDH011 results pending; mineralization open in multiple directions.
+ “The companies that endure in this market are the ones that pair ambition with financial discipline,” said Rakshit. “Prime Ledger has the former in abundance, and I’m joining to help build the latter, a finance function that gives the team real visibility, real optionality, and the foundation to scale for the long term.”
 
- Figure 2: Cobrasco cross section (looking East) showing CDH010 downhole Cu assays and adjacent drillholes from Pads 1, 3 and 4. CDH011 completed, results pending.
+ Chuck Thompson, Board of Directors
 
- Geology and Mineralization - Drillhole CDH010
+ Chuck Thompson brings 30+ years of leadership across investment management and financial services, with deep experience in corporate strategy, board governance, fund trusteeship, product development, and mergers and acquisitions.
 
- Hole CDH010 was collared from the same drill pad as CDH006 - CDH009 (and subsequent hole CDH011). It was drilled WSW to bisect the wide untested area between CDH006 and CDH009 and to test the continuation of shallow mineralization previously intersected from this collar position. All holes completed thus far from this pad have intersected consistent intervals of shallow, continuous moderate to high grade Cu-Mo mineralization beginning immediately below the base of oxidation.
+ Thompson’s governance experience, distribution expertise, and track record of executing and integrating strategic acquisitions will support Prime Ledger’s board as the company expands its advisory and institutional relationships.
 
- Hole CDH010 (Az: 260 degree Dip: -60 degree Depth: 844.65m) was the fifth hole drilled from this drill pad, designed to test approximately 410m horizontally and 735m vertically.
+ “I have spent three decades in asset management where infrastructure evolves quickly, and the shift underway now in digital assets is as consequential a trend as anything I have seen,” said Thompson. “Prime Ledger is building with high integrity and discipline, the governance standards that institutional allocators will require, and I am glad to join the board to help be a resource and sounding board for that important work.”
 
- The hole intersected a supergene-leached zone extending to approximately 36m downhole. From the base of this zone to approximately 54m downhole, moderate supergene chalcocite enrichment occurs as coatings on pyrite and chalcopyrite. Below the supergene-enriched zone, significant hypogene chalcopyrite mineralization continues to approximately 322m downhole as disseminations and veinlets hosted by rhyolite porphyries and subordinate daci-andesitic porphyries, microdiorite, and magmatic-hydrothermal breccias.
+ About Prime Ledger
 
- Magmatic-hydrothermal breccias and adjacent structurally controlled zones between 186m and 312m downhole host the highest copper grades intersected in the hole, including 60m @ 0.74% Cu from 186m and 20m @ 1.18% Cu from 216m.
+ Prime Ledger is the full-service digital asset firm for real-world assets. Headquartered in Chicago, the company guides asset owners from initial structuring through regulated issuance and into ongoing management; replacing the five or more fragmented vendors that digital assets typically require with a single, accountable partner. Prime Ledger’s lifecycle infrastructure spans advisory and legal structuring, digital asset engineering, regulated distribution, and ongoing compliance, reporting, and asset management, delivered through its Prime Path framework across four core verticals: real estate, hospitality, sports and entertainment, and investment firms. Learn more at primeledger.io.
 
- Figure 3: Hole CDH010 core photography from the high grade magmatic-hydrothermal breccia zone. Top: 231.00m, magmatic-hydrothermal breccia with predominance of diorite fragments and infill of chalcopyrite cement, sericite-illite altered (4.47% Cu, 35ppm Mo). Bottom: 240.10m, magmatic-hydrothermal breccia with fragments of diorite and quartz-eye porphyries, rhyolitic matrix with chalcopyrite-molybdenite-silica-sericite cement (0.51% Cu, 167ppm Mo).
+ Media Contact: Head of MarketingJacquie Lanejacquie.lane@primeledger.io
 
- Below 322m, mineralization continues at moderate grades within rhyolite porphyries and magmatic-hydrothermal breccias, including 36m @ 0.62% Cu from 486m. At greater depth, molybdenite-bearing B-type quartz veins occur within an interval returning 84m @ 0.40% Cu and 91ppm Mo from 660m.
+ 
 
- In broad terms, the rhyolite porphyries intrude the intermediate-composition daci-andesitic porphyries and microdiorites. The highest copper grades in CDH010 are associated with intense white sericite–illite alteration, particularly within magmatic-hydrothermal breccias intersected between 216m and 296m downhole. Representative core photography from this zone is shown in Figure 3, and the regional context of the Cobrasco district, including the Southern Block, is shown in Figure 4.
-
- Figure 4: Cobrasco district soil geochemistry (Cu ppm) with +200ppm Cu soil anomaly outlines, Cobrasco Northern and Southern Blocks (Rio Tinto Comita Project block shown for reference).
-
- The Company’s Corporate Presentation is available at: Andina Copper Corporate Presentation
-
- Interested parties can subscribe to our mailing list and follow our social media channels in the links below:
-
- Mailing List | Andina Copper LinkedIn | Andina Copper X
-
- ON BEHALF OF THE BOARD
-
- Joseph van den ElsenPresident & Chief Executive Officerjoseph@andinacopper.com
-
- Jordan WebsterVP – Technical Communicationsjordan@andinacopper.com
-
- QUALIFIED PERSON
-
- Gustavo Zulliger, a consultant of Andina Copper Corp and a “qualified person” (“QP”) within the definition of that term in National Instrument 43-101, Standards of Disclosure for Mineral Projects, has reviewed and approved the technical information contained in this news release. Gustavo Zulliger is a Certified Professional Geologist with the American Institute of Professional Geologists (CPG #11165).
-
- QAQC
-
- CDH010 was collared with a PQ size drill string to a depth of 180.50m and continued with HQ/HQ3 to a final depth of 844.65m. In all cases the drill core was extracted from the core barrel by the drill contractor under the supervision of Andina Copper personnel and placed in core boxes with appropriate depth markers (core blocks) and padding added for extra protection during transport. Full core boxes were then strapped closed before being transported by helicopter and pickup truck to the Cobrasco core cutting facility in Quibdó. The drill core was cleaned where required, marked-up and photographed, prior to undergoing geotechnical and geological logging. All core segments were cut by diamond saw by Andina Copper technicians, other than the top saprolite intervals that could be cut and sampled using hand tools. All sampling was conducted in nominal 2m intervals with cut-lines marked by the supervising geologists to ensure representative sampling. Samples were placed in plastic bags with non-repeatable sample tags and bagged in polyweave sacks ready for transport.
-
- The core trays with the remaining half-core are stored at the Andina Copper facility in Quibdo for ongoing geotechnical (Terraspec spectral analysis, magnetic susceptibility readings, rock density measurements) and follow-up detailed geological logging. From Quibdo, core samples were sent to the ALS sample preparation facility in Medellin, an accredited laboratory which is independent of the Company. Prepared sample pulps were then forwarded to the ALS laboratory in Lima, Peru for gold (Au-AA23), multi-elements (ME-MS61), and “overlimits” analysis (ME-OG62 including copper Cu-OG62). Coarse and fine rejects are routinely returned by ALS Medellin for storage at the Andina Copper storage facility.
-
- Table 1: Cobrasco Project – Significant Drill Intercepts
-
- Table 2: Cobrasco Project – Drill Collar Parameters (WGS84, UTM Zone 18N)
-
- ABOUT ANDINA COPPER
-
- Andina Copper Corporation is a unique South America-focused copper explorer listed on the TSX Venture Exchange (TSXV:ANDC), Frankfurt (FSE: FIR), and OTC (OTCQB: PMMCF) exchanges. The Company holds two significant discoveries along the world’s premier copper producing Andean porphyry belt in Argentina and Colombia, and a compelling undrilled copper-gold target in the prolific copper production district of the Coastal Cordillera of Chile.
-
- FORWARD-LOOKING STATEMENT
-
- This news release contains certain statements that may be deemed "forward-looking statements". All statements in this release, other than statements of historical fact, that address events or developments that Andina Copper expects to occur, are forward-looking statements. Forward-looking statements are statements that are not historical facts and are generally, but not always, identified by the words "expects" and similar expressions, or that events or conditions "will" or "may" occur. These statements are subject to various risks. Although Andina Copper believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are no guarantee of future performance, and actual results may differ materially from those in forward-looking statements.
-
- Neither the TSXV nor the Canadian Investment Regulatory Organization accepts responsibility for the adequacy or accuracy of this release. 
+ View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/andina-copper-reports-another-outstanding-drill-intercept-further-expands-mineralized-footprint-7088385)
+[Original/Source Press Release](https://www.newmediawire.com/news/prime-ledger-expands-leadership-team-with-appointment-of-lesley-o-neill-and-ankur-rakshit-names-chuck-thompson-to-board-of-directors-7088392)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/andina-copper-hits-504m-of-0-48-cu-at-cobrasco-expanding-porphyry-system/ca8d4b762f75ad5292f95a29249dafb4) 
-
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/andina-copper-expands-cobrasco-porphyry-copper-moly-discovery-with-new-drill-results)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-ledger-strengthens-leadership-with-key-appointments/4029fa5b5519dfcdfa58466c751612fd) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/divejTqQ.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/oxen99qW.webp)
