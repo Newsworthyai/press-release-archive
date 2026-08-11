@@ -1,10 +1,16 @@
-# Deadly Infection Surges, Prompts Health Officials to Caution Beachgoers
+# Earth Science Tech Inc. (ETST) Q1 2027 Financial and Operational Results Reflect Compounding Progress of Expansion Strategy
 
-Deadly Infection Surges, Prompts Health Officials to Caution Beachgoers
+* Earth Science Tech, a growing healthcare holding company, recently reported its Q1 2027 financial results, with key highlights including $9.0 million in revenue, $6.3 million in gross profit, $715,697 in net income, $707,131 in net cash, and $10.4 million in total assets.
+* According to the CEO, the Q1 2027 figures reflect steady, compounding progress and are the result of a foundation built in the 2026 financial year.
+* The company’s strategy of carefully acquiring and scaling cash-flowing assets across healthcare, pharmaceutical, and telemedicine sectors, is driving growth to support uplisting and attract institutional capital.
 
- Experts hope that businesses like Co-Diagnostics Inc. (NASDAQ: CODX) that focus on developing and…
+ Earth Science Tech (OTC: ETST), a diversified holding company, recently announced its Q1 2027 financial results for the period ended June 30, 2026. Key financial highlights included increases in revenue, gross profit, net income, and total assets, compared to the same period in fiscal year 2026 (“Q1 2026”). According to Giorgio R. Saumat, CEO and Chairman of the Board, Q1 2027 underscored the durability of the foundation ETST established in fiscal 2026, with the results reflecting “steady compounding progress and the inherent operating leverage within its business model” (https://ibn.fm/p9BPV).
+
+ The company recorded $9.0 million in revenue in Q1 2027, up from $8.8 million in Q1 2026, representing a 3% growth. Its gross profit increased 3.1% to $6.3 million in Q1 2027 from $6.1 million in Q1 2026, while its net income jumped 57% to $715,697 from $456,714 over the intervening period. The company also reported a 108.4% increase in operating cash flow to…
 
  Read More>>
+
+ NOTE TO INVESTORS: The latest news and updates relating to ETST are available in the company’s newsroom at https://ibn.fm/ETST
 
  About BioMedWire
 
@@ -24,39 +30,15 @@ Deadly Infection Surges, Prompts Health Officials to Caution Beachgoers
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/earth-science-tech-inc-etst-q1-2027-financial-and-operational-results-reflect-compounding-progress-of-expansion-strategy/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/deadly-infection-surge-prompts-beach-warnings-diagnostic-firms-in-spotlight/0a54ced3543fb32ba64ff6d306c49fdf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earth-science-tech-reports-strong-q1-2027-results-with-57-net-income-surge/098633c1b135675e34f52223931e9023) 
 
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/deadly-infection-surges-prompts-health-officials-to-caution-beachgoers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/268/11/roamfapp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/268/11/pitapicocy9k.webp)

@@ -1,56 +1,74 @@
-# Hope Austin's Leadership in Fighting Child Hunger: A Nonprofit Success
+# NPI Highlights Newtopia Now's Growing Role in Natural Products Innovation
 
-Episode 85 of Rock Solid: Round Rock Business Leaders Podcast, titled "Monica von Waaden | Fighting Child Hunger in Round Rock," hosted by Bryan Eisenberg, spotlights one of Central Texas' most impactful nonprofits tackling child food insecurity. Published August 4, 2026, the conversation arrives as one in four Central Texas children face hunger. Von Waaden, founder of Hope Austin and Hope Round Rock, details how her organization has grown from a 5x6 storage unit to a Wednesday delivery operation feeding more than 5,000 students across multiple school districts every week, entirely without paid staff.
+Nutritional Products International (NPI), a global brand management firm specializing in helping health and wellness companies enter and expand in the U.S. market, today highlighted the growing importance of Newtopia Now as the natural products industry prepares to gather in Denver Aug. 18-20, 2026.
 
- Listeners receive an in-depth look at a nonprofit committed to delivering nutritious meals beyond chips and Fruit Roll-Ups. Von Waaden and Eisenberg dig into several distinct threads:
+ NPI founder and CEO Mitch Gould plans to attend the event, which will bring together more than 500 emerging and established brands alongside retailers, distributors, investors and industry leaders at the Colorado Convention Center.
 
- * Why Hope Austin engineers backpack meal kits with 68 to 73 grams of protein, swapping ramen for a whole-grain "Woodle," and stocking Cooper Street granola bars, shelf-stable yogurt, almonds, and reduced-sugar cereals.
-* Hope Austin manages eight nutritional programs with around 60 volunteer drivers and plans to expand into Hutto for the 2026 school year.
-* Leadership lessons drawn from law, special education, domestic violence advocacy, and running a Panera franchise with her husband Mark.
+ Gould, who has sold into tens of thousands of retailers throughout his decades in the health and wellness industry, has worked with major chains including Costco, Walmart, Walgreens, CVS, The Vitamin Shoppe and Vitamin World. He has also partnered with some of the world's most recognizable athletes and celebrities, including Steven Seagal, Wayne Gretzky and Hulk Hogan, on product and brand initiatives.
 
- Von Waaden's philosophy is grounded in a mentor's line she quotes throughout: "Anything worth doing is worth doing wrong." She frames nutrition as inseparable from education, telling Eisenberg, "An education is the best commodity we can give our children. An education will break generational lines of poverty." The episode's most memorable moment comes when she recounts a second grader in Round Rock ISD who approached her after a summer delivery:
+ That experience gives Gould a long-term perspective on the role industry gatherings such as Newtopia Now can play in connecting emerging brands with the people and organizations that can help them grow.
 
- "I don't know your name, but I know that you feed me, and that really makes my mommy very happy." The conversation widens into leadership and succession. Von Waaden discusses how her son Alex worked his way from the bottom of the family's Panera operation in St. Louis to president of the company, while her older son Nicholas prepares to graduate medical school on May 30. She credits partnerships with organizations like Heavenly Beds, Leadership Round Rock (which selected Hope Austin as its class charity), and the Round Rock Chamber ambassador program for extending the mission's reach. Eisenberg and von Waaden also revisit the cautionary tale of Kodak, referenced by prior guest and White House photographer David Valdez, as a reminder that even dominant brands must evolve or disappear.
+ "Events like Newtopia Now give you an early look at where the natural products industry is heading," Gould said. "You see emerging brands, new product concepts and changing consumer priorities all in one place. For anyone involved in bringing products to market and building retail distribution, that makes these gatherings extremely valuable."
 
- About Rock Solid: Round Rock Business Leaders Podcast Hosted by bestselling author and keynote speaker Bryan Eisenberg, Rock Solid explores the journeys of entrepreneurs, nonprofit leaders, and organizations shaping Round Rock, Texas. From startups to established corporations, each conversation surfaces the passion, strategy, and community spirit driving one of Central Texas' most dynamic business hubs. Episode 85 is available now wherever podcasts are heard. 
+ The 2026 event will feature brands and products across food, beverage, wellness, beauty and lifestyle categories, along with educational programming addressing topics including regenerative agriculture, clean beauty, sustainable packaging, funding and emerging consumer trends.
+
+ This year's Newtopia Now also introduces its first International Pavilion, featuring APEX Brazil and a collection of Brazilian brands. Gould said the international component reflects a broader trend he has witnessed throughout his decades of experience in the natural products industry.
+
+ "The U.S. remains an extremely attractive market for companies around the world, but entering this market requires much more than having a good product," Gould said. "International brands need to understand American consumers, retail expectations, logistics, market positioning and how they are going to support the brand once it reaches the shelf. Events that bring global innovation together with the U.S. retail community can help start those conversations."
+
+ Helping domestic and international brands navigate those challenges has been central to NPI's work. Gould developed his "Evolution of Distribution" platform to provide companies with a coordinated approach to U.S. market entry that brings together global logistics, product readiness, market positioning, retail and e-commerce placement, and post-placement marketing.
+
+ Gould believes events such as Newtopia Now are particularly valuable because they bring multiple parts of the natural products ecosystem together in one environment.
+
+ "Innovation doesn't happen in isolation," Gould said. "Brands need retailers, retailers need products that connect with consumers, and international companies need partners who understand how business gets done in the United States. Bringing those groups together is one of the things that makes an event like Newtopia Now important."
+
+ For Gould, the continued growth of events such as Newtopia Now also demonstrates the pace at which the natural products marketplace continues to evolve.
+
+ "Consumer interests change, new categories emerge and innovative brands are being created around the world," Gould said. "You have to stay close to those developments because today's emerging idea can become tomorrow's major retail category."
+
+ Newtopia Now 2026 takes place Aug. 18-20 at the Colorado Convention Center in Denver.
+
+ About [Mitch Gould](https://nutricompany.com/team/mitch-gould/) Mitch Gould is a third-generation retail distribution and manufacturing expert with more than 25 years of experience launching and scaling consumer products across dietary supplements, sports nutrition, skincare, hardware, and beverages. He has worked with iconic consumer brands such as Igloo, Rubbermaid, Sunbeam, and Miracle-Gro, as well as high-profile celebrity brands including Steven Seagal, Hulk Hogan, Chuck Liddell, 8× Mr. Olympia Ronnie Coleman, and martial arts pioneer Bob Wall.
+
+ Over the course of his career, Gould has played a key role in helping shape the growth of the U.S. sports nutrition category-supporting the expansion of performance-focused products across major retail and e-commerce platforms, including Amazon, Walmart, GNC, CVS, and Walgreens. His work has centered on bringing muscle-building, recovery, and performance-oriented products to a broader consumer audience.
+
+ Gould is known for his hands-on, execution-driven approach to building consumer brands at scale and for his deep understanding of what drives success in highly competitive categories such as sports nutrition and dietary supplements. He continues to focus on the evolving intersection of performance, wellness, and consumer demand for effective, results-driven products.
+
+ About [Nutritional Products International (NPI)](https://nutricompany.com/) Nutritional Products International (NPI) is a U.S.-based retail consulting and distribution firm founded by retail distribution expert Mitch Gould. With more than three decades of experience, Gould has helped domestic and international brands successfully enter and expand within the U.S. market, representing high-profile brands and celebrities including Steven Seagal, Hulk Hogan, Ronnie Coleman, and Wayne Gretzky.
+
+ NPI works closely with manufacturers and major retailers to guide products from concept to shelf, providing strategic support across retail introductions, regulatory readiness, operations planning, and market visibility through its proprietary Evolution of Distribution® platform. The company is known for helping brands navigate the complexities of U.S. retail efficiently while building long-term, scalable growth. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608112713/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+[Original/Source Press Release](https://newsworthy.ai/news/202608112754/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fighting-child-hunger-in-round-rock-hope-austin-founder-shares-inspiring-story/b1ab561e32dbe2e30689a6c2889f737b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/npi-s-mitch-gould-highlights-newtopia-now-s-role-in-natural-products-growth/dc3975a99c3b9eb4c3ce19ea92d27a7b) 
 
 
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/b1ab561e32dbe2e30689a6c2889f737b)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/hope-austins-leadership-in-fighting-child-hunger-a-nonprofit-success)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/npi-highlights-newtopia-nows-growing-role-in-natural-products-innovation)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/11/evenDT8d.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/11/cake84dN.webp)

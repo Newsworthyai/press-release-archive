@@ -1,62 +1,54 @@
-# Outsourced Accounting Firm Recognized Across Two Inc Power Partners Categories
+# Veetee USA Expands Retail Distribution to 20+ Major US Grocery Chains
 
-Best Business Services and Financial Services Awards Both Cite Outsourced Accounting Provider
+Veetee Microwaveable Rice Trays Reach 20+ Retailers Including Walmart and Publix
 
- Naples, United States - August 8, 2026 / AccountingDepartment.com /
+ Selma, United States - August 11, 2026 / Veetee /
 
- AccountingDepartment.com has earned a place on the Inc Power Partners list, a designation that identifies service providers recommended by companies appearing on the Inc. 5000 ranking across the United States. The virtual accounting firm, which has provided fully outsourced accounting departments to U.S. businesses since 2004, received the designation in the best business services category alongside recognition within the financial services awards program.
+ Veetee USA Expands Retail Distribution, Now Available in 20+ Major US Grocery Chains Nationally
 
-What the Inc Power Partners Recognition Represents
+SELMA, N.C. — July 16, 2026 — Veetee USA, the fastest-growing premium microwaveable rice brand, today announced a massive expansion of its retail footprint, making its highly sought-after ready-to-eat rice trays available in over 20 major US grocery chains nationwide. This expansion solidifies Veetee’s position as a major player in the US consumer packaged goods (CPG) industry, scaling distribution to leading retailers including Walmart, Publix, and other premier regional supermarkets.
 
-The Inc Power Partners program identifies vendors and service providers that have been vetted and recommended by companies on the Inc. 5000 list - one of the most closely tracked rankings of fast-growing private businesses in the country. Inclusion indicates that growth-stage companies have directly endorsed a provider based on their own working experience, rather than through a panel vote or self-nomination process. AccountingDepartment.com secured its position within the best business services category, which covers firms that support the operational and financial infrastructure of scaling organizations.
+The retail expansion comes on the heels of Veetee’s $36 million Selma, North Carolina production facility becoming fully operational, allowing the brand to localize its supply chain and meet the rapid demand of American shoppers.
 
-The financial services awards component of the program further narrows the field to providers that specifically address the financial health and reporting requirements of growth companies. Being named within this segment places AccountingDepartment.com among firms that Inc. 5000 companies have identified as contributors to their own expansion.
+"American consumers are demanding higher quality, cleaner ingredients, and better value from their convenient meal options," said Kevin Stitt, US Executive at Veetee USA. "Expanding our retail footprint into over 20 major grocery chains ensures that shoppers across the country can easily find and enjoy our premium, steam-filtered rice. We are proud to partner with the nation's top retailers to bring our clean-label trays to more dinner tables."
 
-A Model Built Around Outsourced Accounting Teams
+Why Shoppers Are Switching to VeeteeVeetee’s rapid retail growth is driven by an exceptional 90% repeat purchase rate in the USA, fueled by several key points of difference that set the brand apart from legacy competitors:
 
-AccountingDepartment.com operates as a fully virtual firm, supplying U.S. companies with complete outsourced accounting departments rather than standalone bookkeeping or fractional services. The model replaces an internal accounting function with a dedicated external team that manages the day-to-day financial operations of client businesses across multiple industries.
+Proprietary 10-Stage Steam Filtering: Veetee’s unique cooking process ensures the fluffiest, restaurant-quality texture without the use of artificial preservatives or chemical additives.
 
-The firm has operated this model since 2004, a period marked by considerable change in how businesses approach back-office infrastructure. Growth-stage companies in particular have increasingly structured their operations around outsourced functions that allow internal teams to concentrate on revenue-generating activities. AccountingDepartment.com positions its service as a direct substitute for an in-house accounting department, covering areas that include accounts payable and receivable, financial reporting, and controller-level oversight.
+Fully Transparent Packaging: Unlike competitors who use fully printed, opaque packaging, Veetee’s transparent trays let shoppers see exactly what they are getting—pure, high-quality grains.
 
-The inc power partners designation reflects feedback gathered directly from Inc. 5000 companies, making it a peer-sourced acknowledgment rather than an editorially assigned distinction. For firms evaluating outsourced financial services providers, the recognition offers a reference point grounded in the direct experience of other growth-stage businesses.
+Bigger Serving Sizes: Veetee offers a more generous serving size, with single trays providing 9.9oz to 10.6oz of rice, compared to competitor packs which only offer 8.8oz.
 
-Recognition Within the Financial Services Awards Landscape
+Global Momentum: Already recognized as the UK's fastest-growing brand and #1 Sticky Rice, Veetee has rapidly climbed to become the #2 Sticky Rice brand in the USA, growing faster than the overall category.
 
-The broader financial services awards environment has become more structured in recent years as the outsourced accounting sector has expanded. Programs like Inc Power Partners introduce a layer of accountability to the recognition process by anchoring nominations in client referrals rather than application fees or editorial discretion. AccountingDepartment.com's inclusion in the Inc Power Partners program reflects documented experience reported by businesses that have engaged the firm directly.
+Where to BuyVeetee’s premium rice varieties—including Basmati, Jasmine, Thai Lime & Herb, and Sticky Rice—are rolling out to shelves immediately. Shoppers can locate their nearest retail store by visiting the store locator on veeteeusa.com.
 
-The firm serves companies across a range of U.S. industries, providing accounting infrastructure that scales alongside client growth. Its virtual delivery model means that client companies receive staffed accounting teams without the overhead associated with hiring, training, and managing in-house personnel. That structural approach has remained consistent throughout the firm's history and forms the foundation of the service model that Inc. 5000 companies referenced during the endorsement process.
+About Veetee USAVeetee USA is a leading producer of premium, clean-label microwaveable rice trays. Utilizing a proprietary 10-stage steam filtering process and fully transparent packaging, Veetee delivers high-quality, convenient, non-GMO, and gluten-free rice varieties to consumers across the globe. Operating a state-of-the-art 135,000 sq. ft. facility in Selma, North Carolina, Veetee is committed to localized manufacturing, clean ingredients, and exceptional culinary quality. For more information, visit veeteeusa.com.
 
-About AccountingDepartment.com
+Media Contact:Veetee USA Media Relationscustomerservice@veetee.comveeteeusa.com
 
-AccountingDepartment.com is a U.S.-based virtual accounting firm founded in 2004. The firm provides fully outsourced accounting departments to growth-stage companies across multiple industries, offering a model that replaces in-house accounting functions with dedicated external teams. Its services span accounts payable, accounts receivable, financial reporting, and controller-level support, delivered entirely through a virtual operating structure.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/3VLGclDByEz4pwp7vVkwBS371CmQtzEyuiLUByOY.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/p82b1ABQVQDHHBdQutbhgB7hGszvRrWWL2u3aHDb.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/JejDwjDVRp9oO9fEZhR9giXM2jO1G4woNA0IREzg.png) [](https://veetee.com/) Contact Information:
 
-Learn more at AccountingDepartment.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/kikZlQZmeoFANxf6jx56iDztFPaRM5wG03IhlQAY.png) [](https://www.accountingdepartment.com) Contact Information:
-
- AccountingDepartment.com
+ Veetee
 
  
 
-3312 Atlantic Circle  Naples, FL 34119United States
+101 E Providence Blvd  Selma, NC 27576United States
 
- Andrea Boccard +1-888-858-9919 https://www.accountingdepartment.com 
+ Kevin Stitt +63 17619445 https://veetee.com/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/outsourced-accounting-firm-recognized-across-two-inc-power-partners-categories-443438)
+[Original/Source Press Release](https://mediawiretoday.com/veetee-usa-expands-retail-distribution-to-20-major-us-grocery-chains-443711)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/accountingdepartment-com-named-inc-power-partner-for-2025/7d17ea8217a2c4ac2133bec8dacfef87) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veetee-expands-to-20-us-retailers-including-walmart-and-publix/2457fde62929303b0624ea98ebfedfc0) 
 
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/accountingdepartmentcom-earns-inc-power-partners-recognition-in-business-and-financial-services)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/accountingdepartmentcom-obtiene-el-reconocimiento-de-inc-power-partners-en-servicios-empresariales-y-financieros)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/11/pearmc6L.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/11/maskLfjU.webp)

@@ -1,59 +1,31 @@
-# Prime Ledger Expands Leadership Team With Appointment of Lesley O'Neill and Ankur Rakshit, Names Chuck Thompson to Board of Directors
+# Greenland Mines (GRML) Commences 2026 Drilling at Skaergaard Project
 
-Veteran Compliance, Finance, and Capital Markets Leaders Join as the Company Scales Its Digital Asset Advisory
+LOS ANGELES, CA - August 11, 2026 (NEWMEDIAWIRE) - Greenland Mines (NASDAQ: GRML) announced that drilling has commenced at its Skaergaard gold, palladium and platinum project in southeast Greenland following the arrival of its support vessel Argus and successful mobilization of equipment and infrastructure ashore. Diamond drill rigs supplied and operated by Nordisk Fundering, including two new heli-portable units, have been assembled and are operating, with the first holes expected to be completed within days. Initial LiDAR drone surveys have also been completed, approximately one-third of planned drill locations have been identified and marked and the Sodalen airstrip has been confirmed operational.
 
- CHICAGO, IL - August 11, 2026 (NEWMEDIAWIRE) - Prime Ledger today announced three senior appointments as the company enters its next phase of growth. Lesley O’Neill joins as Chief Risk and Compliance Officer, and Ankur Rakshit joins as Chief Financial Officer, strengthening the company’s operating team across risk, regulatory, and financial functions. Separately, Chuck Thompson has been appointed to Prime Ledger’s Board of Directors.
+ The 2026 field program is designed to support further upgrading of the Skaergaard Mineral Resource, advance metallurgical and engineering studies through bulk sampling and generate environmental, geotechnical and infrastructure data needed to move the project toward an Initial Assessment and its next phase of development. Greenland Mines said the team is positioned to execute the program over the coming two months with Argus on site, equipment ashore and drilling underway.
 
- The appointments bring Prime Ledger decades of combined experience across regulated financial services, digital assets, and global capital markets at a moment when institutional expectations for compliance rigor and financial discipline in the sector have never been higher.
+ To view the full press release, visit https://ibn.fm/1LRbQ
 
- “Building durable infrastructure in this industry demands more than technology; it demands people who have operated inside the most heavily scrutinized institutions in finance and know how to build for that standard from day one,” said Robert Hoffman, Chief Executive Officer and Co-Founder of Prime Ledger. “Lesley, Ankur, and Chuck each bring exactly that. Together they give us the depth to scale responsibly and the credibility to earn the trust of partners, regulators, and clients.”
+ About Greenland Mines
 
- Lesley O’Neill, Chief Risk & Compliance Officer
+ Greenland Mines Ltd. is a Nasdaq-listed company with two operating divisions: (1) Mining, focused on the exploration and development of the Skaergaard Project in southeast Greenland and, subject to closing of the previously announced transaction, the Sarfartoq neodymium-praseodymium (Nd-Pr) rare earths project in southwest Greenland; and (2) Biotech, including Klotho’s KLTO‑202 primary indication for ALS. The Company’s strategy is centered on building a multi-asset platform with exposure to rare earth magnet materials, precious metals and selected midstream processing opportunities, while advancing its broader North Atlantic Critical Metals Corridor vision linking Greenland resources with allied downstream jurisdictions and industrial infrastructure.
 
- Lesley O’Neill brings more than 15 years of experience across fintech, digital assets and Web3, and artificial intelligence. A New York–admitted attorney and seasoned chief compliance officer, she has deep expertise building bank-grade BSA/AML, enterprise risk, and data protection programs, driving corporate governance, and scaling operational frameworks.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- O’Neill joins Prime Ledger from Binance.US, where she served as Chief Compliance Officer overseeing the exchange’s AML/KYC, antifraud, internal audit, and risk management programs. She served on the exchange’s Listings Committee and supported banking partner relationships, and most recently led preparedness for the launch of its new CFTC-regulated products as the primary compliance liaison with the regulator.
+ The latest news and updates relating to GRML are available in the company’s newsroom at https://ibn.fm/GRML
 
- Prior to Binance.US, O’Neill spent five years as Chief Compliance Officer, and interim General Counsel, at Prove Identity, where she stood up a global compliance program through three acquisitions and IPO readiness. Earlier in her career, she led global cybersecurity policy at Bloomberg and served as Global Privacy Counsel at EY. She is a Certified Information Privacy Professional (CIPP/E).
+ Forward Looking Statements
 
- At Prime Ledger, O’Neill will lead risk and compliance across the organization.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
- “What drew me to Prime Ledger is a leadership team that treats compliance as core infrastructure rather than an afterthought,” said O’Neill. “The combination of digital assets, financial services regulation, privacy, and security is where the hardest problems in this industry live, and it’s where I’ve spent my career. I’m looking forward to building a program that scales with the business.”
-
- Ankur Rakshit, Chief Financial Officer
-
- Ankur Rakshit is an executive finance and operations leader with nearly two decades of experience scaling high-growth Web3 protocols, digital asset exchanges, and Wall Street institutions, including Citigroup, American Express, Fidelity Investments, and Kraken.
-
- As a founder, CFO, and seasoned operator, Rakshit has built and led high-performing FP&A, strategic finance, and global treasury functions from the ground up, guiding organizations through periods of rapid scaling, complex capital allocation, and strategic expansion. His expertise spans long-range financial planning, capital markets, process optimization, AI-augmented financial operations, and corporate development and execution; enabling companies to build sustainable, scalable financial foundations while maintaining operational discipline and driving long-term value creation.
-
- Rakshit holds an MBA in Finance & Strategy from Cornell University and a background in computer science engineering, combining technical depth with data-driven executive leadership.
-
- “The companies that endure in this market are the ones that pair ambition with financial discipline,” said Rakshit. “Prime Ledger has the former in abundance, and I’m joining to help build the latter, a finance function that gives the team real visibility, real optionality, and the foundation to scale for the long term.”
-
- Chuck Thompson, Board of Directors
-
- Chuck Thompson brings 30+ years of leadership across investment management and financial services, with deep experience in corporate strategy, board governance, fund trusteeship, product development, and mergers and acquisitions.
-
- Thompson’s governance experience, distribution expertise, and track record of executing and integrating strategic acquisitions will support Prime Ledger’s board as the company expands its advisory and institutional relationships.
-
- “I have spent three decades in asset management where infrastructure evolves quickly, and the shift underway now in digital assets is as consequential a trend as anything I have seen,” said Thompson. “Prime Ledger is building with high integrity and discipline, the governance standards that institutional allocators will require, and I am glad to join the board to help be a resource and sounding board for that important work.”
-
- About Prime Ledger
-
- Prime Ledger is the full-service digital asset firm for real-world assets. Headquartered in Chicago, the company guides asset owners from initial structuring through regulated issuance and into ongoing management; replacing the five or more fragmented vendors that digital assets typically require with a single, accountable partner. Prime Ledger’s lifecycle infrastructure spans advisory and legal structuring, digital asset engineering, regulated distribution, and ongoing compliance, reporting, and asset management, delivered through its Prime Path framework across four core verticals: real estate, hospitality, sports and entertainment, and investment firms. Learn more at primeledger.io.
-
- Media Contact: Head of MarketingJacquie Lanejacquie.lane@primeledger.io
-
- 
-
- View the original release on www.newmediawire.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/prime-ledger-expands-leadership-team-with-appointment-of-lesley-o-neill-and-ankur-rakshit-names-chuck-thompson-to-board-of-directors-7088392)
+[Original/Source Press Release](https://www.newmediawire.com/news/greenland-mines-grml-commences-2026-drilling-at-skaergaard-project-7088412)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-ledger-strengthens-leadership-with-key-appointments/4029fa5b5519dfcdfa58466c751612fd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-mines-commences-drilling-at-skaergaard-project/a6df770865963c42b915f2c4f3ea770c) 
 
  
 
@@ -61,4 +33,4 @@ Veteran Compliance, Finance, and Capital Markets Leaders Join as the Company Sca
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/oxen99qW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/ninoORE0.webp)
