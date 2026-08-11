@@ -1,36 +1,92 @@
-# Quantum BioPharma (QNTM) Receives FDA Clearance to Advance Lucid-MS Into Phase 2
+# Partners Group Sees Strong Growth at US HVAC Portfolio Companies as Extreme Weather Increases Demand for Cooling
 
-LOS ANGELES, CA - August 10, 2026 (NEWMEDIAWIRE) - Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM) announced that the U.S. Food and Drug Administration has approved its Investigational New Drug (“IND”) application for Lucid-MS (Lucid-21-302), clearing the company to advance the patented, first-in-class multiple sclerosis candidate into Phase 2 clinical development. The planned randomized, double-blind, placebo-controlled study will evaluate efficacy, safety and tolerability in people with MS using clinical and radiological measures. Trial start-up activities, including site selection, are underway, with patient enrollment and drug administration expected to begin as quickly as possible.
+* Since acquisition, DiversiTech has seen revenues rise 60%, with PremiStar revenues doubling over the same period
+* Strong financial performance reflects tailwinds in the US HVAC market, which are driving demand for both parts and maintenance services
+* Partners Group has recognized best practices across DiversiTech and PremiStar to implement transformational value creation plans
 
- Lucid-MS is designed to provide neuroprotection by inhibiting demyelination, differentiating it from existing MS therapies that primarily focus on modulating the immune system. The candidate targets protein arginine deiminase 2 (“PAD2”), an enzyme implicated in myelin degradation, and has demonstrated the ability to prevent and reverse myelin breakdown in preclinical models. Quantum BioPharma said Lucid-MS demonstrated a favorable safety profile and was well tolerated in prior Phase 1 trials in healthy participants. The company reported more than $10 million in cash, digital assets and liquid investments as of March 31, 2026.
+ DENVER, CO - August 10, 2026 (NEWMEDIAWIRE) - Partners Group, one of the largest firms in the global private markets industry, is seeing strong growth at its two direct private equity portfolio companies that offer exposure to the heating, ventilation, and air conditioning ("HVAC") market in the US. This reflects tailwinds across the HVAC market as extreme weather increases demand for cooling.
 
- To view the full press release, visit https://ibn.fm/HyWYH
+ Partners Group acquired DiversiTech, a manufacturer and distributor of parts and supplies for HVAC units, and PremiStar, one of the largest commercial HVAC services providers, in 2021 through its direct private equity program. Since then, DiversiTech has seen revenues increase 60%, with PremiStar revenues doubling over the same period. The companies have delivered EBITDA growth of 14% CAGR and 22% CAGR respectively.
 
- About Quantum BioPharma Ltd.
+ This strong financial performance reflects tailwinds in the US HVAC market. In particular, the increasing occurrence of extreme weather conditions is highlighting the importance of HVAC system maintenance to maximize unit performance and efficiency. Other tailwinds include the rapidly ageing installed base of HVAC units, the need to upgrade units to be more energy efficient, and the rise of building automation solutions.
 
- Quantum is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum invented UNBUZZD(TM) and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“Unbuzzd”) (formerly, Celly Nutrition Corp.), led by industry veterans. Quantum retains ownership of 19.84% (as of March 31, 2026) of Unbuzzd at www.unbuzzd.com. The agreement with Unbuzzd also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum retains 100% of the rights to develop similar products or alternative formulations specifically for pharmaceutical and medical uses.
+ Leveraging its investment platform, Partners Group has recognized best practices across both DiversiTech and PremiStar to implement transformational value creation plans that are designed to support future growth. This includes investing in operations, supply chains, and technology, as well as executing selective add-on acquisitions.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Wolf Scheider, Head of Private Equity, Partners Group, says: "Across our HVAC portfolio, we are seeing organic, disciplined growth. As heat waves become a defining challenge of how we live and work, demand for HVAC parts and maintenance is rising. Our portfolio companies are essential to helping communities and enterprises adapt to these conditions, with meaningful growth runway ahead as value creation initiatives mature."
 
- The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
+ About Partners Group Partners Group is one of the largest firms in the global private markets industry, with around 2’000 professionals and over USD 186 billion in assets under management globally. The firm has investment programs and custom mandates spanning private equity, private credit, infrastructure, real estate, royalties, and special opportunities. With its heritage in Switzerland and primary presence in the Americas in Colorado, Partners Group is built differently from the rest of the industry. The firm leverages its differentiated culture and its operationally oriented approach to identify attractive investment themes and to transform businesses and assets into market leaders. For more information, please visit www.partnersgroup.com or follow us on LinkedIn.
 
- Forward Looking Statements
+ Partners Group media relations contactHenry WestonPhone: +44 207 575 2593Email: henry.weston@partnersgroup.com
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-receives-fda-clearance-to-advance-lucid-ms-into-phase-2-7088365)
+[Original/Source Press Release](https://www.newmediawire.com/news/partners-group-sees-strong-growth-at-us-hvac-portfolio-companies-as-extreme-weather-increases-demand-for-cooling-7088374)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-gets-fda-nod-for-lucid-ms-phase-2-ms-trial/1dc117f703dd696dd2560a7537553d26) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/partners-group-reports-60-revenue-surge-in-hvac-portfolio-amid-climate-driven-demand/d491982f41c45823909e120fb6b1dc7a) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-demand-for-cooling)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-demand-for-cooling)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-extreme-weather-demand)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/partners-group-reports-robust-growth-at-texas-hvac-portfolio-companies-amid-extreme-weather-demand)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/partners-group-reporta-un-crecimiento-robusto-en-sus-empresas-de-hvac-en-texas-en-medio-de-la-demanda-por-clima-extremo)
+
+Pickup - [https://burstable.news](https://burstable.news/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/partners-group-meldet-starkes-wachstum-bei-us-hvac-portfoliounternehmen-angesichts-steigender-kuhlnachfrage)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/partners-group-reporta-un-fuerte-crecimiento-en-sus-empresas-de-hvac-en-ee-uu-en-medio-del-aumento-de-la-demanda-de-refrigeracion)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/partners-group-rapporte-une-forte-croissance-dans-ses-societes-de-portefeuille-hvac-aux-etats-unis-face-a-la-hausse-de-la-demande-de-refroidissement)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/partners-group-relata-forte-crescimento-em-empresas-do-portfolio-de-hvac-nos-eua-em-meio-ao-aumento-da-demanda-por-refrigeracao)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/d491982f41c45823909e120fb6b1dc7a)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-extreme-weather-demand)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-demand-for-cooling)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/partners-group-reports-robust-growth-at-us-hvac-portfolio-firms-amid-extreme-weather)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-extreme-weather)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/partners-group-reports-strong-growth-at-us-hvac-portfolio-firms-amid-rising-cooling-demand)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/partners-group-hvac-portfolio-companies-surge-amid-extreme-weather-driven-demand)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/partners-group-reports-robust-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/partners-group-reports-significant-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/partners-group-reports-robust-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/partners-group-reports-robust-growth-at-us-hvac-portfolio-compan/202636937)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/10/partners-group-reports-strong-growth-at-us-hvac-portfolio-companies-amid-rising-cooling-demand/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/10/markG_ML.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/10/zealEkq8.webp)

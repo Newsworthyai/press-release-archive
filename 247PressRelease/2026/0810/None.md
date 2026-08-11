@@ -1,70 +1,70 @@
-# The Forbes 30 Under 30 Curse Goes Political: From Defrauding VCs to Plundering a Nation
+# Suzy Woo Brings Paranormal Experts, Astrologers, TEDx Speaker, Trance Channel and Renowned Mediums to Erie Expo
 
-MANILA, PHILIPPINES, August 10, 2026 /24-7PressRelease/ -- The "Forbes 30 Under 30 curse" is no longer just a cautionary tale about hype-driven startups swindling venture capitalists. In a trio of devastating new op-ed columns published on Bob Tacto's Columns, writer Bob Tacto traces how that curse has metastasized into outright state-level corruption. The catalyst: a charismatic anti-corruption populist politician who, years before his rise to power, was fêted by Forbes as a visionary CEO — and who now stands accused of orchestrating a systematic plunder and impunity of his own country.  The first piece, "The Forbes 30 Under 30 Curse: From Fraud to Plunder," (https://bobtactoscolumns.blogspot.com/2026/08/the-forbes-30-under-30-curse-from.html) revisits the pattern that turned the list into a punchline — entrepreneurs like Sam Bankman-Fried and Elizabeth Holmes who turned investor millions into ashes. But Tacto argues that the curse's latest incarnation is qualitatively different: a politician who campaigned on rooting out corruption while quietly building a kleptocratic apparatus, using the credibility of his Forbes honor as a shield. https://patch.com/california/daly-city-ca/forbes-30-under-30-curse-changed-world-charged-plunder-nodx  https://www.forbes.com/pictures/lmh45edfgg/leandro-leviste/  https://www.forbes.com/sites/roellandingin/2022/07/07/young-philippine-executive-aims-to-sharply-raise-solar-power-use/  The second column, "The Unraveling of a Prodigy: From Solar Dreams to National Looting," (https://bobtactoscolumns.blogspot.com/2026/08/the-unraveling-of-prodigy-from-solar.html) delivers a forensic case study. It details the arc of a young solar-energy CEO who graced the 30 Under 30 list, later surfacing as a populist firebrand promising to clean up government. Once in office, Tacto reveals, the same individual allegedly turned state coffers into a personal piggy bank, stripping public assets on a scale that dwarfs the VC frauds that came before. https://patch.com/california/daly-city-ca/unraveling-prodigy-solar-savior-scandal-plagued-congressman-nodx  The Third Column "The Boy Who Cried Thief: How Leandro Leviste Became the Forbes 30 Under 30's Most Dangerous Disgrace", (https://bobtactoscolumns.blogspot.com/2026/08/the-boy-who-cried-thief-how-leandro_01678398841.html) delivers a punch we didn't think could happen. Its like a house of cards but the pattern he is referring to is that Leviste borrows a playbook straight out of another group of anti-corruption populist politicians and its Sara and Rodrigo Duterte. Yes accuse your opponents of corruption and bypass due process to get there. Note this is currently investigated by the Philippine Ombudsman and the National Bureau of Investigation. https://patch.com/california/daly-city-ca/boy-who-cried-thief-nodx  "We've become numb to the idea that a 30 Under 30 badge predicts a perp walk in Silicon Valley," Tacto writes. "But when that badge launders the reputation of a politician who then drains a nation's treasury, we're not talking about a 'curse' of bad luck. We're talking about a pattern of impunity that the list itself helps manufacture."  The columns rely on court documents, parliamentary inquiries, and leaked financial records to build the case that the former CEO-politician exploited the Forbes halo to disarm journalists, foreign investors, and even international anti-corruption bodies. By the time the looting was exposed, the damage was sovereign-level.  "This isn't just another fallen wunderkind," Tacto concludes. "It's a warning that the prestige we attach to youth and glossy magazine covers can be weaponized against entire democracies."  About Bob Tacto's Columns: Bob Tacto's Columns is an independent op-ed platform offering sharp opinions on the intersection of business, politics, and the cult of entrepreneurship. From Silicon Valley boardrooms to presidential palaces, the blog probes the personalities and systems that shape — and break — public trust. 
+ERIE, PA, August 10, 2026 /24-7PressRelease/ -- Suzy Woo will bring nationally and regionally known speakers, performers, astrologers, paranormal investigators, mediums and extradimensional trance channel Toni Ghazi to the Metaphysical, Holistical & Mystical Expo, Aug. 15–16, 2026, at the Ambassador Banquet and Conference Center in Erie, Pennsylvania.  The expo runs from 10:00 a.m. to 6:00 p.m. both days at 7794 Peach Street. Part conference, part marketplace and part immersive experience, it will feature talks, gallery readings, demonstrations, live performances and a marketplace of readers, healers, practitioners and specialty vendors.  The expo was created and produced by Woo, a metaphysician, holistic practitioner, credentialed healer, holistic psychotherapist, sound healer, astrologer, psychic medium, educator and host of The Woo Factor podcast.  "This expo represents everything I have spent years building—education, healing, curiosity and community," Woo said. "People can hear these personalities share their knowledge and experiences, then meet them personally, continue the conversation and explore their work."  Toni Ghazi, founder of The Antarean Heart, is an extradimensional trance channel known for his work involving what he describes as the Mantis Collective and other galactic beings. He has appeared on Gaia's Beyond Belief and will be presenting at the expo.   Award-winning TEDx speaker, former hedge-fund manager, bestselling author and prosperity coach Joel Salomon will present "Prosperity Energetics: Turning Your Gifts into Predictable Income," exploring the connection between purpose, mindset and consistent income.  Diane Trimbath, president of the Lake County Astrological Association and certified professional astrologer, will present "The Great Initiation, as We Enter the Aquarian Age." Her lecture will consider what current planetary cycles may reveal about changing structures, emerging technologies and collective consciousness.  Dr. Rebecca Nicholson will present "When Crisis Opens the Door: Moral Injury, Spiritual Crisis & Paranormal Experience," examining the relationship between trauma, spiritual crisis and paranormal experiences.  Featured paranormal personalities include historian, author and investigator Tim Shaw and Daniel Klaes, owner of the Haunted Hinsdale House. Klaes is also an author, television and film producer, paranormal investigator and historic preservationist.  Investigators Frank and Heather of the Haunted Western Block will film an episode of The Chopping Block during the expo. The show combines paranormal banter, history, true crime and cooking as the pair prepares a dish for audience members to sample.  Rev. Marjorie "Chi Chi" Rivera, widely known as "The Pittsburgh Medium," will offer readings. The Lily Dale-trained and ordained psychic medium and Spiritualist minister has served clients and students for more than 30 years.  Cleveland-area medium, paranormal investigator and media personality Irene Achelois, along with fourth-generation psychic medium Gregory Nicholas and Tim Shaw will be performing gallery readings, and will be available for one on one sessions at their booths.   Multi-award-winning Australian musicians Harper and Midwest Kind Sound Healing will provide interactive sound-healing experiences both days.   These named personalities represent only part of the lineup. Additional psychic mediums, intuitive readers, astrologers, healers, wellness practitioners, authors, artists and spiritual educators will participate throughout the weekend.  The shopping marketplace will feature crystals, handcrafted jewelry, books, spiritual tools, wellness and bath products, artisan wares, make-and-take creations and other distinctive items.  General admission includes free talks, select gallery readings, a paranormal panel discussion and sound-healing events. Personal readings, healing sessions and marketplace purchases are available separately from participating exhibitors.  Admission is $10 for a one-day pass or $18 for a full-weekend pass. Tickets may be purchased in advance through the expo website or at the door.   Proceeds will support the development of You Are The Miracle Center for the Spiritual Arts, a 501(c)(3) charitable organization founded by Woo. The planned center will be dedicated to healing, education, creativity, community and conscious living.  Schedule, additional information and tickets: https://www.metaphysicalholisticalmystical.com/  ABOUT SUZY WOO  Suzy Woo is the creator and producer of the Metaphysical, Holistical & Mystical Expo and the visionary behind You Are The Miracle Center for the Spiritual Arts. A recognized metaphysical personality throughout Western New York and Northeast Ohio, she is a metaphysician, holistic practitioner, credentialed healer, holistic psychotherapist, sound healer, astrologer, psychic medium, educator and presenter.  As host of The Woo Factor podcast, Woo explores the intersection of spirituality, consciousness, wellness and human potential through conversations with authors, researchers, healers, entrepreneurs, educators and other thought leaders.  ABOUT THE METAPHYSICAL, HOLISTICAL & MYSTICAL EXPO  The Metaphysical, Holistical & Mystical Expo brings together practitioners, educators, authors, healers, paranormal researchers, performers and innovators working at the intersection of science, spirituality, wellness and human potential. The event creates opportunities for education, discovery and meaningful connection in a welcoming community for experienced practitioners and curious newcomers alike. 
 
 ---
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537602/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/537615/suzy-woo-brings-paranormal-experts-astrologers-tedx-speaker-trance-channel-and-renowned-mediums-to-erie-expo)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/forbes-30-under-30-curse-now-a-state-level-scourge-new-op-eds-allege/bb3f91a9f24f72151b9a5d9e35d9fa9c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metaphysical-expo-in-erie-to-feature-top-paranormal-and-spiritual-experts/7cb87624c107ba048d98d5fdff57db52) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/forbes-30-under-30-curse-escalates-from-vc-fraud-to-alleged-national-plunder)
+Pickup - [https://advos.io/en](https://advos.io/en/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/forbes-30-under-30-curse-escalates-from-vc-fraud-to-alleged-national-plunder)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://burstable.news](https://burstable.news/news/forbes-30-under-30-curse-now-includes-alleged-national-plunder-new-columns-charge)
+Pickup - [https://burstable.news](https://burstable.news/news/metaphysical-holistical-mystical-expo-to-feature-notable-speakers-and-paranormal-personalities-in-erie)
 
-Pickup - [https://x.com](https://twitter.com/i/status/2086860541151051801)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/metaphysische-holistische-mystische-messe-mit-bekannten-rednern-und-paranormalen-personlichkeiten-in-erie)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/forbes-30-under-30-fluch-umfasst-nun-mutmasslichen-nationalen-raub-so-neue-kolumnen)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/expo-metafisica-holistica-y-mistica-presentara-a-oradores-destacados-y-personalidades-paranormales-en-erie)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-maldicion-de-forbes-30-under-30-ahora-incluye-presunto-saqueo-nacional-segun-nuevas-columnas)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/expo-metaphysique-holistique-et-mystique-a-erie-des-conferenciers-renommes-et-des-personnalites-paranormales-au-programme)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-malediction-forbes-30-under-30-inclut-desormais-un-presume-pillage-national-selon-de-nouvelles-chroniques)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/expo-metafisica-holistica-e-mistica-apresentara-palestrantes-notaveis-e-personalidades-paranormais-em-erie)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/maldicao-forbes-30-under-30-agora-inclui-suposto-saque-nacional-acusam-novas-colunas)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-tedx-speaker-in-two-day-event)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/from-forbes-30-under-30-to-national-plunder-the-curse-goes-political)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/forbes-30-under-30-curse-escalates-from-vc-fraud-to-national-plunder)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/erie-to-host-metaphysical-expo-featuring-paranormal-experts-and-trance-channel-toni-ghazi)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/forbes-30-under-30-curse-escalates-from-vc-fraud-to-national-plunder-new-columns-allege)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/erie-metaphysical-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/suzy-woos-metaphysical-holistical-mystical-expo-returns-to-erie-with-renowned-speakers-and-paranormal-experts)
 
-Pickup - [https://www.threads.net](https://www.threads.com/@newsramp_alerts/post/Db3ggJqDCKL)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/forbes-30-under-30-curse-escalates-from-vc-fraud-to-national-plunder)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/metaphysical-holistical-mystical-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-in-erie)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/forbes-30-under-30-curse-escalates-to-national-plunder-new-columns-allege)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/erie-expo-to-feature-renowned-paranormal-experts-and-mediums)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/forbes-30-under-30-curse-escalates-from-vc-fraud-to-national-plunder)
+Pickup - [https://news.philadelphianews.com/curated](https://news.philadelphianews.com/curated/metaphysical-expo-in-erie-to-feature-channeling-paranormal-and-holistic-healing)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/forbes-30-under-30-curse-now-includes-national-plunder-new-columns-argue)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-renowned-mediums)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/forbes-30-under-30-curse-escalates-from-vc-fraud-to-national-plunder)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/eries-metaphysical-expo-unites-renowned-speakers-and-healers-for-a-weekend-of-discovery)
 
-Pickup - [https://politics.in-focus.news/political-news](https://politics.in-focus.news/political-news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/erie-expo-to-showcase-paranormal-experts-mediums-and-sound-healing)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/forbes-30-under-30-curse-goes-political-from-vc-fraud-to-national-plunder)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-channel-toni-ghazi)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/the-forbes-30-under-30-curse-goes-political-from-defrauding-vcs-to-plundering-a-nation)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/metaphysical-holistical-mystical-expo-to-feature-renowned-speakers-and-paranormal-investigators-in-erie)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/forbes-30-under-30-curse-escalates-to-national-plunder-columnist/202636915)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/erie-expo-to-feature-paranormal-experts-astrologers-and-trance-c/202636933)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/10/forbes-30-under-30-curse-takes-political-turn-from-investor-fraud-to-national-plunder/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/10/erie-expo-to-feature-paranormal-experts-astrologers-and-mediums-in-two-day-event/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/268/10/evenUfEJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/268/10/peargLuL.webp)
