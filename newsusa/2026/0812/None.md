@@ -1,60 +1,82 @@
-# The Challenge of Hybrid Security Threats
+# Health In Hand Launches New Tool to Help Consumers Spot AI-Generated Health Videos
 
-(NewsUSA) - Modern conflict goes beyond troops and physical weapons. Warfare tactics now include cyber attacks, disinformation campaigns, election interference, and economic coercion.
+(NewsUSA) - As millions of Americans turn to social media, online videos and AI-driven platforms for health information, the Health In Hand Foundation is launching a new resource to help consumers navigate an online environment where not everything they see is real.
 
-Dr. Teija Tiilikainen, director of the European Center of Excellence for Countering Hybrid Threats (Hybrid CoE), outlined hybrid security threats in an interview on NatSec Tech, a podcast produced by the Special Competitive Studies Project (SCSP) covering emerging technology and national security.
+Health In Hand today released “How to Spot an AI-Generated Health Video,” providing practical, accessible guidance for evaluating health videos and claims before liking, sharing, following advice, or making a purchase.
 
-Hybrid CoE defines hybrid threats as "a mixture of different tools used against democracies, against the democratic principle, against democratic practices in our societies to undermine trust in government," Tiilikainen said — tools used by authoritarian regimes to shore up their own power. What sets them apart: "The whole logic of these threats is to surprise us unprepared." The toolkit spans cyber and information operations, election interference, instrumentalized migration, and attacks on critical infrastructure from energy grids to data cables.
+Why Evaluating Online Health Information Matters
 
-Artificial intelligence has raised the stakes. AI "is a huge tool to affect the so-called cognitive sphere, our understanding of reality," Tiilikainen said. When threat actors deploy it ahead of elections or on social media, "we don't know with whom we are communicating." Increasingly, "we don't necessarily recognize the real actors from AI produced actors." AI may eventually help defenders, she noted, but for now attackers hold the advantage.
+The resource comes as Americans increasingly seek health information online. According to recent research, more than one-third of Americans get health information from social media and 1 in 5 use AI chatbots. At the same time, more than half of consumers say it has become difficult to know which sources to trust.
 
-Tiilikainen singled out the information space. In the Russian war against Ukraine, "How do we see the war, who is the victim, who is the responsible actor? This tends to vary not only in Europe, but also outside Europe, very much due to efficient and successful Russian disinformation campaigns." Information is "a very dangerous tool in the hands of hybrid threat actors," she said, amplifying every other tool they use.
+As AI-generated content becomes more sophisticated, some videos are designed to resemble healthcare professionals, medical experts, or trusted wellness influencers, making it increasingly difficult for consumers to distinguish credible information from misleading or fabricated claims.
 
-Russia, China, Iran, and North Korea are the principal state actors, she said, often working through proxies: criminals, hackers, extremists, and unwitting citizens. Attribution is "very, very difficult," and "this is one of the assets that the threat actors are using."
+The new Health In Hand resource is intended to support safer, more informed self-care decisions, encouraging consumers to pause and evaluate the information they encounter rather than relying solely on how professional or convincing a video appears.
 
-Countering them "all starts with our broad societal resilience," Tiilikainen said. More proactive measures include international sanctions and publicly calling out responsible states. "China, for instance, is still quite keen on maintaining its reputation as a responsible international actor," she said.
+"Consumers today are navigating a health information environment unlike anything we've seen before. An AI-generated video can look professional, sound credible, and spread to millions of people within hours," said Mary Leonard, Executive Director of the Health In Hand Foundation.
 
-Education matters too. Tiilikainen pointed to the Nordic and Baltic states, where an informed public helps small countries defend themselves, and to Ukraine and Taiwan, which have used transparency to expose and correct disinformation. The private sector must also engage, since much critical infrastructure is privately owned.
+"Health In Hand is committed to helping consumers separate fact from fiction,” Leonard added. “Our goal is not to make people distrust everything they see online. It's to give them practical tools to ask the right questions, verify sources, and make informed self-care decisions with confidence for themselves and their families."
 
-Hybrid threats are dangerous because they are hard to see, and they test vulnerabilities with larger conflict in mind. "We have the old saying that this is about preparing the battlefield," she said. "From that point of view the threat to democracies can be very existential."
+Think Before You Trust: Three Questions Every Consumer Should Ask
 
-Progress has been made — "I see resilience being strengthened" — but more is needed to prepare for "the malign use of modern technologies." Failure to do so, she warned, would "weaken the credibility of the democratic principles."
+The tool starts with three simple questions consumers can use to evaluate online health content.
 
-Visit scsp.ai to learn more. 
+Does the video look or sound artificial? Strange blinking, unusual mouth movements, robotic speech, distorted background text, or visuals that appear unnaturally smooth can sometimes indicate AI-generated content. However, Health In Hand emphasizes that appearance alone is not enough to determine whether information is trustworthy.
+
+Can you verify who is speaking? Consumers should look for a real name, professional credential, or organization and determine whether the person can be verified outside social media. A clinic, hospital, or professional organization website may provide useful confirmation.
+
+What is the video trying to sell? Consumers should be cautious when a video promotes a miracle cure, unrealistic results, or a single urgent solution. Health claims should be compared with information from trusted health sources.
+
+Five Red Flags That a Health Video Deserves a Second Look
+
+Next, the tool highlights five red flags consumers should watch for. Among them are videos that look unnaturally perfect, with faces, voices or movements that seem slightly off despite polished production. Another warning sign is an apparent expert who relies on staged visual cues, such as a white coat, generic certificates, or vague titles, to create a sense of authority without providing verifiable credentials.
+
+Consumers should also be cautious of health messages that promise a cure, suggest replacing a current medicine, or guarantee dramatic results with little or no evidence. Urgency is another potential red flag. Statements such as “limited time” or “act now,” particularly when paired with an immediate purchase link, can be pressure tactics rather than indicators of trustworthy health information.
+
+Finally, consumers should take a closer look at dramatic before-and-after results. Claims involving rapid weight loss, instant improvements, or seemingly perfect transformations may be edited, exaggerated, or fabricated.
+
+Helping Consumers Navigate the Future of Digital Health Information
+
+As artificial intelligence continues to transform how health information is created, shared, and consumed, Health In Hand is expanding its efforts to help consumers evaluate what they see online and make safer, more informed self-care decisions for themselves and their families.
+
+The Foundation's new tool is part of its broader mission to provide trusted, evidence-based self-care education while helping consumers recognize and avoid misleading health claims online. The "How to Spot an AI-Generated Health Video" tool is available now at HealthInHand.org. 
 
 ---
 
-[Original/Source Press Release](https://about.newsusa.com/the-challenge-of-hybrid-security-threats)
+[Original/Source Press Release](https://about.newsusa.com/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hybrid-threats-and-ai-a-new-era-of-warfare/7133b49d6afd5bff5e086e972391c4bb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/health-in-hand-launches-tool-to-spot-ai-generated-health-videos/df275c82d85fe832f044caba6dc25ec8) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/the-challenge-of-hybrid-security-threats)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/health-in-hand-launches-new-tool-to-help-consumers-spot-ai-generated-health-videos)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/268/12/icyTFJ2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/268/12/nino111D.webp)

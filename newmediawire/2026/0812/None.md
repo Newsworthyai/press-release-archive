@@ -1,140 +1,52 @@
-# Western Star Resources Commences Maiden Field Program at Eagle Point to Advance Past-Producing U.S. Tungsten Project Toward Drilling
+# Wrap Technologies (WRAP) Q2 Revenue Jumps 103% as Gross Margin Expands to 75%
 
-Detailed Mapping, Channel Sampling and Drill-Collar Ground Truthing to Target Expansion of Historically Documented Tungsten Mineralization at Eagle Point, New Mexico
+LOS ANGELES, CA - August 12, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP), a global leader in innovative public safety technologies, reported second-quarter 2026 revenue of $2.1 million, up 103% from $1.0 million a year earlier, while gross profit increased 217% to $1.5 million and gross margin expanded to approximately 75% from 48%. Loss from operations improved 21% to $2.3 million and net loss improved 39% to $2.3 million. Cash and cash equivalents totaled $4.8 million at June 30, up from $3.5 million at year-end. For the first six months of 2026, revenue increased 78% to $3.2 million, including product sales of $2.6 million, while gross profit rose 106% to $2.2 million.
 
- VANCOUVER, BC - August 12, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE: WSR) (OTC: WSRIF) (FRA: 4K2) (the “Company” or “Western Star”) is pleased to announce that it is commencing its maiden field exploration and drill-planning program at the Company’s Eagle Point Tungsten Project (“Eagle Point” or the “Property”), located in Hidalgo County, New Mexico, USA.
+ Subsequent to quarter end, the U.S. Bureau of Alcohol, Tobacco, Firearms and Explosives (“ATF”) classified BolaWrap 150 as an instrument of restraint and rescue rather than a firearm or weapon under applicable federal statutes, which Wrap said expands potential applications beyond law enforcement into the private security market. The company also made a strategic investment in Frenel Imaging Ltd. to anchor the detection layer of its new WrapShield platform, which targets public safety, homeland security, defense and technology opportunities including advanced sensing, counter-uncrewed aerial systems and autonomous systems. Management said it is not updating its previously disclosed target of 100% revenue growth for 2026, noting that the timing of revenue recognition could cause final results to differ materially from current expectations.
 
- The program represents the next stage in Western Star’s systematic advancement of Eagle Point following the Company’s acquisition of the past-producing tungsten property and is designed to validate and refine the geological model, evaluate the continuity and potential extent of tungsten mineralization, and ground-truth proposed drill locations ahead of a future drilling program.
+ To view the full press release, visit https://ibn.fm/eK3bs
 
- Western Star has engaged Dahrouge Geological Consulting Ltd. (“Dahrouge”) to undertake the program. Dahrouge’s scope includes detailed geological and structural mapping, channel and grab sampling, validation of existing project data and ground-truthing of proposed drill-hole collar locations. Importantly, the field team will also evaluate areas surrounding the proposed drilling targets with the objective of identifying opportunities to expand the existing exploration target areas.
+ About Wrap Technologies, Inc.
 
- EAGLE POINT – FROM HISTORICAL TUNGSTEN PRODUCER TO MODERN EXPLORATION TARGET
+ Wrap Technologies, Inc. a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
 
- Eagle Point represents a compelling component of Western Star’s expanding U.S. tungsten strategy.
+ WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
 
- The Property is a past-producing tungsten skarn system comprising 24 lode mining claims in the Granite Pass area of the Little Hatchet mining district. Historical records indicate approximately 1,800 tons of scheelite-bearing material were mined and shipped to the U.S. Government stockpile at Deming during 1943-44, settled on a basis of 0.48% WO(3) [1][2].
+ With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
 
- Historical U.S. Government work subsequently outlined the tonnage of mineralised tactite exposed at surface. J. N. Faick, Geologist, U.S. Geological Survey, and Harrison Schmitt, Consulting Geologist to the then applicant, estimated a historical mineralized system on the order of approximately 170,000 tons, comprising approximately 70,000 tons grading 0.40% WO(3) and approximately 100,000 tons grading 0.25% WO(3)[3]. These figures are historical estimates only and are not current mineral resources or reserves.
+ Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
 
- The historical work ultimately resulted in the U.S. Government preparing and recommending a Defense Minerals Exploration Administration exploration contract (Idm-E783, Docket DMEA-3701) under which it would have funded 75% of a proposed shaft-sinking and diamond-drilling program. That contract never became effective [3], and therefore the program was never carried out, leaving the principal exploration objectives largely untested.
+ WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
 
- More recently, United States Geological Survey and New Mexico Bureau of Geology and Mineral Resources (USGS/NMBGMR) [4] sampling provided additional evidence of high-grade tungsten mineralization at surface, including sample LH705, a scheelite-rich outcrop composite, returning 27.6% WO(3) and 0.98% molybdenum, together with additional selective and composite samples returning elevated tungsten values. These samples are selective in nature and should not be considered representative of the average grade of mineralization on the Property. Composite samples LH700avg and LH701 from the same programme returned 0.35% and 0.40% WO(3) respectively, consistent with the grade of the material historically shipped [4].
+ As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
 
- 2026 EAGLE POINT FIELD PROGRAM
+ WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
 
- The upcoming program is intended to move Eagle Point from compilation of historical information toward a modern, field-validated geological and drill-targeting model.
+ Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
 
- The program will include:
+ The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
 
- - Detailed geological and structural mapping, including strike-and-dip measurements and digital field mapping;
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- - Systematic channel and grab sampling, with samples documented, photographed, uniquely identified and submitted to ALS Tucson;
+ The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
 
- - Ground-truthing of local geology and proposed drill-hole collar locations;
+ Forward Looking Statements
 
- - Field evaluation around proposed drilling targets, specifically aimed at identifying opportunities to expand the exploration target areas;
-
- - Review and validation of existing historical and modern project data; and
-
- - Integration of the new field information with the Company’s existing Eagle Point geological database to assist in refining future drill targets.
-
- A SYSTEM THAT REMAINS LARGELY UNTESTED BY MODERN EXPLORATION
-
- One of the features management considers particularly significant at Eagle Point is the contrast between the amount of mineralization exposed and historically investigated at surface and the limited amount of drilling completed on the Property.
-
- Historical records describe eight skarn bodies exposed through an open cut, trenches and bulldozer cuts, while historical drilling was limited principally to a small number of shallow holes concentrated around the main open-cut area. The Property therefore remains largely untested at depth and along strike using modern exploration methods.
-
- The tungsten mineralization occurs within a contact-metamorphic skarn system developed along the limestone-granitic intrusive contact. Historical mapping indicates individual tactite bodies extending up to approximately 140 feet in length and approximately 30 feet in width, within a mineralized geological setting extending approximately 1,500-2,000 feet along the prospective contact [3]. The limestone host is interpreted to be underlain by granite at approximately 200-300 feet depth, a constraint the programme is intended to test [3]
-
- Western Star believes that systematically mapping, sampling and ultimately drill-testing this geological architecture provides the Company with an opportunity to determine whether the historically identified surface mineralization continues at depth, along strike and into areas that received little or no historical exploration.
-
- There can be no assurance that future exploration will result in the delineation of a mineral resource.
-
- CEO COMMENT
-
- Blake Morgan, President and CEO of Western Star Resources, commented:
-
- “This is the program we have been eager to commence since acquiring Eagle Point. We are moving from historical records and exceptional surface indications to boots on the ground, systematic modern exploration and the identification and validation of drill locations.
-
- “Eagle Point has a combination that is increasingly difficult to find in the United States: documented historical tungsten production, multiple mineralized skarn bodies exposed at surface, significant historical U.S. Government involvement and modern government sampling that has confirmed very high-grade tungsten mineralization at surface.
-
- “What excites us most, however, is what has not been done. The U.S. Government previously agreed to support a drilling program at Eagle Point, yet that program was never completed, and the system has never been comprehensively tested using modern exploration techniques.
-
- “Our objective with Dahrouge is straightforward: understand the geology in substantially greater detail, systematically sample the exposed mineralization, ground-truth our proposed drill locations and investigate the surrounding areas for additional targets. We want the next phase of drilling to test the geological system intelligently and aggressively.
-
- “Western Star is building its U.S. tungsten portfolio at a time when establishing secure domestic supplies of critical minerals has become a strategic priority. Eagle Point, together with our Nevada tungsten assets, gives Western Star exposure to multiple past-producing U.S. tungsten systems. We believe the work now underway can begin demonstrating the scale and significance of what we have assembled.”
-
- BUILDING A U.S.-FOCUSED TUNGSTEN EXPLORATION PLATFORM
-
- The Eagle Point program forms part of Western Star’s broader strategy of assembling and systematically advancing past-producing and historically explored tungsten assets in the United States.
-
- The Company is advancing Eagle Point alongside its tungsten portfolio in Nevada, including the Rowland and White Star projects, where Western Star has also been applying modern geophysical, geochemical and geological exploration methods to historically productive tungsten systems.
-
- Western Star’s strategy is to use modern exploration to systematically evaluate these historically recognized mineralized systems, generate and prioritize drill targets, and advance the most compelling targets toward drilling.
-
- Tungsten is designated as a critical mineral by the United States and is essential to a range of defence, aerospace, industrial and advanced manufacturing applications. Western Star believes the combination of increasing Western focus on critical-mineral security and the scarcity of domestic primary tungsten supply provides a strong strategic backdrop for the advancement of U.S.-based tungsten projects.
-
- NEXT STEPS
-
- Following completion of the Eagle Point field program, Western Star expects to integrate the mapping, structural measurements, channel and grab sampling and drill-location ground truthing with the Property’s historical database.
-
- The resulting geological interpretation is expected to assist the Company in ranking and refining targets for subsequent drill testing, subject to permitting, technical review, financing and other customary considerations.
-
- Dahrouge is scheduled to provide a field summary/assessment report following completion of the program, with the current project schedule targeting completion by during September 2026.
-
- References
-
- 1. Moore, J. I., Jr., 1952. Report of the Eagle Point Mine, Hidalgo County, New Mexico. Haile Mines, Inc., May 1952. New Mexico Bureau of Geology and Mineral Resources, mine file 4208.
-2. Report of the Eagle Point Mine, Hidalgo County, New Mexico. Undated typescript (archival annotation “1948?”). New Mexico Bureau of Geology and Mineral Resources, mine file 4207.
-3. U.S. Bureau of Mines and U.S. Geological Survey. Examination, exploration-assistance and production records, Eagle Point tungsten deposit, Granite Pass, Hidalgo County, New Mexico. Defense Minerals Administration and Defense Minerals Exploration Administration Dockets DMA-1475, DMA-1476X, DMEA-3276 and DMEA-3701, 1941–1957. U.S. National Archives, Record Group 70.
-4. McLemore, V. T., 2025. Earth MRI – Database of chemical analyses of critical mineral deposits in New Mexico. New Mexico Bureau of Geology and Mineral Resources, Socorro, New Mexico. Samples LH700–LH711, Eureka area, Hidalgo County; analyses by the U.S. Geological Survey, laboratory file MRP-21541; collected 26–27 November 2024, analysed 27 March 2025.
-5. Dale, V. B. and McKinney, W. A., 1959. Tungsten deposits of New Mexico. U.S. Bureau of Mines Report of Investigations 5517, 72 p.
-
- WO₃ values quoted in this news release are calculated from elemental tungsten (W) using a conversion factor of 1.2611.
-
- Historical Estimates
-
- The historical estimates referenced in this news release are historical in nature and were prepared prior to the implementation of National Instrument 43-101 – Standards of Disclosure for Mineral Projects (“NI 43-101”). A Qualified Person has not completed sufficient work to classify the historical estimates as current mineral resources or mineral reserves, and the Company is not treating the historical estimates as current mineral resources or mineral reserves. The estimates rest on surface trenching, ultraviolet-lamp observation and sparse grab and chip sampling, without drill support or documented quality control, and separate estimates diverge by a factor of three to four; the Company therefore regards their reliability as low and their relevance as limited to context on historical exploration. Verification as current mineral resources would require detailed mapping, systematic channel sampling under a documented QA/QC protocol, and drilling of sufficient density to establish grade and geometric continuity, followed by independent data verification and estimation by a Qualified Person. The historical estimates are presented solely to provide context regarding the historical exploration of the Eagle Point Property and should not be relied upon as current mineral resources or reserves.
-
- Qualified Person
-
- Jasper Mowatt, MIMMM (No. 0486653) and MAusIMM (No. 3178851), a consultant to the Company and a Qualified Person as defined by NI 43-101, has reviewed and approved the scientific and technical information contained in this news release. Mr Mowatt is not independent of the Company. The historical and third-party information disclosed above is drawn from the sources listed above; the Qualified Person has reviewed those sources but has not verified the underlying sampling, assaying or survey data, which are not available, and has visited the Property in June 2026.
-
- About Western Star Resources Inc.
-
- Western Star Resources Inc. is a mineral exploration company focused on the acquisition, exploration and advancement of critical-mineral assets in North America, with an increasing strategic focus on tungsten in the United States.
-
- The Company’s U.S. tungsten portfolio includes the Eagle Point Tungsten Project in New Mexico and the Rowland and White Star tungsten projects in Nevada. Western Star’s strategy is focused on applying modern exploration methods to historically productive and underexplored mineral systems with the objective of identifying and advancing significant new critical-mineral opportunities.
-
- For further information, please contact:
-
- Blake MorganPresident & Chief Executive OfficerWestern Star Resources Inc.
-
- CSE: WSR | OTC: WSRIF | FRA: 4K2
-
- Forward-Looking Information
-
- This news release contains “forward-looking information” within the meaning of applicable Canadian securities legislation, including statements regarding the timing and completion of the Eagle Point exploration program; the identification, refinement and expansion of exploration and drill targets; future drilling and permitting; the potential continuity, extent and significance of tungsten mineralization; the advancement of the Company’s U.S. tungsten properties; and the Company’s exploration and corporate strategy.
-
- Forward-looking information is based on assumptions considered reasonable by management at the date such statements are made and is subject to known and unknown risks, uncertainties and other factors that may cause actual results to differ materially from those expressed or implied. There can be no assurance that exploration will result in the discovery or delineation of a mineral resource, that proposed exploration or drilling will be completed as contemplated, or that any mineralization identified will prove economically recoverable.
-
- The Canadian Securities Exchange has neither approved nor disapproved the contents of this news release.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/western-star-resources-commences-maiden-field-program-at-eagle-point-to-advance-past-producing-u-s-tungsten-project-toward-drilling-7088455)
+[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-q2-revenue-jumps-103-as-gross-margin-expands-to-75-7088458)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/western-star-commences-maiden-field-program-at-eagle-point-tungsten-project/dc2df229d07eaa588de10283c05ab98a) 
-
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/dc2df229d07eaa588de10283c05ab98a)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-q2-revenue-jumps-103-as-gross-margin-expands-to-75/70ca0a5573421a7dc0095fff81ae2caa) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/mossTPJn.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/lily9J6p.webp)
