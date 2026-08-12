@@ -1,36 +1,55 @@
-# Greenland Mines (GRML) Commences 2026 Drilling at Skaergaard Project
+# Kontron AG: All Conditions of the Mandatory Tender Offer of Ennoconn Corporation are met - Settlement Will Take Place Shortly
 
-LOS ANGELES, CA - August 11, 2026 (NEWMEDIAWIRE) - Greenland Mines (NASDAQ: GRML) announced that drilling has commenced at its Skaergaard gold, palladium and platinum project in southeast Greenland following the arrival of its support vessel Argus and successful mobilization of equipment and infrastructure ashore. Diamond drill rigs supplied and operated by Nordisk Fundering, including two new heli-portable units, have been assembled and are operating, with the first holes expected to be completed within days. Initial LiDAR drone surveys have also been completed, approximately one-third of planned drill locations have been identified and marked and the Sodalen airstrip has been confirmed operational.
+LINZ, AUSTRIA - August 11, 2026 (NEWMEDIAWIRE) - Kontron AG, a global leader in IoT technology, announces that all terms and conditions of the offer have been met and that the Foreign Direct Investment (FDI) has already been cleared in Germany. According to Ennoconn Corporation, the closing of the offer will take place on August 20, 2026.
 
- The 2026 field program is designed to support further upgrading of the Skaergaard Mineral Resource, advance metallurgical and engineering studies through bulk sampling and generate environmental, geotechnical and infrastructure data needed to move the project toward an Initial Assessment and its next phase of development. Greenland Mines said the team is positioned to execute the program over the coming two months with Argus on site, equipment ashore and drilling underway.
+ There has been no material shift in the shares offered. At the settlement, Ennoconn holds 48.36% of the shares in Kontron AG in accordance with the shareholding notification and will not hold a majority of the voting rights after the completion of the offer. Ennoconn does not plan to further expand its shareholding in Kontron AG.
 
- To view the full press release, visit https://ibn.fm/1LRbQ
+ Kontron will remain independent. The existing management will continue to pursue the course of technological leadership and the expansion of the Software and Solutions segment. To this end, it is also planned to push ahead with the cooperation with Foxconn/Ennoconn and thus achieve EUR 40 million in synergies in the medium term.
 
- About Greenland Mines
+ Follow Kontron:
 
- Greenland Mines Ltd. is a Nasdaq-listed company with two operating divisions: (1) Mining, focused on the exploration and development of the Skaergaard Project in southeast Greenland and, subject to closing of the previously announced transaction, the Sarfartoq neodymium-praseodymium (Nd-Pr) rare earths project in southwest Greenland; and (2) Biotech, including Klotho’s KLTO‑202 primary indication for ALS. The Company’s strategy is centered on building a multi-asset platform with exposure to rare earth magnet materials, precious metals and selected midstream processing opportunities, while advancing its broader North Atlantic Critical Metals Corridor vision linking Greenland resources with allied downstream jurisdictions and industrial infrastructure.
+ * Kontron on LinkedIn
+* Current information about Kontron can also be found in the official Kontron Blog
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ About Kontron
 
- The latest news and updates relating to GRML are available in the company’s newsroom at https://ibn.fm/GRML
+ Kontron AG (www.kontron.com, ISIN AT0000A0E9W5, WKN A0X9EJ, KTN) is a leading IoT technology company. For more than 20 years, Kontron has been supporting companies from a wide range of industries in achieving economic goals with intelligent solutions. From automated industrial operations, smarter and safer transportation to advanced communications, connectivity, medical and energy solutions, the company provides value-added technologies to its customers. Kontron is listed on the SDAX® and TecDAX® of Deutsche Börse and employs around 6,500 people in over 20 countries worldwide.
 
- Forward Looking Statements
+ Media Contacts
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Alexandra KentrosKontron AG - CommunicationsPhone: +49 (0) 151 151 938 81group-pr@kontron.com
+
+ Jan LauerProfile Marketing OHGPhone: +49 (0) 531 387 33-18kontron@profil-marketing.com
+
+ Leon-Philipp KleissKontron AG – Investor RelationsPhone: +43 664 60191 5153ir@kontron.com
+
+ All rights reserved. Kontron is a trademark or registered trademark of Kontron AG. All data is for information purposes only and not guaranteed for legal purposes. Information in this press release has been carefully checked and is believed to be accurate; however, no responsibility is assumed for inaccuracies.
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/greenland-mines-grml-commences-2026-drilling-at-skaergaard-project-7088412)
+[Original/Source Press Release](https://www.newmediawire.com/news/kontron-ag-all-conditions-of-the-mandatory-tender-offer-of-ennoconn-corporation-are-met-settlement-will-take-place-shortly-7088424)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-mines-commences-drilling-at-skaergaard-project/a6df770865963c42b915f2c4f3ea770c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kontron-ag-completes-ennoconn-tender-offer-secures-independence-and-synergies/97807470a734fd7c70fcd3936d5bc650) 
 
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/kontron-ag-mandatory-tender-offer-by-ennoconn-clears-final-hurdle-settlement-expected-august-20)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/97807470a734fd7c70fcd3936d5bc650)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/97807470a734fd7c70fcd3936d5bc650)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/ninoORE0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/11/ulnadrkx.webp)
