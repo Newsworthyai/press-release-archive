@@ -1,141 +1,48 @@
-# Malaysia and Hong Kong Deepen Business Ties to Unlock New Pathways for Regional Growth
+# NVIRIQ Launches Next-Generation HVAC Line "Rubicon," Featuring a Patented Thermal Collector Built to Cut Energy Costs Up to 40% Plus Built-In Analytics
 
-Think Business, Think Hong Kong Attracts Some 1,600 Business Leaders, Connecting Malaysian Companies to Capital, Expertise and Opportunities
+Scottsdale-based Startup Unveils the Rubicon 6-Ton and 10-Ton RTU Systems: Hyper-efficient, Thermal-boosted Rooftop Units, Assembled in the USA.
 
- KUALA LUMPUR, MALAYSIA - August 12, 2026 (NEWMEDIAWIRE) - The Hong Kong Trade Development Council (HKTDC) today hosted its flagship overseas promotion, Think Business, Think Hong Kong (TBTHK), in Kuala Lumpur, offering Malaysian business leaders direct access to government officials, investors, founders, innovators and professional service providers.
+ They Think for Themselves and pay for Themselves.
 
- The symposium brought together some 1,600 business leaders from Hong Kong and Malaysia for a day of dialogue, networking, business matching and one-on-one consultations. Among them are over 200 government and business leaders, start-up entrepreneurs and professional service providers from Hong Kong, marking a historic high. During the event, over 300 tailored business matching meetings were lined up to help Malaysian companies find the right Hong Kong partners to expand internationally.
+ Boring HVAC, Meet your Replacement.
 
- As businesses navigate shifting global trade dynamics and seek more resilient pathways for international growth, the symposium offered vast opportunities for Malaysian businesses to access capital, diversify their business networks, establish cross-border partnerships and expand into the Guangdong-Hong Kong-Macao Greater Bay Area (GBA), the wider Chinese Mainland and global markets through Hong Kong.
+ SCOTTSDALE, AZ - August 12, 2026 (NEWMEDIAWIRE) - NVIRIQ Inc, built to disrupt next-generation HVAC, today announced the official launch of the Rubicon commercial HVAC platform. It's a line of hyper-efficient rooftop units (RTUs) built to replace tired, dumb commercial air conditioning systems with something that actually earns its spot on your roof. Assembled in the USA and now available in 6-Ton and 10-Ton configurations, Rubicon drops in as a direct replacement for standard commercial RTUs. No redesign, no drama, no excuses.
 
- The opening ceremony was officiated by Prof Frederick Ma, Chairman of HKTDC, together with The Honourable Algernon Yau, Secretary for Commerce and Economic Development of the Hong Kong SAR Government, and YB Loke Siew Fook, Malaysia's Minister of Transport.
+ At the heart of the Rubicon platform is a patented thermal collector, working alongside the variable-speed inverter heat pump to deliver average energy savings of 30 to 40% over conventional rooftop units. Peak performance hits up to 31 IEER on the 10-Ton model and 6 COP in heating mode across the line. Every system features a live cloud performance dashboard, so building owners see energy use, system health, and maintenance needs in real time. Problems get caught before they turn into a five-figure emergency call.
 
- In his welcome remarks, Prof Ma said: “Especially at times like these – when businesses are navigating geopolitical uncertainty, evolving supply chains and rapid advances in technology – trusted connections and strong networks are more valuable than ever. First launched in 2011 and held in major cities all around the world, TBTHK has proven to be popular and successful. It is a platform via which networks are expanded, relationships are deepened and new partnerships are forged. Today’s symposium is a timely opportunity to build on the close ties that we have all benefitted from – in so many different and rewarding ways – over the years.”
+ "Commercial building owners have been stuck with the same outdated HVAC playbook for decades," said Devin Cooley, President and Co-Founder of NVIRIQ. "When a rooftop unit dies in the middle of a summer heatwave, the answer shouldn't be 'call your contractor and replace it with the same thing.' Rubicon was built to break that cycle. It's a system that pays for itself, tells you when it needs attention, and qualifies for serious federal incentives. This isn't just an equipment upgrade. It's an upgrade to the way you think about your roof."
 
- In his opening remarks, Mr Yau said: “For Malaysian companies, the Chinese Mainland is for no doubt a huge market not to be missed. Especially at times like this, everyone is talking about diversification. Apart from strengthening your operations in the local market, it is always good to tap the potentials from overseas markets, including the Chinese Mainland. Hong Kong has the knowhow and expertise to help Malaysian companies to navigate the Chinese Mainland markets. We have been doing it for a long time, and we are good at it. The other way around, we are also supporting Chinese Mainland enterprises to go overseas via Hong Kong. We established the GoGlobal Task Force (Task Force on Supporting Mainland Enterprises in Going Global) last year to provide one-stop, customised support services to facilitate outbound direct investment into overseas markets, including Malaysia and beyond.”
+ Key Features of the Rubicon Platform
 
- In his special remarks, Mr Loke said connectivity Is the precondition for movement of capital and people, with Kuala Lumpur and Hong Kong being under four hours flight apart and sharing the same time zone.
+ * Patented Thermal Collectors: The NTX-32 thermal collector integrates directly with the RTU, banking 1 to 4 hours of daily thermal storage and up to 72,000 BTUs of supplemental capacity per collector. No battery required, no compromises made. Proudly made in the USA, and it shows.
+* Live Cloud Dashboard + Predictive Diagnostics: Owners and facility managers get real-time performance data, remote diagnostics, proactive maintenance alerts, and energy tracking. Systems get fixed before they fail, not after the building's already sweating.
+* Direct RTU Replacement: Rubicon units are built for fast, frictionless installation as a direct swap for standard commercial rooftop units. Less downtime, lower install costs, zero headaches.
+* 40% Federal Tax Credit Eligibility: Rubicon systems qualify for a 40% federal tax credit under current clean energy incentive programs. That's not a rounding error, that's real money back in your pocket.
+* Zero Out-of-Pocket Financing: NVIRIQ offers no-down-payment financing, so commercial building owners can upgrade today without tying up a dollar of capital.
+* 5-Year “Bumper-to-Bumper” Warranty: Every Rubicon unit is backed by a comprehensive 5-year parts and labor warranty, with parts on hand and short lead times. We stand behind what we build, full stop.
 
- “The same logic governs freight. Hong Kong International Airport is among the busiest cargo gateways in the world, while Port Klang sits on one of the most heavily used shipping lanes globally. Malaysia's exports are increasingly electronics, semiconductors and other high-value goods that are time-sensitive and travel by air. Therefore, Hong Kong's depth in logistics, trade finance, arbitration and professional services is the natural complement to that. If your business depends on moving a product from a Malaysian factory to a customer anywhere in Asia, Europe or North America quickly and with the documentation in order, this is a corridor you should be examining closely,” he said.
+ First Installations Underway in California and Arizona
 
- Mr Loke also pointed out that Malaysia wants more events of TBTHK’s calibre to be held in the country, to facilitate business discussions, networking and build foundations for future collaborations.
+ NVIRIQ's first commercial deployments are already live. Pilot installations are running in Sacramento, CA, on the facility of a local Sacramento-based contractor, and in Phoenix, AZ, at a 20-year-old local printing business near Phoenix Sky Harbor International Airport. Both sites are running the Rubicon 6-Ton RTU and will serve as real-world proof points as NVIRIQ builds out its national footprint.
 
- Opening new growth pathways for Malaysian businesses
+ Built for Commercial Building Owners, Property Investors, and Facility Managers
 
- The programme featured a flagship plenary session chaired by Lincoln Pan, Chief Executive Officer of Jardine Matheson Holdings Limited, with heavyweight speakers, including Bonnie Y Chan, Chief Executive Officer of Hong Kong Exchanges and Clearing Limited, Tan Sri Dato’ David Chiu, Chairman and Chief Executive Officer of Far East Consortium International Limited, Daniel R Fung, Senior Counsel, Des Voeux Chambers; Founding Chairman, ASEAN Chamber of Commerce (Hong Kong); Vice Chairman, Financial Services Development Council, Datuk Wira Song Hoi See, Founder and Chief Executive Officer, Plaza Premium Group; Chairman, Malaysian Chamber of Commerce Hong Kong and Macau, and Thomas Tsao, Co-founder and Chair of Gobi Partners, who discussed Asia's evolving business landscape and how companies can position themselves to capture emerging regional opportunities.
+ The Rubicon platform is purpose-built for owners and operators of commercial office, retail, industrial, QSR, convenience store, and mixed-use properties. It's especially suited for those carrying HVAC operating costs under triple-net or owner-occupied arrangements. NVIRIQ can facilitate the full sales and installation process, backed by a network of trusted, trained contractors. Customers never have to navigate the old-school HVAC procurement maze to get next-generation technology on their roof.
 
- Reflecting Malaysia's growing strategic importance in ASEAN and the evolving priorities of businesses across the region, four thematic sessions explored key areas of collaboration between Hong Kong and Malaysia.
+ "We're making this as easy as possible," added Cooley. "You shouldn't have to be an HVAC expert to get a better system. We handle it end to end, so you can get back to running your business."
 
- The Capturing RMB Opportunities in Trade, Financing and Investment – Hong Kong’s Strategic Role session, co-organised with the Hong Kong Monetary Authority, explored the growing role of the Renminbi in trade, investment and treasury management. Speakers discussed how Malaysian businesses can leverage Hong Kong's position as the world's leading offshore RMB hub to support regional and Chinese Mainland expansion.
+ About NVIRIQ
 
- The GreenBiz Hong Kong: Driving the Green Transition with Green Finance, Innovation and Cross-Border Collaboration session, supported by the Hong Kong Cyberport Management Company Limited, examined how sustainable growth can be achieved. Participants highlighted opportunities in green finance, climate technology and data-driven solutions as well as Hong Kong's role in connecting green capital and innovation across the region.
+ NVIRIQ Inc is a Scottsdale, Arizona-based commercial HVAC technology company built to disrupt how buildings heat and cool. It's built on more than a decade of industry experience and a portfolio of thermal technology. NVIRIQ's Rubicon platform pairs a patented thermal collector with a real-time cloud dashboard to slash energy consumption by 30 to 40%, predict system failures before they happen, and deliver efficiency ratings that redefine commercial climate control. Rubicon RTUs are assembled in the USA, and NVIRIQ's thermal collectors are proudly made in the USA. Innovative by design, pressure-tested by experience, NVIRIQ is setting a new standard in commercial cooling and heating. Learn more at NVIRIQ.com.
 
- Following the luncheon, the Strategic Resilience: Capitalising on Hong Kong as a Base for Regional Expansion session, co-organised with Invest Hong Kong, explored how companies can strengthen regional expansion strategies amid a changing global business landscape. Featuring firsthand insights from international tech pioneers, expanding educational operators, and premier regional advisors, this session demonstrated how partnering with Hong Kong provides the structural stability to optimise corporate assets, mitigate geopolitical risk, and accelerate growth across ASEAN and Greater China.
-
- The Accelerating the Global Expansion of Life and Health Technology Through Ecosystem Collaboration session, co-organised with the Hong Kong-Shenzhen Innovation and Technology Park, focused on how ecosystem collaboration can accelerate the commercialisation and global expansion of health and biotech innovations. Industry leaders shared insights on leveraging partnerships, talent and innovation networks to scale new technologies internationally.
-
- 10 MoUs, over 300 business matching meetings forge new partnerships
-
- This year’s TBTHK also witnessed the signing of 10 memoranda of understanding (MoUs), including those signed by various media companies with their respective partners, underscoring growing collaboration between Hong Kong’s services sector and Malaysia’s business community.
-
- In addition to the symposium, some 30 Hong Kong service providers and start-ups featured their flagship products and solutions in the exhibition’s Business Support Zone and InnoVenture Salon to create opportunities for collaboration with Malaysian participants. Over 300 one-on-one business consultations and on-site business matching also facilitated deals and cooperation between Malaysian and Hong Kong companies.
-
- The Hong Kong Tourism Board also brought a taste of Hong Kong's vibrant culinary culture to TBTHK. Participants had the opportunity to sample signature offerings from Chinesology, Hong Kong's pioneering Muslim-friendly fine-dining Chinese restaurant, and Bar Leone, the first Asian bar to top The World's 50 Best Bars list, highlighting the city's creativity, diversity and world-class hospitality.
-
- The Hong Kong Luncheon held during the symposium was hosted by Mr Yau and Malaysia’s Deputy Minister of Finance YB Liew Chin Tong. It was attended by over 300 prominent guests from government and business sectors.
-
- This promotion is also part of the Hong Kong SAR Government’s Economic Trade and Express initiative encouraging Hong Kong SMEs and startups to conduct more overseas visits exploring business opportunities, while bringing in more enterprises to invest in and establish businesses in Hong Kong.
-
- Event highlight video: https://youtu.be/chRbKeEzF2A
-
- Photo Download: https://bit.ly/3TQ7nyL
-
- Media enquiries
-
- HKTDC’s Kuala Lumpur office:
-
- Celine Low
-
-Tel: (603) 2381 1061
-
-Email: celine.ps.low@hktdc.org
-
- 
-
- Zeno:
-
- Jacqueline Khoo
-
-Tel: (6016) 453 8183
-
-Email: jacqueline.khoo@zenogroup.com
-
- Sally Lee
-
-Tel: (6018) 918 8072
-
-Email: sally.lee@zenogroup.com
-
- 
-
- HKTDC’s Communications & Public Affairs Department:
-
- Jane Cheung
-
-Tel: (852) 2584 4137
-
-Email: jane.mh.cheung@hktdc.org
-
- Sam Ho
-
-Tel: (852) 2584 4569
-
-Email: sam.sy.ho@hktdc.org
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- HKTDC Media Room: http://mediaroom.hktdc.com
-
- About HKTDC The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via trade publications, research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
-
-View the original release on www.newmediawire.com 
+ Media Contact:media@nviriq.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/malaysia-and-hong-kong-deepen-business-ties-to-unlock-new-pathways-for-regional-growth-7088447)
+[Original/Source Press Release](https://www.newmediawire.com/news/nviriq-launches-next-generation-hvac-line-rubicon-featuring-a-patented-thermal-collector-built-to-cut-energy-costs-up-to-40-plus-built-in-analytics-7088449)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/think-business-think-hong-kong-draws-1600-in-kuala-lumpur/7273ba9869532438393dd7bfd2cc72ac) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nviriq-launches-rubicon-rtus-30-40-energy-savings-smart-dashboard/4e55ac5f63e19de21d1665a071a7a97d) 
 
  
 
@@ -143,4 +50,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/gleeehYV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/milkX0Th.webp)
