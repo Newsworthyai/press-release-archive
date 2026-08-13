@@ -1,52 +1,79 @@
-# Wrap Technologies (WRAP) Q2 Revenue Jumps 103% as Gross Margin Expands to 75%
+# Deutsche Konsum Real Estate AG Publishes Quarterly Statement for the First Nine Months of the 2025/2026 Financial Year
 
-LOS ANGELES, CA - August 12, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP), a global leader in innovative public safety technologies, reported second-quarter 2026 revenue of $2.1 million, up 103% from $1.0 million a year earlier, while gross profit increased 217% to $1.5 million and gross margin expanded to approximately 75% from 48%. Loss from operations improved 21% to $2.3 million and net loss improved 39% to $2.3 million. Cash and cash equivalents totaled $4.8 million at June 30, up from $3.5 million at year-end. For the first six months of 2026, revenue increased 78% to $3.2 million, including product sales of $2.6 million, while gross profit rose 106% to $2.2 million.
+* Implementation of the restructuring plan: Property sales of around EUR 78 million completed since the start of the restructuring process; additional purchase agreements worth EUR 16 million signed
+* Financing structure further improved: Financial liabilities reduced to EUR 311.5 million (30 September 2025: EUR 471.1 million); net LTV at 41.1% (30 September 2025: 57.8%)
+* Portfolio revaluation as of 30 June 2026 results in a valuation loss of EUR 41.6 million
+* Funds from Operations (FFO) increase to EUR 14.5 million (9M 2024/2025: EUR 9.9 million)
 
- Subsequent to quarter end, the U.S. Bureau of Alcohol, Tobacco, Firearms and Explosives (“ATF”) classified BolaWrap 150 as an instrument of restraint and rescue rather than a firearm or weapon under applicable federal statutes, which Wrap said expands potential applications beyond law enforcement into the private security market. The company also made a strategic investment in Frenel Imaging Ltd. to anchor the detection layer of its new WrapShield platform, which targets public safety, homeland security, defense and technology opportunities including advanced sensing, counter-uncrewed aerial systems and autonomous systems. Management said it is not updating its previously disclosed target of 100% revenue growth for 2026, noting that the timing of revenue recognition could cause final results to differ materially from current expectations.
+ POTSDAM, GERMANY - August 12, 2026 (NEWMEDIAWIRE) - Deutsche Konsum Real Estate AG (“Company”, “DKR”) (ISIN: DE000A14KRD3 | WKN: A14KRD | ticker symbol: DKG) today published its financial results for the first nine months of the 2025/2026 financial year.
 
- To view the full press release, visit https://ibn.fm/eK3bs
+ Restructuring progress strengthens the financing structure
 
- About Wrap Technologies, Inc.
+ The Company continued to implement its restructuring plan during the reporting period. The already completed restructuring capital increase, including the debt-to-equity swap, as well as ongoing property sales are contributing to further reduction of debt. From the start of the restructuring process through 30 June 2026, property sales totalling around EUR 78 million were completed. Purchase agreements for two additional properties with a total purchase price of EUR 16 million were signed.
 
- Wrap Technologies, Inc. a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
+ The successful reduction in debt has strengthened the Company’s financing structure. Equity increased to EUR 397.0 million (30 September 2025: EUR 304.3 million), while financial liabilities decreased to EUR 311.5 million (30 September 2025: EUR 471.1 million), and net LTV improved to 41.1% (30 September 2025: 57.8%). Interest expenses declined to EUR 10.7 million (9M 2024/2025: EUR 18.7 million).
 
- WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
+ Operating business progresses as planned
 
- With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
+ As a result of the ongoing property sales, rental income decreased to EUR 48.0 million (9M 2024/2025: EUR 52.7 million). Net rental income remained almost flat year-on-year at EUR 29.2 million (9M 2024/2025: EUR 29.8 million).
 
- Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
+ Lower interest expense had a positive impact on operating earnings, with Funds from Operations (FFO) increasing to EUR 14.5 million (9M 2024/2025: EUR 9.9 million). Due to the higher number of shares outstanding, FFO per share decreased year-on-year to EUR 0.18 (9M 2024/2025: EUR 0.24).
 
- WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
+ The result for the period improved to EUR -25.7 million (9M 2024/2025: EUR -32.6 million).
 
- As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
+ As of 30 June 2026, the portfolio comprised 140 properties with a balance sheet of EUR 693.7 million. The portfolio was revalued by CBRE as of 30 June 2026, resulting in a valuation loss of EUR 41.6 million, corresponding to approximately 5.7% decrease.
 
- WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
+ Changes to the Management and Supervisory Board
 
- Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
+ During the reporting period, changes were made to the composition of the Management and Supervisory Board. Daniel Lohken, previously Chairman of the Supervisory Board, was appointed to the Management Board as Chief Executive Officer for a term of three years with effect from 1 July 2026. Kyrill Turchaninov stepped down from the Management Board as planned on 31 July 2026. The new Chairman of the Supervisory Board is Dr. Kai Gregor Klinger. Sebastian Wasser remains Vice Chairman of the Supervisory Board. At the Annual General Meeting on 17 April 2026, shareholders also resolved to elect Thorsten Arsan to the Supervisory Board and to create new Authorised Capital and Conditional Capital. Hank Boot did not stand for re-election and stepped down from the Supervisory Board upon conclusion of the Annual General Meeting.
 
- The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
+ Outlook
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ In addition to the continuing operational development of the portfolio, the Company’s focus in the coming months will remain on implementing the restructuring measures. The restructuring plan provides for property disposals of up to EUR 220 million by September 2027.
 
- The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
+ As a result of the property sales, rental income is expected to decline in line with plan. For the 2025/2026 financial year the Company continues to anticipate rental income in the range of EUR 58 million to EUR 63 million, while FFO is expected to increase due to lower interest expenses. The implementation of the planned property sales remains subject to uncertainties arising from the persistently challenging geopolitical environment and its resulting impact on the transaction market.
 
- Forward Looking Statements
+ Conference Call
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Deutsche Konsum Real Estate AG will hold an analyst conference (webcast and conference call) on the results of the first nine months of the 2025/2026 financial year today, 12 August 2026, at 10:00 a.m. CEST. The corresponding presentation and further information on the webcast and the conference call can be found at https://www.deutsche-konsum.de/en/investor-relations. The quarterly report for the third quarter of the 2025/2026 financial year is available for download at https://www.deutsche-konsum.de/en/investor-relations/financial-reports.
+
+ About Deutsche Konsum Real Estate AG
+
+ Deutsche Konsum Real Estate AG, Broderstorf, is a listed real estate company with a focus on German retail properties for everyday goods in established micro-locations. The Company’s primary focus is on acquiring, managing and developing local supply properties to achieve consistent performance and leverage hidden reserves.
+
+ The shares of the Company are listed on the Prime Standard of the Deutsche Borse (ISIN: DE000A14KRD3).
+
+ Contact:Deutsche Konsum Real Estate AGMareike KuliberdaInvestor RelationsMarlene-Dietrich-Allee 12b14482 PotsdamTel: 0331 / 74 00 76 - 533Fax: 0331 / 74 00 76 - 599E-Mail: mk@deutsche-konsum.de
+
+ 
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-q2-revenue-jumps-103-as-gross-margin-expands-to-75-7088458)
+[Original/Source Press Release](https://www.newmediawire.com/news/deutsche-konsum-real-estate-ag-publishes-quarterly-statement-for-the-first-nine-months-of-the-2025-2026-financial-year-7088465)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-q2-revenue-jumps-103-as-gross-margin-expands-to-75/70ca0a5573421a7dc0095fff81ae2caa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dkr-restructuring-cuts-debt-boosts-ffo-but-property-values-dip/1ead3d53908d600934ceef4476fa762e) 
 
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/deutsche-konsum-real-estate-ag-reports-progress-in-restructuring-debt-reduction-and-improved-ffo)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/deutsche-konsum-real-estate-ag-informa-avances-en-reestructuracion-reduccion-de-deuda-y-mejora-del-ffo)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/deutsche-konsum-real-estate-ag-reports-progress-on-restructuring-with-improved-financing-and-increased-ffo)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/1ead3d53908d600934ceef4476fa762e)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/lily9J6p.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/12/noon2jk7.webp)
