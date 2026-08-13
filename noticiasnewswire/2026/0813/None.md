@@ -1,46 +1,48 @@
-# HITN and Philadelphia’s Impacto Partner on Special Immigration Program Offering Legal and Consular Guidance
+# Lotto.com® and Players Cafe Hosts Community Adoption Event with Greyhound Pets of America in Minneapolis
 
-BROOKLYN, NY – August 13, 2026 – (NOTICIAS NEWSWIRE) – Hispanic Information Telecommunications Network (HITN), the nation’s leading Spanish-language public media network, and Impacto, Philadelphia’s Latino newspaper of record, are partnering to present a special program focused on immigration, offering Hispanic audiences across the United States access to legal information and consular resources.
+MINNEAPOLIS, MN — 13 de agosto de 2026 — (NOTICIAS NEWSWIRE) — Lotto.com, la primera plataforma de lotería en línea en los Estados Unidos que entrega digitalmente juegos de sorteo e instantáneos, organizó con orgullo un evento de adopción impulsado por la comunidad en colaboración con Greyhound Pets of America el sábado 20 de junio en el Players Cafe de Lotto.com en Minneapolis.
 
- The program will air nationally on Sunday, August 16, at 9 a.m. and will subsequently be available for free on the HITN Go app, with no account required.
+ Este evento reunió a la comunidad para disfrutar de una mañana divertida y participativa, al mismo tiempo que ayudó a crear conciencia sobre Greyhound Pets of America, una organización dedicada a ayudar a los galgos de carreras retirados a encontrar hogares llenos de amor. Su misión se centra en brindar cuidado, apoyo y servicios de adopción que faciliten una transición segura y exitosa a la vida familiar.
 
- Hosted by journalist Haydeé Rosario Latorre, the program features immigration attorney Gladys Carredeguas, who will address legal considerations related to immigration processes and emphasize the importance of seeking qualified professional advice before making decisions that could affect an individual’s or family’s immigration status.
+ Los asistentes tuvieron la oportunidad de conocer galgos disponibles para adopción y disfrutar de una variedad de actividades y promociones especiales, entre ellas un 50% de descuento en bebidas seleccionadas, además de cupones con un 25% de descuento para futuras compras que no incluyeran productos de lotería, y mucho más. Además de organizar el evento, Lotto.com realizó una donación a la organización para ayudar a cubrir las tarifas de adopción de futuras familias.
 
- The program will also feature Marcos Bucio M., consul general of Mexico in New York, who will discuss the guidance, protection and support services available through Mexico’s consular network to Mexican communities across the United States.
+ A través de iniciativas como este evento, Lotto.com continúa ampliando su impacto más allá del acceso digital a la lotería, apoyando causas que contribuyen a mejorar la calidad de vida en las comunidades locales.
 
- The collaboration grew out of Impacto’s publication of an informational guide on immigration issues affecting communities in Pennsylvania. Through the television program, HITN and Impacto are expanding the reach of that information to a national Hispanic audience.
+ Uno de los momentos más especiales del evento fue la presencia de Bailey y Rhea, dos galgos retirados de las carreras que estaban en busca de un hogar. Ambos habían llegado recientemente a Minnesota desde los hipódromos de Virginia Occidental y rápidamente se ganaron el cariño de quienes participaron en el evento. De hecho, recibieron tanta atención que ese mismo día se recibieron varias solicitudes de adopción.
 
- “From an information and outreach perspective, the work of Impacto is particularly relevant at this time,” said Michael D. Nieves, president and CEO of HITN. “We wanted to expand that message so it could reach HITN viewers and create a broader ripple effect supported by legal and consular information. Access to accurate and reliable information is essential, which is why anyone will be able to watch this program for free on the HITN Go app, without having to create an account.”
+ “En GPA-MN estamos muy emocionados de haber tenido esta oportunidad de mostrarle a la comunidad lo maravillosos que pueden ser los galgos retirados de las carreras como mascotas”, comentó Janelle Thienes, miembro de la junta directiva de GPA. “La ubicación de Players Cafe, con su constante flujo de visitantes, nos permitió presentar a nuestros galgos de acogida a muchas personas amantes de los perros en el vecindario North Loop de Minneapolis. Tanto nosotros como los perros agradecemos especialmente la donación de Lotto.com, que nos ayuda a cubrir gastos veterinarios y a mantener las tarifas de adopción al alcance de más familias”.
 
- As part of its commitment to community journalism, Impacto had already published a special print edition designed to help residents better understand immigration policies, stay informed about their rights, assess their individual circumstances and identify resources that may help them make informed decisions for themselves and their families.
+ “La comunidad está en el centro de todo lo que hacemos en Lotto.com”, afirmó Thomas Metzger, CEO de Lotto.com Inc. “Colaborar con organizaciones como Greyhound Pets of America nos permite apoyar causas importantes mientras reunimos a las personas de una manera positiva y memorable”.
 
- The special program reinforces the partnership between HITN and Impacto and their shared commitment to providing Hispanic communities with accessible, reliable and relevant information on issues affecting their daily lives.
+ Lotto.com también está contribuyendo con apoyo financiero a Greyhound Pets of America para impulsar sus programas de rescate y adopción de animales. Los fondos se utilizarán para ayudar a cubrir los costos de adopción, facilitando que estos perros encuentren hogares permanentes donde puedan vivir felices.
 
- About HITN Media HITN is the leading Spanish-language media company that offers educational and cultural programming for the whole family. It reaches more than 35 million homes in the United States and Puerto Rico through DIRECTV, DIRECTV NOW, AT&T U-verse, AT&T TV, AT&T TV Now, DISH Network, Verizon FiOS TV, Comcast Xfinity, Charter Spectrum, Mediacom, CenturyLink Prism, and Altice, Liberty Cable and Claro (Puerto Rico). Download the HITN GO app available on Apple, Android, Apple TV, and Roku® with a subscription.
+ Además de contribuir al financiamiento de importantes programas estatales mediante las loterías de Estados Unidos, Lotto.com invierte directamente en las comunidades a las que sirve. Recientemente, la compañía se asoció con Food For Thought Denver™ para apoyar iniciativas que combaten la inseguridad alimentaria, reforzando su compromiso con el impacto local.
 
- For more information: Corporate Webpage: HITN.org TV Webpage: hitn.tv Linkedin: @HITN Facebook: @HITNtv X: @hitn Instagram: @HITNtv YouTube: @HITNTelevision
+ Actualmente, Lotto.com opera en 11 estados, incluyendo Arizona, Arkansas, Colorado, Maine, Massachusetts, Minnesota, Nebraska, Nueva Jersey, Nueva York, Ohio y Oregón, con planes de expandirse a más estados próximamente.
 
- About Impacto Newspaper Based in Hunting Park, North Philadelphia, Impacto is Philadelphia’s Latino newspaper of record. Founded in 2003 by community activists and leaders, the publication was acquired and relaunched in 2020 with a focus on community journalism.
+ Para obtener más información sobre Lotto.com o comenzar a ordenar boletos oficiales de lotería estatal “Winever”, visite www.lotto.com.
 
- Impacto publishes three print editions each month in Philadelphia and Southeastern Pennsylvania, along with weekly digital editions and ongoing online coverage. The newspaper is distributed free of charge door-to-door throughout North Philadelphia and at additional locations across the city and state.
+ Acerca de Lotto.com Inc. Con sede en Jersey City, Nueva Jersey, Lotto.com es la primera plataforma digital para solicitar juegos oficiales de lotería estatal, tanto de sorteos como raspables (instantáneos), a través de dispositivos móviles y plataformas web. Como servicio de mensajería de lotería que permite la participación de los usuarios en las loterías estatales de EE. UU., Lotto.com ayuda a las loterías estatales de los Estados Unidos a incrementar sus ingresos para programas estatales en áreas como educación, parques, servicios de emergencia, salud de veteranos y otros servicios esenciales.
 
- Impacto is owned by Nueva Esperanza, Inc. through a structure designed to provide community-based oversight while preserving editorial independence. Esperanza is a nonprofit organization dedicated to strengthening Hispanic communities and expanding opportunities for individuals, families and neighborhoods.
+ Lotto.com es el único servicio “courier” de lotería acreditado A+ por el Better Business Bureau (BBB) y cuenta con certificaciones de Gaming Laboratories International (GLI) y del National Council on Problem Gambling (NCPG), lo que refuerza su compromiso con la seguridad, el cumplimiento normativo y el juego responsable.
 
- For more information, visit www.impactomedia.com.
+ Lotto.com cuenta con más de 4 millones de clientes y ha creado 12 millonarios a través de juegos estatales, incluyendo el premio más grande en la historia de boletos raspables de Lotto.com: $3 millones otorgados a un cliente en Colorado. En junio de 2023, Lotto.com introdujo Lotto.com Scratch Tickets, que actualmente están disponibles en Arizona, Colorado, Massachusetts, Nebraska, Ohio y Oregón. Lotto.com está disponible actualmente en Arizona, Arkansas, Colorado, Maine, Massachusetts, Minnesota, Nebraska, Nueva Jersey, Nueva York, Ohio, Oregón y Puerto Rico, con planes de expandirse a más estados en el futuro cercano.
 
- CONTACT: Fernando Cardenas fcardenas@hitn.org 
+ CONTACTO: Havas Formula lotto@havasformula.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/hitn-and-philadelphias-impacto-partner/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/lotto-and-players-cafe-hosts-event/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hitn-and-impacto-partner-to-bring-vital-immigration-info-to-hispanic-communities/f645e067fb73c8494d7ff23e98b780c6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lotto-com-and-greyhound-pets-of-america-host-adoption-event-in-minneapolis/f70a066308549a17fbd28a806e21b0e4) 
 
+
+Pickup - [https://x.com](https://twitter.com/i/status/2087947975448207365)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/268/13/rifteXXu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/268/13/harpOHiX.webp)

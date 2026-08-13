@@ -1,63 +1,47 @@
-# GeoVax Highlights Capabilities Amid Congo's Expanding Ebola Outbreak
+# Wrap Technologies (WRAP) Partners With XINSURANCE to Launch Safe Response Program for Private Security Market
 
-Company Prepared to Contribute Hemorrhagic Fever Vaccine Expertise and Candidates to Global Response
+LOS ANGELES, CA - August 13, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP) and XINSURANCE announced a strategic partnership to develop and bring to market the WRAP Safe Response Program, a certified operating standard for organizations that employ or contract security personnel. The program is designed to establish a documented standard for training, equipment and response before encounters escalate, targeting a U.S. workforce of approximately 1.28 million security guards across corporations, healthcare systems, schools, retailers, hospitality properties, transportation networks, critical infrastructure and other environments. The initiative follows the June 15 Bureau of Alcohol, Tobacco, Firearms and Explosives ruling that classified the BolaWrap (R) 150 as neither a firearm under the Gun Control Act nor a weapon under the National Firearms Act, removing a federal barrier to its use as an early intervention option for unarmed security personnel.
 
- Mpox/smallpox Remains Lead Infectious Disease Priority, With Broader MVA Portfolio Providing Strategic Optionality
+ Under the partnership, WRAP will own, certify and audit the Safe Response standard, while organizations can adopt it for their own security operations and require contracted security providers to certify personnel under the program. XINSURANCE will handle insurance activities contemplated by the program, including product design, underwriting, pricing, placement, policy servicing and claims. WRAP said the model expands its addressable market beyond law enforcement by enabling enterprises carrying security-related risk to establish the standard across their properties and contracted security operations.
 
- ATLANTA, GA - August 13, 2026 (NEWMEDIAWIRE) - GeoVax Labs, Inc. (Nasdaq: GOVX) ("GeoVax" or the "Company"), a biotechnology company developing vaccines and immunotherapies against infectious diseases and cancers, today highlighted the potential relevance of its MVA-based hemorrhagic fever vaccine expertise as public health authorities confront the rapidly expanding outbreak of Ebola disease caused by Bundibugyo virus (BDBV) in the Democratic Republic of the Congo and surrounding region.
+ To view the full press release, visit https://ibn.fm/lvlln
 
- According to the World Health Organization (WHO), the outbreak is the fastest-growing Ebola outbreak recorded and is on a trajectory that could exceed the death toll of the devastating 2014-2016 West Africa Ebola epidemic. More than 4,300 cases and 2,000 deaths have been reported, with continued transmission across challenging and conflict-affected areas. There is currently no approved vaccine in use specifically against Bundibugyo virus.
+ About Wrap Technologies, Inc.
 
- GeoVax has extensive experience and expertise developing vaccines against high-consequence hemorrhagic fever viruses using its Modified Vaccinia Ankara (MVA) vaccine platform. The Company's portfolio includes vaccine candidates targeting Zaire ebolavirus, Sudan ebolavirus and Marburg virus that have undergone rigorous preclinical development, including non-human primate lethal-challenge studies demonstrating encouraging protective efficacy.
+ Wrap Technologies, Inc. a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
 
- David Dodd, Chairman and Chief Executive Officer of GeoVax, commented: "The rapidly escalating Ebola Bundibugyo outbreak underscores the importance of having vaccine technologies and capabilities available before a crisis occurs. We are prepared to engage with WHO, Africa CDC, national public health authorities and other appropriate organizations to determine whether our vaccine candidates, technology or scientific expertise could contribute to the response. Where appropriate, we are also willing to make relevant vaccine materials available for evaluation against Bundibugyo virus."
+ WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
 
- GEO-MVA Provides a Connection to the Affected Region
+ With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
 
- GeoVax's lead infectious disease development priority remains GEO-MVA, the Company's MVA-based vaccine being advanced as an additional source of MVA vaccine capacity for prevention of mpox and smallpox. The Company is preparing to initiate its planned pivotal clinical development program based on an immunobridging accelerated regulatory pathway, with portions of the program expected to be conducted in African regions confronting significant infectious disease challenges, including areas affected by the current Bundibugyo Ebola outbreak.
+ Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
 
- As part of preparations for the GEO-MVA clinical program, GeoVax is already engaging with healthcare, research and public health organizations in the region, including entities involved in responding to the Ebola outbreak. These relationships provide a natural opportunity to explore whether GeoVax's scientific expertise, MVA platform capabilities and existing hemorrhagic fever vaccine candidates could appropriately contribute to the broader public health response.
+ WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
 
- "Our relationships in the region are being developed first and foremost to advance GEO-MVA, but many of the organizations with whom we are engaging are simultaneously confronting this Ebola outbreak," Dodd continued. "Given our experience, we believe it is appropriate to ask how we might help. Any such effort would be pursued collaboratively while maintaining our operational and capital focus on GEO-MVA."
+ As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
 
- Broader MVA Portfolio Provides Strategic Optionality
+ WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
 
- In parallel with GEO-MVA, GeoVax retains a portfolio of MVA-based hemorrhagic fever vaccine candidates that have demonstrated protective efficacy in animal challenge models, including non-human primate studies. These programs represent potential strategic optionality beyond GEO-MVA.
+ Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
 
- GeoVax is open to discussing collaborations, licensing arrangements, public-private partnerships and other strategic structures that could provide resources and expertise for further evaluation and development of these assets without diverting the Company's primary resources from GEO-MVA.
+ The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
 
- GeoVax believes its combination of MVA platform expertise, hemorrhagic fever vaccine candidates and work to advance scalable MVA manufacturing provides a foundation for potential collaborations addressing Ebola and other emerging infectious disease threats.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- About GEO-MVA
+ The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
 
- GEO-MVA is GeoVax's MVA-based vaccine candidate being developed for prevention of mpox and smallpox. GeoVax is advancing GEO-MVA toward a pivotal immunobridging clinical program designed to compare immune responses generated by GEO-MVA with those generated by an established MVA vaccine.
+ Forward Looking Statements
 
- Beyond clinical development, GeoVax is pursuing complementary innovations intended to address historical limitations associated with MVA vaccines, including advancement of a continuous cell-line manufacturing process designed to improve scalability, production efficiency and cost; evaluation of approaches that may enable a single-dose regimen; and exploration of microarray patch delivery technology.
-
- Together, these initiatives support GeoVax's strategy to establish an independent and scalable source of MVA vaccine supply while building a broader platform capable of addressing current and emerging infectious disease threats.
-
- About GeoVax
-
- GeoVax Labs, Inc. is a clinical-stage biotechnology company focused on the development of vaccines and immunotherapies addressing high-consequence infectious diseases and solid tumor cancers. GeoVax’s priority program is GEO-MVA, a Modified Vaccinia Ankara (MVA)–based vaccine targeting mpox and smallpox. The program is advancing under an expedited regulatory pathway, with plans to initiate a pivotal Phase 3 clinical trial in the second half of 2026, to address critical global needs for expanded orthopoxvirus vaccine supply and biodefense preparedness. In oncology, GeoVax is developing Gedeptin®, a gene-directed enzyme prodrug therapy (GDEPT) designed to enhance immune checkpoint inhibitor activity. Gedeptin has completed a multicenter Phase 1/2 clinical trial in advanced head and neck cancer and is being advanced into combination strategies, including planned neoadjuvant and first-line settings. GeoVax maintains a global intellectual property portfolio supporting its infectious disease and oncology programs and continues to evaluate strategic partnerships and funding opportunities aligned with its development priorities. For more information, visit www.geovax.com.
-
- Forward-Looking Statements
-
- This release contains forward-looking statements regarding GeoVax’s business plans. The words “believe,” “look forward to,” “may,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “could,” “target,” “potential,” “is likely,” “will,” “expect” and similar expressions, as they relate to us, are intended to identify forward-looking statements. We have based these forward-looking statements largely on our current expectations and projections about future events and financial trends that we believe may affect our financial condition, results of operations, business strategy and financial needs. Actual results may differ materially from those included in these statements due to a variety of factors, including whether: GeoVax is able to obtain acceptable results from ongoing or future clinical trials of its investigational products, GeoVax’s immuno-oncology products and preventative vaccines can provoke the desired responses, and those products or vaccines can be used effectively, GeoVax’s viral vector technology adequately amplifies immune responses to cancer antigens, GeoVax can develop and manufacture its immuno-oncology products and preventative vaccines with the desired characteristics in a timely manner, GeoVax’s immuno-oncology products and preventative vaccines will be safe for human use, GeoVax’s vaccines will effectively prevent targeted infections in humans, GeoVax’s immuno-oncology products and preventative vaccines will receive regulatory approvals necessary to be licensed and marketed, GeoVax raises required capital to complete development, there is development of competitive products that may be more effective or easier to use than GeoVax’s products, GeoVax will be able to enter into favorable manufacturing and distribution agreements, and other factors, over which GeoVax has no control.
-
- Further information on our risk factors is contained in our periodic reports on Form 10-Q and Form 10-K that we have filed and will file with the SEC. Any forward-looking statement made by us herein speaks only as of the date on which it is made. Factors or events that could cause our actual results to differ may emerge from time to time, and it is not possible for us to predict all of them. We undertake no obligation to publicly update any forward-looking statement, whether as a result of new information, future developments or otherwise, except as may be required by law.
-
- Company Contact:info@geovax.com678-384-7220
-
- Media Contact:Jessica Starmanmedia@geovax.com
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-highlights-capabilities-amid-congo-s-expanding-ebola-outbreak-7088483)
+[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-partners-with-xinsurance-to-launch-safe-response-program-for-private-security-market-7088507)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-offers-vaccine-expertise-amid-congo-s-fastest-growing-ebola-outbreak/d4e0e8b0f695f8f244d69e689d339a78) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-and-xinsurance-launch-safe-response-program-for-security-guards/4d046c1cd66d2a8995c592554584783d) 
 
  
 
@@ -65,4 +49,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/13/quizkGOv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/13/pinkVWg7.webp)

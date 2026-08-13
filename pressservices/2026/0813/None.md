@@ -1,61 +1,55 @@
-# Genesis Ranks Second in J.D. Power Initial Quality as Schererville Dealer
+# USA-Made Retatrutide and Tirzepatide Peptides Hit 99%+ Purity
 
-J.D. Power Ranks Genesis Second in Initial Quality as New Schererville Showroom Debuts
+PX1 Research Releases Retatrutide and Tirzepatide Peptides With HPLC Batch Verification
 
- Schererville, United States - August 13, 2026 / Genesis of Schererville /
+ Newport Beach, United States - August 13, 2026 / PX1 Research /
 
- SCHERERVILLE, IN, Aug. 11, 2026
+ PX1 Research has released new batches of Retatrutide research peptides and Tirzepatide research peptides, manufactured domestically under current Good Manufacturing Practice (cGMP) standards and verified through rigorous HPLC batch verification protocols. The release marks an expansion of the company's dual-incretin peptide catalog, with every batch now supported by full Certificates of Analysis confirming purity ratings of 99% or above.
 
-Genesis of Schererville has opened its new nearly 25,000-square-foot showroom at 5800 W Lincoln Hwy, Schererville, IN 46375, establishing a dedicated retail facility for one of the automotive industry's fastest-growing luxury brands.
+USA cGMP Manufacturing Underpins the Release
 
-"We wanted to create a dealership that truly reflects what Genesis has become," said Kelly Webb Roberts, president of Genesis of Schererville. "This project has been years in the making, and it's the most premium facility our family has ever built in our more than 50 years of serving Northwest Indiana."
+PX1 Research produces its peptide compounds in USA cGMP-certified facilities, a manufacturing standard that governs facility conditions, equipment qualification, personnel training, and documentation practices. The company draws on over 16 years of peptide manufacturing expertise, a depth of operational history that informs both formulation precision and quality control methodology.
 
-The showroom is designed around the Genesis philosophy of modern luxury, incorporating expansive natural light, a dedicated interior Zen garden, and a hospitality-centered environment rooted in Genesis' son-nim philosophy - the practice of treating every visitor as an honored guest.
+Domestic cGMP manufacturing carries specific compliance implications for research institutions and procurement teams. Facilities operating under these standards are subject to established federal regulatory frameworks, providing a traceable chain of production documentation. For research programs that depend on consistent compound performance across experimental replicates, the source and verification status of a peptide can materially affect data integrity.
 
-The facility includes 12 service bays staffed by Genesis-certified technicians. A glass wall separating the customer lounge from the shop floor allows vehicle owners to observe their car being serviced. Four Level 3 DC fast chargers are available on the lot around the clock, seven days a week.
+Seven-Stage Testing and HPLC Batch Verification
 
-Genesis vehicles feature available Nappa leather seating, premium audio systems, expansive OLED displays, panoramic glass roofs, fingerprint authentication, Remote Smart Parking Assist, massage-equipped driver's seats, and advanced driver-assistance technologies.
+Each batch of Retatrutide research peptides and Tirzepatide research peptides released by PX1 Research undergoes a seven-stage testing protocol prior to shipment. HPLC batch verification - high-performance liquid chromatography - serves as the analytical backbone of this process, separating peptide compounds within a sample to quantify purity with high resolution.
 
-Beyond the vehicles themselves, ownership includes "The Genesis Experience" - a program covering complimentary scheduled maintenance for three years or 36,000 miles and Genesis Service Valet. Through that service, Genesis of Schererville retrieves a customer's vehicle from their home or workplace, provides a Genesis loaner vehicle if needed, completes the required service, and returns the vehicle upon completion.
+The seven-stage framework extends quality assessment beyond chromatographic purity alone. Testing encompasses additional analytical checkpoints designed to detect endotoxin contamination, verify amino acid sequence integrity, and confirm accurate mass through spectrometric analysis. The outcome of this multi-step process is a batch-specific Certificate of Analysis that researchers can reference against their own quality requirements before use.
 
-First owners of 2023 and newer Genesis models also receive complimentary Genesis Connected Services, which include Enhanced Roadside Assistance, Remote Start with Climate Control, Stolen Vehicle Recovery, and additional connected features accessible at any time.
+HPLC batch verification is considered a standard methodology in pharmaceutical-grade compound testing, and its application at the batch level - rather than as a periodic or sample-based audit - means that every individual shipment carries documentation reflecting its specific test results rather than generalized lot data.
 
-Warranty coverage spans five years or 60,000 miles for the new vehicle and 10 years or 100,000 miles for powertrain components - among the longest coverage terms available in the luxury segment.
+Retatrutide and Tirzepatide Peptides in Research Context
 
-"Genesis has quickly established itself as one of the highest-quality luxury automotive brands," said Brian Webb, vice president of Genesis of Schererville. "J.D. Power recently ranked Genesis second in the industry for Initial Quality, behind only Porsche. The craftsmanship, technology, effortless ownership experience and value continue to exceed expectations."
+Both compounds occupy significant positions in current metabolic and endocrine research. Tirzepatide functions as a dual glucose-dependent insulinotropic polypeptide (GIP) and glucagon-like peptide-1 (GLP-1) receptor agonist. Retatrutide extends this mechanism further as a triple agonist, also engaging the glucagon receptor in addition to GIP and GLP-1 pathways. The structural complexity of these molecules places particular demands on manufacturing precision, as minor sequence deviations or degradation products can alter receptor binding profiles.
 
-Genesis of Schererville carries the full Genesis lineup, including the G70, G80, and G90 sedans; GV70, GV80, and GV80 Coupe SUVs; GV60, Electrified GV70, and Electrified G80, as well as Genesis Certified Pre-Owned vehicles. Models arriving in the near term include the GV90, GV80 Hybrid, GV70 Hybrid, and GV70 EREV.
+PX1 Research's positioning of both peptides within the same cGMP manufacturing and verification framework allows research teams to source compounds with comparable documentation standards, a practical consideration for programs comparing the two molecules or running parallel study arms.
 
-The new location replaces Genesis of Merrillville, with all sales, service, and parts operations now consolidated at the Schererville facility. Existing service records, warranty information, and scheduled appointments transferred to the new location, which continues to operate under the same phone number.
+The newly released batches are available for procurement through PX1 Research's catalog, with the Retatrutide offering accessible at px1research.com and the Tirzepatide offering at px1research.com. Certificates of Analysis corresponding to current batch numbers are made available alongside each product listing.
 
-Sales hours are Monday through Friday from 9 a.m. to 7 p.m. and Saturday from 9 a.m. to 5 p.m. Service and Parts hours are Monday through Friday from 8 a.m. to 4:30 p.m.
+About PX1 Research
 
-To browse inventory, schedule service, request Genesis Service Valet, or learn more, visit genesisofschererville.com or call (219) 352-0001.
+PX1 Research is a USA-based peptide manufacturer producing research-grade compounds in cGMP-certified facilities. The company applies over 16 years of peptide manufacturing expertise to its production processes and employs a seven-stage quality testing protocol, including HPLC batch verification, to confirm purity levels of 99% or above for every batch shipped.
 
-Media ContactAmanda Croucher, Marketing Manager
+Learn more at PX1 Research
 
-marketing@webbcars.com
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/46q8AUeAWtW5U7YYjBkJZIi4vgeWQXJkGMS5NLhl.png) [](https://px1research.com) Contact Information:
 
-(708) 761-2016
-
-High-resolution photography, drone footage, and b-roll available on request.
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/e06WBBNduIdEIWxot7XhvlE3T7PkZxe8byE9WQui.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/aOO3YjJBbcq8gsuTayUJMsUyFv3zKB9glbUUEAHl.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/unamf3zPP0U9Wftgtg13UXr7UnFOX5m98ufC7I0s.jpg) [](https://www.genesisofschererville.com) Contact Information:
-
- Genesis of Schererville
+ PX1 Research
 
  
 
-5800 W Lincoln Hwy  Schererville, IN 46375United States
+3853 Birch St  Newport Beach, CA 92601United States
 
- Amanda Croucher +1-219-352-0001 https://www.genesisofschererville.com 
+ Cody Robert +1 (949) 739-5700 https://px1research.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/genesis-ranks-second-in-jd-power-initial-quality-as-schererville-dealer-444015)
+[Original/Source Press Release](https://mediawiretoday.com/usa-made-retatrutide-and-tirzepatide-peptides-hit-99-purity-444057)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/genesis-of-schererville-opens-luxurious-new-showroom/864c97d5b7e5e9ed84f0bea989a66411) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/px1-research-unveils-high-purity-retatrutide-and-tirzepatide-peptides-with-hplc-verification/f82a26b1d150663733b72b5a0d86fd09) 
 
  
 
@@ -63,4 +57,4 @@ High-resolution photography, drone footage, and b-roll available on request.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/13/healqP8Z.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/13/fast1wwp.webp)
