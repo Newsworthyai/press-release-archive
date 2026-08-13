@@ -1,45 +1,61 @@
-# Cantrell Road Office Park Renovation Targets Professional Services Tenants
+# Genesis Ranks Second in J.D. Power Initial Quality as Schererville Dealer
 
-West Little Rock Office Complex on Highway 10 Reopens After Full Renovation for New Tenants
+J.D. Power Ranks Genesis Second in Initial Quality as New Schererville Showroom Debuts
 
- Little Rock, United States - August 13, 2026 / Highway 10 Office Park /
+ Schererville, United States - August 13, 2026 / Genesis of Schererville /
 
- Highway 10 Office Park has finalized a comprehensive renovation of its commercial office complex located along Cantrell Road in West Little Rock, delivering updated facilities and enhanced tenant amenities along one of the area's most active transportation corridors.
+ SCHERERVILLE, IN, Aug. 11, 2026
 
-The West Little Rock office complex sits directly on Cantrell Road, a stretch that records roughly 27,000 vehicles per day, according to traffic data referenced by the property. That volume of daily exposure gives tenants consistent brand visibility along the route without requiring separate advertising placements.
+Genesis of Schererville has opened its new nearly 25,000-square-foot showroom at 5800 W Lincoln Hwy, Schererville, IN 46375, establishing a dedicated retail facility for one of the automotive industry's fastest-growing luxury brands.
 
-Renovation Scope and Property UpgradesThe renovation addressed both interior and exterior elements of the Highway 10 Office Park complex, updating the physical environment to meet current standards for professional office settings in the West Little Rock market. The work reflects a broader pattern among commercial property owners along the Cantrell Road corridor who are refreshing older inventory to attract tenants drawn to suburban office locations with strong road presence.
+"We wanted to create a dealership that truly reflects what Genesis has become," said Kelly Webb Roberts, president of Genesis of Schererville. "This project has been years in the making, and it's the most premium facility our family has ever built in our more than 50 years of serving Northwest Indiana."
 
-The property's position on Highway 10 provides direct access to one of the primary east-west routes linking downtown Little Rock with the western suburbs. For businesses that rely on client visits, vendor access, or staff commuting from multiple directions, the location reduces logistical friction across all three areas.
+The showroom is designed around the Genesis philosophy of modern luxury, incorporating expansive natural light, a dedicated interior Zen garden, and a hospitality-centered environment rooted in Genesis' son-nim philosophy - the practice of treating every visitor as an honored guest.
 
-Location Advantages Along the Cantrell Road CorridorBeyond the traffic volume, the surrounding area offers practical benefits for prospective tenants. The complex sits steps from Chenal Parkway retail, placing everyday conveniences - restaurants, banking, and professional services - within close reach of office employees. Downtown Little Rock remains accessible within minutes, giving tenants the geographic flexibility of a suburban address while maintaining proximity to the city's central business district.
+The facility includes 12 service bays staffed by Genesis-certified technicians. A glass wall separating the customer lounge from the shop floor allows vehicle owners to observe their car being serviced. Four Level 3 DC fast chargers are available on the lot around the clock, seven days a week.
 
-Commercial office space in Little Rock along this section of Cantrell Road has historically drawn professional services firms, medical offices, financial advisors, and similar businesses that benefit from visibility and straightforward client access. The completed renovation positions Highway 10 Office Park to serve that same tenant profile with a modernized physical product.
+Genesis vehicles feature available Nappa leather seating, premium audio systems, expansive OLED displays, panoramic glass roofs, fingerprint authentication, Remote Smart Parking Assist, massage-equipped driver's seats, and advanced driver-assistance technologies.
 
-Tenant Appeal in the West Little Rock MarketWest Little Rock has continued to attract commercial tenants seeking alternatives to downtown high-rises, with smaller multi-tenant complexes along the corridor offering flexible square footage and surface parking that larger urban properties typically cannot provide. The commercial office space Little Rock market along this stretch reflects demand from businesses that place a premium on accessibility, parking availability, and professional presentation.
+Beyond the vehicles themselves, ownership includes "The Genesis Experience" - a program covering complimentary scheduled maintenance for three years or 36,000 miles and Genesis Service Valet. Through that service, Genesis of Schererville retrieves a customer's vehicle from their home or workplace, provides a Genesis loaner vehicle if needed, completes the required service, and returns the vehicle upon completion.
 
-With the renovation now complete, the West Little Rock office complex is available for occupancy, ready to accommodate new and returning tenants seeking space along the Cantrell Road corridor.
+First owners of 2023 and newer Genesis models also receive complimentary Genesis Connected Services, which include Enhanced Roadside Assistance, Remote Start with Climate Control, Stolen Vehicle Recovery, and additional connected features accessible at any time.
 
-About Highway 10 Office ParkHighway 10 Office Park is a commercial office complex located on Cantrell Road in West Little Rock, Arkansas. The property offers office suites along one of the region's most-traveled roadways, with direct access to Chenal Parkway retail and convenient proximity to downtown Little Rock.
+Warranty coverage spans five years or 60,000 miles for the new vehicle and 10 years or 100,000 miles for powertrain components - among the longest coverage terms available in the luxury segment.
 
-Learn more at Highway 10 Office Park
+"Genesis has quickly established itself as one of the highest-quality luxury automotive brands," said Brian Webb, vice president of Genesis of Schererville. "J.D. Power recently ranked Genesis second in the industry for Initial Quality, behind only Porsche. The craftsmanship, technology, effortless ownership experience and value continue to exceed expectations."
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zxj9Z4rFskrs1kPyqnmDHYRFefofdHwq6YV3zNm7.jpg) [](https://highway10officepark.com) Contact Information:
+Genesis of Schererville carries the full Genesis lineup, including the G70, G80, and G90 sedans; GV70, GV80, and GV80 Coupe SUVs; GV60, Electrified GV70, and Electrified G80, as well as Genesis Certified Pre-Owned vehicles. Models arriving in the near term include the GV90, GV80 Hybrid, GV70 Hybrid, and GV70 EREV.
 
- Highway 10 Office Park
+The new location replaces Genesis of Merrillville, with all sales, service, and parts operations now consolidated at the Schererville facility. Existing service records, warranty information, and scheduled appointments transferred to the new location, which continues to operate under the same phone number.
+
+Sales hours are Monday through Friday from 9 a.m. to 7 p.m. and Saturday from 9 a.m. to 5 p.m. Service and Parts hours are Monday through Friday from 8 a.m. to 4:30 p.m.
+
+To browse inventory, schedule service, request Genesis Service Valet, or learn more, visit genesisofschererville.com or call (219) 352-0001.
+
+Media ContactAmanda Croucher, Marketing Manager
+
+marketing@webbcars.com
+
+(708) 761-2016
+
+High-resolution photography, drone footage, and b-roll available on request.
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/e06WBBNduIdEIWxot7XhvlE3T7PkZxe8byE9WQui.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/aOO3YjJBbcq8gsuTayUJMsUyFv3zKB9glbUUEAHl.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/unamf3zPP0U9Wftgtg13UXr7UnFOX5m98ufC7I0s.jpg) [](https://www.genesisofschererville.com) Contact Information:
+
+ Genesis of Schererville
 
  
 
-16623 Cantrell Road  Little Rock, AR 72223United States
+5800 W Lincoln Hwy  Schererville, IN 46375United States
 
- Alyce Callahan +1-214-244-0024 https://highway10officepark.com 
+ Amanda Croucher +1-219-352-0001 https://www.genesisofschererville.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/cantrell-road-office-park-renovation-targets-professional-services-tenants-443953)
+[Original/Source Press Release](https://mediawiretoday.com/genesis-ranks-second-in-jd-power-initial-quality-as-schererville-dealer-444015)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/highway-10-office-park-in-west-little-rock-reopens-after-major-renovation/eb8e5f55d35f496b7ab1a392f2d849b0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genesis-of-schererville-opens-luxurious-new-showroom/864c97d5b7e5e9ed84f0bea989a66411) 
 
  
 
@@ -47,4 +63,4 @@ Learn more at Highway 10 Office Park
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/13/takeBVQV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/13/healqP8Z.webp)
