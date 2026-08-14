@@ -1,56 +1,63 @@
-# The Harvest Table to Participate in ECRM Vitamin, Weight Management & Sports Nutrition Session
+# Matt Kata: From MLB Versatility to Banking and Youth Coaching
 
-The Harvest Table, the South African wellness brand known for its clean-label collagen and whole-food nutrition products, will participate in the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session, taking place September 14-17 in Palm Beach Gardens, Florida.
+Episode 86 of Rock Solid: Round Rock Business Leaders Podcast, titled 'Matt Kata | Inside an MLB Career: Baseball, Mindset & Making It,' hosted by Bryan Eisenberg, premieres on August 12, 2026, aligning with Kata's induction into the Round Rock Express Hall of Fame on August 14th. The former Arizona Diamondbacks second baseman, known for playing seven positions for the Express, joins the conversation to explore versatility, mental resilience, youth coaching, and the relationship-first principles that now shape his role as a commercial lender in Central Texas.
 
- The event brings together brands with buyers from major health, specialty, and food, drug and mass retailers, providing The Harvest Table an opportunity to introduce its story, product philosophy, and growing U.S. portfolio to a broader retail audience.
+ The wide-ranging conversation moves from the dugout to the boardroom, with Kata pulling specific lessons from a career that spans professional baseball, front-office work with the Cleveland Indians, and community banking. Listeners can expect:
 
- The Harvest Table's participation comes as the family-run company continues expanding beyond its established South African market. The brand recently launched its first products in the United States through Amazon, marking an important step in its international growth strategy.
+ * Why embracing the "Swiss Army knife" utility role kept a jersey on his back
+* An inside account of Randy Johnson's perfect game and the mental mantra Kata used at second base
+* How his father's three quotes, including "Shoot for the moon" and "Preparation is always in season," built his foundation
+* What parents get wrong when choosing coaches, and why "a coach's impact is never neutral"
 
- "Entering the U.S. market has been an exciting milestone for The Harvest Table, and ECRM gives us an opportunity to introduce the brand and what we stand for to the retail community," said Sam Clark, CEO of The Harvest Table. "We've spent years building the business around ingredient integrity, quality manufacturing, and products that people can easily incorporate into their everyday lives. We're looking forward to sharing that story."
+ Kata's reflection on Randy Johnson's perfect game is the episode's most vivid moment. Sitting in the dugout in the sixth inning realizing no one had reached base, he battled the mind's default toward negative visualization.
 
- Bringing The Harvest Table's Products to U.S. Retail The Harvest Table's current U.S. product offering, available on Amazon, includes:
+ "From that game it was hit it to me, hit it to me, hit it to me. I could not let space in my mind, you know, with anything negative. So literally, probably a million times, I didn't even care. Even when I was hitting, I was saying, hit it to me." Kata goes deep on youth sports development, drawing on his time overseeing youth baseball and softball programs with the Cleveland Indians, where he collaborated with former British forces trainer Mark Bennett to build "the Indians way to coaching excellence." Kata credits mentors such as Mark Shapiro, Andrew Miller, and the Positive Coaching Alliance with shaping his coaching philosophy. He also praises Round Rock coaches Brandon Janeka and Keith Jackson for teaching discipline and fundamentals, and shares his ACE framework, Attitude, Concentration, Effort, as the three things athletes and professionals can actually control.In banking, Kata connects character, a key element of the '5 C's of credit,' to relationship-building skills learned from MLB players like Tony Clark..
 
- * Multi Collagen Radiance - 12.35 oz (350 g) Pouch
-* Bovine Collagen Granules - 12.35 oz (350 g) Pouch
-* Vegan Protein - 19.40 oz (550 g) Pouch
-
- The products reflect The Harvest Table's emphasis on straightforward formulations, carefully selected ingredients, and clean-label nutrition. The company's Vegan Protein, for example, is produced without added gums, fillers, preservatives, artificial flavors, or dyes.
-
- From South Africa to the U.S. Founded by Catherine Clark, The Harvest Table grew from small batches originally prepared for family and friends into a South African wellness company with its own manufacturing operation in KwaZulu-Natal.
-
- That in-house approach allows the company to maintain control over sourcing, formulation, manufacturing, and quality as it expands internationally.
-
- "Growth has always been about finding the right opportunities without losing the values that built The Harvest Table," said Catherine Clark, Founder of The Harvest Table. "As we introduce our products to more consumers in the United States, maintaining that focus on quality, transparency, and simplicity remains incredibly important to us."
-
- A Values-Led Approach to Wellness The Harvest Table develops products intended to fit naturally into everyday nutrition routines rather than complicated or short-term wellness trends.
-
- Its products are manufactured in-house at the company's custom-built facility in KwaZulu-Natal, South Africa. The facility passes annual Food Safety Assessment (FSA) audits, meets GMP manufacturing requirements, and is recognized as a Food Safe Facility. The company also maintains Halal certification for applicable markets.
-
- Participation in ECRM represents another step in The Harvest Table's efforts to introduce its products and clean-label philosophy to U.S. consumers and retailers.
-
- For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
-
- About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
-
- Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
-
- With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
+ About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and international keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits, and companies fueling growth across Round Rock, Texas. Each conversation surfaces the mindset, relationships, and community values driving business in one of the country's fastest-growing regions. Episode 86 with Matt Kata is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608142772/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-and-sports-nutrition-session)
+[Original/Source Press Release](https://newsworthy.ai/news/202608142766/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-harvest-table-brings-clean-label-collagen-to-u-s-retail-at-ecrm-2026/00060879b7cfca4a54e6e380edc886cb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/from-mlb-to-banking-matt-kata-s-playbook-for-success/f332fd9b4f2d56be16e979ddb471aadc) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-sports-nutrition-session)
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/from-diamond-to-boardroom-matt-kata-on-versatility-mental-toughness-and-the-ace-framework)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-sports-nutrition-session)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f332fd9b4f2d56be16e979ddb471aadc)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/f332fd9b4f2d56be16e979ddb471aadc)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/blurr8Ya.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/ninaH0Ev.webp)

@@ -1,60 +1,71 @@
-# FWD Group Marks 13 Years With Charitable Grants Benefitting Over 13,000 People Across Asia
+# Royalty Management Holding Corporation Reports 38% Revenue Growth and Profitable Second Quarter
 
-HONG KONG - August 14, 2026 (NEWMEDIAWIRE) - FWD Group Holdings Limited (“FWD Group” or “FWD”) today marked its 13th anniversary by announcing charitable grants dedicated to supporting more than 13,000 people in communities across Asia.
+Company Generated Quarterly Net Income of Approximately $375,000, Compared With a Net Loss in the Prior-Year Period
 
- Established in 2013 with a mission to move the life insurance industry in a new direction, FWD Group has grown from its early operations in Hong Kong SAR, Macau SAR and Thailand into a pan-Asian life and health insurer serving millions of customers and their families across 10 markets. In July last year, FWD Group reached another milestone with its listing on the Hong Kong Stock Exchange, under the stock code 1828.
+ FISHERS, IN - August 14, 2026 (NEWMEDIAWIRE) - Royalty Management Holding Corporation (Nasdaq: RMCO) (“Royalty Management” or the “Company”), a forward leaning royalty company building shareholder value by acquiring and developing high value assets in a variety of resource-driven and emerging technology industries, is pleased to announce today its financial and operating results for the Company’s second quarter ended June 30, 2026.
 
- Huynh Thanh Phong, Group Chief Executive Officer and Executive Director of FWD Group, said, “At FWD Group, changing the way people feel about insurance is about much more than looking after our customers – it’s also about supporting the communities where we operate. These 13 grants are a meaningful way to give back to the people and places that have been part of our journey. Together with trusted community partners, we hope to make a real difference in people’s lives, while also bringing our caring value to life through employee volunteering.”
+ Royalty Management reported second quarter revenue of approximately $1.83 million, representing an increase of approximately 38% compared with $1.33 million during the same period in 2025. The Company generated net income of approximately $375,000 for the quarter, compared with a net loss of approximately $50,000 in the second quarter of 2025.
 
- The 13 grants will support initiatives across the region spanning financial literacy, career readiness, entrepreneurship, health and wellbeing, and community recovery:
+ For the six months ended June 30, 2026, total revenue increased approximately 54% to $3.47 million, compared with $2.25 million during the first six months of the prior year in 2025. The continued growth was primarily driven by the performance of the Company’s environmental services operations, which generated approximately $3.42 million of first-half revenue and approximately $216,000 of segment operating income.
 
- - Hong Kong SAR: Extending the JA SparktheDream Wellness Programme with Junior Achievement Hong Kong through interactive workshops and family activities to equip 2,600 primary school students with social, emotional and financial skills to build resilience and thrive.
+ The Company ended the quarter with approximately $16.82 million in total assets and positive working capital of approximately $646,000. Royalty Management also continued its quarterly common-stock dividend of $0.0025 per share, consistent with its previously announced annual dividend rate of $0.01 per common share.
 
- Strengthening the wellbeing, resilience and social-emotional skills of 200 children and 80 caregivers affected by the Tai Po fire through a football-based programme with Save the Children Hong Kong.
+ Additional Second Quarter and First Half 2026 Highlights Include:
 
- Advancing the long-term recovery of Tai Po communities with psychosocial support and community-building initiatives led by Plan International Hong Kong for over 6,500 students, parents and teachers.
+ * Q2 2026 revenue increased approximately 38% to $1.83 million.
+* Q2 2026 net income totaled approximately $375,000, compared with a net loss of approximately $50,000 in the prior-year quarter.
+* First half revenue increased approximately 54% to $3.47 million.
+* Environmental services revenue increased to approximately $3.42 million for the first half of 2026, compared with approximately $2.20 million during the same period in 2025.
+* Environmental services generated approximately $216,000 of segment operating income during the first half of 2026.
+* Total assets reached approximately $16.82 million as of June 30, 2026.
+* The Company maintained positive working capital of approximately $646,000.
+* Royalty Management continued its quarterly cash dividend program for common shareholders.
 
- - Cambodia: Equipping 200 young people with practical money management skills via financial education workshops, expert-led discussions and digital learning content with JCI Mekong.
+ “Our second-quarter profitability and continued revenue growth demonstrate the progress we are making in building a diversified platform of cash-generating businesses, royalties and strategic investments,” said Thomas Sauve, Chief Executive Officer of Royalty Management Holding Corporation. “Revenue grew approximately 38% during the quarter and more than 54% during the first half of the year, reflecting the strength of our environmental services business and the scalability of our broader platform.”
 
- - Indonesia: Partnering with KUMPUL on InnovateHer Academy 4.0 to empower another 10 female entrepreneurs with mentorship, business and investment readiness skills.
+ Sauve continued, “We believe Royalty Management is still in the early stages of realizing the value of its portfolio. Our objective is to use income generated by our operating assets to support the development of additional royalty interests across natural resources, critical minerals, environmental services and emerging technologies. We remain focused on disciplined growth, expanding recurring revenue and delivering long-term value to our shareholders while continuing our quarterly dividend.”
 
- - Japan: Promoting inclusion, wellbeing and social connection through football clinics for over 15 visually impaired people with Hands On Tokyo.
+ Tom continued, “In addition to our strong performance this past year and thus far in 2026, we are also seeing initial realization from our investment in intellectual property development for ReElement Technologies Corp., a refiner of critical minerals and rare earth elements. Our work to assist them to develop new technologies around mineral refining has started to bear fruit, as we have begun seeing initial royalties from this intellectual property paid to Royalty Management in the second quarter. We expect these revenues to only increase from here as ReElement continues to expand its operations and use of these patents.”
 
- - Malaysia: Supporting GivingHub to provide 170 low-income families with health education and financial literacy workshops and 100 cancer screening and consultation sessions.
+ The Company’s second quarter net income included a non-cash gain of approximately $420,000 associated with the quarterly fair-value adjustment of its warrant liability. Because this accounting adjustment is tied principally to changes in the market price of the Company’s common stock, it may produce fluctuations in reported net income between reporting periods.
 
- - The Philippines: Helping 100 university students transition into the workforce with financial literacy, career readiness, and future-of-work skills with Junior Achievement Philippines.
+ Royalty Management’s environmental services business remained its principal revenue contributor during the quarter. The Company believes this operation provides an important foundation of revenue and operating cash generation that can support the continued expansion of its royalty and investment portfolio.
 
- - Singapore: Supporting 50 children with chronic illnesses and their caregivers through a fun-filled carnival experience with Club Rainbow (Singapore), bringing together families, caregivers and volunteers to foster inclusion and community spirit.
+ Royalty Management’s complete unaudited financial statements and accompanying disclosures are included in its Quarterly Report on Form 10-Q filed with the U.S. Securities and Exchange Commission and investors are encouraged to read the entire report.
 
- - Thailand: Extending career readiness support for seven disadvantaged Thai youth via hospitality training scholarships with Pimali Foundation.
+ About Royalty Management Holding Corporation
 
- Expanding the JA SparktheDream programme with Junior Achievement Thailand to enable another 30 Thai educators to deliver engaging financial literacy education for students by equipping them with knowledge, tools, and teaching skills.
+ Royalty Management Holding Corporation (NASDAQ: RMCO) is a royalty company building shareholder value to benefit both its shareholders and communities by acquiring and developing high value assets in a variety of market environments. The model is to acquire and structure cash flow streams around assets that can support the communities by monetizing the current existing cash flow streams while identifying transitionary cash flow from the assets for the future.
 
- - Vietnam: Empowering 800 students to make better financial decisions through workshops and debate competitions by Startup Vietnam Foundation and Dear Our Community to build financial literacy, critical thinking, and communication skills.
+ For more information visit www.royaltymgmtcorp.com.
 
- Providing schools in Vietnam's Khanh Hoa Province with 76 computers through Little Roses Foundation to enable 1,800 students to continue learning after damages from severe flooding.
+ Forward-Looking Statements
 
- About FWD Group
+ This press release contains statements that constitute “forward-looking statements,” including with respect to the initial public offering. No assurance can be given that the matters discussed above will be completed on the terms described, or at all. Forward-looking statements are subject to numerous conditions, many of which are beyond the control of the Company, including those that will be set forth in the “Risk Factors” section of the Company’s filings with the SEC. The information contained in this release is as of the date first set forth above. The Company undertakes no obligation to update these statements for revisions or changes after the date of this release, except as required by law.
 
- FWD Group (1828.HK) is a pan-Asian life and health insurance business that serves approximately 40 million customers across 10 markets, including BRI Life in Indonesia. FWD’s customer-led and tech-enabled approach aims to deliver innovative propositions, easy-to-understand products and a simpler insurance experience. Established in 2013, the company operates in some of the fastest-growing insurance markets in the world with a vision of changing the way people feel about insurance. FWD Group is listed on the Hong Kong Stock Exchange under the stock code 1828. For more information, please visit www.fwd.com
+ Company Contact:Thomas SauveChief Executive Officerwww.royaltymgmtcorp.com(646) 245-2465
 
- For media inquiries, please contact: groupcommunications@fwd.com
-
- Source: FWD Group Holdings Limited
+ SOURCE: Royalty Management Holding Corporation
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fwd-group-marks-13-years-with-charitable-grants-benefitting-over-13-000-people-across-asia-7088547)
+[Original/Source Press Release](https://www.newmediawire.com/news/royalty-management-holding-corporation-reports-38-revenue-growth-and-profitable-second-quarter-7088549)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fwd-group-marks-13-years-with-13000-community-grants-across-asia/7ade44580c4ae98c45f51415a2fe5b70) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/royalty-management-reports-38-revenue-growth-profitable-q2/386a10018e29017f840d24958f0f4f5b) 
 
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/royalty-management-holding-corporation-reports-38-revenue-growth-and-profitable-second-quarter)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/royalty-management-holding-corporation-reporta-un-crecimiento-de-ingresos-del-38-y-un-segundo-trimestre-rentable)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/386a10018e29017f840d24958f0f4f5b)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/rendjOhl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/hushulUr.webp)
