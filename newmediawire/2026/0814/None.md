@@ -1,71 +1,36 @@
-# Royalty Management Holding Corporation Reports 38% Revenue Growth and Profitable Second Quarter
+# SS Innovations International (SSII) Reports Record Q2 Revenue of $13.9M, Up 39.4%
 
-Company Generated Quarterly Net Income of Approximately $375,000, Compared With a Net Loss in the Prior-Year Period
+LOS ANGELES, CA - August 14, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII) reported record second-quarter 2026 revenue of $13.9 million, up 39.4% from $10 million a year earlier, as installations of its SSi Mantra surgical robotic system increased 30.4% to 30. Gross profit rose 20% to $7.1 million, with gross margin of 50.9%, while net loss was $2.7 million, or $0.01 per diluted share, compared with a net loss of $0.3 million a year earlier. First-half revenue increased 65.6% to $25 million, while SSi Mantra installations rose 47.4% to 56. As of June 30, SS Innovations had $13.6 million in cash and cash equivalents, no long-term debt and a cumulative installed base of 224 SSi Mantra systems across 12 countries.
 
- FISHERS, IN - August 14, 2026 (NEWMEDIAWIRE) - Royalty Management Holding Corporation (Nasdaq: RMCO) (“Royalty Management” or the “Company”), a forward leaning royalty company building shareholder value by acquiring and developing high value assets in a variety of resource-driven and emerging technology industries, is pleased to announce today its financial and operating results for the Company’s second quarter ended June 30, 2026.
+ The company reported 12,272 cumulative procedures using the SSi Mantra as of June 30, including 175 telesurgeries, and subsequently completed a robotic telesurgery spanning more than 13,600 miles between Colombia and India. SS Innovations expects the U.S. Food and Drug Administration to complete its review of the company’s 510(k) premarket notification for the SSi Mantra by the end of the first quarter of 2027 and said it believes it can obtain European Union CE marking certification by the end of 2026.
 
- Royalty Management reported second quarter revenue of approximately $1.83 million, representing an increase of approximately 38% compared with $1.33 million during the same period in 2025. The Company generated net income of approximately $375,000 for the quarter, compared with a net loss of approximately $50,000 in the second quarter of 2025.
+ To view the full press release, visit https://ibn.fm/nTMso
 
- For the six months ended June 30, 2026, total revenue increased approximately 54% to $3.47 million, compared with $2.25 million during the first six months of the prior year in 2025. The continued growth was primarily driven by the performance of the Company’s environmental services operations, which generated approximately $3.42 million of first-half revenue and approximately $216,000 of segment operating income.
+ About SS Innovations
 
- The Company ended the quarter with approximately $16.82 million in total assets and positive working capital of approximately $646,000. Royalty Management also continued its quarterly common-stock dividend of $0.0025 per share, consistent with its previously announced annual dividend rate of $0.01 per common share.
+ SS Innovations International, Inc. develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of surgical robotic procedures including cardiac surgery. An American company headquartered in India, SS Innovations plans to expand the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions.
 
- Additional Second Quarter and First Half 2026 Highlights Include:
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- * Q2 2026 revenue increased approximately 38% to $1.83 million.
-* Q2 2026 net income totaled approximately $375,000, compared with a net loss of approximately $50,000 in the prior-year quarter.
-* First half revenue increased approximately 54% to $3.47 million.
-* Environmental services revenue increased to approximately $3.42 million for the first half of 2026, compared with approximately $2.20 million during the same period in 2025.
-* Environmental services generated approximately $216,000 of segment operating income during the first half of 2026.
-* Total assets reached approximately $16.82 million as of June 30, 2026.
-* The Company maintained positive working capital of approximately $646,000.
-* Royalty Management continued its quarterly cash dividend program for common shareholders.
+ The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
 
- “Our second-quarter profitability and continued revenue growth demonstrate the progress we are making in building a diversified platform of cash-generating businesses, royalties and strategic investments,” said Thomas Sauve, Chief Executive Officer of Royalty Management Holding Corporation. “Revenue grew approximately 38% during the quarter and more than 54% during the first half of the year, reflecting the strength of our environmental services business and the scalability of our broader platform.”
+ Forward Looking Statements
 
- Sauve continued, “We believe Royalty Management is still in the early stages of realizing the value of its portfolio. Our objective is to use income generated by our operating assets to support the development of additional royalty interests across natural resources, critical minerals, environmental services and emerging technologies. We remain focused on disciplined growth, expanding recurring revenue and delivering long-term value to our shareholders while continuing our quarterly dividend.”
-
- Tom continued, “In addition to our strong performance this past year and thus far in 2026, we are also seeing initial realization from our investment in intellectual property development for ReElement Technologies Corp., a refiner of critical minerals and rare earth elements. Our work to assist them to develop new technologies around mineral refining has started to bear fruit, as we have begun seeing initial royalties from this intellectual property paid to Royalty Management in the second quarter. We expect these revenues to only increase from here as ReElement continues to expand its operations and use of these patents.”
-
- The Company’s second quarter net income included a non-cash gain of approximately $420,000 associated with the quarterly fair-value adjustment of its warrant liability. Because this accounting adjustment is tied principally to changes in the market price of the Company’s common stock, it may produce fluctuations in reported net income between reporting periods.
-
- Royalty Management’s environmental services business remained its principal revenue contributor during the quarter. The Company believes this operation provides an important foundation of revenue and operating cash generation that can support the continued expansion of its royalty and investment portfolio.
-
- Royalty Management’s complete unaudited financial statements and accompanying disclosures are included in its Quarterly Report on Form 10-Q filed with the U.S. Securities and Exchange Commission and investors are encouraged to read the entire report.
-
- About Royalty Management Holding Corporation
-
- Royalty Management Holding Corporation (NASDAQ: RMCO) is a royalty company building shareholder value to benefit both its shareholders and communities by acquiring and developing high value assets in a variety of market environments. The model is to acquire and structure cash flow streams around assets that can support the communities by monetizing the current existing cash flow streams while identifying transitionary cash flow from the assets for the future.
-
- For more information visit www.royaltymgmtcorp.com.
-
- Forward-Looking Statements
-
- This press release contains statements that constitute “forward-looking statements,” including with respect to the initial public offering. No assurance can be given that the matters discussed above will be completed on the terms described, or at all. Forward-looking statements are subject to numerous conditions, many of which are beyond the control of the Company, including those that will be set forth in the “Risk Factors” section of the Company’s filings with the SEC. The information contained in this release is as of the date first set forth above. The Company undertakes no obligation to update these statements for revisions or changes after the date of this release, except as required by law.
-
- Company Contact:Thomas SauveChief Executive Officerwww.royaltymgmtcorp.com(646) 245-2465
-
- SOURCE: Royalty Management Holding Corporation
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/royalty-management-holding-corporation-reports-38-revenue-growth-and-profitable-second-quarter-7088549)
+[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-reports-record-q2-revenue-of-13-9m-up-39-4-7088556)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/royalty-management-reports-38-revenue-growth-profitable-q2/386a10018e29017f840d24958f0f4f5b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-hits-record-q2-revenue-of-13-9m-up-39-4/de94be77bb14d0bcc329743120638fe4) 
 
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/royalty-management-holding-corporation-reports-38-revenue-growth-and-profitable-second-quarter)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/royalty-management-holding-corporation-reporta-un-crecimiento-de-ingresos-del-38-y-un-segundo-trimestre-rentable)
-
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/386a10018e29017f840d24958f0f4f5b)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/hushulUr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/smogz65X.webp)
