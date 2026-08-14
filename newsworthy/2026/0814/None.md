@@ -1,70 +1,56 @@
-# TNT Explains What Makes High-Quality Whey Protein
+# The Harvest Table to Participate in ECRM Vitamin, Weight Management & Sports Nutrition Session
 
-Protein has become a staple for athletes, fitness enthusiasts and increasingly mainstream consumers. But with countless protein powders competing for attention, True Nutrition Technology (TNT) says consumers should look beyond the number of grams of protein listed on the front of the package.
+The Harvest Table, the South African wellness brand known for its clean-label collagen and whole-food nutrition products, will participate in the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session, taking place September 14-17 in Palm Beach Gardens, Florida.
 
- The type of protein, how it is processed, the overall formulation and even how the finished product tastes can all help distinguish one protein product from another.
+ The event brings together brands with buyers from major health, specialty, and food, drug and mass retailers, providing The Harvest Table an opportunity to introduce its story, product philosophy, and growing U.S. portfolio to a broader retail audience.
 
- "Protein content is obviously important, but it doesn't tell the whole story," said Markus Himmelstoss, Managing Director of True Nutrition Technology. "Consumers also care about ingredient quality, how easily a product mixes, how it feels when they drink it and, ultimately, whether they enjoy the taste enough to use it consistently."
+ The Harvest Table's participation comes as the family-run company continues expanding beyond its established South African market. The brand recently launched its first products in the United States through Amazon, marking an important step in its international growth strategy.
 
- Whey Isolate vs. Whey Concentrate One of the first distinctions consumers may encounter is the difference between whey protein concentrate and whey protein isolate.
+ "Entering the U.S. market has been an exciting milestone for The Harvest Table, and ECRM gives us an opportunity to introduce the brand and what we stand for to the retail community," said Sam Clark, CEO of The Harvest Table. "We've spent years building the business around ingredient integrity, quality manufacturing, and products that people can easily incorporate into their everyday lives. We're looking forward to sharing that story."
 
- Both originate from whey, but additional processing used to produce whey isolate generally removes more fat, carbohydrates and lactose while increasing the proportion of protein in the finished ingredient.
+ Bringing The Harvest Table's Products to U.S. Retail The Harvest Table's current U.S. product offering, available on Amazon, includes:
 
- That makes the type and quality of whey used in a formulation an important consideration alongside the total amount of protein per serving.
+ * Multi Collagen Radiance - 12.35 oz (350 g) Pouch
+* Bovine Collagen Granules - 12.35 oz (350 g) Pouch
+* Vegan Protein - 19.40 oz (550 g) Pouch
 
- TNT's CLEAR WHEY uses specialized whey protein isolates to create a different drinking experience from the thick, creamy protein shakes consumers traditionally associate with whey.
+ The products reflect The Harvest Table's emphasis on straightforward formulations, carefully selected ingredients, and clean-label nutrition. The company's Vegan Protein, for example, is produced without added gums, fillers, preservatives, artificial flavors, or dyes.
 
- Why TNT's CLEAR WHEY Tastes Different Taste and texture have become increasingly important as consumers have more protein choices.
+ From South Africa to the U.S. Founded by Catherine Clark, The Harvest Table grew from small batches originally prepared for family and friends into a South African wellness company with its own manufacturing operation in KwaZulu-Natal.
 
- Traditional whey products are often formulated to produce a milkshake-like consistency. CLEAR WHEY takes a different approach.
+ That in-house approach allows the company to maintain control over sourcing, formulation, manufacturing, and quality as it expands internationally.
 
- Rather than creating a heavy, creamy shake, TNT formulated CLEAR WHEY to mix into a lighter, more refreshing beverage with an iced-tea-like drinking experience. Its specialized isolates help provide a smoother mouthfeel while allowing TNT to develop fruit-inspired flavors that are less characteristic of conventional protein shakes.
+ "Growth has always been about finding the right opportunities without losing the values that built The Harvest Table," said Catherine Clark, Founder of The Harvest Table. "As we introduce our products to more consumers in the United States, maintaining that focus on quality, transparency, and simplicity remains incredibly important to us."
 
- "The best nutritional formulation isn't very useful if consumers don't enjoy drinking it," Himmelstoss said. "Taste, texture and mixability aren't afterthoughts for us. They are part of the product development process from the beginning."
+ A Values-Led Approach to Wellness The Harvest Table develops products intended to fit naturally into everyday nutrition routines rather than complicated or short-term wellness trends.
 
- Quality Extends Beyond the Nutrition Label TNT says consumers evaluating a whey protein product can consider several factors beyond protein grams, including:
+ Its products are manufactured in-house at the company's custom-built facility in KwaZulu-Natal, South Africa. The facility passes annual Food Safety Assessment (FSA) audits, meets GMP manufacturing requirements, and is recognized as a Food Safe Facility. The company also maintains Halal certification for applicable markets.
 
- * Protein source: Understanding the form of whey used in the product.
-* Ingredient quality: Looking beyond the front label to understand the complete formulation.
-* Mixability: A well-formulated powder should disperse easily when prepared as directed.
-* Taste and texture: Flavor and mouthfeel can significantly influence the overall consumer experience.
-* Manufacturing standards: Consistent sourcing and production processes help maintain quality from batch to batch.
+ Participation in ECRM represents another step in The Harvest Table's efforts to introduce its products and clean-label philosophy to U.S. consumers and retailers.
 
- This emphasis on the entire product experience reflects TNT's approach to sports nutrition development in Germany.
+ For more information, visit The Harvest Table website, and their Instagram and Facebook and YouTube channels.
 
- Bringing a Different Kind of Whey to U.S. Consumers CLEAR WHEY is part of TNT's growing U.S. sports nutrition portfolio, which also includes Creapure® Creatine Monohydrate and Synapse Rush pre-workout.
+ About [The Harvest Table](https://harvesttable.co.za/) The Harvest Table is a family-run South African wellness company founded by Catherine Clark, rooted in a mission to help people improve their health through nutrient-dense, whole-food nutrition guided by ancient wisdom. Inspired by her own health journey, the brand is committed to producing premium-quality products made without added fillers, preservatives, flavorants, artificial colors, or dyes.
 
- TNT has served more than 500,000 customers and is bringing its German approach to formulation, ingredient selection and product development to a growing audience of U.S. consumers.
+ Based in South Africa, The Harvest Table manufactures its products in-house in a custom-built, accredited facility and is Halal-certified by the Muslim Judicial Council (MJC). The company specializes in clean-label collagen products, bone broth, and functional nutrition blends designed to nourish daily wellbeing and support foundational systems such as gut health, joint mobility, skin integrity, and overall vitality.
 
- TNT Clear Whey Protein Isolate is available on OneLavi. American consumers can also purchase TNT Creapure® Creatine Monohydrate, and TNT Synapsensause “Wild Berry” Pre-Workout Booster, through both Amazon and OneLavi.
-
- * TNT Creapure® Creatine Monohydrate Powder on Amazon
-* TNT Creapure® Creatine Monohydrate Powder on OneLavi
-* TNT Synapsensause "Wild Berry" Pre-Workout Booster on Amazon
-* TNT Synapsensause "Wild Berry" Pre-Workout Booster on OneLavi
-* TNT Clear Whey Protein Isolate - Peach Iced Tea on OneLavi
-
- About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
-
- TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
-
- From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
-
- FDA Disclaimer
-
- These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ With a strong focus on transparency, education, and sustainability, The Harvest Table uses earth-conscious packaging, supports local employment, and prioritizes people over machines wherever possible. Through clean-label integrity, responsible sourcing, and highly bioavailable formulations, The Harvest Table aims to make good health both accessible and convenient. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608142771/tnt-explains-what-makes-high-quality-whey-protein)
+[Original/Source Press Release](https://newsworthy.ai/news/202608142772/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-and-sports-nutrition-session)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tnt-s-clear-whey-rethinking-protein-beyond-the-label/3e248c3cff997af8fa1dd4b591cd518f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-harvest-table-brings-clean-label-collagen-to-u-s-retail-at-ecrm-2026/00060879b7cfca4a54e6e380edc886cb) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-sports-nutrition-session)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/the-harvest-table-to-participate-in-ecrm-vitamin-weight-management-sports-nutrition-session)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/gainYAaW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/blurr8Ya.webp)
