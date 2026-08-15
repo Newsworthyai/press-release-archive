@@ -1,63 +1,68 @@
-# Matt Kata: From MLB Versatility to Banking and Youth Coaching
+# Boerne, Texas Named Finalist in Hallmark Channel's 2026 Merriest Christmas Town Contest 
 
-Episode 86 of Rock Solid: Round Rock Business Leaders Podcast, titled 'Matt Kata | Inside an MLB Career: Baseball, Mindset & Making It,' hosted by Bryan Eisenberg, premieres on August 12, 2026, aligning with Kata's induction into the Round Rock Express Hall of Fame on August 14th. The former Arizona Diamondbacks second baseman, known for playing seven positions for the Express, joins the conversation to explore versatility, mental resilience, youth coaching, and the relationship-first principles that now shape his role as a commercial lender in Central Texas.
+Boerne has been selected as one of 25 communities nationwide in Hallmark Channel's 2026 Merriest Christmas Town contest, making it the only Texas community among this year's finalists.
 
- The wide-ranging conversation moves from the dugout to the boardroom, with Kata pulling specific lessons from a career that spans professional baseball, front-office work with the Cleveland Indians, and community banking. Listeners can expect:
+ The voting period is open now through Friday, September 4, and participants can vote for Boerne once per day.
 
- * Why embracing the "Swiss Army knife" utility role kept a jersey on his back
-* An inside account of Randy Johnson's perfect game and the mental mantra Kata used at second base
-* How his father's three quotes, including "Shoot for the moon" and "Preparation is always in season," built his foundation
-* What parents get wrong when choosing coaches, and why "a coach's impact is never neutral"
+ [Vote for Boerne in the Hallmark Channel Merriest Christmas Town Contest](https://merriestchristmastownscontest.hallmarkchannel.com/vote/04) The recognition highlights what residents and visitors have long known: during the holiday season, Boerne's combination of small-town charm, community traditions and festive events transforms a stroll along the historic Hill Country Mile into the feeling of stepping into a Christmas movie.
 
- Kata's reflection on Randy Johnson's perfect game is the episode's most vivid moment. Sitting in the dugout in the sixth inning realizing no one had reached base, he battled the mind's default toward negative visualization.
+ "At the center of the celebration are the people who are part of our wonderful community," Boerne Mayor Frank Ritchie said. "That sense of community is what has helped Boerne build a reputation as a Texas Hill Country destination throughout the holiday season.”
 
- "From that game it was hit it to me, hit it to me, hit it to me. I could not let space in my mind, you know, with anything negative. So literally, probably a million times, I didn't even care. Even when I was hitting, I was saying, hit it to me." Kata goes deep on youth sports development, drawing on his time overseeing youth baseball and softball programs with the Cleveland Indians, where he collaborated with former British forces trainer Mark Bennett to build "the Indians way to coaching excellence." Kata credits mentors such as Mark Shapiro, Andrew Miller, and the Positive Coaching Alliance with shaping his coaching philosophy. He also praises Round Rock coaches Brandon Janeka and Keith Jackson for teaching discipline and fundamentals, and shares his ACE framework, Attitude, Concentration, Effort, as the three things athletes and professionals can actually control.In banking, Kata connects character, a key element of the '5 C's of credit,' to relationship-building skills learned from MLB players like Tony Clark..
+ Among Boerne's signature holiday traditions is Dickens on Main, which transforms the Hill Country Mile during Thanksgiving weekend with live entertainment, holiday activities and Victorian-inspired characters and decorations.
 
- About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and international keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits, and companies fueling growth across Round Rock, Texas. Each conversation surfaces the mindset, relationships, and community values driving business in one of the country's fastest-growing regions. Episode 86 with Matt Kata is available now wherever podcasts are heard. 
+ "What makes Christmas in Boerne so special is that it's truly a community effort," Visit Boerne Marketing Specialist Tori Bellos said. "Our role is to help visitors discover everything that makes Boerne unique while making sure our local businesses have the information and resources they need to welcome them."
+
+ The celebration continues throughout the Christmas season with Weihnachts Weekend and the annual nighttime Weihnachts Parade and Kinder Fest, along with holiday markets, shopping events and other festivities throughout December.
+
+ But Boerne's selection is about more than lights, decorations and events. "It is no mystery, a key component of the community's Christmas celebration is the local businesses, volunteers, organizations and residents who help bring the season to life each year," Greater Boerne Chamber of Commerce President and CEO Kim Blohm said. "Our small business owners welcome visitors, neighbors share longtime traditions and families gather along the Hill Country Mile to create the kind of personal, small-town Christmas experience that has become synonymous with Boerne.”
+
+ Boerne doesn't try to be the biggest Christmas destination. Instead, the community has built its holiday traditions around what makes Boerne special year-round: its historic Hill Country Mile, locally owned businesses, Texas Hill Country setting and a welcoming spirit that invites visitors to feel like part of the community.
+
+ [About Boerne, Texas](https://www.ci.boerne.tx.us/1201/Things-to-Do) Boerne is a charming Texas Hill Country destination located just 30 miles northwest of San Antonio along Interstate 10. Known for its historic Hill Country Mile lined with locally owned shops, galleries and acclaimed fine dining restaurants, Boerne blends small-town character with sophisticated culinary offerings that appeal to discerning travelers. Surrounded by the natural beauty of the Hill Country, rolling limestone hills, spring-fed creeks and towering cypress trees, Boerne has established itself as a premier food destination with elevated dining, wine experiences and year-round events that make it one of Texas's most sought-after weekend getaways.
+
+ Media Contact:Tori BellosVisit Boerne Marketing Specialist(830) 249-7277 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608142766/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+[Original/Source Press Release](https://newsworthy.ai/news/202608142775/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/from-mlb-to-banking-matt-kata-s-playbook-for-success/f332fd9b4f2d56be16e979ddb471aadc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boerne-named-finalist-in-hallmark-channel-s-merriest-christmas-town-contest/177bcc2a5378a9cf947266f5aef03cda) 
 
 
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/from-diamond-to-boardroom-matt-kata-on-versatility-mental-toughness-and-the-ace-framework)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f332fd9b4f2d56be16e979ddb471aadc)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/f332fd9b4f2d56be16e979ddb471aadc)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/boerne-texas-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/boerne-named-finalist-in-hallmark-channels-2026-merriest-christmas-town-contest)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/boerne-finalista-en-el-concurso-merriest-christmas-town-2026-del-canal-hallmark)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/matt-kata-from-mlb-versatility-to-banking-and-youth-coaching)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/177bcc2a5378a9cf947266f5aef03cda)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/ninaH0Ev.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/14/filoCIdJ.webp)

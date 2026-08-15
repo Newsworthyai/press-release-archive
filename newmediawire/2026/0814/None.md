@@ -1,36 +1,46 @@
-# SS Innovations International (SSII) Reports Record Q2 Revenue of $13.9M, Up 39.4%
+# Helix Biopharma Corp. Announces Board Composition Changes
 
-LOS ANGELES, CA - August 14, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII) reported record second-quarter 2026 revenue of $13.9 million, up 39.4% from $10 million a year earlier, as installations of its SSi Mantra surgical robotic system increased 30.4% to 30. Gross profit rose 20% to $7.1 million, with gross margin of 50.9%, while net loss was $2.7 million, or $0.01 per diluted share, compared with a net loss of $0.3 million a year earlier. First-half revenue increased 65.6% to $25 million, while SSi Mantra installations rose 47.4% to 56. As of June 30, SS Innovations had $13.6 million in cash and cash equivalents, no long-term debt and a cumulative installed base of 224 SSi Mantra systems across 12 countries.
+VANCOUVER, BRITISH COLUMBIA - August 14, 2026 (NEWMEDIAWIRE) - Helix BioPharma Corp. (TSX: “HBP”, OTC PINK: “HBPCD”, FRANKFURT: “HBP0”) (“Helix” or the “Company”), a clinical-stage oncology company developing novel therapies for difficult-to-treat cancers, today announced changes to its Board of Directors (the “Board”), effective immediately.
 
- The company reported 12,272 cumulative procedures using the SSi Mantra as of June 30, including 175 telesurgeries, and subsequently completed a robotic telesurgery spanning more than 13,600 miles between Colombia and India. SS Innovations expects the U.S. Food and Drug Administration to complete its review of the company’s 510(k) premarket notification for the SSi Mantra by the end of the first quarter of 2027 and said it believes it can obtain European Union CE marking certification by the end of 2026.
+ Mr. Janusz Grabski has resigned from Helix’s Board, with immediate effect. Concurrently, the Board has formally appointed Thomas Mehrling, M.D., Ph.D., Helix’s Chief Executive Officer, as a director of the Company, pursuant to the Board nomination right granted to Laevoroc Immunology AG in connection with Helix’s 2025 acquisition of substantially all of the assets of Laevoroc Immunology AG and Laevoroc Chemotherapy AG.i
 
- To view the full press release, visit https://ibn.fm/nTMso
+ Collectively, these changes are intended to ensure that the Board continues to meet Helix’s evolving governance and capital markets requirements and has the composition and experience needed to support the Company’s clinical development and broader corporate objectives.
 
- About SS Innovations
+ The Board would like to thank Mr. Grabski for his service and contributions to Helix and wishes him every success in his future endeavors.
 
- SS Innovations International, Inc. develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of surgical robotic procedures including cardiac surgery. An American company headquartered in India, SS Innovations plans to expand the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions.
+ About Helix BioPharma
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Helix BioPharma Corp. is a clinical-stage oncology company focused on developing therapies for underserved patient populations with difficult-to-treat cancers. The Company’s pipeline is led by L-DOS47, a clinical-stage antibody-enzyme conjugate being developed as a combination therapy for non-small cell lung cancer (NSCLC). Additional pipeline candidates include LEUMUNA™, a pre-IND oral immune checkpoint modulator for post-transplant leukemia relapse, and GEMCEDA™, a pre-IND gemcitabine prodrug for advanced solid tumors.
 
- The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
+ Helix BioPharma’s common shares are listed on the Toronto Stock Exchange (TSX: HBP), quoted on the OTC Pink Market (HBPCD), and listed on the Frankfurt Stock Exchange (FWB: HBP0). For more information, please visit: https://www.helixbiopharma.com/
 
- Forward Looking Statements
+ For more information, please contact:
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Helix BioPharma Corp.789 West Pender Street, Suite 480Vancouver, BCV6C 1H2Tel: +1 857 208 7687Thomas Mehrling, MD, PhD, Chief Executive Officercorporate@helixbiopharma.com
 
-View the original release on www.newmediawire.com 
+ References
+
+ https://www.helixbiopharma.com/fy2025/helix-biopharma-secures-pre-ind-candidates-leumuna-and-gemceda-in-strategic-acquisition-from-the-laevoroc-group/
+
+ View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-reports-record-q2-revenue-of-13-9m-up-39-4-7088556)
+[Original/Source Press Release](https://www.newmediawire.com/news/helix-biopharma-corp-announces-board-composition-changes-7088558)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-hits-record-q2-revenue-of-13-9m-up-39-4/de94be77bb14d0bcc329743120638fe4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-biopharma-announces-board-changes-ceo-joins-grabski-resigns/54767f65c63c76b397c28e0cb214184a) 
 
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/helix-biopharma-announces-board-changes-appoints-ceo-thomas-mehrling-to-board)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/54767f65c63c76b397c28e0cb214184a)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/54767f65c63c76b397c28e0cb214184a)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/smogz65X.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/14/airyFRIQ.webp)
