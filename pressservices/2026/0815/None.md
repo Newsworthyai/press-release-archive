@@ -1,56 +1,68 @@
-# 18 Years of Corporate Team Building in Singapore
+# New Infant Daycare Slots Open at Licensed Pacoima Center
 
-Adventour Singapore Marks 18 Years Serving 1,500+ Corporate Clients Across APAC
+Licensed Pacoima Childcare Center Releases New Infant and Toddler Openings for 2025
 
- Singapore, Singapore - August 14, 2026 / Adventour Singapore /
+ Pacoima, United States - August 15, 2026 / Kids 1st Learning Center - Pacoima /
 
- Adventour Singapore has marked its 18th year of operations, reaching a milestone of more than 1,500 corporate clients served across Singapore and the Asia-Pacific region since the company was established in 2008. The anniversary reflects sustained demand for structured, custom-designed team building and event planning services among organisations operating in one of Southeast Asia's most active business hubs.
+ Kids 1st Learning Center has expanded its subsidized childcare enrollment for infants and toddlers in the Pacoima area, opening new spots for eligible Los Angeles County families seeking free or reduced-cost early education placements for the upcoming program cycle.
 
-Eighteen Years of Custom Corporate Programming
+The announcement comes as families across the San Fernando Valley search for structured, developmentally appropriate care for their youngest children. Kids 1st Learning Center, a Pacoima preschool operating continuously since 1997, serves infants, toddlers, and preschoolers through programs designed to meet the eligibility requirements established by Los Angeles County subsidy guidelines.
 
-Since its founding in 2008, Adventour Singapore has built its practice around designing programmes tailored to each organisation's specific objectives -- whether those involve improving cross-departmental communication, onboarding large cohorts, or reinforcing company culture during periods of structural change. The company has positioned itself as a specialist in corporate team building Singapore engagements that are constructed around measurable outcomes rather than off-the-shelf formats.
+Subsidized Care Available for Qualifying Families
 
-Over the course of 18 years, the company has refined its methodology to address the distinct needs of multinational corporations, local enterprises, and regional organisations with operations spread across Asia-Pacific. That geographic breadth has shaped the design of its programmes, many of which are now built to function across culturally and linguistically diverse teams.
+For parents navigating the costs associated with early childhood care, access to free or subsidized placements through a licensed center carries meaningful practical value. Kids 1st Learning Center participates in Los Angeles County subsidized childcare programs, meaning qualifying families may pay little to nothing for enrollment depending on income and household eligibility criteria.
 
-A Portfolio Built on Client Volume and Retention
+The center serves children from the infant stage through preschool age, providing a continuous care option for parents whose needs evolve as their child develops. Enrollment in subsidized programs is limited, and the current opening of new slots represents a direct opportunity for families who may have previously been on waiting lists or uncertain about available options.
 
-The 1,500-client milestone spans industries including finance, technology, logistics, healthcare, and professional services. The client base extends beyond Singapore to organisations headquartered or operating across the APAC region, reflecting the cross-border nature of much of the demand for corporate team building activities Singapore companies and regional firms require.
+Parents seeking Daycare Pacoima providers that combine structured early learning with financial accessibility will find that Kids 1st Learning Center addresses both within a single program. The center's teachers bring experience working with the developmental stages specific to infants and toddlers, applying individualized attention rather than a generalized classroom approach.
 
-Adventour Singapore's service offering covers two primary areas: custom team building programmes and end-to-end corporate event planning Singapore organisations use to manage large-scale internal events, offsite gatherings, and company-wide engagement initiatives. The event planning component handles programme design, venue coordination, facilitation, and post-event reporting, reducing the operational load on internal HR and people teams.
+More Than Two Decades of Early Education in Pacoima
 
-Brand Evolution Alongside Market Demand
+Having served the community since 1997, Kids 1st Learning Center carries more than 25 years of operational experience in early childhood education. That continuity is a factor parents often weigh when evaluating daycare options, as a center's longevity within a specific community can reflect consistent licensing compliance, staff retention, and familiarity with local family needs.
 
-The 18-year timeline has coincided with notable shifts in how Singapore and Asia-Pacific organisations approach workforce engagement. Adventour Singapore has adapted its programming accordingly -- expanding from largely outdoor and activity-based formats in its early years to a broader catalogue that includes structured collaboration workshops, leadership development scenarios, and hybrid formats designed for distributed teams.
+Pacoima childcare options vary widely in structure, age range, and cost. Kids 1st Learning Center's program centers on individualized attention, which is particularly relevant for infants and young toddlers whose developmental needs shift rapidly during the first three years of life. Rather than applying a uniform curriculum across age groups, the center's teachers work with each child according to their current developmental stage.
 
-The company's evolution from a single-market operator to a provider serving clients across Asia-Pacific reflects both organic client growth and a deliberate effort to build programmes that translate across the region's varied corporate cultures. High client satisfaction has been a consistent feature of the company's reported performance, with repeat engagements forming a significant portion of its annual volume.
+How Los Angeles County Subsidy Eligibility Works
 
-About Adventour Singapore
+Families interested in subsidized placement at Kids 1st Learning Center typically qualify based on income thresholds and other criteria established by Los Angeles County. The subsidy structure is designed to make early education accessible to working families who might not otherwise afford licensed center-based care.
 
-Adventour Singapore is a corporate team building and event planning company established in 2008 and based in Singapore. The company specialises in custom team building programmes and end-to-end corporate event planning for organisations across Singapore and the Asia-Pacific region. Over 18 years of operations, Adventour Singapore has served more than 1,500 corporate clients, delivering programmes focused on team cohesion, collaboration, and employee engagement.
+Parents of infants and toddlers in the Pacoima area are encouraged to inquire about current eligibility requirements directly with the center, as subsidy guidelines and available slots shift based on funding cycles and enrollment demand. The process generally involves documentation of household income and, in some cases, verification of work or school status for the applying parent or guardian.
 
-Learn more at Adventour Singapore
+Kids 1st Learning Center's participation in county subsidy programs indicates the center has met the licensing and program standards required to receive public funding - a baseline that gives parents a measurable reference point when comparing Daycare Pacoima providers.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ASP2zWoTGnAa9G7IaTYi6VX7hstLK0PaKsoVFul3.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Qpt4ZmyTsflSQrmnhMeLsjYk2KioZQ4pRmz1rgj6.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/eGBApzvUUZPMDiPFvllAILxnQSLBWzoMKSG2v54c.jpg) [](https://adventour.com.sg) Contact Information:
+About Kids 1st Learning Center
 
- Adventour Singapore
+Kids 1st Learning Center has provided early education in the Pacoima area since 1997, offering programs for infants, toddlers, and preschoolers in Pacoima, California. As a licensed Pacoima childcare center participating in Los Angeles County subsidized childcare programs, it makes free or reduced-cost enrollment available to eligible families. Teachers at the center provide individualized attention suited to each child's developmental stage.
+
+Learn more at Kids 1st Learning Center - Pacoima
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/jGeZPsI2ETG01tNsika28QW4MTjJjWzA1feZSBnn.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/USvdYfGKa6fGJnsWHTj6uMSUKWGIYvdtPu1Myo3s.jpg) [](https://kids1st.org) Contact Information:
+
+ Kids 1st Learning Center - Pacoima
 
  
 
-81 Ubi Ave 4  Singapore, Singapore 408830Singapore
+13232 Kagel Canyon St.  Pacoima, CA 91331United States
 
- Josh Tay +1 658-915-4522 https://adventour.com.sg 
+ Michael Tasner 18183517064 https://kids1st.org 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/18-years-of-corporate-team-building-in-singapore-444269)
+[Original/Source Press Release](https://mediawiretoday.com/new-infant-daycare-slots-open-at-licensed-pacoima-center-444318)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/adventour-singapore-celebrates-18-years-and-1500-corporate-clients/ae48266583f22db76ddc4ee89174f9c7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacoima-childcare-center-opens-new-subsidized-slots-for-infants-toddlers/aaa387b406ae6d0a2905fe0e66d26d6e) 
 
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/new-infant-daycare-slots-open-at-licensed-pacoima-center)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/nuevas-vacantes-de-guarderia-para-bebes-en-centro-con-licencia-en-pacoima)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/pacoima-daycare-expands-subsidized-infant-and-toddler-slots-for-2025)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/15/warpYAju.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/15/urgeXnwC.webp)
