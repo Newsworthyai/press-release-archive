@@ -1,53 +1,59 @@
-# LiveNexus Combines AI Tools and Human Agents in One Platform
+# Managed IT Support and VoIP Services Expand Across NC
 
-LiveNexus Merges AI Efficiency and Human Judgment in Customer Service Delivery
+ESP, LLC Delivers Managed IT Support, Cloud Solutions, and VoIP Services Across North Carolina
 
- Scottsdale, United States - August 15, 2026 / Liveops /
+ Conover, United States - August 15, 2026 / ESP, LLC (Elliott Services and Peripherals) /
 
- Liveops has launched LiveNexus, a platform designed to manage and orchestrate scalable customer service outsourcing for businesses requiring flexible, on-demand access to experienced agents. The release signals a shift in how Liveops positions its outsourcing capabilities, moving away from traditional staffing models toward a coordinated platform approach that connects companies with skilled agents across multiple channels at the same time.
+ ESP, LLC has expanded its managed IT support and business communications services to serve organizations across Catawba and Lincoln counties in North Carolina, marking a deliberate push by the Conover-based firm to meet growing regional demand for integrated technology services. The company, founded by Joe Elliott, now delivers a unified suite of services that includes IT Support North Carolina businesses depend on, cloud migration and management, and high-performance business VoIP systems -- all coordinated through a single point of contact.
 
-A Platform Built Around Flexible Agent Access
+Expanding Managed IT Services Across North Carolina
 
-LiveNexus addresses a recurring challenge in customer service operations: aligning the right agents with the right volume at the right moment. Rather than binding businesses to fixed staffing commitments, the platform gives organizations the ability to scale support capacity up or down based on demand. Agents are accessed on demand, enabling companies to respond to seasonal spikes, product launches, or unexpected contact volume without the overhead of maintaining a large permanent workforce.
+ESP, LLC -- short for Elliott Services and Peripherals -- operates out of Conover, NC, and has structured its service model around long-term technology partnerships rather than transactional support. The firm's managed IT offering covers network monitoring, infrastructure management, endpoint support, and ongoing maintenance for businesses that require consistent system uptime without maintaining a full in-house IT department.
 
-The platform is structured to coordinate multiple layers of customer service delivery - including agent matching, channel support, and consistency of experience - through a single orchestration layer. This design is intended to reduce the operational complexity businesses typically encounter when managing outsourced support across phone, chat, email, and other contact channels.
+Joe Elliott, the firm's founder, brings direct technical experience to each client engagement, which shapes how ESP, LLC approaches service delivery. Rather than relying solely on remote support queues, the company positions itself to provide responsive, hands-on assistance to businesses operating in the western Piedmont region of North Carolina.
 
-Integrating AI in Customer Experience Delivery
+Joe Elliott, founder of ESP, LLC, has built the company's service portfolio around established technology partnerships designed to give regional clients access to enterprise-grade solutions. "Our goal is to make sure businesses in Catawba and Lincoln counties have access to the same technology infrastructure and support capabilities that larger metro markets take for granted," said Joe Elliott, founder of ESP, LLC.
 
-A central feature of LiveNexus is its support for ai in customer experience strategies. Liveops built the platform to work alongside artificial intelligence tools rather than function as a standalone agent network. This integration allows businesses to deploy automated interactions where appropriate while routing more complex or sensitive inquiries to human agents without disrupting the customer journey.
+Cloud Migration and Management for Regional Businesses
 
-The approach reflects a broader shift across the contact center industry, where organizations are seeking ways to combine AI-driven efficiency with the judgment and empathy that human agents provide. LiveNexus is structured to support both functions within a single platform, giving businesses a consistent delivery model that adapts to the nature of each interaction.
+The company's Cloud Solutions NC services address the transition businesses face when moving from on-premise infrastructure to cloud-based environments. ESP, LLC manages the full migration process and provides ongoing cloud administration, helping organizations reduce hardware dependency while maintaining secure access to data and applications.
 
-Consistent Support Across All Channels
+The cloud services component is designed to integrate with the firm's broader managed IT approach, meaning businesses do not need to coordinate between separate vendors for infrastructure support and cloud management. This structure allows ESP, LLC to maintain a consistent view of each client's technology environment.
 
-Liveops designed LiveNexus specifically for next-generation customer service outsourcing, where consistency across touchpoints carries as much weight as speed of response. The platform maintains uniform service quality regardless of which channel a customer uses to reach a business, addressing a common challenge for companies that have historically managed separate vendor relationships for different contact types.
+Business VoIP Systems Built on Established Partnerships
 
-By centralizing coordination through LiveNexus, businesses can apply the same service standards, agent qualifications, and experience guidelines across every channel without rebuilding those frameworks for each one. The platform also supports rapid scaling, which is particularly relevant for companies in high-growth phases or those operating in industries with unpredictable contact volume.
+ESP, LLC's VoIP Services NC offering is built through a direct partnership with GoTo, a provider of business communication platforms. The VoIP systems deployed by the firm support voice, conferencing, and unified communications for businesses replacing traditional phone infrastructure with internet-based systems.
 
-The launch of LiveNexus represents Liveops expanding its role beyond agent supply into active platform orchestration - a model that reflects how enterprise buyers are increasingly evaluating outsourcing partners. Companies are no longer selecting vendors based solely on agent availability; they are looking for platforms that integrate with existing technology stacks, support ai in customer experience workflows, and deliver measurable consistency across all service channels.
+Beyond GoTo, ESP, LLC maintains working relationships with Spectrum Business, AT&T Business, Metronet, and Brightspeed -- a combination of regional and national connectivity providers. These partnerships allow the company to source appropriate internet and telecommunications solutions depending on a client's location and bandwidth requirements within North Carolina.
 
-About Liveops
+Dedicated Support Based in Conover, NC
 
-Liveops is a provider of customer service outsourcing solutions that connects businesses with experienced, on-demand agents. Through the LiveNexus platform, Liveops offers organizations flexible access to skilled talent and integrated support capabilities across multiple customer contact channels.
+Operating from Conover, NC, in the heart of Catawba County, ESP, LLC serves businesses across a geography that includes smaller municipalities and rural areas where dedicated technology support has historically been less accessible. The firm's location positions it to provide on-site support across Lincoln and Catawba counties with shorter response distances than providers headquartered in larger metro areas like Charlotte or Raleigh.
 
-Learn more at Liveops
+The company's service structure is built to function as an outsourced IT department for small and mid-sized businesses, covering day-to-day technical support alongside longer-term infrastructure planning. With managed services, cloud administration, and VoIP systems offered under one provider, clients in the region can consolidate vendor relationships and direct technology questions to a single team with familiarity with their environment.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/yXSe67a0AG4duvsc94yTDIIKGWnZG7wIf4Ks4ssx.jpg) [](https://liveops.com) Contact Information:
+About ESP, LLC
 
- Liveops
+ESP, LLC (Elliott Services and Peripherals) is a managed technology services company based in Conover, North Carolina. Founded by Joe Elliott, the firm provides IT support, cloud solutions, and business VoIP services to organizations in Catawba and Lincoln counties. ESP, LLC maintains partnerships with GoTo, Spectrum Business, AT&T Business, Metronet, and Brightspeed to deliver connectivity and communications services across the region.
+
+Learn more at ESP, LLC (Elliott Services and Peripherals)
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/fxVBQHv6IV9VPf0PUAfK1RD0gPsCe7eu1NvRrqr7.png) [](https://espllcs.com) Contact Information:
+
+ ESP, LLC (Elliott Services and Peripherals)
 
  
 
-1365 N. Scottsdale Rd, Suite 390  Scottsdale, Arizona 85257United States
+3305 16th Ave SE Suite 103  Conover, NC 28613United States
 
- Shelby Bozekowski +1-720-209-2818 https://liveops.com 
+ Joe Elliott +1 (828) 466-2004 https://espllcs.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/livenexus-combines-ai-tools-and-human-agents-in-one-platform-444414)
+[Original/Source Press Release](https://mediawiretoday.com/managed-it-support-and-voip-services-expand-across-nc-444446)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/liveops-launches-livenexus-ai-powered-customer-service-orchestration/dea12cf23653c8fde83f1b293608eb3c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esp-llc-expands-managed-it-cloud-and-voip-services-across-north-carolina/555b670981f39e56b81ed963c41e4b60) 
 
  
 
@@ -55,4 +61,4 @@ Learn more at Liveops
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/15/isleaGTd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/15/dashJ3pZ.webp)
