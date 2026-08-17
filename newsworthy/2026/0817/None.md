@@ -1,58 +1,66 @@
-# Unlock the Secrets of AI-Driven Brand Equity with Industry Pioneer David A. McInnis
+# Unveiling the Air Force One Decoy: A Closer Look at Iran Threats and WNBA Drama
 
-David A. McInnis, widely credited with pioneering News Marketing and founder of PRWeb, today announced the release of Brand Equity: AI, News Marketing, and People: The New Brand Equity Stack. The book is the second title in a practical series that began with News Marketing, and it argues that brand equity is no longer only what people remember. It is also what retrieval systems can find, trust, and reuse when someone asks a question in your category.
+No Agenda Show takes center stage as fill-in hosts Darren O'Neill and Larry Bleidner helm Episode 1895, titled XY You're Out, published on August 16, 2026. Broadcasting from just outside Chicago and the Connecticut shore, the duo upholds the media deconstruction tradition set by Adam Curry and the late John C. Dvorak. They delve into a week marked by an alleged Iranian plot against President Trump, a viral Blue's Clues political ad, and a new cultural controversy within the WNBA.he tone stays irreverent, but the source clips do the heavy lifting.
 
- McInnis defines brand equity as the accumulated trust, recognition, and preference that lives in other people's heads, and the commercial advantage that stored-up goodwill creates: higher prices, faster conversion, cheaper marketing, stronger talent and press, resilience after mistakes, and a higher exit value. For decades, he notes, that asset felt reserved for companies with television budgets and research firms on retainer. The landscape of distribution, measurement, and discovery has transformed. Small and mid-sized businesses can now build equity on purpose, and prove it is growing, without an eight-figure media buy.
+ Listeners get a wide sweep of stories mined from cable news, NPR, PBS NewsHour, and MSNBC (now MS NOW), including:
 
- The book's central frame is what McInnis calls the new brand equity stack: AI, News Marketing, and people. AI accelerates research, drafting, and multi-format work. People and culture make the brand true at the point of contact. News Marketing is the credibility and findability engine in the middle.
+ * Michigan Senate candidate Abdul El-Sayed's Blue's Clues cosplay ad pitching Medicare for All to what the hosts call "kidults"
+* Reports that Trump was smuggled off Air Force One in a catering truck after a NATO summit in Turkey, with the press left aboard as a decoy
+* Chris Matthews resurfacing to warn moderate Democrats about the DSA, and AOC walking back "woke one" positions on ABC
+* New York Assemblywoman Emily Gallagher redefining shoplifting as "crimes of poverty"
+* Caitlyn Jenner's blunt WNBA take and the Sophie Cunningham and Caitlin Clark backlash
 
- "AI makes the process faster. News Marketing makes it credible. People make it believable. Measurement makes it honest," McInnis writes. "Preference is the point of brand equity. Generic sludge does not create preference."
+ The hosts lean on verbatim clips rather than commentary alone. On Jenner's WNBA position, they replay her line and endorse it on the spot: "XX, you're in. XY, you're out. It's simple. That's the catchphrase. Let's remember that. I might get that tattooed on myself." On the decoy plane story, O'Neill notes that PBS NewsHour reported President Bill Clinton pulled the same maneuver in Islamabad in 2000, directly contradicting an MS NOW guest who insisted Clinton would never have done such a thing.
 
- That link to News Marketing is deliberate. News Marketing, already published, is the first book in the series. Brand Equity is the second. Success Pillars will be the third. Each book stands alone, but McInnis returns to News Marketing because it is how he has practiced visibility for nearly thirty years: put news on the open web in a structured, timestamped, entity-clear form; treat the press release as a seed, not a fax to a gatekeeper; then amplify the same true story across formats so customers, journalists, search engines, and AI systems can find it.
+ Deeper threads include H.R. McMaster's CBS analysis of IRGC "pattern of life" videos targeting Barron Trump and Melania Trump, Rahm Emanuel positioning himself as a moderate against Gavin Newsom, and a Grimerica clip breaking down new Canadian hate-speech guidance that treats social-media boycotts of 2SLGBTQI+ organizations as potential bias incidents. The show also covers MS NOW's reporting on the USS Abraham Lincoln's 266-day deployment, Defense Secretary Pete Hegseth's pushback from Panama, and Victor Davis Hanson's analysis of why Caitlin Clark and Sophie Cunningham have destabilized what he calls the league's "preferred obscurity and poverty." A boots-on-the-ground segment from Sir Darius Unity details data-center construction protocols, phone confiscation, and reported downtime losses.
 
- "With his previous book in this series, News Marketing, and now Brand Equity, Mcinnis has literally written the book(s) revealing the tried and true marketing methods and strategies that have delivered for top-tier companies, organizations and leading brands. He has shepherded countless PR and Marketing professionals through these evolving processes in his decades of building the companies which provide the tech tools to support and achieve brand marketing and PR goals," Laura Sturaitis, EVP (Retired) Business Wire.
-
- McInnis, a pivotal figure in shaping the concept, outlines how News Marketing accomplishes five critical tasks for brand equity simultaneously: third-party validation, familiarity through repetition, authority signals, a living public newsroom, and durable retrieval assets that ensure AI systems deliver accurate answers. 'Advertising buys attention,' McInnis writes. 'News Marketing banks proof.' The book's practical sections delve into the anatomy of brand equity including awareness, associations, perceived quality, loyalty, and findability. He includdes a monthly Brand Equity Dashboard utilizing free and low-cost signals, as well as strategies on pillar development, social proof, consistency, culture, and a comprehensive twelve-month plan. Three chapters walk through News Marketing in full: how to write and cadence press releases, how to turn one release into an AI-optimized multi-format package, and how to read modern newswire reporting without fantasy metrics.
-
- McInnis clearly states what AI cannot achieve. It will not choose pillars, attend customer calls, decide what is newsworthy, or earn the third-party validation that makes a claim believable. Tools amplify strategy. They do not replace it.
-
- "Brand equity is not magic, not luck, and not the exclusive property of companies with famous logos," McInnis says. "It is the predictable output of a repeatable process: deliberate visibility, in consistent themes, validated by third parties, structured for retrieval, measured continuously."
-
- About the Author David A. McInnis has spent more than three decades building tools that help small businesses be heard. In 1997 he founded PRWeb around a simple idea: press releases should be public, searchable assets anyone could find. PRWeb helped tens of thousands of small and midsize companies gain online visibility and was later acquired by Vocus, which merged into Cision. He went on to co-found Newsworthy.ai with Mark Willaman and to launch NewsRamp, platforms that extend News Marketing into the AI era with provenance, self-hosted releases, and multi-format distribution. McInnis is widely credited with pioneering News Marketing as a discipline. He holds a BA in International Studies from Texas State University, leads AI and digital marketing bootcamps, and is based in Boerne, Texas.
-
- About the Book Brand Equity: AI, News Marketing, and People: The New Brand Equity Stack is written for operators who want a field manual, not a prompt cookbook. It is the second book in McInnis's series after News Marketing, and it shows how measurement, AI tools, brand pillars, proof, culture, and a News Marketing cadence turn reputation from a byproduct into an asset under construction.
-
- Brand Equity is available now as a free download for a limited time and for purchase on Amazon.com. For media copies, interviews, or speaking inquiries, contact Newsworthy.ai. 
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast built on media deconstruction and value-for-value support. Hosts Adam Curry and John C. Dvorak established the format of dissecting how stories are framed, amplified, or buried across mainstream outlets, government messaging, and Big Tech. The show blends sharp analysis, humor, listener contributions, and a refusal to accept official narratives at face value. Episode 1895, XY You're Out, is available now wherever podcasts are heard, along with meetup information and producer credits at the episode page. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608172777/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+[Original/Source Press Release](https://newsworthy.ai/news/202608172778/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/prweb-founder-david-mcinnis-unveils-new-book-on-ai-driven-brand-equity/be4ee7239487c83e27d64b1540d963b4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1895-xy-you-re-out-media-deconstruction-with-a-twist/c63f43bf878dedd289826a7af65f9da9) 
 
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/prweb-founder-david-a-mcinnis-unveils-new-book-redefining-brand-equity-for-the-ai-era)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/no-agenda-episode-1895-unpacks-air-force-one-decoy-reports-wnba-controversy-and-more)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/unlock-the-secrets-of-ai-driven-brand-equity-with-industry-pioneer-david-a-mcinnis)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2089396985191108831)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/no-agendas-fill-in-hosts-tackle-trump-assassination-plot-wnba-controversy-and-more-in-episode-1895)
+
+Pickup - [https://politics.in-focus.news/political-news](https://politics.in-focus.news/political-news/air-force-one-decoy-wnba-controversy-and-political-ads-highlights-from-no-agenda-episode-1895)
+
+Pickup - [https://newscrafters.com](https://newscrafters.com/article/david-mcinnis/exploring-media-narratives-the-no-agenda-show-s-insightful-take-on-current-events)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/unveiling-the-air-force-one-decoy-a-closer-look-at-iran-threats-and-wnba-drama)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/17/paleqsz4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/17/moss5IAB.webp)
