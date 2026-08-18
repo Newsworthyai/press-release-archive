@@ -1,42 +1,64 @@
-# Puerto Rico’s Day at The Ballpark Continues 2026 Series Across Three U.S. Baseball Markets
+# BTS Group Co-Founder and CEO Rafael Olloqui to Receive The ‘International Business Expansion Award’
 
-NEW YORK, NY — August 17, 2026 — (NOTICIAS NEWSWIRE) — Puerto Rico’s Day at the Ballpark continues its 2026 nationwide series this August with three upcoming celebrations in Colorado, Chicago and Los Angeles. Presented by Discover Puerto Rico and produced by 21 Events, the events present Puerto Rico’s deep connection to baseball to fans in three distinct markets while recognizing Puerto Rican players who have made their mark on the game.
+MIAMI, FL — August 17, 2026 — (NOTICIAS NEWSWIRE) — Negocios Magazine announced that Rafael Olloqui, Co-Founder & CEO of BTS Group, will be among the distinguished business leaders recognized at the 2026 Top Entrepreneur of USA Awards, which will take place on Thursday, October 8, at the EB Hotel Miami.
 
- The series will visit Colorado on August 18, followed by Chicago on August 22 and Los Angeles on August 23. Each event will feature its own program of in-stadium experiences, player recognition and Puerto Rico-themed elements, building on a series that has celebrated the Island’s baseball history and culture in ballparks across the country since 2023.
+ Rafael Olloqui will receive the “International Business Expansion Award,” recognizing his entrepreneurial career, leadership, and his role in the growth and international expansion of BTS Group within an ever-evolving telecommunications and technology industry.
 
- At Coors Field on August 18, the Colorado Rockies will host the next celebration and will feature Willi Castro and Coach Andy González. Planned elements include first pitch by Benjamin Oaks, Owner of Aguanile, the first Puerto Rican dinner club in Denver; an on-field presentation; scoreboard; and in-stadium promotional elements, hospitality experiences, and fan engagement activities.
+ Founded in Miami, BTS has developed a significant presence in the international communications market for more than two decades. Under the leadership of Rafael Olloqui and his executive team, the company has evolved from its origins primarily focused on voice solutions.
 
- Four days later, Puerto Rico’s Day at the Ballpark heads to Chicago on August 22 as the New York Mets visit the Chicago White Sox at Rate Field. The event will recognize legendary ballplayer Roberto Hernandez and include a first pitch thrown out by award-winning Puerto Rican chef, Monti Carlo; an on-field presentation and a series of in-stadium activations celebrating Puerto Rico’s contributions to baseball.
+ International expansion
 
- On August 23, the series arrives at Dodger Stadium in Los Angeles. Kiké Hernández and Edwin Diaz will be recognized as part of the celebration, which will also feature Puerto Rican model, actress, television personality, and former Miss Universe Puerto Rico 2020, Estefanía Soto throwing out the first pitch; an on-field presentation, and additional experiences connecting fans with Puerto Rico’s baseball tradition. All stadiums will display a 60-second scoreboard video presenting the beauty and heritage of the island.
+ International expansion has been one of the key pillars of this evolution. Today, BTS Group pursues its strategy through a combination of companies, investments, and partnerships, with operations extending across the Americas, Europe, and Asia. The organization maintains its headquarters in Miami, along with a strategic presence in Zaragoza, Spain.
 
- “Puerto Rico’s relationship with baseball is rooted in generations of players who have competed at the highest level and represented our Island with tremendous pride. Most recently, Carlos Beltrán became Puerto Rico’s sixth inductee into the National Baseball Hall of Fame in Cooperstown, further cementing our Island’s enduring legacy in the sport,” said Jorge L. Pérez, CEO of Discover Puerto Rico.
+ BTS’s trajectory also reflects the scale its operations have achieved. The company has reported that its voice communications solutions manage more than 18 billion minutes annually across more than 180 countries, while continuing to develop technologies related to artificial intelligence, automation, omnichannel communications, and new digital platforms.
 
- Puerto Rico’s Day at the Ballpark also offers an opportunity for fans to experience Puerto Rico first-hand via Discover Puerto Rico’s Ballpark to Island Giveaway for a trip for two (2), including airfare, hotel accommodations, and special experiences. No purchase necessary. Open to U.S. Residents 18 and over. Fans can enter the giveaway here: discoverpuertorico.com/ballpark-to-island Please refer to the official rules for further details.
+ BTS also maintains a strategic alliance with SoftBank through SBTS, aimed at strengthening its presence and providing technology and communications solutions across the Asia-Pacific and Middle East markets.
 
- “One of the things that makes this series special is the opportunity to tell different stories in every city,” said Ralph Paniagua, Managing Director of 21 Events. “Puerto Rico’s baseball history isn’t defined by one player, one generation or one ballpark. Our players have made an impact across the game, and these events allow us to recognize those contributions in front of the fans and communities that remember them. Colorado, Chicago and Los Angeles each give us another opportunity to celebrate that history.”
+ “For Negocios Magazine, it is a true honor to recognize Rafael Olloqui, an entrepreneur from Miami, who has succeeded in developing a company with a clear international vision. His entrepreneurial mindset, ability to innovate, and expansion strategy represent precisely the kind of leadership we seek to highlight through the Top Entrepreneur of USA Awards,” said Eduardo Hapke, Publisher of Negocios Magazine.
 
- Since its debut in 2023, Puerto Rico’s Day at the Ballpark has grown into a signature national series recognizing Puerto Rican players and celebrating the Island’s enduring place in baseball. Following the August events, the 2026 series will continue in September, carrying that celebration into its final scheduled stop of the season.
+ The distinction also recognizes Olloqui’s ability to anticipate changes in an industry undergoing constant transformation and to position BTS in new areas of growth. The company notes that, under his leadership, the group has fostered a culture based on innovation and international collaboration.
 
- About Discover Puerto Rico Discover Puerto Rico is a private, not-for-profit Destination Marketing Organization (DMO) whose mission is to make Puerto Rico visible to the world as a premier travel destination. The DMO brings prosperity to the people of Puerto Rico by collaboratively promoting the Island’s diversity and uniqueness for leisure and business travel, and events. It is responsible for all global marketing, sales, and promotion of the destination and works collaboratively with key local governmental and nongovernmental players throughout Puerto Rico’s visitor economy and the community at large to empower economic growth. To discover all the beauty the Island has to offer, visit DiscoverPuertoRico.com.
+ An evening dedicated to business leadership
 
- About 21 Events, Inc. 21 Events, based in Puerto Rico, produces events that celebrate Puerto Rico, its culture, and the achievements of its people. Through sports, entertainment, experiential marketing, and strategic partnerships, 21 Events develops programs that connect audiences with Puerto Rico while creating meaningful experiences that honor the Island’s history, traditions, and global influence.
+ The 2026 Top Entrepreneur of USA Awards will bring together approximately 120 entrepreneurs, CEOs, executives, investors, and professionals for an exclusive awards dinner and ceremony organized by Negocios Magazine.
 
- About latinobaseball.com Founded in 1992, LatinoBaseball.com is dedicated to preserving and promoting the history of Latino baseball throughout the Caribbean and the United States. Through original storytelling, historical preservation, and special events, LatinoBaseball.com continues to celebrate the players and moments that have shaped the game for generations.
+ The event will begin on October 8 at 6:30 PM with a cocktail reception, followed by the awards dinner and recognition ceremony from 7:30 PM to 9:30 PM, in the Ballroom at the EB Hotel Miami.
 
- CONTACT: Heather Lopez 21 Events 305-647-9275 heather@heatherlopezenterprises.com 
+ During the ceremony, Rafael Olloqui will officially receive the “International Business Expansion Award,” joining a distinguished group of entrepreneurs and executives selected by Negocios Magazine to be recognized at this year’s event.
+
+ Through this distinction, Negocios Magazine seeks to highlight not only the business growth of BTS Group, but also the career of an entrepreneur who has contributed from Miami to building an international technology organization connecting markets, companies, and people around the world.
+
+ About Negocios Magazine
+
+ Negocios Magazine was founded in 2013 by journalist Eduardo Hapke and attorney Karen Blanco, with the goal of creating a communications platform focused on entrepreneurs, executives, business owners, and business leaders in South Florida and the U.S. Hispanic market.
+
+ The magazine is published in both print and digital formats and also operates NegociosMagazine.com, a digital platform providing ongoing coverage of business news, interviews, executive profiles, and content related to business, finance, technology, investment, entrepreneurship, and leadership.
+
+ Negocios Magazine further expands the distribution of its content through international digital platforms such as PressReader, while maintaining a strong presence across social media.
+
+ The publication is part of Acta Diurna Urbis Group Corp., a Miami-based media group that also develops publications and platforms serving different market segments, including Ejecutiva Magazine, Welcome to America, Salud & Buen Vivir Florida, Hispanic Time, and Electric Cars Plus.
+
+ Follow Negocios Magazine:
+
+ Instagram: @NegociosMagazine Facebook: https://www.facebook.com/negociosus/ X: @NegociosUS LinkedIn: Eduardo Hapke
+
+ CONTACT: Eduardo Hapke 786-607-9355 ed@negociosus.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/puerto-ricos-day-at-the-ballpark-5/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/bts-group-co-founder-rafael-olloqui/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/puerto-rico-s-day-at-the-ballpark-2026-heads-to-colorado-chicago-and-la/3a4baf830fe1e2dffa9c546a82221c1f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bts-group-ceo-rafael-olloqui-to-receive-international-business-expansion-award/33dfcabae8bf86df0b0959825c8f7891) 
 
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/bts-group-ceo-rafael-olloqui-honored-with-international-business-expansion-award)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/33dfcabae8bf86df0b0959825c8f7891)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/268/17/bendbeZQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/268/17/healKFBH.webp)

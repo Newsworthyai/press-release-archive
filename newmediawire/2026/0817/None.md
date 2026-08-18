@@ -1,36 +1,70 @@
-# Greenland Mines (GRML) Completes Skaergaard Bathymetric Survey, Advances 2026 Drill Program
+# $5.2 Million Commitment Will Expand and Enhance Stroke Care Across Wyoming
 
-LOS ANGELES, CA - August 17, 2026 (NEWMEDIAWIRE) - Greenland Mines (NASDAQ: GRML) completed its 2026 bathymetric survey campaign at the Skaergaard Project in southeast Greenland, covering more area than originally planned and producing high-resolution seabed data across the fjords surrounding the project. The data has already been used to guide the company support vessel to a new anchorage within 500 meters of the initial 2026 operational area and is expected to support new official navigational charts, a dedicated navigational safety study and planning for future large-scale marine shipping operations.
+CHEYENNE, WYO. - August 17, 2026 (NEWMEDIAWIRE) - When someone experiences a stroke, immediate medical attention can mean the difference between recovery, lifelong disability or even death. In Wyoming, stroke is the fifth-leading cause of death[1], and geographic distance to care can present significant barriers to timely treatment.
 
- Greenland Mines also completed all HQ-diameter drill core required for its planned multiton metallurgical bulk sample and has transitioned to NQ-size core drilling for resource definition and geotechnical work through the remainder of the season. A new core shack for logging, sampling and storage is fully operational. The work forms part of a broader 2026 field program at Skaergaard encompassing resource definition drilling, metallurgical bulk sampling, environmental baseline studies and infrastructure planning as the company advances the project toward an Initial Assessment.
+ That’s why the American Stroke Association, a division of the American Heart Association, devoted to changing the future to a world of healthier lives for all, is leading a statewide initiative to strengthen the full spectrum of stroke care across Wyoming through its Mission: Lifeline® Stroke initiative supported by a $4.5 million grant from The Leona M. and Harry B. Helmsley Charitable Trust and a commitment of $785,000 from the American Heart Association.
 
- To view the full press release, visit: https://ibn.fm/vk7G8
+ “A stroke can change a life in an instant, and every minute from symptom onset to initial care matters when it comes to treatment and recovery,” said Nancy Brown, chief executive officer of the American Heart Association. “This investment is about creating a future where Wyoming residents can be confident that specialized stroke care is available when and where they need it. By advancing innovation and supporting recovery, we can help more people return to their families, their work and their communities after stroke.”
 
- About Greenland Mines
+ Over the next three years through Mission: Lifeline Stroke Wyoming, the Association will help increase coordination among 28 hospitals, including two nationally certified Advanced Primary Stroke Centers in Casper and Cheyenne and community hospitals throughout the state that offer local services, telestroke capabilities and transfer networks. The initiative will enhance many critical elements of an optimal stroke system of care, including:
 
- Greenland Mines Ltd. is a Nasdaq-listed company with two operating divisions: (1) Mining, focused on the exploration and development of the Skaergaard Project in southeast Greenland and, subject to closing of the previously announced transaction, the Sarfartoq neodymium-praseodymium (Nd-Pr) rare earths project in southwest Greenland; and (2) Biotech, including Klotho’s KLTO‑202 primary indication for ALS. The Company’s strategy is centered on building a multi-asset platform with exposure to rare earth magnet materials, precious metals and selected midstream processing opportunities, while advancing its broader North Atlantic Critical Metals Corridor vision linking Greenland resources with allied downstream jurisdictions and industrial infrastructure.
+ * Improved public awareness of the symptoms of a stroke and the need to call 9-1-1;
+* A coordinated EMS network, well-trained to identify suspected stroke patients quickly and transport them to the most appropriate facility;
+* Well-trained hospital staff prepared to properly treat stroke patients and transfer, when appropriate, to higher levels of care and high-quality rehabilitation services;
+* Coordination and collaboration among all statewide stroke centers;
+* Seamless discharge to high-quality, post-acute stroke rehabilitation and recovery care;
+* Guideline-directed care in post-acute care facilities to improve recovery and quality of life;
+* A sustainable statewide quality improvement data system to monitor patient care, identify successes and areas in need of further improvement and investment; and
+* Robust, collaborative infrastructure for long-term attention to stroke outcomes across the state.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ "Transforming stroke care requires a connected system that works seamlessly for patients when every second counts," said Walter Panzirer, a trustee for the Helmsley Charitable Trust. "Wyoming has an opportunity to demonstrate how rural states can strengthen access to high-quality stroke care by connecting hospitals, EMS agencies, rehabilitation providers and community partners. We are proud to support this effort and help create lasting improvements that will benefit Wyoming families for years to come."
 
- The latest news and updates relating to GRML are available in the company’s newsroom at https://ibn.fm/GRML
+ Casper neurologist David Wheeler, M.D said the endeavor represents a significant step toward improving access to timely, lifesaving treatment for people across Wyoming experiencing a stroke.
 
- Forward Looking Statements
+ “When it comes to stroke, time lost is brain lost,” said Wheeler, a stroke care leader and American Heart Association volunteer. “In Wyoming, patients may be separated from specialized stroke care by hours of travel. This statewide program will help ensure more patients are recognized, treated and transferred quickly, giving them the best possible chance for recovery. For many people, that can mean the difference between returning to an independent life and living with permanent disability.”
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Since 2010, The Helmsley Charitable Trust has supported the American Heart Association’s Mission: Lifeline initiatives in Hawai’i, Iowa, Minnesota, Montana, Nebraska, North Dakota, South Dakota and now Wyoming. This latest grant marks more than $100 million total from the Helmsley Charitable Trust, which has been foundational to improving statewide systems of care for heart attack and stroke to help save and improve lives in rural states.
 
-View the original release on www.newmediawire.com 
+ Resources:
+
+ * Additional photos will be added as available to the right column of the release link.
+* Mission: Lifeline Stroke: https://www.heart.org/en/professional/quality-improvement/mission-lifeline
+
+ About the American Heart Association
+
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+
+ About the American Stroke Association
+
+ The American Stroke Association is a relentless force for a world with fewer strokes and longer, healthier lives. We team with millions of volunteers and donors to ensure equitable health and stroke care in all communities. We work to prevent, treat and beat stroke by funding innovative research, fighting for the public’s health, and providing lifesaving resources. The Dallas-based association was created in 1998 as a division of the American Heart Association. To learn more or to get involved, call 1-888-4STROKE or visit stroke.org. Follow us on Facebook and X.
+
+ About The Helmsley Charitable Trust The Leona M. and Harry B. Helmsley Charitable Trust aspires to improve lives by supporting exceptional efforts in the U.S. and around the world in health and select place-based programs. Since beginning active grantmaking in 2008, Helmsley has committed more than $4.9 billion for a wide range of charitable purposes. Helmsley’s Rural Healthcare Program funds innovative projects that use information technologies to connect rural patients to emergency medical care, bring the latest medical therapies to patients in remote areas, and provide state-of-the-art training for rural hospitals and EMS personnel. To date, this program has awarded more than $900 million to organizations and programs in the states of Hawai’i, Iowa, Minnesota, Montana, Nebraska, Nevada, North Dakota, South Dakota, Wyoming, and two U.S. Pacific territories, American Samoa and the Commonwealth of the Northern Mariana Islands. For more information, visit www.helmsleytrust.org.
+
+ For Media Inquiries
+
+ Cyd King: cyd.king@heart.org
+
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+
+ heart.org and stroke.org
+
+[1] Wyoming | Stats of the States | CDC
+
+ View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/greenland-mines-grml-completes-skaergaard-bathymetric-survey-advances-2026-drill-program-7088596)
+[Original/Source Press Release](https://www.newmediawire.com/news/5-2-million-commitment-will-expand-and-enhance-stroke-care-across-wyoming-7088607)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-mines-completes-bathymetric-survey-advances-skaergaard-drilling/29693d02e665a1276b50d86880cdbff6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stroke-care-gets-5-2m-boost-for-rural-wyoming/e1dd07b1054aef4d3be2109b9b64fb65) 
 
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/wyoming-stroke-care-gets-52-million-boost-to-expand-and-enhance-services)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/17/vibegtI4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/17/bendRMrP.webp)
