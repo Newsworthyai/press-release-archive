@@ -1,34 +1,64 @@
-# Jon Benson on Why Brave Truth-Telling Outsells Every Sales Trick
+# Tempest Droneworx Unveils Game-Changing Corvus MRDR™ for Developers
 
-Episode 168 of The Proven Entrepreneur, titled "Not Your Fault, But Your Responsibility: Jon Benson on Selling With Truth," hosted by Don Williams, brings listeners a candid conversation with Jon Benson, founder of bnsn.ai and widely credited with inventing the video sales letter in 2006. Published August 11, 2026, the episode traces Benson's path from a 280-pound, 38-year-old heart attack survivor with 14 diagnosed illnesses to a copywriter whose words have helped businesses generate hundreds of millions in sales, and now to an AI pioneer teaching machines to write persuasion the human way.
+Autonomous developers spend enormous amounts of time and money getting to the point where they can test. Aircraft, crews, ranges, travel, weather, and hardware are all part of the equation. Tempest Droneworx™ built Corvus MRDR™ (Modular Robotics Development & Reporting) to change that equation-allowing engineers to test their own algorithms and control methods at scale, then progressively replace simulated vehicles with real ones without changing their existing workflow or giving up ownership of their intellectual property.
 
- The conversation moves quickly across the frameworks that have defined Benson's career and his current company. Listeners get a working tour of:
+ Originally designed for internal use, the Corvus Platform is now available for sale. It was created to solve Tempest Droneworx™'s own engineering problems.
 
- * Value-driven marketing and how core values can be laced into copy without hijacking it
-* The gap between coercion and compelling asks, and why NLP gets unfairly conflated with manipulation
-* Buyer alignment profiles, the tool behind freebuyerprofile.com
-* The origin story of the VSL and Benson's early machine-learning work on copywriting language starting in 2010
-* Lessons from meeting the P90X founders at a Tony Robbins event and diagnosing why the program only scaled once it started telling the truth
+ The technology behind Corvus MRDR™ has evolved through years of real-world engineering at Tempest Droneworx™, beginning with a predecessor used during the company's successful FAA BAA 4 One-to-Many Command and Control work. Each project refined the platform further, ultimately becoming the proven system Tempest Droneworx™ is making available today.
 
- Benson's philosophy hinges on courage in the copy itself. Speaking with Williams, he reframed a classic sales-letter trope with a line audiences repeat back to him years later:
+ Start Virtual. Finish Real A team can start with 20 simulated aircraft operating in real-world coordinates. When ready, replace one with a physical aircraft. Test again. Replace another. Repeat until the entire fleet is real.
 
- "It's not all your fault, but now it's your responsibility. Now that you know this, it's your responsibility. You don't need to lie, but you do need to be brave enough to tell the truth." Williams, author of Romancing Your Customer, echoed the theme, arguing that brutal honesty shocks buyers precisely because it is so rare, and that alienating the wrong-fit customer earns instant credibility with the right one.
+ The Corvus Platform works alongside the customer's existing tools and control architecture. Customers retain their algorithms, methodologies, workflows, and IP.
 
- The episode goes deeper into the personal material Benson mines for his most successful letters. He recounts writing a friend's abs product with the opening line, "Hey, my name is Jon and I'm not a naturally lean guy," a letter still running two decades later. He connects that vulnerability to growing up an only child of a World War II veteran father who was 56 when Jon was born, to years of isolation, to racing motocross, to competitive physique training at 5% body fat, and to his work alongside Dean Graziosi and Tony Robbins. He also details why bnsn.ai runs live Friday coaching despite being an AI company: the human element is what makes the language actually work.
+ "We're not commercializing our control algorithms. We're commercializing the engineering environment that helped us build them," said Ty Audronis, Chief Technology Officer of Tempest Droneworx™. "Corvus MRDR™ gave us the freedom to try more ideas, fail without breaking expensive hardware, and go to the field when we were ready-not because we needed the field to find out if something worked."
 
- About The Proven Entrepreneur Hosted by Don Williams, The Proven Entrepreneur showcases real success stories from founders, operators, and Fortune 500 veterans who have built, scaled, and led. Williams and his guests share tactical playbooks on sales growth, customer experience, company culture, and leadership, all in service of his mission to help others help others. Episode 168 with Jon Benson is available now at provenentrepreneurshow.com and wherever podcasts are heard. 
+ Corvus MRDR™ currently supports PX4 and ArduPilot through distributed Core Robotics Object Simulators (CROS). New firmware types are in beta, with future platform updates anticipated.
+
+ The Robotics Aggregation & Visualization Node (RAVN) combines simulated and physical vehicle telemetry with ADS-B, Remote ID, RADAR, and other sources in a real-time 3D environment. Missions can be recorded and replayed for analysis.
+
+ The product line includes MRDR-1, stackable MRDR-2 Expansion systems, and the eight-display MRDR-187 Enterprise. NDAA-compliant configurations are available. The first MRDR-187 Enterprise has already been delivered to the University of Houston Robotics Department.
+
+ "The next generation of autonomous systems won't be built by any one company working alone," said Dr. Dana Abramovitz, Chief Executive Officer of Tempest Droneworx™. "By making Corvus MRDR™ available, we're giving researchers, developers, industry, and government another tool to move faster and advance the next generation of autonomous systems together."
+
+ Availability Corvus MRDR™ is available for pre-order now, with commercial deliveries beginning in October 2026. Corvus MRDR™ Defense, with additional defense-specific capabilities, is scheduled for December 2026. The Corvus Platform Pipeline Beta Program is also open for early access to features under development.
+
+ For demonstrations and pre-orders, visit www.tempestdroneworx.com or contact Email Contact.
+
+ About Tempest Droneworx™ Tempest Droneworx™ develops platform-agnostic software that turns autonomous systems and sensor data into real-time operational insight. The Houston-based Service-Disabled Veteran-Owned Small Business (SDVOSB) serves commercial, academic, public safety, government, and defense customers. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608182757/jon-benson-on-why-brave-truth-telling-outsells-every-sales-trick)
+[Original/Source Press Release](https://newsworthy.ai/news/202608182782/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/jon-benson-truth-courage-and-ai-in-copywriting/9162e8ee416ac1a3bd8cca26a6949050) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-unveils-corvus-mrdr-sim-to-real-autonomy-testing-platform/a44f97e9d5710b2800b22fb5fc37cb35) 
 
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/17/moonNBuK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/18/warpfPzP.webp)
