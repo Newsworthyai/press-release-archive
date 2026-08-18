@@ -1,58 +1,62 @@
-# From a Black Bear Attack to a Frozen Lake Rescue: Canada's Newest Animal Heroes Honoured
+# Tempest Droneworx Unveils Game-Changing Corvus MRDR™ for Developers
 
-TORONTO, ON, AUG. 18, 2026
+Houston, TX August 18, 2026
 
-Two extraordinary dogs have been inducted into the 2026 Purina Animal Hall of Fame™, recognized for their remarkable bravery and unwavering devotion in protecting their owners during life-threatening emergencies. From helping an owner escape a frozen Nova Scotia lake to defending an Ontario family from a black bear that forced its way into their home, these canine heroes demonstrated incredible instinct, courage and loyalty when it mattered most.
+Autonomous developers spend enormous amounts of time and money getting to the point where they can test. Aircraft, crews, ranges, travel, weather, and hardware are all part of the equation. Tempest Droneworx™ built Corvus MRDR™ (Modular Robotics Development & Reporting) to change that equation-allowing engineers to test their own algorithms and control methods at scale, then progressively replace simulated vehicles with real ones without changing their existing workflow or giving up ownership of their intellectual property.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Two extraordinary Canadian dogs are inducted into the 2026 Purina Animal Hall of Fame for remarkable bravery and devotion in protecting their owners during life-threatening emergencies.
-* In Nipigon, Ontario, Chloe defends her family from a black bear that forces its way into their home, alerts her husband, and helps confine the animal to the basement until police arrive.
-* In Lawrencetown, Nova Scotia, Timber helps his owner escape a frozen lake by pulling forward until his harness catches on branches, giving her the leverage to climb out, and she credits him with helping save her life.
+Key Takeaways:* Tempest Droneworx's Corvus MRDR lets developers test drone algorithms at scale without costly field trials, accelerating time-to-market and preserving IP.
+* By enabling safer, more efficient autonomous systems development, Corvus MRDR advances technology that can improve public safety and quality of life.
+* Corvus MRDR integrates simulated and physical drones via CROS and RAVN, allowing incremental replacement of virtual with real aircraft in real-world coordinates.
 
-[Click image above to view full announcement.](https://nestle-purina.reportablenews.com/pr/from-a-black-bear-attack-to-a-frozen-lake-rescue-canada-s-newest-animal-heroes-honoured)
+[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/tempest-droneworx-unveils-game-changing-corvus-mrdr-for-developers)
 
-About Purina
+About Tempest Droneworx™
 
-Nestlé Purina PetCare Canada creates richer lives for pets and the people who love them. Founded in 1894, Purina has helped dogs and cats live longer, healthier lives by offering scientifically based nutritional innovations. Purina manufactures some of the world's most trusted and popular pet care products, including Purina ONE, Pro Plan, Fancy Feast and Tidy Cats. Purina promotes responsible pet care through scientific research, products and support for pet-related organizations across Canada. Purina is part of Nestlé, a global leader in Nutrition, Health and Wellness. For more information, visit purina.ca or subscribe here to get the latest Purina news.
+Tempest Droneworx™ develops platform-agnostic software that turns autonomous systems and sensor data into real-time operational insight. The Houston-based Service-Disabled Veteran-Owned Small Business (SDVOSB) serves commercial, academic, public safety, government, and defense customers.
 
-Contacts:Natalie Banaszak4168929607natalie@praxispr.ca
+Contacts:Ty Audronis(281) 675-2661
 
-Source: Nestlé Purina
+Source: Newsworthy.ai
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://nestle-purina.reportablenews.com/pr/from-a-black-bear-attack-to-a-frozen-lake-rescue-canada-s-newest-animal-heroes-honoured)
+[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/tempest-droneworx-unveils-game-changing-corvus-mrdr-for-developers)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brave-dogs-honored-bear-defender-frozen-lake-rescuer/99e7e6ce097324aceb45f98299ceb621) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-unveils-corvus-mrdr-to-revolutionize-drone-development/9823c9091899dc6f227f9133ba2dfd30) 
 
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/from-a-black-bear-attack-to-a-frozen-lake-rescue-canadas-newest-animal-heroes-honoured)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers-2)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/18/meansMt4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/18/takeX_jT.webp)
