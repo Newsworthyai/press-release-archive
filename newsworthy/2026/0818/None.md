@@ -1,64 +1,69 @@
-# Tempest Droneworx Unveils Game-Changing Corvus MRDR™ for Developers
+# NWB Finland Oy Announces First U.S. Consumer Availability for AINA Natural Water 
 
-Autonomous developers spend enormous amounts of time and money getting to the point where they can test. Aircraft, crews, ranges, travel, weather, and hardware are all part of the equation. Tempest Droneworx™ built Corvus MRDR™ (Modular Robotics Development & Reporting) to change that equation-allowing engineers to test their own algorithms and control methods at scale, then progressively replace simulated vehicles with real ones without changing their existing workflow or giving up ownership of their intellectual property.
+NWB Finland Oy, the Finland-based company behind AINA Natural Water, today announced that AINA Natural Water is coming soon to OneLavi.com, marking another important step in the company's expansion into the United States.
 
- Originally designed for internal use, the Corvus Platform is now available for sale. It was created to solve Tempest Droneworx™'s own engineering problems.
+ The upcoming availability will give U.S. consumers access to naturally filtered groundwater from the Pudasjärvi region of Northern Finland, packaged in a sustainability-focused bag-in-box format designed to reduce plastic use while making premium water practical for everyday hydration.
 
- The technology behind Corvus MRDR™ has evolved through years of real-world engineering at Tempest Droneworx™, beginning with a predecessor used during the company's successful FAA BAA 4 One-to-Many Command and Control work. Each project refined the platform further, ultimately becoming the proven system Tempest Droneworx™ is making available today.
+ "Bringing AINA Natural Water to OneLavi.com is an exciting step in making the water of Northern Finland accessible to American consumers," said Marita Weiman, Quality Assurance Manager at NWB Finland Oy. "We created AINA around a simple idea: exceptional natural water can be enjoyed every day while also giving consumers an alternative to traditional single-use plastic bottles."
 
- Start Virtual. Finish Real A team can start with 20 simulated aircraft operating in real-world coordinates. When ready, replace one with a physical aircraft. Test again. Replace another. Repeat until the entire fleet is real.
+ AINA Natural Water originates in Northern Finland, where groundwater is naturally filtered through layers of soil, sand, and rock before being mechanically filtered and packaged. The water has a Total Dissolved Solids (TDS) level of approximately 32 mg/L and a naturally low mineral profile, contributing to its soft, neutral taste and clean finish with no aftertaste.
 
- The Corvus Platform works alongside the customer's existing tools and control architecture. Customers retain their algorithms, methodologies, workflows, and IP.
+ The company's approach also reflects its belief that premium water should be designed for everyday living. Rather than focusing solely on individual bottles, AINA Natural Water is offered in larger bag-in-box formats intended to provide convenient access to water at home, at work, and in other everyday settings.
 
- "We're not commercializing our control algorithms. We're commercializing the engineering environment that helped us build them," said Ty Audronis, Chief Technology Officer of Tempest Droneworx™. "Corvus MRDR™ gave us the freedom to try more ideas, fail without breaking expensive hardware, and go to the field when we were ready-not because we needed the field to find out if something worked."
+ The AINA Difference * Northern Finland Source - Originates in the Pudasjärvi region of Northern Finland, an area known for its forests, natural landscapes, and groundwater resources.
+* Naturally Filtered - Groundwater is naturally filtered through layers of soil, sand, and rock before being mechanically filtered and packaged.
+* Measured Purity - Contains approximately 32 mg/L of Total Dissolved Solids (TDS), contributing to a soft, clean taste profile.
+* Clean Taste Profile - Naturally low mineral content helps provide a balanced drinking experience with no aftertaste.
+* Naturally Low in Sodium - Contains only small amounts of sodium and dissolved minerals.
+* Sustainability-Focused Packaging - Bag-in-box packaging uses substantially less plastic than traditional bottled-water formats.
 
- Corvus MRDR™ currently supports PX4 and ArduPilot through distributed Core Robotics Object Simulators (CROS). New firmware types are in beta, with future platform updates anticipated.
+ "One of our goals as we enter the U.S. market is to introduce consumers not only to AINA Natural Water, but to a different way of thinking about premium water," Weiman said. "For us, premium means the quality of the source, the experience of drinking the water, and consideration for how it is packaged."
 
- The Robotics Aggregation & Visualization Node (RAVN) combines simulated and physical vehicle telemetry with ADS-B, Remote ID, RADAR, and other sources in a real-time 3D environment. Missions can be recorded and replayed for analysis.
+ NWB Finland Oy is also preparing to participate in the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session, taking place September 14-17 in Palm Beach Gardens, Florida. The event will provide the company with another opportunity to introduce AINA Natural Water to buyers representing major health, specialty, and food, drug, and mass retail channels as it continues building its presence in the U.S. market.
 
- The product line includes MRDR-1, stackable MRDR-2 Expansion systems, and the eight-display MRDR-187 Enterprise. NDAA-compliant configurations are available. The first MRDR-187 Enterprise has already been delivered to the University of Houston Robotics Department.
+ The upcoming OneLavi.com availability is part of NWB Finland Oy's broader strategy to introduce AINA Natural Water to the U.S. market and expand access through retail and e-commerce channels.
 
- "The next generation of autonomous systems won't be built by any one company working alone," said Dr. Dana Abramovitz, Chief Executive Officer of Tempest Droneworx™. "By making Corvus MRDR™ available, we're giving researchers, developers, industry, and government another tool to move faster and advance the next generation of autonomous systems together."
+ Additional details regarding availability will be announced as the launch approaches.
 
- Availability Corvus MRDR™ is available for pre-order now, with commercial deliveries beginning in October 2026. Corvus MRDR™ Defense, with additional defense-specific capabilities, is scheduled for December 2026. The Corvus Platform Pipeline Beta Program is also open for early access to features under development.
+ For more information, visit ainanaturalwater.fi and nwb.fi.
 
- For demonstrations and pre-orders, visit www.tempestdroneworx.com or contact Email Contact.
+ About [NWB Finland Oy](https://nwb.fi/about-us/) NWB Finland Oy is a Finland-based company focused on sustainable beverage packaging and natural water solutions. Headquartered in Pudasjärvi, Finland, the company was founded with a mission to develop environmentally responsible alternatives to traditional beverage packaging while delivering premium-quality products to consumers around the world.
 
- About Tempest Droneworx™ Tempest Droneworx™ develops platform-agnostic software that turns autonomous systems and sensor data into real-time operational insight. The Houston-based Service-Disabled Veteran-Owned Small Business (SDVOSB) serves commercial, academic, public safety, government, and defense customers. 
+ Its flagship brand, AINA Natural Water, features naturally filtered groundwater sourced from Northern Finland, a region known for its pristine natural environment and abundant groundwater resources. The water is packaged in innovative bag-in-box formats designed to reduce plastic consumption while providing a convenient solution for households, businesses, hospitality venues, and events.
+
+ NWB Finland Oy's long-term vision is to make Northern Finland's natural groundwater available to consumers globally while continuing to invest in sustainable packaging solutions that support both consumer needs and environmental responsibility. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608182782/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+[Original/Source Press Release](https://newsworthy.ai/news/202608182786/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-unveils-corvus-mrdr-sim-to-real-autonomy-testing-platform/a44f97e9d5710b2800b22fb5fc37cb35) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aina-natural-water-set-to-make-u-s-debut-on-onelavi-com/32f4e5914ebf65ff511c4e7e3f7aae97) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/aina-natural-water-enters-us-market-with-launch-on-onelavicom)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tempest-droneworx-unveils-game-changing-corvus-mrdrtm-for-developers)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/nwb-finland-oy-announces-first-us-consumer-availability-for-aina-natural-water)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/18/warpfPzP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/18/vastopnD.webp)
