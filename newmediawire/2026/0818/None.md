@@ -1,69 +1,98 @@
-# Global Health Tech Competition Aims to Accelerate Innovation Improving Cardiovascular and Brain Health
+# Information About Mr. Svetlin Todorov's Shareholdings in Shelly Group SE
 
-DALLAS - August 18, 2026 (NEWMEDIAWIRE) - Despite rapid advances in digital health, artificial intelligence and remote patient monitoring, many promising health technologies still fail to reach patients who need them most. To help close that gap, the American Heart Association, a relentless force changing the future of health for everyone, everywhere, is now accepting applications for its 2026 Health Tech Competition, connecting market-ready solutions with opportunities to scale into real-world cardiovascular and brain health care.
+SOFIA, BULGARIA and MUNICH, GERMANY - August 18, 2026 (NEWMEDIAWIRE) - Shelly Group SE (Ticker SLYG / ISIN: BG1100003166) ("the Company") announces that it has received the following notifications:
 
- Hosted by the American Heart Association Center for Technology & Innovation, the global competition identifies and accelerates technologies that can transform how cardiovascular and brain health conditions, including high blood pressure, stroke and heart failure, are prevented, diagnosed and treated.
+ From Mr. Svetlin Todorov - a shareholder and member of the Board of Directors of Shelly Group SE under Art. 19 MAR and Art. 145 of the Public Offering of Securities Act - regarding the disposal (in-kind contribution) of 1,184,995 shares in the Company, representing 6.53% of the Company's share capital and voting rights, to Salisto Holdings LLC;
 
- Five finalists will take the stage at Scientific Sessions 2026, the Association’s flagship global event for the latest research and clinical advancements in cardiovascular science, taking place Nov. 6–9 at McCormick Place in Chicago.
+ From Salisto Holdings LLC - a company solely controlled by Mr. Svetlin Todorov , under Art. 19 MAR and Art. 145 of the Public Offering of Securities Act - regarding the acquisition (via in-kind contribution) of 1,184,995 shares in the Company, representing 6.53% of the Company's share capital and voting rights.
 
- Cardiovascular disease remains the leading cause of death globally, and as health systems face growing demand, workforce shortages and rising costs, scalable, data-driven solutions are more critical than ever to delivering timely, effective and equitable care.[1] The Health Tech Competition connects healthcare innovators with clinicians, researchers and investors to accelerate adoption and bring evidence-based technologies to patients faster.
+ The in-kind contribution results in the above shares being transferred from the direct holding of Svetlin Todorov to the direct holding of Salisto Holdings LLC. The total number of shares and voting rights in the Company controlled by Svetlin Todorov remains unchanged at 27.79%.
 
- “For more than a century, the American Heart Association has been at the intersection of science, research, clinical expertise and innovation to drive improvements in cardiovascular and brain health,” said Nancy Brown, chief executive officer of the American Heart Association. “Through the Health Tech Competition, we continue that work by helping advance evidence-based solutions that address today’s most pressing health challenges and reach people where they live, work and receive care.”
+ As a result of the contribution, Svetlin Todorov will hold 21.26% directly and 6.53% indirectly through Salisto Holdings LLC, within the meaning of Art. 146 POSA. The aggregate position controlled by Svetlin Todorov - 27.79% - remains unchanged, and there is no change in the ultimate beneficial owner of the shares or in the control exercised by Svetlin Todorov over the Company.
 
- The competition is open to emerging companies building market-ready solutions supported by clinical or pilot data and a viable business model. The Association is seeking technologies that actively engage patients, support clinicians and demonstrate measurable potential to improve patient outcomes across a wide range of care settings. Unlike traditional startup competitions, the program emphasizes clinical validation and alignment with evidence-based care, ensuring solutions are positioned for real-world adoption.
+ For further information, please visit corporate.shelly.com.
 
- Key Dates:
+ About Shelly Group
 
- * Applications open - now through Sept. 18, 2026
-* Five finalists announced - Oct. 10, 2026
-* Live pitches at Scientific Sessions - Nov. 7-8, 2026
-* Winner announced - Nov. 9. 2026
+ Shelly Group SE develops, designs, and distributes IoT and smart building solutions for DIY and professional users, offering advanced technology, seamless interoperability, and a high degree of technological flexibility. Shelly products enable remote control and automation as well as energy management of electrical appliances and smart building solutions via smartphones, PCs, or third-party home automation systems.
 
- The Health Tech Competition is a cornerstone of the Health Innovation Pavilion at Scientific Sessions and reflects the Association’s ongoing commitment to accelerating innovation, advancing science and fostering collaboration to improve cardiovascular and brain health outcomes worldwide.
+ In addition to the sale of devices, the Shelly Group generates revenue from its cloud applications. The Shelly Group benefits from asset-light production through the use of contract manufacturers. The Company has a strong presence in German-speaking countries and is represented with its products in more than 100 countries. With sales organizations in DACH, Benelux, the Nordics, Iberia, Poland, Italy, France, the United Kingdom, Bulgaria, Slovenia, the United States and China, the Shelly Group has a broad international presence.
 
- To learn more about the Health Tech competition and to view the terms and conditions, visit: ahahealthtech.org/aha-health-tech-competition-2026.
+ Shelly Group SE (ISIN: BG1100003166) is listed on the Bulgarian Stock Exchange and on the regulated market (Prime Standard) of the Frankfurt Stock Exchange (XETRA: SLYG), and is included in the SDAX.
 
- Additional Resources:
+ Contact Investor Relations
 
- * American Heart Association news release: Houston-based medical technology company wins overall global health tech competition at Scientific Sessions 2025
-* American Heart Association news release: Finalists named in global health technology competition to advance heart and brain health
-* Follow AHA/ASA news on X @HeartNews
+ CROSS ALLIANCE communication GmbHSven PaulyPhone: +49 89 125 09 0331Mail: sp@crossalliance.dewww.crossalliance.de
 
- About the American Heart Association
+ 
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ 
 
- For Media Inquiries: 214-706-1173
+ 
 
- Monica Sales: monica.sales@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
-
-[1] Fahim YA, Hasani IW, Kabba S, Ragab WM. Artificial intelligence in healthcare and medicine: clinical applications, therapeutic advances, and future perspectives. Eur J Med Res. 2025 Sep 23;30(1):848. doi: 10.1186/s40001-025-03196-w. PMID: 40988064; PMCID: PMC12455834.
-
- View the original release on www.newmediawire.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/global-health-tech-competition-aims-to-accelerate-innovation-improving-cardiovascular-and-brain-health-7088631)
+[Original/Source Press Release](https://www.newmediawire.com/news/information-about-mr-svetlin-todorov-s-shareholdings-in-shelly-group-se-7088668)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aha-launches-2026-health-tech-competition-to-accelerate-cardiovascular-innovation/775f650339d5bbe6f8497639c1d1a282) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shelly-group-co-founder-transfers-6-53-stake-to-holding-company/e09dc5ce62f4b85de25e16807a49ced1) 
 
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-heart-association-opens-2026-health-tech-competition-to-accelerate-cardiovascular-and-brain-health-innovations)
+Pickup - [https://advos.io/en](https://advos.io/en/shelly-group-se-board-member-transfers-653-stake-to-holding-company)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-asociacion-americana-del-corazon-abre-la-competencia-de-tecnologia-sanitaria-2026-para-acelerar-innovaciones-en-salud-cardiovascular-y-cerebral)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/shelly-group-se-announces-share-transfer-by-svetlin-todorov-to-salisto-holdings-llc)
 
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/american-heart-association-opens-2026-health-tech-competition-to-bridge-gap-between-innovation-and-patient-care)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc-by-board-member-svetlin-todorov)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/american-heart-association-opens-2026-health-tech-competition-to-accelerate-innovations-in-cardiovascular-and-brain-health)
+Pickup - [https://burstable.news](https://burstable.news/news/shelly-group-se-announces-transfer-of-653-stake-to-salisto-holdings-llc)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/shelly-group-se-gibt-ubertragung-einer-beteiligung-von-653-an-salisto-holdings-llc-bekannt)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e09dc5ce62f4b85de25e16807a49ced1)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/shelly-group-se-anuncia-la-transferencia-del-653-de-participacion-a-salisto-holdings-llc)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/shelly-group-se-annonce-le-transfert-dune-participation-de-653-a-salisto-holdings-llc)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/shelly-group-se-anuncia-transferencia-de-participacao-de-653-para-a-salisto-holdings-llc)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/shelly-group-se-major-shareholder-reorganizes-holdings-keeps-control-at-2779)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/shelly-group-se-announces-transfer-of-founders-shares-to-holding-company)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/shelly-group-shareholder-transfers-stake-to-own-holding-firm-control-unchanged)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/shelly-group-se-announces-transfer-of-shares-by-major-shareholder-to-wholly-owned-entity)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/shelly-group-announces-transfer-of-founders-shares-to-holding-company)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/shelly-group-se-announces-transfer-of-major-shareholder-stake-to-salisto-holdings-llc)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/shelly-group-se-ceo-transfers-653-stake-to-holding-company-maintains-control)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc-controlled-by-svetlin-todorov)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/shelly-group-se-announces-transfer-of-founders-shares-to-holding-company)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc-by-board-member-svetlin-todorov)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc-beneficial-ownership-unchanged)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/shelly-group-se-announces-transfer-of-shares-to-salisto-holdings-llc)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/shelly-group-se-announces-transfer-of-653-stake-to-svetlin-todor/202637421)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/18/shelly-group-se-board-member-transfers-shares-to-holding-company-control-unchanged-2/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/18/moonz73e.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/18/ninaJoYV.webp)
