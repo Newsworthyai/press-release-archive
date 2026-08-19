@@ -1,60 +1,68 @@
-# Michael Burry Calls Another Top as Nvidia Turns Chips Into Collateral
+# Announcing the Winner of the Best Employee Engagement Platform Award 2026
 
-Episode 814 of DH Unplugged, titled 'The Doldrums,' hosted by Andrew Horowitz and John C. Dvorak, arrives on August 18, 2026 with a summer news flow that refuses to sit still. Despite the seasonal lull the title implies, the co-hosts argue that every headline is being amplified as investors try to decide whether all-time highs are sustainable or setting up a reversal. From strategic oil reserves at 10% of prior levels, to Michael Burry's fresh top call, to Nvidia's audacious new financing scheme, the episode maps a market that hates itself but keeps climbing.
+HR.com is pleased to announce Engagedly Frontline Experience (EngagedlyFX) as the recipient of the 2026 Best Employee Engagement Platform Award, recognizing its commitment to helping organizations build more connected, engaged, and high-performing workplaces.
 
- Horowitz and Dvorak work through a dense docket of market-moving stories, including:
+ The award celebrates technology providers that deliver innovative solutions for listening to employees, strengthening workplace culture, and enabling organizations to make informed, data-driven decisions that improve the employee experience and business performance.
 
- * Michael Burry warning of a possible 1987-style drop while shorting Palantir, Nvidia and Tesla via options
-* Nvidia's preliminary agreements with Apollo, BlackRock, Brookfield, Goldman Sachs and KKR to mobilize $500 billion for AI infrastructure
-* Etsy cutting 220 jobs (roughly 12% of staff) while authorizing a $2 billion buyback
-* Chipotle's salmonella outbreak tied to jalapenos, and Sweetgreen's Taylor Farms disaster
-* Eli Lilly's Mounjaro at $9.94B and Zepbound at $4.93B in quarterly sales
+ “Today’s HR leaders need real-time insights to build stronger, more connected workplaces,” said Debbie McGrath, CEO of HR.com. “EngagedlyFX is advancing the HR space by helping organizations understand their employees, act proactively, and create impactful experiences.”
 
- The show's signature blend of skepticism and humor runs throughout. On the endless parade of bearish forecasts, Horowitz observes:
+ Best Employee Engagement Platform: Engagedly Frontline Experience
 
- Markets live much more in the all-time high range than in the all-time lows. In fact, very difficult, if not impossible, for the markets to hit an all-time low. Dvorak counters with a lens on Jensen Huang's strategy at Nvidia, noting, "it's more important to be depended on than to be profitable," and warning that a Nvidia unwind could combine 1999 enthusiasm with 2007 financialization at far greater magnitude.
+ EngagedlyFX is transforming the HR landscape with a data-driven employee engagement platform that turns employee insights into measurable action. By unifying continuous feedback, recognition, performance, communication, and AI-powered analytics, it empowers organizations to strengthen retention, productivity, and employee well-being through smarter, proactive people strategies.
 
- The deeper dive lands on Nvidia's move to make compute an investable asset class. Horowitz and Dvorak explain how hyperscaler depreciation schedules collide with Nvidia's accelerating product cycle, and why collateralizing compute (rather than the underlying silicon) is Jensen Huang's answer to nervous financiers. Elsewhere, they unpack Berkshire Hathaway's first net-buyer quarter in 14 quarters under Greg Abel, a new 15% tariff on polysilicon solar imports, drone tariffs benefiting Unusual Machines (UMAC), Donald Trump Jr.'s stake in that name, Treasury Secretary Scott Bessent's Trump-flavored superlatives, and the still-unrecovered 18-karat gold toilet ripped from Blenheim Palace.
+ View All HR.com Awards: www.hr.com/awards
 
- About DH Unplugged DH Unplugged is a weekly investing and markets podcast hosted by financial advisor Andrew Horowitz and technology commentator John C. Dvorak. The show mixes Fed watching, earnings analysis, tech trends and offbeat cultural observations with a skeptical, conversational tone. New audience features, video, and a redesigned Close to the Pin segment are on the way. Episode 814 is available now at dhunplugged.com and wherever podcasts are heard, including Apple Podcasts, Spotify, and Amazon Music. 
+ About HR.com
+
+ HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers and find the optimal solutions to enhance their job performance. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. Offerings include 300+ leading-edge HR Research Institute industry studies, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential!
+
+ HR.com Newsroom 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608192791/michael-burry-calls-another-top-as-nvidia-turns-chips-into-collateral)
+[Original/Source Press Release](https://newsworthy.ai/news/202608192753/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dh-unplugged-nvidia-s-500b-ai-bet-burry-s-top-call-and-market-s-summer-of-discontent/0df7434ac2a3d7bc573ae14147f1d838) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/engagedlyfx-wins-2026-best-employee-engagement-platform-award/e384fc792678a6b3806a4b60e702ab72) 
 
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral-in-500b-ai-financing-scheme)
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/e384fc792678a6b3806a4b60e702ab72)
 
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/markets-in-the-doldrums-not-so-fast-dh-unplugged-tackles-burrys-warning-nvidias-500b-ai-play-and-more)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/engagedly-frontline-experience-wins-2026-best-employee-engagement-platform-award-from-hrcom)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/engagedly-frontline-experience-wins-2026-best-employee-engagement-platform-award-from-hrcom)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral-market-implications)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/e384fc792678a6b3806a4b60e702ab72)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/dh-unplugged-episode-814-markets-in-the-doldrums-not-so-fast)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://advos.io/en](https://advos.io/en/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/michael-burrys-top-call-and-nvidias-500b-collateral-scheme-why-this-summers-market-moves-matter)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://burstable.news](https://burstable.news/news/michael-burry-warns-of-1987-style-drop-nvidia-unveils-500b-ai-financing-scheme)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/19/michael-burry-warns-of-1987-style-drop-as-nvidia-turns-compute-into-collateral/)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/michael-burry-calls-another-top-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/michael-burry-calls-another-top-as-nvidia-turns-chips-into-collateral)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/announcing-the-winner-of-the-best-employee-engagement-platform-award-2026)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/19/taroxbvJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/19/chipMsb5.webp)

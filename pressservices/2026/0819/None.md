@@ -1,84 +1,70 @@
-# McFarland Group Index Tracks How Owners Release Control Step by Step
+# CPA Printer #1010 Outlines Cheque Security Features and MICR Rules
 
-Transferable Value Index Data Shows Owners Delegate Operations First, Strategy Last
+Print & Cheques Now Holds CPA Self-Accredited Printer #1010 Status and Bank Acceptance Guarantee
 
- Omaha, United States - August 19, 2026 / The McFarland Group /
+ Calgary, Canada - August 19, 2026 / Print & Cheques Now Inc /
 
- The McFarland Group has released the first findings from its Transferable Value Index, a twelve-question assessment designed to measure how a closely held business would perform without its owner in place. Among all respondents, one question consistently scores lower than the rest: who determines what the business pursues next.
+ CALGARY, Alberta, 16th August - Print & Cheques Now Inc. has published a plain-language guide to Standard 006, the Payments Canada specification that governs cheques drawn on accounts held at Canadian financial institutions.
 
-That question averages 2.94 on a five-point scale - the only one of the twelve to fall below 3.0. The margin to the next lowest question is notable: customer diversification, the second-lowest scorer, averages 3.23.
+The guide is written for accountants, controllers, business owners, and administrative staff who order or approve business cheques. It covers how MICR encoding, cheque layout, magnetic signal strength, and security elements can affect automated processing at financial institutions.
 
-The pattern persists even among businesses that have made the most progress. In the Index's highest-scoring category, which the firm classifies as Transferable Enterprises, owners score 4.58 on client relationships and 4.12 on closing new business. Yet the question of setting strategic direction still lags at 3.30, trailing both measures by a wide margin.
+A cheque may contain the correct account and transit numbers and still fail testing if its MICR line is incorrectly printed or positioned. The guide is intended to help businesses understand these technical requirements before placing an order or printing cheques in-house.
 
-The data also challenges a common assumption about owner dependence in closely held businesses. Of the 52 businesses assessed, 33 score well on both dimensions the Index tracks, and only nine fall short on business durability. The strain concentrates almost entirely on the independence dimension - and within that, on a single question. Among the 30 highest-scoring businesses in the cohort, 18 still have the owner as the sole decision-maker on company direction.
+The Clear Band and MICR LineStandard 006 reserves a 5/8-inch band along the bottom of a cheque for Magnetic Ink Character Recognition (MICR) encoding. No printing may appear within this band other than the prescribed E-13B characters in the encoding line.
 
-"Owners do let go, and that surprises people," said Byron McFarland, founding principal of The McFarland Group. "What the data shows is that letting go happens in an order. Operations go first. Relationships follow. The decision about where the company is headed is the one an owner holds onto longest, and it is the one that most determines what the business is worth without them."
+The lower 3/16 inch of the band must remain clear. The encoding line occupies the next 1/4 inch, and the 3/16 inch above it must also remain unobstructed. Logos, signatures, borders, or other printed elements that enter this area may interfere with MICR processing or cause the cheque to fail testing.
 
-The finding carries direct implications for business valuation. Buyers, lenders, and successors evaluate how much of a company's forward direction depends on a single individual, and that evaluation shapes price, deal structure, and what a lender is prepared to underwrite. A business that can only determine its next move when the owner is present carries a discount that surfaces in every diligence process.
+E-13B consists of the digits zero through nine and four symbols: the Transit Number, On-Us, Amount, and Dash symbols. These characters identify and separate the information used to process the payment.
 
-McFarland's full letter, "The Last Thing You Let Go Of," along with the complete findings, the twelve-question breakdown, and the methodology, is published as the inaugural issue of the Index and is available to download without a form at themcfarlandgroup.com.
+Why MICR Printing MattersThe MICR line must be printed with magnetic ink and produce a signal within the tolerances established by Standard 006. Testing also evaluates character dimensions, spacing, placement, and the presence of extraneous magnetic ink.
 
-The Transferable Value Index is available at no cost at transferablevalueindex.com. It scores a business across two dimensions - how durably it is built and how independently it operates - and returns a personalized report placing the company in one of four categories. The McFarland Group plans to publish findings from the Index on a continuing basis as the response set expands.
+A cheque that appears correct to the human eye may still produce an inadequate or inconsistent magnetic signal. Payments Canada recommends that organizations printing their own cheques submit pre-production samples to a financial institution for testing.
 
-The findings reflect 52 assessments submitted to the Transferable Value Index through July 9, 2026, with duplicate submissions counted once. Responses from The McFarland Group personnel were excluded. The Index scores twelve questions across two dimensions, Business Durability and Owner Independence, each on a five-point scale.
+Print & Cheques Now holds the designation CPA Self-Accredited Printer #1010 through the Cheque Printer Self-Accreditation Program administered by Payments Canada. Self-accredited printers attest that they produce cheques within the tolerances set by Standard 006 and follow the program's testing requirements.
 
-About The McFarland Group
+Security Features Added to Print & Cheques Now ChequesIn addition to meeting Standard 006 specifications, Print & Cheques Now cheques include three confirmed security features:
 
-The McFarland Group is an advisory firm based in Omaha, Nebraska, founded by Byron McFarland. The firm has guided more than $3 billion in business value through more than 200 ownership transitions over two decades. It works with owners of closely held businesses on M&A advisory, selling a business to management, and performance equity compensation for key leaders. The firm's guiding idea is simple: Go Boldly. Learn more at themcfarlandgroup.com.
+* Holograms
+* Thermochromic, or heat-sensitive, ink
+* Microprinting visible under magnification
 
-About the Transferable Value Index
+These features are separate from the MICR encoding requirements. Standard 006 regulates the placement of security elements to ensure they do not interfere with imaging, the MICR band, or required cheque fields.
 
-The Transferable Value Index is The McFarland Group's ongoing measure of how closely held businesses hold up without their owners. Twelve questions score a company on structural durability and operator independence and place it in one of four categories. The assessment is free and takes about four minutes. Learn more at transferablevalueindex.com.
+Ordering Compliant Business ChequesManaging cheque printing in-house requires control over the MICR font, magnetic signal, character placement, and clear-band dimensions. Changes to the printer, toner, paper, or other components of the printing process may affect whether the finished cheque meets Standard 006.
 
-Media contact: Alex McFarland · alex@themcfarlandgroup.com · 402-891-2300
+Print & Cheques Now tests its cheque production under the requirements of the self-accreditation program. Every order is also covered by the company's Bank Acceptance Guarantee. If a Canadian financial institution rejects the cheque, Print & Cheques Now will reprint or refund the order.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/SqYeODy4cldsRWr2jBQWFKnOdyXJchyhFNS8waBZ.png) [](https://themcfarlandgroup.com) Contact Information:
+Businesses can review business cheque options or order cheques matched to their financial institution.
 
- The McFarland Group
+An Owner's Perspective"Most business owners never look at the standard behind a cheque until one gets rejected," said Jon Gilchrist, Owner of Print & Cheques Now. "The person ordering cheques for a company is usually an accountant or an office manager, not a compliance specialist, so we wrote this guide in plain language instead of leaving that standard buried in a technical document only a printer would read."
+
+About Print & Cheques NowPrint & Cheques Now Inc. is a family-owned cheque printer based in Calgary, Alberta. Founded in 2006, the company has served more than 46,000 customers across Canada and holds the designation CPA Self-Accredited Printer #1010.
+
+The company prints personal cheques, manual business cheques, and laser and computer cheques compatible with QuickBooks, Sage 50, Xero, and Simply Accounting.
+
+Its cheques are accepted by RBC, TD, BMO, CIBC, Scotiabank, ATB Financial, Desjardins, National Bank, and more than 200 credit unions across Canada.
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/na7OKH6hsqHiw3m8gM7OzvWTWFCeccNda86MXgK1.jpg) [](https://chequesnow.ca) Contact Information:
+
+ Print & Cheques Now Inc
 
  
 
-4601 Catalyst Court, Suite 3055  Omaha, NE 68106United States
+240007 Frontier Crescent, Unit 11  Calgary, Alberta T1X 0R4Canada
 
- Alex McFarland +1-402-891-2300 https://themcfarlandgroup.com 
+ Jon Gilchrist +1-866-760-2661 https://chequesnow.ca 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/mcfarland-group-index-tracks-how-owners-release-control-step-by-step-444822)
+[Original/Source Press Release](https://mediawiretoday.com/cpa-printer-1010-outlines-cheque-security-features-and-micr-rules-444856)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/owners-delegate-operations-cling-to-strategy-new-index-reveals-key-to-business-value/0a5bf00c80913900e106ffe6e710bd1a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/print-cheques-now-publishes-plain-language-guide-to-cheque-standard-006/1e2ee680fa862b500f20e97c9b9c621c) 
 
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/mcfarland-group-index-reveals-owners-delegate-operations-before-strategic-direction)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/owners-delegate-operations-first-strategy-last-new-index-reveals)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/new-data-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://advos.io/en](https://advos.io/en/new-index-reveals-owners-surrender-operations-first-strategy-last)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/new-index-reveals-owners-delegate-operations-before-strategy)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/nuevo-indice-revela-que-los-propietarios-delegan-operaciones-antes-que-la-estrategia)
-
-Pickup - [https://burstable.news](https://burstable.news/news/owners-surrender-operations-before-strategy-new-index-reveals)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/new-index-reveals-owners-delegate-operations-first-strategy-last)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/19/new-index-reveals-owners-delegate-operations-first-strategy-last/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/quitjgDa.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/clubW_pI.webp)
