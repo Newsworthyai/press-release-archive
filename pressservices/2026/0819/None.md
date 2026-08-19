@@ -1,65 +1,57 @@
-# CPA Printer #1010 Outlines Cheque Security Features and MICR Rules
+# Clinic Management Platform Gets Major Clinical Governance Upgrade
 
-Print & Cheques Now Holds CPA Self-Accredited Printer #1010 Status and Bank Acceptance Guarantee
+Consentz Delivers Enhanced Patient Journey Management and Clinical Governance Tools for Aesthetic Clinics
 
- Calgary, Canada - August 19, 2026 / Print & Cheques Now Inc /
+ London, United Kingdom - August 19, 2026 / Consentz /
 
- CALGARY, Alberta, 16th August - Print & Cheques Now Inc. has published a plain-language guide to Standard 006, the Payments Canada specification that governs cheques drawn on accounts held at Canadian financial institutions.
+ Consentz has released a significant upgrade to its clinic management platform, introducing enhanced clinical governance software capabilities, secure audit trails, and end-to-end patient journey management tools built specifically for medical aesthetic practices and regulatory compliance requirements.
 
-The guide is written for accountants, controllers, business owners, and administrative staff who order or approve business cheques. It covers how MICR encoding, cheque layout, magnetic signal strength, and security elements can affect automated processing at financial institutions.
+The update targets a sector where documentation accuracy, informed consent, and treatment traceability carry direct implications for patient safety and regulatory accountability. Medical aesthetic clinics operating under frameworks such as the Care Quality Commission and other regulatory bodies face increasing pressure to demonstrate robust internal controls, and the latest Consentz release is designed to address those obligations through digital infrastructure rather than paper-based processes.
 
-A cheque may contain the correct account and transit numbers and still fail testing if its MICR line is incorrectly printed or positioned. The guide is intended to help businesses understand these technical requirements before placing an order or printing cheques in-house.
+Clinical Governance Software Built for Aesthetic Practice
 
-The Clear Band and MICR LineStandard 006 reserves a 5/8-inch band along the bottom of a cheque for Magnetic Ink Character Recognition (MICR) encoding. No printing may appear within this band other than the prescribed E-13B characters in the encoding line.
+At the core of the platform update is a strengthened clinical governance software layer that supports audit-ready record-keeping across every stage of the patient interaction. Clinicians can access a full audit trail for each patient file, capturing timestamped entries for consultations, consent forms, treatment plans, and follow-up communications. This creates a verifiable and chronological account of clinical decision-making that can be produced during inspections or in response to regulatory queries.
 
-The lower 3/16 inch of the band must remain clear. The encoding line occupies the next 1/4 inch, and the 3/16 inch above it must also remain unobstructed. Logos, signatures, borders, or other printed elements that enter this area may interfere with MICR processing or cause the cheque to fail testing.
+The updates also extend to how consent is captured and stored. Digital consent forms are now integrated directly into the patient record workflow, eliminating the risk of misplaced documentation and ensuring that signed consent is accessible at the point of treatment. For practices managing multiple clinicians or locations, this standardization reduces inconsistency and supports governance oversight across the entire operation.
 
-E-13B consists of the digits zero through nine and four symbols: the Transit Number, On-Us, Amount, and Dash symbols. These characters identify and separate the information used to process the payment.
+Streamlined Medical Aesthetic Clinic Workflow from Consultation to Aftercare
 
-Why MICR Printing MattersThe MICR line must be printed with magnetic ink and produce a signal within the tolerances established by Standard 006. Testing also evaluates character dimensions, spacing, placement, and the presence of extraneous magnetic ink.
+The revised medical aesthetic clinic workflow tools cover the full arc of a patient's experience with a clinic, from initial consultation booking through to post-treatment aftercare tracking. Consultation notes, treatment plans, contraindication flags, and aftercare instructions are now housed within a single connected interface, reducing the need for staff to switch between systems or maintain parallel records.
 
-A cheque that appears correct to the human eye may still produce an inadequate or inconsistent magnetic signal. Payments Canada recommends that organizations printing their own cheques submit pre-production samples to a financial institution for testing.
+Aftercare tracking has been a particular focus of this release. Clinicians can schedule and document follow-up checkpoints within the platform, and patients receive structured aftercare communications tied to their specific treatment record. This closes a gap that has historically been managed through informal channels, such as text messages or verbal instructions, which leave no audit trail and create inconsistency in post-treatment care.
 
-Print & Cheques Now holds the designation CPA Self-Accredited Printer #1010 through the Cheque Printer Self-Accreditation Program administered by Payments Canada. Self-accredited printers attest that they produce cheques within the tolerances set by Standard 006 and follow the program's testing requirements.
+The platform also incorporates structured templates for common aesthetic procedures, enabling clinics to build repeatable and compliant documentation workflows without relying on individual practitioners to construct records from scratch each time.
 
-Security Features Added to Print & Cheques Now ChequesIn addition to meeting Standard 006 specifications, Print & Cheques Now cheques include three confirmed security features:
+Patient Journey Management Designed Around the Clinician-Patient Relationship
 
-* Holograms
-* Thermochromic, or heat-sensitive, ink
-* Microprinting visible under magnification
+Consentz has positioned the updated patient journey management functionality as a tool for improving both clinical outcomes and client retention. By centralizing the documentation of every touchpoint, clinicians gain a longitudinal view of each patient's history, treatment responses, and upcoming appointments. This visibility supports more informed clinical conversations and reduces the likelihood of overlooking relevant patient history at the point of care.
 
-These features are separate from the MICR encoding requirements. Standard 006 regulates the placement of security elements to ensure they do not interfere with imaging, the MICR band, or required cheque fields.
+The administrative burden associated with compliance documentation is also addressed directly. By embedding regulatory requirements into the standard clinical workflow rather than treating them as separate tasks, the platform reduces the time practitioners spend on paperwork and allows clinical staff to focus more directly on patient care. Practices managing high appointment volumes stand to benefit from the reduction in manual data entry and the elimination of duplicated effort across paper and digital records.
 
-Ordering Compliant Business ChequesManaging cheque printing in-house requires control over the MICR font, magnetic signal, character placement, and clear-band dimensions. Changes to the printer, toner, paper, or other components of the printing process may affect whether the finished cheque meets Standard 006.
+The update reflects a broader direction for Consentz as a platform built around the specific operational and compliance demands of the medical aesthetics sector, where the intersection of cosmetic practice and medical regulation requires tools that go beyond generic clinic management software.
 
-Print & Cheques Now tests its cheque production under the requirements of the self-accreditation program. Every order is also covered by the company's Bank Acceptance Guarantee. If a Canadian financial institution rejects the cheque, Print & Cheques Now will reprint or refund the order.
+About Consentz
 
-Businesses can review business cheque options or order cheques matched to their financial institution.
+Consentz provides a clinic management platform designed for medical aesthetic practices, offering tools for clinical governance, patient record management, digital consent, treatment planning, and aftercare tracking. The platform is built to support regulatory compliance and operational efficiency for aesthetic clinics of varying sizes.
 
-An Owner's Perspective"Most business owners never look at the standard behind a cheque until one gets rejected," said Jon Gilchrist, Owner of Print & Cheques Now. "The person ordering cheques for a company is usually an accountant or an office manager, not a compliance specialist, so we wrote this guide in plain language instead of leaving that standard buried in a technical document only a printer would read."
+Learn more at Consentz
 
-About Print & Cheques NowPrint & Cheques Now Inc. is a family-owned cheque printer based in Calgary, Alberta. Founded in 2006, the company has served more than 46,000 customers across Canada and holds the designation CPA Self-Accredited Printer #1010.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/w0Q4M15fExskHmG3vBK6qkGy6ZyvGPxOigpBstHl.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/CVFNGGxD0OQD2sCGEnFwzBLZ25HkdqqJPNKE8fHH.jpg) [](https://www.consentz.com) Contact Information:
 
-The company prints personal cheques, manual business cheques, and laser and computer cheques compatible with QuickBooks, Sage 50, Xero, and Simply Accounting.
-
-Its cheques are accepted by RBC, TD, BMO, CIBC, Scotiabank, ATB Financial, Desjardins, National Bank, and more than 200 credit unions across Canada.
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/na7OKH6hsqHiw3m8gM7OzvWTWFCeccNda86MXgK1.jpg) [](https://chequesnow.ca) Contact Information:
-
- Print & Cheques Now Inc
+ Consentz
 
  
 
-240007 Frontier Crescent, Unit 11  Calgary, Alberta T1X 0R4Canada
+39 Ludgate Hill  London, Greater London EC4M 7JNUnited Kingdom
 
- Jon Gilchrist +1-866-760-2661 https://chequesnow.ca 
+ Tom Hooper +44 20 8050 3372 https://www.consentz.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/cpa-printer-1010-outlines-cheque-security-features-and-micr-rules-444856)
+[Original/Source Press Release](https://mediawiretoday.com/clinic-management-platform-gets-major-clinical-governance-upgrade-444902)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/print-cheques-now-publishes-plain-language-guide-to-cheque-standard-006/1e2ee680fa862b500f20e97c9b9c621c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consentz-upgrades-aesthetic-clinic-software-with-enhanced-governance-and-patient-journey-tools/9800f94667966b5118adcf19b317300f) 
 
  
 
@@ -67,4 +59,4 @@ Its cheques are accepted by RBC, TD, BMO, CIBC, Scotiabank, ATB Financial, Desja
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/clubW_pI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/take93LW.webp)
