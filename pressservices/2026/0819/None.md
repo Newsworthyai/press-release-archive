@@ -1,52 +1,84 @@
-# Consultant-Led Vascular Care Model Operates Across Belfast Facilities
+# McFarland Group Index Tracks How Owners Release Control Step by Step
 
-Professor O'Donnell Structures Belfast Practice Around Single-Consultant Vascular Care
+Transferable Value Index Data Shows Owners Delegate Operations First, Strategy Last
 
- Belfast, United Kingdom - August 19, 2026 / Mark O'Donnell Vascular Surgery /
+ Omaha, United States - August 19, 2026 / The McFarland Group /
 
- Professor Mark O'Donnell, a consultant vascular surgeon based in Belfast, has announced an expansion of his private practice capacity, enabling him to carry out more than 850 minimally invasive vascular procedures each year across his Northern Ireland facilities. The development reflects sustained patient demand for consultant-led vascular care in the region and represents a notable point in the growth of specialist private surgery services in Belfast.
+ The McFarland Group has released the first findings from its Transferable Value Index, a twelve-question assessment designed to measure how a closely held business would perform without its owner in place. Among all respondents, one question consistently scores lower than the rest: who determines what the business pursues next.
 
-A Surgeon With Over Two Decades of Vascular ExperienceProfessor O'Donnell brings more than 20 years of specialist vascular expertise to his practice, giving patients in Northern Ireland direct access to a consultant surgeon rather than a delegated clinical team. His work as a vascular surgeon in Belfast centres on the diagnosis and treatment of venous conditions, with a particular focus on varicose veins - a condition affecting a significant proportion of the adult population that, when left untreated, can progress to chronic pain, skin changes, and venous ulceration.
+That question averages 2.94 on a five-point scale - the only one of the twelve to fall below 3.0. The margin to the next lowest question is notable: customer diversification, the second-lowest scorer, averages 3.23.
 
-Operating from private facilities in Belfast, the practice is structured to deliver streamlined, consultant-directed care. Patients are assessed, treated, and followed up by the same specialist throughout their care pathway - a model that differs from many larger institutional settings where clinical responsibility is distributed across multiple practitioners.
+The pattern persists even among businesses that have made the most progress. In the Index's highest-scoring category, which the firm classifies as Transferable Enterprises, owners score 4.58 on client relationships and 4.12 on closing new business. Yet the question of setting strategic direction still lags at 3.30, trailing both measures by a wide margin.
 
-Minimally Invasive Techniques at the Core of the PracticeThe practice offers a range of procedures matched to the nature and severity of each patient's venous condition. Radiofrequency ablation is used to close the affected vein using heat delivered through a small catheter, avoiding the need for general anaesthesia in most cases. Foam sclerotherapy provides an injectable option suited to smaller varicosities, while open surgery remains available for complex presentations where less invasive approaches may not be clinically appropriate.
+The data also challenges a common assumption about owner dependence in closely held businesses. Of the 52 businesses assessed, 33 score well on both dimensions the Index tracks, and only nine fall short on business durability. The strain concentrates almost entirely on the independence dimension - and within that, on a single question. Among the 30 highest-scoring businesses in the cohort, 18 still have the owner as the sole decision-maker on company direction.
 
-This structured approach to varicose veins treatment in Northern Ireland means patients across a range of venous disease severity can access a clinically suitable intervention under the care of a single experienced consultant. Having multiple treatment options within one practice reduces the likelihood of patients requiring referral elsewhere when their condition falls outside a narrower treatment scope.
+"Owners do let go, and that surprises people," said Byron McFarland, founding principal of The McFarland Group. "What the data shows is that letting go happens in an order. Operations go first. Relationships follow. The decision about where the company is headed is the one an owner holds onto longest, and it is the one that most determines what the business is worth without them."
 
-Private Access to Specialist Vascular Care in BelfastThe announcement comes as patients across Northern Ireland increasingly pursue private pathways for vascular assessment, particularly where NHS waiting times for elective procedures extend over many months or longer. Professor O'Donnell's Belfast-based practice offers direct access to consultant assessment without requiring a GP referral, allowing individuals experiencing leg heaviness, visible varicosities, or related symptoms to begin the diagnostic process without delay.
+The finding carries direct implications for business valuation. Buyers, lenders, and successors evaluate how much of a company's forward direction depends on a single individual, and that evaluation shapes price, deal structure, and what a lender is prepared to underwrite. A business that can only determine its next move when the owner is present carries a discount that surfaces in every diligence process.
 
-With more than 850 procedures performed each year, the practice operates at a volume that reflects both the breadth of conditions managed and the procedural consistency associated with a high-throughput specialist setting. That level of activity supports the surgical familiarity that experienced vascular teams associate with dependable clinical outcomes.
+McFarland's full letter, "The Last Thing You Let Go Of," along with the complete findings, the twelve-question breakdown, and the methodology, is published as the inaugural issue of the Index and is available to download without a form at themcfarlandgroup.com.
 
-"Patients across Northern Ireland deserve timely access to experienced vascular care without having to travel to major centres elsewhere in the UK," said Professor Mark O'Donnell, consultant vascular surgeon. "Our focus is on making sure every patient is seen by a consultant at every stage, from the first assessment through to follow-up, and that the most appropriate procedure is selected based on their individual anatomy and clinical picture."
+The Transferable Value Index is available at no cost at transferablevalueindex.com. It scores a business across two dimensions - how durably it is built and how independently it operates - and returns a personalized report placing the company in one of four categories. The McFarland Group plans to publish findings from the Index on a continuing basis as the response set expands.
 
-About Professor Mark O'DonnellProfessor Mark O'Donnell is a consultant vascular surgeon practising from private facilities in Belfast, Northern Ireland. With more than 20 years of experience in vascular surgery, his practice specialises in minimally invasive venous procedures including radiofrequency ablation and foam sclerotherapy, as well as surgical intervention for complex cases. The practice provides consultant-led varicose veins treatment across Northern Ireland, with patients seen directly by Professor O'Donnell at each stage of their care.
+The findings reflect 52 assessments submitted to the Transferable Value Index through July 9, 2026, with duplicate submissions counted once. Responses from The McFarland Group personnel were excluded. The Index scores twelve questions across two dimensions, Business Durability and Owner Independence, each on a five-point scale.
 
-Learn more at Mark O'Donnell Vascular Surgery
+About The McFarland Group
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/c1Y1UkgYyFqqn9TKIGl5d4fRe4Volfw2N40wuC5L.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/JsNmDXzPeBkL3B4QXWbjmMrncoGmJMVjObv7bRfq.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/4dOoPNVvXV1iGxMaxkST0GZDAXUzq5GAWlINFtqO.jpg) [](https://www.markodonnellvascularsurgery.com) Contact Information:
+The McFarland Group is an advisory firm based in Omaha, Nebraska, founded by Byron McFarland. The firm has guided more than $3 billion in business value through more than 200 ownership transitions over two decades. It works with owners of closely held businesses on M&A advisory, selling a business to management, and performance equity compensation for key leaders. The firm's guiding idea is simple: Go Boldly. Learn more at themcfarlandgroup.com.
 
- Mark O'Donnell Vascular Surgery
+About the Transferable Value Index
+
+The Transferable Value Index is The McFarland Group's ongoing measure of how closely held businesses hold up without their owners. Twelve questions score a company on structural durability and operator independence and place it in one of four categories. The assessment is free and takes about four minutes. Learn more at transferablevalueindex.com.
+
+Media contact: Alex McFarland · alex@themcfarlandgroup.com · 402-891-2300
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/SqYeODy4cldsRWr2jBQWFKnOdyXJchyhFNS8waBZ.png) [](https://themcfarlandgroup.com) Contact Information:
+
+ The McFarland Group
 
  
 
-801 Lisburn Rd  Belfast, Northern Ireland BT9 7GXUnited Kingdom
+4601 Catalyst Court, Suite 3055  Omaha, NE 68106United States
 
- Mark O'Donnell +44 28 9066 7878 https://www.markodonnellvascularsurgery.com 
+ Alex McFarland +1-402-891-2300 https://themcfarlandgroup.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/consultant-led-vascular-care-model-operates-across-belfast-facilities-444800)
+[Original/Source Press Release](https://mediawiretoday.com/mcfarland-group-index-tracks-how-owners-release-control-step-by-step-444822)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/belfast-vascular-surgeon-expands-to-850-procedures-annually/b4a57379a98a1b5294abf4271d3e0646) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/owners-delegate-operations-cling-to-strategy-new-index-reveals-key-to-business-value/0a5bf00c80913900e106ffe6e710bd1a) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/19/belfast-vascular-surgeon-expands-private-practice-to-meet-demand-for-consultant-led-care/)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/mcfarland-group-index-reveals-owners-delegate-operations-before-strategic-direction)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/owners-delegate-operations-first-strategy-last-new-index-reveals)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/new-data-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://advos.io/en](https://advos.io/en/new-index-reveals-owners-surrender-operations-first-strategy-last)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/new-index-reveals-owners-delegate-operations-before-strategy)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/nuevo-indice-revela-que-los-propietarios-delegan-operaciones-antes-que-la-estrategia)
+
+Pickup - [https://burstable.news](https://burstable.news/news/owners-surrender-operations-before-strategy-new-index-reveals)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/new-index-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/new-index-reveals-owners-delegate-operations-first-strategy-last)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/19/new-index-reveals-owners-delegate-operations-first-strategy-last/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/tileo02V.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/268/19/quitjgDa.webp)
