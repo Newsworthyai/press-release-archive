@@ -1,35 +1,65 @@
-# Focus Universal Announces Certification of Universal Smart IoT Devices
+# UNLOCKD Completes Initial Production Run of Morning Magic Functional Mushroom K-Cups, Targets E-Commerce and Retail Expansion
 
-MONTEREY PARK, CA - August 20, 2026 (NEWMEDIAWIRE) - Focus Universal Inc. (Nasdaq: FCUV) ("Focus" or the "Company") is pleased to announce that the certification process of Universal Smart Device and associated sensors was completed by accredited laboratories GRG Metrology & Test Group Co., Ltd. and Centre Testing International Group Co., Ltd.
+Ancient Extracts USA Enters the Multibillion-dollar Single-serve Coffee Market as UNLOCKD Expands Its Consumer Portfolio to 72 SKUs
 
- Focus Universal’s universal smart device, pH sensor, total dissolved solids (TDS) sensor, oxidation-reduction potential (ORP) sensor, total dissolved oxygen sensor, and turbidity sensors have passed and certified by these accredited laboratories in Asia. The certificates and reports issued by the accredited laboratories have international credibility and can help Focus steadily develop both the local and global markets.
+ LANCASTER, PA - August 20, 2026 (NEWMEDIAWIRE) - BitFrontier Capital Holdings, Inc. (OTCID: BFCH), doing business as UNLOCKD Inc. (“UNLOCKD” or the “Company”), today announced that Ancient Extracts USA has completed the initial production run of Morning Magic functional mushroom coffee in a K-Cup-compatible single-serve format.
 
- IoT has long been recognized as a technology capable of transforming the world, yet widespread adoption has been limited by high R&D costs, technical complexity, and long development cycles. Focus’ Universal Smart IoT platform is designed to address these challenges. Instead of engineers developing customized IoT systems from scratch, they can use the platform as a common foundation, potentially eliminating up to 90% of the hardware and software development normally required.
+ The Company is now preparing Morning Magic K-Cups for launch on Amazon and its direct-to-consumer website, AncientExtracts.com, while sending samples to prospective retail category buyers as it pursues broader brick-and-mortar distribution opportunities.
 
- Focus’ goal has been to make IoT as simple and cost-effective as traditional standalone devices while providing the capabilities of a full IoT system. Achieving this required more than 20 years of development - not only to establish the Universal Smart IoT platform, but also to develop compatible industrial sensors and demonstrate that the technology is practical, scalable, and commercially viable.
+ For UNLOCKD, the significance extends well beyond another product launch. Morning Magic K-Cups demonstrate the Company’s broader strategy in action: identify consumer demand, rapidly develop differentiated products, and pursue distribution into large established categories where successful commercialization can have a meaningful impact on the Company’s growth.
 
- “The completion of the certification process is therefore a significant step forward. It removes a key commercialization barrier and allows us to move from technology development toward broader domestic and international market deployment. Obtaining the required certifications for our Universal Smart IoT devices and industrial sensors removes a major barrier to commercialization and enables us to market our products domestically and globally,” Dr. Desheng Wang, CEO of Focus Universal Inc. said.
+ “This is exactly the kind of opportunity we want to pursue at UNLOCKD,” said John P. Gorst, Chief Executive Officer of UNLOCKD. “We have a differentiated product, a massive established category and multiple potential paths to market. With production complete, our focus now turns to commercialization - Amazon, AncientExtracts.com, retail outreach and getting Morning Magic in front of more consumers.”
 
- Statista reports that the number of IoT devices worldwide is expected to grow from 19.8 billion in 2025 to more than 40.6 billion by 2034. The global Internet of Things (IoT) market, valued at USD 1.18 trillion in 2023, is projected to reach US $2.65 trillion by 2030, reflecting a CAGR of 11.4% from 2024 to 2030. Yet despite this tremendous growth potential, industry surveys show that most IoT projects fail - Cisco reports a 75% failure rate, while Microsoft found that 30% of projects fail at the early proof-of-concept stage. Focus Universal's Universal Smart IoT technology was specifically developed to address these challenges, unlock the full potential of the IoT revolution, and bring this groundbreaking solution to the global base of 19.8 billion IoT device users. By delivering up to 90% cost savings and unprecedented simplification of IoT deployment, the technology plays a decisive role in accelerating IoT adoption worldwide
+ Morning Magic combines Lion’s Mane, Cordyceps, Chaga and Reishi in a decaffeinated, coffee-inspired formulation. The single-serve format removes the measuring and mixing associated with many functional mushroom products and brings Morning Magic into a brewing format already familiar to millions of consumers.
 
- About Focus Universal Inc.
+ “We listen to our customers,” said Dr. Jordan P. Balencic, Chairman and Chief Science Officer of UNLOCKD. “Many love the ritual of preparing Morning Magic. But there is another consumer who wants functional ingredients with maximum convenience. They want to push a button and get on with their day. We believe K-Cups allow us to meet both consumers where they are.”
 
- Focus Universal Inc. is a provider of patented hardware and software design technologies for Internet of Things (IoT) and 5G. The company has developed five disruptive patented technology platforms with 26 patents and patents pending in various phases and eight trademarks pending in various phases to solve the major problems facing hardware and software design and production within the industry today. For maintenance cost control, the company has also omnibus patents encompassing these patents into patent family groups. These technologies combined to have the potential to reduce costs, product development timelines and energy usage while increasing range, speed, efficiency, and security. Focus Universal is a publicly listed company committed to innovation and long-term value creation through strategic investments and business development. Through its global subsidiaries, the Company continues to expand into high-growth markets while delivering sustainable business solutions to customers worldwide. Focus currently trades on the Nasdaq Markets.
+ A LARGE MARKET. AN OUTSIZED OPPORTUNITY FOR UNLOCKD.
+
+ The U.S. coffee pod and capsule market represents a multibillion-dollar annual category with single-serve brewing deeply embedded in American consumer behavior. Morning Magic gives Ancient Extracts USA an opportunity to bring a differentiated functional wellness product into that established purchasing ecosystem across direct-to-consumer, Amazon and potentially national retail channels.
+
+ For UNLOCKD, the potential impact is significant. The Company does not need to capture a large percentage of the overall single-serve coffee market for Morning Magic to become a meaningful revenue contributor.
+
+ At a planned retail price of approximately $26 per 22-count box, 100,000 boxes represents approximately $2.6 million in gross retail sales value; 500,000 boxes represents approximately $13 million; and one million boxes represents approximately $26 million. These figures illustrate potential gross retail sales value and are not projections of Company revenue, which will vary based on sales channel and other factors.
+
+ “This is where we believe the opportunity becomes particularly compelling for our shareholders,” Gorst said. “We are taking differentiated products into established consumer categories where successful execution can materially change the scale of our business. Morning Magic K-Cups don’t need to become the biggest coffee product in America to matter enormously to UNLOCKD. Amazon is one channel. Retail is another. Our objective is to build distribution, prove demand and scale what works.”
+
+ The Company has contacts within large-format brick-and-mortar retail channels and is putting samples directly in front of prospective category buyers. No retail placement or purchase order should be inferred unless subsequently announced by the Company.
+
+ Morning Magic K-Cups join an Ancient Extracts USA portfolio that has expanded to 72 SKUs, including individual products and bundles, as UNLOCKD continues building its functional wellness platform around product innovation and expanded distribution.
+
+ “Our advantage is that we can move,” Balencic said. “We can listen to customers, recognize an opportunity, develop a product and bring it to market quickly. Morning Magic K-Cups are a perfect example. We identified a consumer need, created a differentiated format and are now moving into commercialization. That is the model we intend to repeat across the UNLOCKD portfolio.”
+
+ As part of the launch, UNLOCKD is giving BFCH shareholders and supporters an opportunity to experience the new product directly. For the next 30 days, customers can receive 15% off Morning Magic K-Cups using promotional code KCUPS15 at checkout at AncientExtracts.com.
+
+ The Company expects to provide additional updates regarding availability on Amazon and AncientExtracts.com, as well as broader retail commercialization, as milestones are achieved.
+
+ About UNLOCKD Inc.
+
+ BitFrontier Capital Holdings, Inc., doing business as UNLOCKD Inc. (OTCID: BFCH), is a publicly traded acquisition and operating platform focused on acquiring, commercializing and scaling underrecognized and undercapitalized health, wellness and consumer brands with significant growth potential.
+
+ Through its operating companies and brands, UNLOCKD seeks to combine product innovation, expanded distribution, shared operating infrastructure and access to public capital markets to build a diversified portfolio of scalable consumer businesses.
+
+ Ancient Extracts USA is operated by VerdaGenix LLC, a wholly owned subsidiary of UNLOCKD.
+
+ Investor and Media Contact
+
+ John P. GorstChief Executive OfficerUNLOCKD Inc.IR@unlockdinc.com (223) 332-4898www.unlockdinc.comOTCID: BFCH
 
  Forward-Looking Statements
 
- Statements in this press release about future expectations, plans and prospects, as well as any other statements regarding matters that are not historical facts, may constitute "forward-looking statements" within the meaning of The Private Securities Litigation Reform Act of 1995. The words "anticipate," "believe," "continue," "could," "estimate," "expect," "intend," "may," "plan," "potential," "predict," "project," "should," "target," "will," "would" and similar expressions are intended to identify forward-looking statements, although not all forward-looking statements contain these identifying words. Forward looking statements include statements regarding the platform being designed to serve consumers and business partners across multiple international markets while supporting the growing demand for seamless global commerce; the Company strengthening its global competitiveness, diversifying its revenue streams, and creating lasting value for customers, business partners, and shareholders by expanding its presence in the international e-commerce sector; the new venture further enhancing the Company’s international footprint and supporting its long-term strategic objectives; the business beginning to generate both revenue and income in the near term and the Company creating long-term value through innovation, global collaboration, operational excellence, and exceptional customer service Actual results may differ materially from those indicated by such forward-looking statements as a result of various important factors, including: the uncertainties related to the Company’s ability to derive the benefits from the partnership including its ability to generate near term revenue, diversify revenue streams, strengthen its global competitiveness; expand its international presence and create value for shareholders; market conditions, and other factors discussed in the "Risk Factors" section of the Company’s most recent Annual Report on Form 10-K and its subsequent quarterly reports on Form10-Q filed with the SEC. Any forward-looking statements contained in this press release speak only as of the date hereof and Focus Universal specifically disclaims any obligation to update any forward-looking statement, whether because of new information, future events or otherwise.
+ This press release contains forward-looking statements regarding anticipated product launches, Amazon availability, retail and distribution opportunities, consumer demand, revenue potential, commercialization and future growth. These statements are based on current expectations and estimates and are subject to risks and uncertainties that could cause actual results to differ materially. Illustrative gross retail sales values do not constitute forecasts or guarantees of Company revenue, profitability or future sales. Readers should not place undue reliance on forward-looking statements. The Company undertakes no obligation to update these statements except as required by law.
 
- For investor and media inquiries, please contact:
+ 
 
- Investor Relations626-272-3883ir@focusuniversal.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/focus-universal-announces-certification-of-universal-smart-iot-devices-7088728)
+[Original/Source Press Release](https://www.newmediawire.com/news/unlockd-completes-initial-production-run-of-morning-magic-functional-mushroom-k-cups-targets-e-commerce-and-retail-expansion-7088730)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/focus-universal-s-iot-devices-secure-international-certifications/af6ff6333509319f594149cd1bb95864) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlockd-s-ancient-extracts-enters-single-serve-coffee-market-with-functional-mushroom-k-cups/32914fe27100d715921b4b5ee4f13b00) 
 
  
 
@@ -37,4 +67,4 @@ MONTEREY PARK, CA - August 20, 2026 (NEWMEDIAWIRE) - Focus Universal Inc. (Nasda
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/20/rend7b0Y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/20/boss_RFQ.webp)
