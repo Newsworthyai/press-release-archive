@@ -1,50 +1,70 @@
-# Wrap Technologies (WRAP) Closes $12M Registered Direct Offering
+# AUTODOC and Apollo Funds Successfully Conclude Transformative Partnership
 
-LOS ANGELES, CA - August 19, 2026 (NEWMEDIAWIRE) - Wrap Technologies (NASDAQ: WRAP), a global public safety technology company delivering intelligent detection, orchestration and response solutions designed for the next generation of autonomous public safety, announced the closing of its previously announced registered direct offering with a fundamental institutional investor and an existing investor consisting of 8,571,609 shares of common stock, or pre-funded warrants in lieu thereof, at $1.40 per share. Gross proceeds were approximately $12 million before placement agent fees and other offering expenses. Wrap intends to use the proceeds for general corporate purposes and working capital, including future planned business expansion. Maxim Group LLC acted as sole placement agent for the offering.
+Historic Milestone of Founders Returning to Full Ownership Concludes Highly Successful Collaboration
 
- To view the full press release, visit https://ibn.fm/S1XsK
+ * Partnership with Apollo delivered significant progress on governance, reporting and operational scalability
+* The three founders Alexej Erdle, Max Wegner and Vitalij Kungel now indirectly hold 100% of Autodoc SE again
+* AUTODOC enters its next chapter as a leaner, more focused company - fully prepared for future capital markets
 
- About Wrap Technologies, Inc.
+ BERLIN, GERMANY - August 19, 2026 (NEWMEDIAWIRE) - Autodoc SE, Europe's leading online retailer of automotive spare parts and accessories, today announced the successful completion of the share purchase from Apollo’s managed funds associated with its Hybrid Value franchise (the “Apollo Funds”) which have led a minority investment alongside leading institutional investors. With this transaction closed, the three co-founders of AUTODOC - Alexej Erdle, Max Wegner and Vitalij Kungel - again indirectly hold 100% of Autodoc SE through their investment vehicle, AutoTech GmbH & Co. KG.
 
- Wrap Technologies, Inc. is a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern day challenges facing public safety organizations.
+ This share purchase, which was funded by the placement of a Term Loan B of EUR 530 million as announced in July 2026, marks the conclusion of a successful partnership. In April 2024, Apollo Funds acquired a minority stake in AUTODOC at an equity valuation of EUR 2.3 billion, marking the first time the company was co-owned by somebody else than the founders. The collaboration was designed from the beginning to be time-limited and purpose-driven: As an institutional partner, Apollo provided strategic guidance to help set AUTODOC on a successful path to access institutional capital markets and prepare for a potential future IPO. These objectives were jointly achieved in quick succession, leaving AUTODOC well positioned for any future capital market options. With the transaction completed, the two Apollo representatives on AUTODOC's Supervisory Board will step down accordingly, departing with the company’s sincere gratitude for their invaluable counsel. From now on, the Supervisory Board will consist of the three founders and three independent members.
 
- WRAP’s complete public safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions like PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which supports the Company’s mission to provide safer, scalable, and cost-effective technologies for public safety, defense, and critical infrastructure markets.
+ Strategic partnership made AUTODOC ready for debt and equity capital markets
 
- With a growing demand for non-lethal tools and techniques to create time, distance and tactical advantage in non-criminal calls, Wrap’s BolaWrap(R) 150 incorporates a multi-sensory distraction of sight and sound as a first response, followed by a non-lethal restraint if further escalation is required. This approach reduces the risk of injury to officers, subjects, and the community.
+ "We have grown AUTODOC from a bootstrapped start-up into Europe’s leading automotive parts retailer by making car repair accessible to everyone. Regaining full ownership is a proud and deeply meaningful moment for us - one that reaffirms our long-term commitment to the company’s future," said the founders, Alexej Erdle, Max Wegner and Vitalij Kungel, in a joint statement. "We are sincerely grateful to the Apollo team for their trust, invaluable expertise and close partnership over the past two years. Their support has been instrumental in our development, leaving AUTODOC stronger, more robust and well-positioned for the years ahead."
 
- Wrap’s BolaWrap(R) 150 solution is intended to provide law enforcement with a safer choice for nearly every phase of a critical incident. This innovative, patented device deploys a multi-sensory, cognitive disruption to expand the pre-escalation period and gives officers the advantage and critical time to manage non-compliant subjects before resorting to higher-force options. The BolaWrap(R) 150 is not pain-based compliance. It does not shoot, strike, shock, or incapacitate, instead, it helps officers strategically operate pre-escalation on the force continuum, reducing the risk of injury to both officers and subjects. Used by over 1,000 agencies across the U.S. and in 60 countries, BolaWrap(R) is backed by training certified by the International Association of Directors of Law Enforcement Standards and Training (IADLEST), reinforcing Wrap’s commitment to public safety through cutting-edge technology and expert training.
+ "Apollo's contribution went well beyond capital. Together, we have significantly sharpened our internal processes, strengthened our corporate governance and built a stronger, more scalable platform," said Dmitri Zadorojnii, CEO of AUTODOC. “I would like to express my sincere thanks to the entire Apollo team for their dedication and professional counsel. We now move forward as a highly focused market leader, fully prepared to leverage our independent position and deliver exceptional value to our B2C and B2B customers across Europe. AUTODOC doesn’t change its strategic direction and is ready to capture multiple market opportunities that we clearly see in front of us. We will fully rely on our digital nature and will continue to adopt and apply the power of AI and many other forefront technologies to bring our products and customers’ experience to the edge of excellence."
 
- WrapReality(TM) VR is a fully immersive training simulator to enhance decision-making under stress.
+ "Apollo brought world-class capital markets expertise to AUTODOC at a crucial time," said Lennart Schmidt, CFO of AUTODOC. “Transforming our financial reporting, professionalising our processes, building capital market readiness and debuting on the institutional credit markets have facilitated a seamless transition to our new capital structure. It was a pleasure working with the Apollo team and getting their strategic guidance. AUTODOC tapping the institutional debt markets for the first time marks another important step in further professionalising the company and making us ready for future endeavours, including a potential IPO when the timing is right."
 
- As a comprehensive public safety training platform, it provides first responders with realistic, interactive scenarios that reflect the evolving challenges of modern law enforcement. By offering a growing library of real-world situations, WrapReality(TM) is intended to equip officers with the skills and confidence to navigate high stakes encounters effectively, which we believe leads to safer outcomes for both responders and the communities they serve.
+ "It has been a privilege to partner with AUTODOC's founders and management team during this transformative period," said Jeremy Honeth, Partner, Hybrid Value at Apollo. “AUTODOC has cemented its position as Europe’s leading digital platform for automotive parts and has demonstrated clear readiness for the capital markets. We are proud to have supported the company in reaching this point and wish the entire team every success as they enter their next chapter of growth."
 
- WrapVision is an all-new body-worn camera and evidence management system built for efficiency.
+ Looking ahead
 
- Designed for efficiency, security, and transparency to meet the rigorous demands of modern law enforcement, WrapVision captures, stores, and helps manage digital evidence, ensuring operational security, regulatory compliance, and enhanced video picture quality and field of view.
+ AUTODOC remains dedicated to its long-term ambition of becoming Europe's leading technology ecosystem for the automotive aftermarket - combining AI-driven capabilities, data-informed decision-making and an enhanced digital experience for both consumers and professional partners. A future IPO remains on the company's agenda, subject to general market conditions.
 
- The WrapVision camera, powered by IONODES, boasts streamlined cloud integration and final North American assembly, with a critical made-in-America roadmap projected for early 2026. This track helps ensure data integrity and helps eliminate critical concerns over unauthorized access or foreign surveillance risks.
+ About AUTODOC
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ AUTODOC is the leading digital pure-play automotive parts platform in Europe. The business, which was founded in Berlin in 2008 by Alexej Erdle, Max Wegner and Vitalij Kungel, has developed into one of the most exciting E-Commerce companies in Europe in a remarkably short period. Since November 2022, the Company has been operating as the European corporation Autodoc SE. The Management Board consists of Dmitri Zadorojnii (CEO) and Lennart Schmidt (CFO). As of 31 December 2025, AUTODOC’s product assortment comprised around 7.8 million SKUs from around 2,700 brand manufacturers - including car, truck and motorcycle parts, tires as well as adjacent products such as tools, accessories, oils, liquids and consumables - and has significantly increased over time. In 2025, AUTODOC generated sales revenue of EUR 1.8 billion (2024: EUR 1.6 billion). AUTODOC has online shops in 27 European countries and employs more than 5,500 people in 13 locations: Belgium, Czech Republic, France, Germany, Italy, Kazakhstan, Luxembourg, Moldova, the Netherlands, Poland, Portugal, Ukraine and the United Kingdom.
 
- The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
+ About Apollo
 
- Forward Looking Statements
+ Apollo is a high-growth, global alternative asset manager. In our asset management business, we seek to provide our clients excess return at every point along the risk-reward spectrum from investment grade credit to private equity. For more than three decades, our investing expertise across our fully integrated platform has served the financial return needs of our clients and provided businesses with innovative capital solutions for growth. Through Athene, our retirement services business, we specialize in helping clients achieve financial security by providing a suite of retirement savings products and acting as a solutions provider to institutions. Our patient, creative, and knowledgeable approach to investing aligns our clients, businesses we invest in, our employees, and the communities we impact, to expand opportunity and achieve positive outcomes. As of June 30, 2026, Apollo had approximately $1.05 trillion of assets under management. To learn more, please visit www.apollo.com.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Press contact Stefanie Steiner Director Investor RelationsMobile: +49 151 5562 1476Email: s.steiner@autodoc.euwww.autodoc.group
+
+ Marco Dalan newskontor - Agentur für KommunikationTel: +49 211 86394933Mobile: +49 171 7614905Email: marco.dalan@newskontor.de
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/wrap-technologies-wrap-closes-12m-registered-direct-offering-7088704)
+[Original/Source Press Release](https://www.newmediawire.com/news/autodoc-and-apollo-funds-successfully-conclude-transformative-partnership-7088707)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-closes-12m-offering-to-boost-public-safety-tech/dd29b61196b494c497800460ad36bb93) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/autodoc-founders-reclaim-100-ownership-after-apollo-partnership/99e8093dd11abd8476be3d81b8a048d5) 
 
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/autodoc-founders-regain-full-ownership-as-apollo-partnership-concludes)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/los-fundadores-de-autodoc-recuperan-la-plena-propiedad-al-concluir-la-alianza-con-apollo)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/autodoc-founders-regain-full-ownership-as-apollo-partnership-concludes-successfully)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/99e8093dd11abd8476be3d81b8a048d5)
+
+Pickup - [https://focusonretail.substack.com](https://focusonretail.substack.com/p/99e8093dd11abd8476be3d81b8a048d5)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/19/knot_5m5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/268/19/ulna3cW5.webp)

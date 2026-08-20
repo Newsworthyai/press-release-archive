@@ -1,72 +1,64 @@
-# Thunder Compute Raises $13 Million Series A Round to Put Idle GPUs Back to Work
+# Bernice Kapinga to Speak at For Women in Law Legal Careers Workshop Following Major Security and Thought Leadership Milestones at Wendt Partners
 
-SAN FRANCISCO, CA — AUGUST 19, 2026 —
+QUEENS, NEW YORK - AUGUST 19, 2026
 
-Thunder Compute today announced a $13 million Series A round led by Matrix Partners, with participation from Y Combinator and CEAS Investments. Thunder Compute aims to solve the GPU capacity shortage by eliminating the $200 billion of wasted compute sitting idle today. The funding will help the company scale towards their goal; a future where every GPU is virtualized.
+Wendt Partners, a global HubSpot Elite Solutions Partner, today announced that Bernice B. Kapinga, Technology, Security, Contracts & Compliance Manager, will speak at the For Women in Law Legal Careers Workshop in Johannesburg, South Africa, on August 29, 2026.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Thunder Compute raises $13 million in Series A funding led by Matrix Partners, with participation from Y Combinator and CEAS Investments.
-* The company develops proprietary GPU virtualization software that treats GPUs as network resources and operates invisibly beneath workloads to boost data center efficiency.
-* Thunder Compute will use the funding to partner with enterprises and virtualize GPUs at scale to unlock idle capacity, addressing average GPU utilization of about five percent.
+Key Takeaways:* Wendt Partners announces that Bernice B. Kapinga will speak at the For Women in Law Legal Careers Workshop in Johannesburg, South Africa, on August 29, 2026, about alternative career paths and opportunities across legal technology, legal operations, cybersecurity, governance, data protection, compliance and AI.
+* Earlier this year, Wendt Partners promoted Bernice B. Kapinga to Technology, Security, Contracts & Compliance Manager, expanding her responsibilities across contract lifecycle management, information security, governance, risk, compliance and technology oversight.
+* Wendt Partners has successfully completed its third consecutive year of ISO/IEC 27001 certification, with Kapinga playing a key role as the company reinforces its commitment to information security, operational governance and responsible technology practices.
 
-[Click image above to view full announcement.](https://thunder-compute.reportablenews.com/pr/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+[Click image above to view full announcement.](https://wendtpartners.reportablenews.com/pr/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-About Thunder Compute Thunder Compute builds virtualization software that turns idle GPUs into additional capacity. The company was founded in 2022 by Carl Peterson, previously a management consultant at Bain & Company, and Brian Model, previously a quantitative developer at Citadel Securities. Thunder Compute is backed by Matrix Partners, Y Combinator, and CEAS Investments.For more information visit: https://www.thundercompute.com/
+About Wendt Partners: Wendt Partners is a HubSpot Elite Solutions Partner headquartered in Queens, New York City. The firm delivers enterprise CRM strategy, implementation, and optimization services for complex B2B organizations, with particular expertise in industrial, technical, and regulated industries. Serving clients ranging from high-growth startups to Fortune 500 enterprises, Wendt Partners combines deep industry knowledge with one of the most experienced HubSpot teams in the ecosystem. With offices in New York, Toronto, London, and Melbourne, the award-winning and fully accredited firm supports clients worldwide. For more information, visit www.wendtpartners.com.
 
-Contacts:Brian Kramerpress@thundercompute.com
+Contacts:Wendt Partnersconnect@wendtpartners.com
 
-Source: Thunder Compute
+Source: Wendt Partners
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://thunder-compute.reportablenews.com/pr/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+[Original/Source Press Release](https://wendtpartners.reportablenews.com/pr/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thunder-compute-raises-13m-to-virtualize-idle-gpus-tackling-200b-waste/9087cd8bfa9c1968b20d8f6d0b81cbbb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wendt-partners-bernice-kapinga-to-speak-at-for-women-in-law-workshop/1e8a19426224ca89e83cef47f1e7f53b) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/thunder-compute-secures-13m-series-a-to-virtualize-idle-gpus-and-tackle-gpu-shortage)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/thunder-compute-asegura-13-millones-en-serie-a-para-virtualizar-gpus-inactivos-y-abordar-la-escasez-de-gpu)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/thunder-compute-raises-13-million-to-tackle-gpu-idle-capacity)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/9087cd8bfa9c1968b20d8f6d0b81cbbb)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/9087cd8bfa9c1968b20d8f6d0b81cbbb)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/bernice-kapinga-to-speak-at-for-women-in-law-legal-careers-workshop-following-major-security-and-thought-leadership-milestones-at-wendt-partners)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://legal.in-focus.news/legal-news](https://legal.in-focus.news/legal-news/wendt-partners-bernice-kapinga-to-address-legal-careers-workshop-following-security-and-leadership-milestones)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/thunder-compute-raises-13-million-series-a-round-to-put-idle-gpus-back-to-work)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/1e8a19426224ca89e83cef47f1e7f53b)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/19/navypPPV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/19/noraPPac.webp)
