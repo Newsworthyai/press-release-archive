@@ -1,103 +1,102 @@
-# Oyster Founder Tony Jamous: Fear-Based Leadership Is Quietly Sinking Companies
+# ROS Analytics™ Heralds New Era of Progress in Development Metrics
 
-The August 18, 2026 episode of You Should Know, titled Why Fear-Based Leadership Fails: Building Trust in Remote Teams with Tony Jamous, hosted by William Tincup and Ryan Leary, returns Oyster founder and Executive Chairman Tony Jamous to the mic for a candid conversation about the leadership models quietly damaging modern companies. Recorded with Jamous from Cyprus, the episode argues that surveillance, reactivity, and command-and-control instincts are not strategy; they are fear in disguise, and they are increasingly incompatible with a distributed, global workforce.
+Recruitment Operating System (ROS®) today announced the introduction of ROS Analytics™, a new generation of franchise development intelligence designed to help franchise executives, boards of directors, ownership groups, and private equity firms manage growth with an advanced level of insights nearly impossible to find in a unified platform.
 
- The discussion moves quickly from theory to practice. Listeners can expect specific threads including:
+ Franchise Development is Now Transitioning from Intuition to Measurable Performance Management
 
- * Why the pendulum between progressive and traditional leadership has swung back toward control as interest rates rose and demand slowed.
-* How Oyster, a benefit corporation operating across 80+ countries, uses remote work as a forcing function for trust.
-* Jamous's three-part method for shifting from control to trust: defaulting to best intent, practicing non-reactivity, and releasing the illusion of control.
-* The launch of Oyster's Global Payroll product and the company's Silver Lake-led funding round closed in Q3 of the prior year.
+ "The future of franchise development will not be managed primarily on our instincts, but rather managed by analytics,” stated Art Coley, founder and CEO of ROS®. “Our mission is to help franchise leaders make better decisions faster, and the way we intend to achieve this is by bringing unprecedented visibility into the health, flow, and performance of their sales pipelines. This isn’t an updated dashboard, new report, or KPIs we’re talking about; those metrics can only explain what happened. This new analytics standard is capable of explaining the why, the where, and what sales and development teams should be doing next. We believe this advancement heralds the beginning of a brand new era of analytics in franchise development.”
 
- Jamous is direct about the psychology driving executives into old habits. "One of the most damaging stories leaders tell themselves is that if they missed the quarter or the year, they're going to die," he says, framing Wall Street pressure as a wiring problem rather than a business reality.
+ Introducing the Analytics Era of Franchise DevelopmentFor decades now, franchise development has largely been managed through activity reporting: metrics such as the number of leads generated, appointments held, Discovery Days conducted, and franchise agreements signed. Those metrics explain what happened. But under ROS Analytics™ new benchmark of metric analysis, we can now help leaders understand why it happened, where momentum is accelerating or slowing, and what corrective actions can best improve performance. By and large, the franchise industry has never before had access to this granular level of visibility into their sales pipeline performance. That all changes with this next-level data capability. With tens of millions of dollars in lead-generation at stake, the wide-ranging implications for the franchise industry simply can’t be overstated.
 
- You have 100% control by controlling your behavior at the top as a leader of the organization. You have to default to assuming best intent. The conversation goes deeper than tactics. Jamous, who was born in Lebanon and previously took an API software company public before it was acquired, describes the personal shift between his first and second unicorn as "ego reduction." He credits leadership coach Pascal with a pivotal observation after the first exit: that the same outcome could have been reached by taxing himself and those around him less. Tincup and Leary connect that idea to hiring for ethics (Jamous argues you build ethical environments, not screen for ethical people), the story of an Oyster teammate in the Philippines who broke down when she realized she was trusted, and the concept of a "clean company" vibrating at high trust. They also revisit Oyster's mission to reverse brain drain and reduce wealth inequality by democratizing access to global job opportunities.
+ Introducing Advanced Measurement Metrics: Turning Data Into Executive IntelligenceROS Analytics™ introduces an entirely new level of advanced measurements, including Pipeline Velocity, Pipeline Deviation, Flow Scores, Stage Progression Rates, Candidate Stagnation Analysis, historical benchmarking, and predictive pipeline indicators. Together, these advanced analytics provide executives with a much clearer picture of pipeline health and sales execution.
 
- About You Should Know You Should Know is a podcast on the WRKdefined Podcast Network, based in Arlington, Texas, reaching more than 3.9 million verified listeners each month. Co-hosted by Ryan Leary and William Tincup, the show tackles pivotal leadership challenges, workforce dynamics, career mobility, and the impact of technology on hiring. This episode is available now wherever podcasts are heard, and at wrkdefined.com. 
+ Protecting Millions in Marketing InvestmentFranchise brands collectively invest tens of millions of dollars every month in franchise lead generation. As such, the greatest opportunity to get more bang for the buck is not in producing more and more leads but rather improving the individual performance of every lead that already exists in the sales pipeline. With its advanced measurement capabilities, ROS Analytics™ is designed to help brands identify bottlenecks, improve conversion efficiency, and increase the overall return on marketing investment.
+
+ A Call to the IndustryOver the coming months, ROS® will be introducing additional executive dashboards, benchmarking tools, and educational content leading up to January’s Franchise Recruitment Master Class at the Let’s Grow Conference, followed by the International Franchise Association Convention in late February. With the introduction of this new era in development metrics, the company believes analytics will become the defining competitive advantage for franchise organizations seeking sustainable growth for their brands.
+
+ About Recruitment Operating System (ROS®)Recruitment Operating System (ROS®) helps franchise brands recruit more franchisees through lead generation, sales process management, advanced analytics, and executive reporting. ROS® partners with franchise organizations to improve pipeline performance and accelerate responsible system growth. For more information, please visit https://www.recruitwithros.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608212790/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+[Original/Source Press Release](https://newsworthy.ai/news/202608212800/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/why-fear-based-leadership-fails-building-trust-in-remote-teams/c5b42d70315831454f6bba933ed7001e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ros-analyticstm-revolutionizes-franchise-development-with-advanced-intelligence/a806a969a83a624e0cccdb6806a92810) 
 
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/21/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development/)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://advos.io/en](https://advos.io/en/ros-analyticstm-ushers-in-new-era-of-data-driven-franchise-development)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ros-analyticstm-ushers-in-new-era-of-data-driven-franchise-development)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ros-analyticstm-unveils-new-era-of-franchise-development-metrics)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ros-analyticstm-inaugura-la-era-basada-en-datos-para-el-desarrollo-de-franquicias)
 
-Pickup - [https://advos.io/en](https://advos.io/en/fear-based-leadership-is-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://burstable.news](https://burstable.news/news/ros-analyticstm-introduces-advanced-development-metrics-for-franchise-growth)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fear-based-leadership-is-quietly-sinking-companies-warns-oyster-founder-tony-jamous)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ros-analyticstm-fuhrt-fortschrittliche-entwicklungsmetriken-fur-franchise-wachstum-ein)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-warns-oyster-founder-tony-jamous)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ros-analyticstm-presenta-metricas-avanzadas-de-desarrollo-para-el-crecimiento-de-franquicias)
 
-Pickup - [https://burstable.news](https://burstable.news/news/oyster-founder-tony-jamous-fear-based-leadership-is-quietly-sinking-companies)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ros-analyticstm-introduit-des-metriques-de-developpement-avancees-pour-la-croissance-des-franchises)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/oyster-grunder-tony-jamous-fuhrung-durch-angst-lasst-unternehmen-leise-untergehen)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ros-analyticstm-introduz-metricas-avancadas-de-desenvolvimento-para-o-crescimento-de-franquias)
 
-Pickup - [https://youtube.com](https://www.youtube.com/shorts/1CcozNVmLVY)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ros-analyticstm-brings-predictive-insight-to-franchise-development)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-fundador-de-oyster-tony-jamous-el-liderazgo-basado-en-el-miedo-esta-hundiendo-silenciosamente-a-las-empresas)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ros-analyticstm-introduces-advanced-metrics-to-transform-franchise-development)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tony-jamous-fondateur-doyster-le-leadership-fonde-sur-la-peur-coule-silencieusement-les-entreprises)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/ros-analyticstm-introduces-advanced-franchise-development-metrics)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fundador-da-oyster-tony-jamous-lideranca-baseada-no-medo-esta-silenciosamente-afundando-empresas)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ros-analyticstm-introduces-advanced-franchise-development-metrics-to-shift-industry-from-intuition-to-data-driven-management)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/ros-analyticstm-launches-new-era-of-franchise-development-intelligence)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-warns-oyster-founder-tony-jamous)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/why-fear-based-leadership-fails-a-case-for-trust-in-remote-teams)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/fear-based-leadership-is-quietly-sinking-companies-warns-oyster-founder-tony-jamous)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/ros-analyticstm-introduces-advanced-franchise-development-metrics-to-shift-from-intuition-to-data-driven-growth)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/fear-based-leadership-is-a-hidden-threat-to-modern-companies-oyster-founder-warns)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ros-analytics-unveils-new-era-of-data-driven-franchise-development)
 
-Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/oyster-founder-tony-jamous-calls-out-fear-based-leadership-as-a-threat-to-remote-work-success)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development-metrics)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/ros-analyticstm-introduces-advanced-franchise-development-metrics)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/21/oyster-founder-warns-fear-based-leadership-is-undermining-modern-companies/)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/ros-analyticstm-ushers-in-data-driven-era-for-franchise-development)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/fear-based-leadership-is-failing-companies-oyster-founder-warns)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/ros-analytics-introduces-advanced-metrics-to-transform-franchise-development)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/rosr-unveils-ros-analyticstm-to-transform-franchise-development-with-advanced-pipeline-intelligence)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-oyster-founder-warns)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ros-analyticstm-introduces-advanced-franchise-development-metric/202637580)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/why-fear-based-leadership-fails-building-trust-in-remote-teams-with-tony-jamous)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/fear-based-leadership-is-quietly-sinking-companies-says-oyster-founder-tony-jamous)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/why-fear-based-leadership-fails-trust-as-the-new-competitive-advantage-in-remote-work)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/why-fear-based-leadership-fails-building-trust-in-remote-teams)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fear-based-leadership-is-quietly-sinking-companies-says-oyster-f/202637578)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/ros-analyticstm-heralds-new-era-of-progress-in-development-metrics)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/21/echott2G.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/21/archjww4.webp)
