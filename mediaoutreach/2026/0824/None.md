@@ -1,90 +1,26 @@
-# From Vietnam to the U.S: East West Barbershop takes on the world’s most competitive market
+# 5G Capital Sets a New Benchmark:China Unicom Beijing and Huawei Power the 2nd World Humanoid Robot Games with 5G-A GigaUplink
 
-HO CHI MINH CITY, VIETNAM - [Media OutReach Newswire](https://www.media-outreach.com) - 24 August 2026 – A Vietnamese men's grooming brand is preparing to enter the U.S. market with a business model that has been developed and scaled across Asia. The move will be an important test of East West Barbershop (Dong Tay Barbershop)'s ability to expand internationally, taking one of Asia's leading men's grooming chains into the world's most competitive barbershop market.    From a Vietnamese barbershop to an international network of more than 130 locations   In the global men's grooming industry, building an international brand requires barbershop chains to solve a fundamental challenge: How can they standardize services, train staff, maintain a consistent customer experience and scale their model without losing their identity?   This is the formula behind many of the world's leading names in the hair and grooming industry, including Great Clips, Supercuts, Sport Clips Haircuts, TONI&GUY, QB House and Jawed Habib Hair & Beauty. These brands have transformed a service industry traditionally dependent on individual craftsmanship into scalable business systems.   East West Barbershop (Dong Tay Barbershop) is pursuing a similar path. Founded in Vietnam in 2018, the company has grown into a network of more than 130 locations, with over 1,000 barbers, while gradually expanding into international markets. At this scale, East West operates in a different league from independent barbershops.   The value of a barbershop chain with hundreds of locations lies in its ability to deliver a consistent experience across the entire network. This is also why East West Barbershop (Dong Tay Barbershop) has been ranked among the Top 10 large-scale grooming brands in the world.   But as it prepares to enter the U.S. market, the key question is whether this model can be successfully transferred and operated in a completely different market.   Beyond the haircut: When a barbershop becomes an experience   East West Barbershop (Dong Tay Barbershop) seeks to differentiate itself by developing an "Experiential Barbershop" concept, combining grooming with relaxation and entertainment.   From the moment customers walk through the door, they are greeted by a space filled with greenery, along with relaxation areas featuring pool tables, chess, a piano, a bar and bookshelves. The chain, which caters exclusively to men and boys, also features car-themed barber chairs and dedicated play areas for its younger customers.    Its services extend well beyond a haircut, including hair washing, ear cleaning, massage, hair restoration treatments, perming, coloring, nail care, shoe cleaning and phone sanitization.   East West Barbershop (Dong Tay Barbershop) aims to change the way customers perceive a barbershop. Rather than simply purchasing a grooming service, customers can take time to relax, look after themselves or bring their children along to a space designed around the overall experience.   As consumers increasingly value the overall experience alongside service quality, this approach reflects the changing dynamics of the men's grooming market.   The United States: East West Barbershop's next major test   The United States is no random choice. It represents the next step in East West Barbershop (Dong Tay Barbershop)'s international strategy, building on a business model that has already been tested in Vietnam and several overseas markets.   Mr. Nguyen Hoai Thanh, Chairman of Dong Tay Barbershop Vietnam Joint Stock Company, said: "We chose the United States not because it is the easiest market to enter, but because it is one of the most demanding and competitive barbershop markets in the world. If a model built in Vietnam can succeed in the U.S., it would be the clearest testament to East West Barbershop's ability to take its brand and business model to the international stage."   The U.S. is home to many major barbershop and salon brands and is one of the world's most mature markets for franchising in the service sector.   Great Clips is a prime example. With thousands of salons across the United States and Canada, the brand demonstrates the scale a haircut business can achieve when its model is standardized and successfully replicated.   Supercuts, Sport Clips and many other chains have likewise spent years building strong brand recognition and extensive customer networks.   Against this backdrop, the Vietnamese brand must answer a fundamental question: Why would American consumers choose a brand from Vietnam over names they already know and recognize?   East West Barbershop (Dong Tay Barbershop)'s answer is not simply to compete on price. Its goal is to "export" a business model that combines customer experience, workforce training, operating standards and franchising.   This requires the company to turn its operational experience into a transferable system while addressing the many differences between Vietnam and the United States.   East West Barbershop (Dong Tay Barbershop) identifies barber training, skills standardization and the ability to adapt to a new environment as key foundations of this process. International expansion also creates opportunities for Vietnamese barbers to gain exposure to international working environments.   East West Barbershop (Dong Tay Barbershop) has also linked its development with social initiatives, including free vocational training for young people, mobile haircut programs offering free services, and contributions to charitable activities. These efforts contribute to a distinctive brand story: a service business seeking to develop its brand, its profession and its community at the same time.   After nearly a decade of establishment and development, East West Barbershop (Dong Tay Barbershop) is gradually proving that a business model built in Vietnam can be standardized, franchised, and compete on the same playing field as the major players in the global hair industry.   If successful in the U.S., East West Barbershop (Dong Tay Barbershop)'s story will go beyond being a Top 10 brand or a network of more than 130 locations. It will be the story of how a Vietnamese service business transformed capabilities built at home into a model capable of reaching the global stage.   Hashtag: #EastWestBarbershop #Dongtaybarbershop[https://dongtaybarbershop.com](https://dongtaybarbershop.com)The issuer is solely responsible for the content of this announcement.
+BEIJING, CHINA– [Media OutReach Newswire](https://www.media-outreach.com/) – 24 August 2026 – The 2nd World Humanoid Robot Games opened yesterday at Beijing's National Speed Skating Oval, also known as the "Ice Ribbon." As another real-world validation of 5G Capital in robotics and embodied AI, China Unicom Beijing and Huawei have built an integrated digital foundation powered by a 5G-A GigaUplink network, supporting intelligent event operations, robot competition, and spectator experiences. The deployment also lays a connectivity foundation for humanoid robots to move beyond the arena and into everyday life. Across Beijing, 5G Capital's region-wide GigaUplink network is providing ubiquitous, secure, and reliable connectivity for a growing range of cultural tourism, embodied AI, and Mobile AI applications and events.    This year's Games feature major upgrades in both scale and competition design. A total of 1,301 competitions across 51 events will see 2,056 humanoid robots from 666 teams worldwide take part. The number of events has nearly doubled from 26 in the inaugural Games to 51 this year, with new high-intensity head-to-head events such as table tennis and kickboxing. Scenario-based competitions have also expanded into real-world settings including industrial production, hotels, homes, and logistics, while dance events place greater emphasis on synchronized movement across multiple robots. More autonomous competition formats and significantly higher task complexity are placing stringent demands on networks for high-capacity uplink, millisecond-level responsiveness, and high reliability, supporting real-time robot telemetry, precise control signaling, and multi-robot coordination.   To meet these requirements, China Unicom Beijing and Huawei deployed a dedicated 100 MHz network, complemented by a 300 MHz LampSite ultra-wideband indoor network, to support real-time robot telemetry and precise signaling exchange. A dedicated 5QI 7 slice combined with carrier isolation keeps end-to-end latency for humanoid robots within 30 milliseconds, supporting millisecond-level decision-making and response while helping ensure the precision of multi-robot coordination, obstacle avoidance, and fine-motion control.   By further integrating the dedicated network with BeiDou RTK (Real-Time Kinematic) positioning, the solution delivers decimeter- to sub-decimeter-level positioning accuracy, supporting autonomous navigation, agile obstacle avoidance, and precision racing in complex environments. On-site tests recorded a peak uplink speed of 1 Gbps, with average latency below 30 milliseconds.   While safeguarding mission-critical connectivity for the robots, China Unicom has also made the network experience of on-site spectators a priority. To address the high-density, heavy-traffic demands of large crowds, network resources and service assurance policies are dynamically adjusted according to different phases and areas of the event, including admission, waiting, competition, and departure. Core services such as instant messaging, ticket inquiries, QR-code admission, and mobile payments are prioritized for stable access, while the network also accommodates data-intensive services such as photo uploads, short-video sharing, and live streaming. This allows spectators to stay connected, interact seamlessly, and share highlights in real time even during peak traffic periods.   On the operations side, China Unicom has also developed China's first embodied AI robot management platform designed for event scenarios. Through a unique network ID assigned to each robot, event staff can monitor its location within the venue, competition status, and operational metrics in real time, creating a closed-loop operations and management system.    Yang Lifan, Deputy General Manager of China Unicom Beijing, said: "This network deployment is not only a real-world test of China Unicom's network capabilities; it will also help us accumulate valuable network assurance experience for the large-scale deployment of embodied AI. China Unicom will continue to build on the experience gained through the 5G Capital initiative and turn technological innovation into tangible and replicable network capabilities for the Mobile AI era. In doing so, we aim to support industrial innovation and help bring Chinese solutions to the world with China Unicom's expertise."   David Li, President of Huawei's Wireless TDD Product Line, said: "The 2nd World Humanoid Robot Games have provided a compelling real-world validation of the 5G-A 100 MHz GigaUplink network based on 3.5 GHz 2CC + 2.1 GHz SUL for embodied AI scenarios. Looking ahead, Huawei will continue to work with China Unicom Beijing to strengthen uplink capabilities and advance spectrum coordination, building multidimensional network capabilities with tiered and differentiated service assurance for multimodal device-to-cloud transmission. This will enable real-time interaction and precise control across a wide range of embodied AI scenarios.   "Networks are about more than speed. Low latency, high reliability, and ubiquitous coverage are equally important. Building on these capabilities, we will further advance the 5G Capital initiative, continue to expand the boundaries of network performance, and lay a solid foundation for the Mobile AI era, working with industry partners to enable an intelligent future."  Hashtag: #Huawei #WorldHumanoidRobotGamesThe issuer is solely responsible for the content of this announcement.
 
-East West Barbershop Vietnam Joint Stock Company
-
- Established: 2018   Country: Vietnam   Number of locations: 130+ across Vietnam, Thailand, China, Uzbekistan and Hungary   Head Office: 23rd Floor, Landmark 81, Ho Chi Minh City, Vietnam   Email: [dongtaybarbershop@gmail.com](mailto:dongtaybarbershop@gmail.com)   Website: dongtaybarbershop.com   Hotline: +84 1900 4737   Mobile: +84 901 602 902   ![](//track.media-outreach.com/index.php/WebView/482583/279561) 
+![](//track.media-outreach.com/index.php/WebView/482701/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/08/24/482583/)
+[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/08/24/482701/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/east-west-barbershop-vietnam-s-grooming-giant-sets-sights-on-u-s/c28fa4efe7aaf8d875605ef0fc5b6cbd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beijing-s-humanoid-robot-games-showcase-5g-a-network-powering-2000-robots/ba7498b45ce6ea1e3ff3902b686eb874) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/24/5g-a-gigauplink-network-powers-2nd-world-humanoid-robot-games/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/vietnamese-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/5g-capital-sets-a-new-benchmarkchina-unicom-beijing-and-huawei-power-the-2nd-world-humanoid-robot-games-with-5g-a-gigauplink)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/vietnamese-mens-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://burstable.news](https://burstable.news/news/vietnamese-mens-grooming-chain-east-west-barbershop-targets-us-market-expansion)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/vietnamesische-herrenpflegekette-east-west-barbershop-strebt-expansion-in-den-us-markt-an)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-chaine-vietnamienne-de-soins-pour-hommes-east-west-barbershop-vise-lexpansion-sur-le-marche-americain)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/rede-de-barbearias-masculinas-vietnamita-east-west-barbershop-visa-expansao-no-mercado-dos-eua)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/vietnams-east-west-barbershop-aims-to-conquer-the-us-market-with-its-scalable-grooming-model)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-prepares-to-enter-the-competitive-us-market)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/vietnamese-mens-grooming-chain-east-west-barbershop-enters-us-market-with-experiential-model)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/vietnamese-mens-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-targets-us-market-expansion)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-prepares-for-us-market-entry)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/vietnamese-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-targets-us-market-expansion)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/vietnamese-grooming-chain-east-west-barbershop-targets-us-expansion-with-experiential-model)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-targets-us-market-with-experiential-model)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/vietnamese-barber-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/vietnamese-mens-grooming-chain-east-west-barbershop-sets-sights-on-us-market)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/vietnamese-grooming-chain-east-west-barbershop-aims-to-conquer-the-us-market)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/vietnamese-barbershop-chain-east-west-barbershop-sets-sights-on/202637586)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/24/vietnams-east-west-barbershop-aims-to-disrupt-the-us-mens-grooming-market/)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/from-vietnam-to-the-us-east-west-barbershop-takes-on-the-worlds-most-competitive-market)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/5g-capital-sets-a-new-benchmarkchina-unicom-beijing-and-huawei-power-the-2nd-world-humanoid-robot-games-with-5g-a-gigauplink)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/24/chipp26k.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/24/gainf5iR.webp)
