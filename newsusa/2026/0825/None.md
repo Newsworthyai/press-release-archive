@@ -1,50 +1,68 @@
-# Rule Changes to Federal Research Grants Could Cost America Its Technology Lead
+# This back-to-school season, parents are asking the right question about AI
 
-(NewsUSA) - Proposed rule changes at the Office of Management and Budget (OMB) could weaken the research enterprise that underpins American technology leadership, according to experts at the Special Competitive Studies Project (SCSP), a nonprofit, nonpartisan initiative that makes recommendations to strengthen America's long-term competitiveness in emerging technologies.
+(NewsUSA) - As families prepare for a new school year, artificial intelligence will be in more and more classrooms. Much of the conversation has focused on whether schools should embrace it or fear it. Parents are asking a different question: Will it help my child succeed?
 
-OMB has proposed the most sweeping revision in years to the regulations governing federal grants and research awards. SCSP has filed formal comments urging the agency to revise the rule before finalizing it.
+As schools increasingly integrate AI into teaching and learning, the focus is shifting from whether the technology belongs in classrooms to how it should be used and who should help shape those decisions.
 
-Accountability for taxpayer dollars is not optional, and SCSP supports OMB's stated goals of transparency, research integrity, and stewardship, said Ylli Bajraktari, president of SCSP, in a recent article. Political accountability and scientific expertise are not enemies. But applied without clear limits, the rule risks damaging the innovation engine that has been the backbone of America's scientific success, he said.
+Just as there´s no one-size-fits-all approach to education, there is no one-size-fits-all approach to using AI in the classroom. For some families, the best fit is their neighborhood public school. For others, it's a public charter school, a magnet school, an online school, a private school, home education, or a microschool. Parents are bringing that same mindset to AI. Rather than asking whether every school should use it the same way, they're asking whether it's helping their child learn. According to a recent survey from the National School Choice Awareness Foundation, most parents are open to AI in schools; 76% support at least some use of it.
 
-The new regulations contain several concerning provisions, said Bajraktari. Specifically, "Senior political appointees would review every discretionary award, reviewers would be directed to weigh presidential policy priorities, peer review would be explicitly downgraded to 'advisory,' and agencies could terminate active research awards simply because priorities changed after the work began," he said.
+The public conversation often frames AI as a choice between embracing it or rejecting it. Parents see it differently. They're less interested in the debate itself and more interested in whether AI can help their children learn. When asked about AI's greatest promise, 42% of parents chose its ability to personalize learning to each student's needs and pace, twice the share who pointed to preparing students for AI-driven careers (21%).
 
-The stakes are measurable, according to SCSP's 2026 Tech Competition Scorecard, which found that China holds a decisive overall lead in robotics for advanced manufacturing, and that the narrow U.S. lead in quantum is eroding under Beijing's coordinated, state-backed strategy. Meanwhile, the federally funded share of national research and development dropped by nearly one-third between 2010 and 2019, and federal AI research spending remains far below the $32 billion annual level recommended by the National Security Commission on Artificial Intelligence. America already faces a funding gap, Bajraktari said, and should not compound it with a confidence gap.
+Parents are using the same lens they apply to most education debates: Will this help my child learn? That's exactly the standard schools should apply. If used thoughtfully, AI can help teachers identify learning gaps earlier, adapt instruction to individual students, provide additional support where it's needed, translate materials for multilingual families, and reduce administrative work so they can spend more time doing what matters most: teaching, mentoring, and building relationships with students.
 
-The proposed changes take their cues from a termination-for-convenience model of government contracting, but research grants are different, Bajraktari emphasized. A research grant supports multiyear experiments, doctoral researchers, and laboratory partners using custom equipment and generating data over time. Stopping that work midstream destroys value that reimbursement cannot recover. The losses also reach companies, investors, national labs, and startups that make decisions based on whether federally funded research is stable and merit-driven.
+For schools in America, AI is no longer a hypothetical. As of today, 35 states have released guidance for K-12 schools, addressing everything from classroom instruction and academic integrity to student privacy, teacher training, and family engagement. Schools, too, are moving from asking whether AI belongs in education to determining how it can be implemented responsibly.
 
-"When award decisions look political rather than technical, or when a grant can vanish because priorities shifted, private partners hedge, talent looks elsewhere, and the whole geometry of innovation weakens," said Bajraktari.
+Parents deserve a voice in those decisions. The survey also found that 78% of parents say a school's approach to AI matters when considering where they want their child to be educated. Nearly half of parents worry that AI could make students too dependent on technology, while others point to concerns about cheating and weaker critical thinking skills. Those views aren't contradictory. They reflect what parents expect from schools: thoughtful decisions that put students first.
 
-SCSP's comments ask OMB to consider four points before finalizing any changes to how research grants are handled.
+Education leaders are reaching many of the same conclusions. TeachAI, with a coalition of nonprofits and technology companies, released a toolkit for administrators, teachers, and governing bodies to highlight opportunities and mitigate risks when AI is used in K-12 schools. State guidance across the country echoes those priorities, encouraging schools to implement AI thoughtfully while engaging educators, parents, and communities throughout the process.
 
-• Keep merit at the center. Scientific and technical merit, evaluated by qualified experts, should remain the primary basis for selecting research proposals. Senior appointees have a legitimate oversight role in compliance, security, and program fit, but should not substitute their judgment for expert evaluation of scientific quality, and any override should be documented in writing against published criteria.
+The urgency is real. Pew Research recently found that more than half of U.S. teenagers have already used AI chatbots to help with schoolwork. AI is already part of many students’ learning experience. The opportunity now is to teach students how to use these tools ethically, responsibly, and in ways that strengthen, not replace, learning.
 
-• Make awards durable. Competitively awarded research grants should not be terminable simply because policy priorities changed after the fact. Reserve termination for legal violations, security concerns, or performance failures, and give recipients a chance to respond and to wind down responsibly.
+At a time when AI is becoming part of more classrooms, parents need clear, trustworthy information to make informed decisions. Resources like myschoolchoice.com/back-to-school offer free guides and practical advice to help families navigate the school year with confidence.
 
-• Account for the private sector. Before changing how research awards work, agencies should ask whether the change will deter co-investment, interrupt commercialization pathways, or push globally mobile talent toward America's competitors.
+As AI becomes part of more classrooms, schools shouldn't lose sight of the question parents are already asking: Will this help my child learn? If the answer is yes, and parents are part of the conversation, AI has the potential to become another tool that helps teachers personalize learning and helps every student thrive.
 
-• Assess the competitive impact. OMB's own analysis counts only paperwork costs and calls them modest. Forgone discoveries and deterred capital are real national security costs even when they never appear as a line item, so major changes to federal research policy should come with a technology-competitiveness impact assessment.
-
-SCSP also urged OMB to slow down. An October 1 effective date would impose new selection and termination frameworks on fiscal year 2027 awards before agencies have built the procedures to implement them well, Bajraktari said.
-
-Visit scsp.ai to learn more. 
+Shelby Doyle is the senior vice president of policy and national partnerships at the National School Choice Awareness Foundation, a 501(c)(3) nonprofit that maintains the nation’s largest online portfolio of English- and Spanish-language school navigation resources, available through Navigate School Choice and Conoce tus Opciones Escolares. 
 
 ---
 
-[Original/Source Press Release](https://about.newsusa.com/rule-changes-to-federal-research-grants-could-cost-america-its-technology-lead)
+[Original/Source Press Release](https://about.newsusa.com/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/omb-rule-changes-threaten-u-s-innovation-engine-scsp-warns/b1a61d0deb7d6102b7380b3918c73aa6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-in-classrooms-parents-focus-on-learning-not-debate/b35dfb394a03273b4d3828f3a78a5a18) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/rule-changes-to-federal-research-grants-could-cost-america-its-technology-lead)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/rule-changes-to-federal-research-grants-could-cost-america-its-technology-lead)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/24/proposed-federal-grant-rule-changes-could-undermine-us-tech-leadership-experts-warn/)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/this-back-to-school-season-parents-are-asking-the-right-question-about-ai)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/24/parents-shift-ai-in-schools-debate-from-fear-to-student-success/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/268/25/lushkLrj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/268/25/ovalDty_.webp)
