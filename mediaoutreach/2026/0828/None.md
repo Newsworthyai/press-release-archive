@@ -1,48 +1,31 @@
-# Huawei He Tingbo Named to TIME'S Fourth Annual List of The TIME100 AI
+# YesAsia Holdings Replicates Record High Half-Year Results: Revenue Grows 23.2% to US$301.51 Million; Net Profit Surges 30.0% to US$18.30 Million
 
-SHENZHEN, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 28 August 2026 – TIME named He Tingbo, President of HiSilicon, Huawei's semiconductor division, to the 2026 TIME100 AI, a list recognizing the 100 most influential people in artificial intelligence.    In May 2026, He Tingbo unveiled the "Tau (τ) Scaling Law" at the IEEE International Symposium on Circuits and Systems in Shanghai: a proposal to replace the geometric shrinking of Moore's Law with time-based scaling as the guiding principle for semiconductors and the electronic systems built on them. In the past decade under her leadership, the company has built its competitive edge in AI computing including Ascend AI accelerators, Kunpeng server processors, and UnifiedBus-enabled SuperPoD systems.   To assemble the list, TIME's editors and reporters examined the key stories in AI over the past year and consulted with expert sources and industry leaders for recommendations. The result is a list of 100 leaders, innovators, shapers, and thinkers who have a stake in the future of AI.   See He Tingbo's story here: [https://time.com/collection/time100-ai/2026/he-tingbo/](https://time.com/collection/time100-ai/2026/he-tingbo/)   See the full list here: [http://ti.me/100ai](http://ti.me/100ai)  Hashtag: #Huawei #TIME100AIThe issuer is solely responsible for the content of this announcement.
+Strengthening Competitiveness via Online-to-Offline Integration and Supply Chain Agility
 
-![](//track.media-outreach.com/index.php/WebView/483660/279561) 
+Results Highlights  * Revenue reached US$301.51 million, representing a strong increase of 23.2%.
+* Gross profit grew by 28.2% to US$93.98 million, with gross profit margin expanding to 31.2%.
+* Operating profit increased by 30.1% to US$24.29 million.
+* Net profit surged by 30.0% to US$18.30 million, with net profit margin improving to 6.1%.
+* Business-to-consumer (B2C) platform YesStyle recorded revenue of US$215.07 million, up 30.5%, accounting for 71.3% of the Group's total revenue. Offline expansion was enhanced with the opening of its first physical concept store in the US.
+* Business-to-business (B2B) platform AsianBeautyWholesale (ABW) recorded revenue of US$82.75 million, up 6.2%, accounting for 27.4% of the Group's total revenue.
+
+  HONG KONG SAR - [Media OutReach Newswire](https://www.media-outreach.com/) - 28 August 2026 - YesAsia Holdings Limited ("YesAsia Holdings", together with its subsidiaries, the "Group") (2209.HK), a leading e-commerce platform operator recognized for its expertise in curating Asian beauty and lifestyle products, announced today its interim results for the six months ended 30 June 2026 (the "Reporting Period").   The Group continued to capture strong global demand for Korean Beauty ("K-Beauty") products, driving revenue up by 23.2% year-on-year to US$301.51 million. Gross profit increased by 28.2% to US$93.98 million, with gross profit margin expanding by 1.2 percentage points to 31.2%. Operating profit grew by 30.1% to US$24.29 million. Benefiting from forward-looking investments in localized and tech-driven logistics infrastructure, which successfully mitigated geopolitical and freight cost pressures, profit for the period surged by 30.0% to US$18.30 million, after recognition of an one-off expense of approximately US$1.24 million in termination benefits arising from the organizational streamlining. Net profit margin improved to 6.1%. Basic earnings per share were US4.39 cents (1H 2025: US3.43 cents).   Navigating Uncertainties through Market Diversification and Logistics Agility   A global market footprint remains pivotal in mitigating geopolitical risks. The US, the Group's largest market, has absorbed the tariff shock and delivered progressive improvement during the Reporting Period, with revenue exceeding 2H 2025 even outside the typical holiday peak season. Among non-core markets (excluding the US, the UK, Canada, and Australia), robust demand across Europe and Latin America, unlocked new growth momentum, with revenue from Europe and associated countries and Latin America growing by 22.1% and 178.4%, respectively. In the Middle East, the Group navigated the regional tensions to achieve steady revenue growth of 33.4%.   Complementing market diversification, strategic investments in logistics infrastructure spanning Hong Kong, South Korea, the US, and Europe, alongside the adoption of automation technologies like AMRs, have built a highly resilient and scalable supply chain. These capabilities enabled the Group to maintain a stable baseline for business costs and absorb freight and fuel price spikes stemming from Middle East conflicts during the Reporting Period. Consequently, the increase in operating costs remained well below revenue growth, with freight cost as a percentage of revenue dropping to 19.0%, demonstrating the Group's robust cost control and operational agility.   Integrating O2O Experiences to Drive B2C-B2B Dual-Engine Synergy   Social media marketing remained one of the Group's core strengths during the Reporting Period, supported by an ecosystem of over 557,000 unique influencers that generated US$85.70 million and contributed nearly 40% of YesStyle's revenue. To amplify this online impact, the Group strategically expanded its global offline presence to seamlessly bridge online and offline customer experiences. YesStyle debuted a 1,500 sq. ft. concept store in the San Francisco Bay Area. At the same time, the Group staged high-profile activations, including a Madrid café pop-up that generated over 2 million impressions and brand events at Seoul's Yesful Land that accumulated over 3 million impressions. Together, these physical and digital touchpoints successfully converted customer engagement into sustained loyalty.   This heightened brand exposure across end-consumer markets directly catalyzed overseas B2B purchasing demand. During the Reporting Period, ABW consolidated its newly built partnerships with retailers in the US and Latin America. Notably, ABW Online's average order size surged 38.6% year-on-year to US$3,590.60. This uptick reflects substantially stronger purchasing appetite and inventory confidence for K-Beauty products among retailers, underscoring the powerful synergy of the Group's B2C-B2B dual-engine model.   Mr. Joshua Lau, Founder, Executive Director and Chief Executive Officer of YesAsia Holdings, said: "K-Beauty remains on an upward trajectory as it becomes a mainstream player in the global beauty business. Looking ahead, we believe that there is ample room for growth for YesAsia Holdings in both the retail and wholesale spheres worldwide. Amid geopolitical and supply chain uncertainties, we are continuously reinforcing our competitive moat and market leadership through AI-empowered customer services, a highly agile supply chain, and a strategy that seamlessly converts online traffic into immersive physical experiences, thereby driving long-term value for our shareholders in a fast-evolving market landscape."  Hashtag: #YesAsia The issuer is solely responsible for the content of this announcement.
+
+About YesAsia Holdings Limited (02209.HK)Established in 1997, YesAsia Holdings is a leading e‑commerce platform operator recognized for its expertise in identifying and procuring quality Asian beauty products. Headquartered in Hong Kong, the Group delivers products promptly and efficiently to a global audience through its strong ties with over 400 leading Asian beauty brand and supplier partners. The Group operates two major channels: YesStyle, a B2C e‑commerce platform serving the growing demand for Asian beauty, fashion and lifestyle products, particularly Korean beauty products; and AsianBeautyWholesale, a B2B‑oriented business for Asian beauty products via online and offline channels. YesAsia Holdings is a constituent of the MSCI Hong Kong Micro Cap Index.   For more information, please visit the Group's official website: https://www.yesasiaholdings.com/
+
+![](//track.media-outreach.com/index.php/WebView/483891/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/08/28/483660/)
+[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/08/28/483891/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/huawei-s-he-tingbo-named-to-time100-ai-for-tau-scaling-law/5f0bc384f7bd41b7a6ca34294025d765) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yesasia-holdings-reports-strong-h1-2026-results-revenue-up-23-2/17779f8f149547941d0ed943b41a0f51) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/28/huaweis-he-tingbo-named-to-time100-ai-list-for-tau-scaling-law/)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/huawei-he-tingbo-named-to-times-fourth-annual-list-of-the-time100-ai)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/28/cakeJS5x.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/268/28/barnQBNn.webp)
