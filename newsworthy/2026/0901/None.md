@@ -1,58 +1,36 @@
-# KeyCrew Media Partners with Newsworthy.ai to Bring Expert-Sourced Real Estate Coverage to 12 Major U.S. Metro Markets
+# FG Brands Debuts the Franchise Industry's First Dual-Concept Beauty Studio in Birmingham, Alabama
 
-KeyCrew Media today announced a content partnership with Newsworthy.ai, bringing KeyCrew's expert-sourced real estate journalism to the company's Metro Wire network of 12 metropolitan news sites covering the largest housing markets in the United States. In each of those markets, readers, agents, brokers, and investors now have access to reporting built on first-person interviews with practitioners working in that same city.
+Bare&Sol™ and facial collective® unite under one roof at a community studio with roots dating to 2013, offering a new blueprint for franchise ownership. FG Brands, the franchise platform behind Bare&Sol™ and facial collective®, has opened the beauty and wellness franchise industry's first dual-concept studio this month in Birmingham's Mountain Brook community - and is now offering the model to prospective franchisees nationwide.
 
- The Metro Wire network consists of dozens of digital news sites that Newsworthy.ai owns and operates across the United States. Through this partnership, KeyCrew market reporting will be immediately available on sites covering New York Tri-State, Los Angeles, Chicago, Houston, Dallas, San Antonio, Miami, Philadelphia, Phoenix, San Diego, San Francisco Bay Area, and Washington, D.C.
+ 
 
- KeyCrew coverage is already running on the network.
+ The Cahaba Village Plaza studio has served the Birmingham community since 2013, first as LA Bikini and, following FG Brands' acquisition and 2026 national rebrand, as Bare&Sol™. As part of the transition, the studio relocated a few doors down within the same center and underwent a complete remodel, adding facial collective® as a co-located sister brand - creating the first studio of its kind in the franchise industry.
 
- “Local real estate coverage has been gutted almost everywhere, and what's left is mostly AI-spun listing data and syndicated national headlines," said Steve Marcinuk, Co-Founder and CEO of KeyCrew Media. "We built KeyCrew to replace that with something real: reporting sourced directly from the agents, brokers, and developers actually working these markets. Partnering with Newsworthy.ai lets us bring that coverage to the outlets and readers who want it most, in the country's biggest real estate markets.”
+ The result: a single location now serving more than 1,000 members across both brands, a meaningful share of whom hold memberships in both. Facial care, hair removal, and airbrush tanning are highly complementary services, and the studio's opening membership numbers reflect the built-in convenience of offering all three under one roof.
 
- "KeyCrew is producing exactly the kind of city-level real estate reporting our readers want and that almost nobody else is doing at scale," said Mark Willaman, Founder of Newsworthy.ai. "It gives these sites real depth of coverage in a media vertical that is hard to cover for many newsrooms."
+ For prospective franchisees, Birmingham is a working proof of concept for what a dual-concept territory can deliver: two recurring-revenue membership brands sharing one lease, one team, and one base of foot traffic.
 
- The two companies expect to expand the partnership as the Metro Wire network grows, with additional markets under consideration for later this year.
+ “Birmingham shows exactly what we set out to build with this dual-concept model,” said Jan Zalud, CEO of FG Brands. “This studio has been part of its community since 2013, and rather than start from scratch, we were able to reinvest in a proven location, remodel it, and bring facial collective alongside Bare&Sol under one roof. What makes this work is that each brand stays independent - facial collective focused on face care and aesthetics, Bare&Sol focused on hair removal and airbrush tanning. Neither one dilutes its expertise or identity by bolting on services outside its lane, which is a trap a lot of brands fall into as they try to grow. Guests get the convenience of both under one roof, and franchisees get two focused, proven businesses instead of one that's spread thin. We're excited to offer this same opportunity to franchisees across the country.”
 
- About [KeyCrew Media](https://keycrew.co/) KeyCrew is an expert-first real estate media company. The company conducts hundreds of live interviews every month with the operators and experts who shape local markets. The editorial staff turns those conversations into original reporting published, syndicated, and amplified across hundreds of markets. KeyCrew’s properties include Leading Estates of the World - the original luxury real estate brand since 1969, operated by KeyCrew through an exclusive partnership - along with KeyCrew Journal, KeyCrew Homes, and House & Hemisphere. KeyCrew Media reaches 40,000+ professionals and investors and syndicates content to 300+ publications, platforms, and AI engines. Learn more at keycrew.co.
+ As a franchise opportunity, combining the service lines of facial collective® and hair removal and airbrush tanning through Bare&Sol™ is design-built to take advantage of their membership-based business models, where recurring monthly revenue remains a key driver of strong unit-level economics.
 
- About [Newsworthy.ai](https://www.newsworthy.ai/) Newsworthy.ai is a news marketing and press release distribution company, and operator of the NewsRamp and Metro Wire networks, delivering local business, real estate and community news across major U.S. markets.
+ About Bare&Sol™Bare&Sol™ (formerly LA Bikini) is the only franchise opportunity that provides members and guests with expert hair removal and airbrush spray tanning services, two high-demand beauty wellness routines under one roof. This unique combo creates two distinct revenue streams for Bare&Sol™ owners, a brand founded on expert-level care, skin-loving ingredients, and an all-inclusive experience where everyone is made to feel welcome. To learn more about Bare&Sol™ memberships, information on booking guest appointments, and the simple steps involved to become a franchise owner, please visit https://bareandsol.skin/pages/franchising.
 
- Media Contact Janine RodriguesKeyCrew MediaEmail Contact 
+ About facial collective®facial collective® is a modern, open-concept facial studio that offers a wide range of professional skincare and facial treatments with a highly personalized touch. As a franchise opportunity, it features a scalable business model that has been tested, refined, and perfected to operate as a sleek and professional facial collective for highly motivated entrepreneurs looking to take charge of their own destiny. Specializing in facial treatments, the sale of high-quality skincare products, and a full range of injectable regimens, facial collective® is changing the way consumers feel and act on their own self-care interests. For more information, please visit https://facialcollective.com/pages/franchise.
+
+ About FG BrandsFG Brands is a self-care and wellness franchise platform that empowers entrepreneurs, home to two fast-growing skincare brands - Bare&Sol™ and facial collective®. Design-built to function as the first co-located beauty studio in the franchise industry, these brands were created to make people feel confident in their own skin. FG Brands was founded on the principle of delivering an exceptional guest experience, while driving strong unit-level economics for its growing network of franchise owners and operators. For more information about the health and wellness concepts in FG Brands portfolio, as well as details on becoming a Bare&Sol™/facial collective® franchisee, please visit https://fgbrands.co. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609012840/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
+[Original/Source Press Release](https://newsworthy.ai/news/202609012850/fg-brands-debuts-the-franchise-industrys-first-dual-concept-beauty-studio-in-birmingham-ala)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/keycrew-media-partners-with-newsworthy-ai-to-deliver-expert-real-estate-journalism-to-12-major-u-s-markets/5cf6ece1318bd01e0029c7406d080188) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fg-brands-opens-first-dual-concept-beauty-studio-in-birmingham/13a9ed8c6c86a8c3a066ba18356d4662) 
 
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/01/keycrew-media-and-newsworthyai-partnership-brings-expert-sourced-real-estate-journalism-to-12-major-us-markets/)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/keycrew-media-partners-with-newsworthyai-to-bring-expert-sourced-real-estate-coverage-to-12-major-us-metro-markets)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/1/quay0S6_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/1/isleABxK.webp)
