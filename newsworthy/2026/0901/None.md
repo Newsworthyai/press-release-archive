@@ -1,36 +1,80 @@
-# FG Brands Debuts the Franchise Industry's First Dual-Concept Beauty Studio in Birmingham, Alabama
+# Inaugural Chinatown Creator Awards Reception Draws Over-Capacity Crowd
 
-Bare&Sol™ and facial collective® unite under one roof at a community studio with roots dating to 2013, offering a new blueprint for franchise ownership. FG Brands, the franchise platform behind Bare&Sol™ and facial collective®, has opened the beauty and wellness franchise industry's first dual-concept studio this month in Birmingham's Mountain Brook community - and is now offering the model to prospective franchisees nationwide.
+On August 27, the inaugural Chinatown Creator Awards at COYA Living attracted a record-breaking crowd, honoring the top creators for their impact on the Spring Mountain Road corridor's culture and commerce. COYA Living, the luxury apartment community at Chinatown's eastern gateway, served as co-host and venue.
 
- 
+ The private reception brought together photographers, videographers, food personalities, digital storytellers, chefs, restaurant owners, neighborhood partners, and guests. Writer, film director, and City Cast correspondent Jason Harris served as the evening's emcee.
 
- The Cahaba Village Plaza studio has served the Birmingham community since 2013, first as LA Bikini and, following FG Brands' acquisition and 2026 national rebrand, as Bare&Sol™. As part of the transition, the studio relocated a few doors down within the same center and underwent a complete remodel, adding facial collective® as a co-located sister brand - creating the first studio of its kind in the franchise industry.
+ The 20 honorees were acknowledged in five groups, mirroring their May introduction in the 'This Week in Chinatown' series by ChinatownVegas.com. Among the honorees in attendance were @lasvegasfill, @brandonfromvegas, @wheretogovegas, @therubyontherocks, @baileyzeats, @withlove_christine, @tiny_pennguin, @giselliii93, @tiarappgyo, @antonio_loves_wings, @heydonnah, @ceslynne, @shekuni_lv, and @studiosealv.
 
- The result: a single location now serving more than 1,000 members across both brands, a meaningful share of whom hold memberships in both. Facial care, hair removal, and airbrush tanning are highly complementary services, and the studio's opening membership numbers reflect the built-in convenience of offering all three under one roof.
+ Honorees attending the reception received custom Chinatown Creator Award plaques commemorating their influence and contributions to the neighborhood.
 
- For prospective franchisees, Birmingham is a working proof of concept for what a dual-concept territory can deliver: two recurring-revenue membership brands sharing one lease, one team, and one base of foot traffic.
+ "The creators honored through these awards have done far more than post about restaurants," said Joe Muscaglione, founder of ChinatownVegas.com and Chinatown Amplify. ChinatownVegas.com Unites Restaurants and Chefs in a Culinary Celebration. ChinatownVegas.com proudly hosted an original culinary presentation, showcasing the talents of chefs and restaurants from the vibrant Chinatown corridor. Highlighting the event were Sparrow + Wolf and Lamaii, both of which received MICHELIN Guide recommendations the night before, as reported by Las Vegas Weekly. Chef Brian Howard of Sparrow + Wolf engaged with creators and guests throughout the reception, offering a smoky, wood-fired Isaan sausage enhanced with fermented green mango, nam pla prik, and perilla leaf. Lamaii delighted attendees with their garlicky crispy prawn. Lamaii served a garlicky crispy prawn.
 
- “Birmingham shows exactly what we set out to build with this dual-concept model,” said Jan Zalud, CEO of FG Brands. “This studio has been part of its community since 2013, and rather than start from scratch, we were able to reinvest in a proven location, remodel it, and bring facial collective alongside Bare&Sol under one roof. What makes this work is that each brand stays independent - facial collective focused on face care and aesthetics, Bare&Sol focused on hair removal and airbrush tanning. Neither one dilutes its expertise or identity by bolting on services outside its lane, which is a trap a lot of brands fall into as they try to grow. Guests get the convenience of both under one roof, and franchisees get two focused, proven businesses instead of one that's spread thin. We're excited to offer this same opportunity to franchisees across the country.”
+ Chef Steve Kestler and Aroma Latin American Cocina created a citrus-forward Chinatown Ceviche exclusively for the event.
 
- As a franchise opportunity, combining the service lines of facial collective® and hair removal and airbrush tanning through Bare&Sol™ is design-built to take advantage of their membership-based business models, where recurring monthly revenue remains a key driver of strong unit-level economics.
+ "It was an honor to be part of this great community event," Kestler said.
 
- About Bare&Sol™Bare&Sol™ (formerly LA Bikini) is the only franchise opportunity that provides members and guests with expert hair removal and airbrush spray tanning services, two high-demand beauty wellness routines under one roof. This unique combo creates two distinct revenue streams for Bare&Sol™ owners, a brand founded on expert-level care, skin-loving ingredients, and an all-inclusive experience where everyone is made to feel welcome. To learn more about Bare&Sol™ memberships, information on booking guest appointments, and the simple steps involved to become a franchise owner, please visit https://bareandsol.skin/pages/franchising.
+ Chef Jimmy Li and Shanghai Taste contributed a rich, exclusive abalone and sea cucumber meatball, while Double Zero Pie & Pub debuted its new, crispy-edged New York-style pizza.
 
- About facial collective®facial collective® is a modern, open-concept facial studio that offers a wide range of professional skincare and facial treatments with a highly personalized touch. As a franchise opportunity, it features a scalable business model that has been tested, refined, and perfected to operate as a sleek and professional facial collective for highly motivated entrepreneurs looking to take charge of their own destiny. Specializing in facial treatments, the sale of high-quality skincare products, and a full range of injectable regimens, facial collective® is changing the way consumers feel and act on their own self-care interests. For more information, please visit https://facialcollective.com/pages/franchise.
+ China Mama served tangy orange chicken, and Crystina Nguyen of Mama's House × Durango Social Club presented delicate rice dumplings with mung bean, pork, and shrimp. O.Onigiri offered a tri-pack of unagi, wagyu, and shrimp tempura. Noodlehead's famous beef rolls were passed throughout both rooms all evening, while the restaurant's station served its classic shredded chicken and cold noodles.
 
- About FG BrandsFG Brands is a self-care and wellness franchise platform that empowers entrepreneurs, home to two fast-growing skincare brands - Bare&Sol™ and facial collective®. Design-built to function as the first co-located beauty studio in the franchise industry, these brands were created to make people feel confident in their own skin. FG Brands was founded on the principle of delivering an exceptional guest experience, while driving strong unit-level economics for its growing network of franchise owners and operators. For more information about the health and wellness concepts in FG Brands portfolio, as well as details on becoming a Bare&Sol™/facial collective® franchisee, please visit https://fgbrands.co. 
+ Charismatic Yo, Mochi! founder Santy Luangpraseuth was on hand with the night's crème brûlée mochi donut, a caramelized, custard-filled favorite. Chef Yuka of Moignet Café rounded out the sweets with a delicate, pillowy mini chiffon sando, and Milk Bread kept the table stocked with warm cheese bread and guava bread.
+
+ Longtime food and beverage veteran Paul Ellis poured wine and champagne throughout the evening and paired his port service with a rich blue cheese flight. The Alchemist Bar & Restaurant provided cocktails and zero-proof beverages throughout the reception.
+
+ Among the guests were celebrated rock photographer David Plastik, whose work has appeared in Rolling Stone, RIP, and Creem, and legendary music publicist Mitch Schneider, whose career has included representing David Bowie, Ozzy Osbourne, Aerosmith, and Tom Petty. Schneider later described the reception on Facebook as a "meaningful event" honoring creators "who've helped put Las Vegas Chinatown on the map," praising the "taste bud-awakening curated bites from Chinatown's top chefs."
+
+ The collective showing allowed Chinatown's culinary and business communities to participate directly in recognizing the content creators whose work regularly introduces local businesses to new audiences.
+
+ Recognizing the Voices Telling Chinatown's Story Las Vegas Chinatown receives approximately 23.9 million visits annually and is home to 248 verified sit-down restaurants, along with cafés, specialty markets, spas, retailers, and nightlife businesses stretching from I-15 to Rainbow Boulevard.
+
+ "It's 23.9 million visits a year - more than some countries and more than most cities - all concentrated in one neighborhood," Muscaglione said. "These creators have helped the world see why."
+
+ The Chinatown Creator Awards were established to formally recognize photographers, videographers, food voices, and community storytellers whose independent work has helped build awareness of the corridor and its businesses.
+
+ Through restaurant discoveries, opening-day coverage, photography, video, interviews, and ongoing neighborhood storytelling, the honorees have helped turn individual Chinatown businesses into destinations while establishing the corridor as one of Las Vegas' most closely watched neighborhoods.
+
+ The over-capacity attendance, broad culinary participation, and support from across the neighborhood made the inaugural reception an undeniable success and established a strong foundation for the future of the Chinatown Creator Awards.
+
+ Special Edition of This Week in Chinatown ChinatownVegas.com is presenting complete coverage of the awards in a special edition of This Week in Chinatown. Both the written edition and companion video episode are devoted to the reception, including scenes from the evening, award presentations, interviews, and additional event coverage.
+
+ Beginning with subsequent editions, the written This Week in Chinatown report and its companion video episode will be released together every Monday.
+
+ About Chinatown Amplify Chinatown Amplify connects Las Vegas Chinatown businesses, creators, media, and community partners through publicity, events, collaborative promotion, and neighborhood-focused campaigns.
+
+ About ChinatownVegas.com Founded in 2011, ChinatownVegas.com is an independent editorial publication covering the Las Vegas Chinatown corridor. Its weekly This Week in Chinatown series reports on restaurant openings, business developments, neighborhood issues, local personalities, events, and the continued growth of the Spring Mountain Road corridor. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609012850/fg-brands-debuts-the-franchise-industrys-first-dual-concept-beauty-studio-in-birmingham-ala)
+[Original/Source Press Release](https://newsworthy.ai/news/202609012843/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fg-brands-opens-first-dual-concept-beauty-studio-in-birmingham/13a9ed8c6c86a8c3a066ba18356d4662) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chinatown-creator-awards-honoring-digital-storytellers-at-coya-living/def16cf932b481efa4c0bb8e648fa579) 
 
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/01/inaugural-chinatown-creator-awards-draws-record-crowd-celebrating-digital-storytellers-impact/)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/inaugural-chinatown-creator-awards-reception-draws-over-capacity-crowd)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/1/isleABxK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/1/flaxXgWg.webp)
