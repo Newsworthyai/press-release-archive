@@ -1,64 +1,104 @@
-# Stonegate Capital Partners Updates Coverage on Aquafil S.p.A (BIT: ECNL) 2Q26
+# UGI System Upgrades Beginning Tomorrow in Womelsdorf Borough
 
-DALLAS, TX -- AUGUST 31, 2026
+FOR IMMEDIATE RELEASE - AUGUST 31, 2026
 
-DALLAS, TX -- August 31, 2026 -- Aquafil Group (ECNL.MI): Stonegate Capital Partners updates coverage on Aquafil Group (ECNL.MI). Aquafil’s 2Q26 results continued to support the margin and deleveraging reset despite a sharp increase in raw material and transportation costs during the quarter. Revenue declined 1.0% y/y to €135.7M as volumes were broadly stable, while EBITDA declined 2.5% to €20.7M and EBITDA margin held at 15.3% versus 15.5% in 2Q25. Importantly, the modest EBITDA decline reflected a timing mismatch between higher input costs and contractual price recovery rather than a reversal in underlying cost performance. Management indicated the majority of the Q2 cost increase is being recovered through Q3 pricing, with additional recovery expected in 4Q. For 1H26, NFP improved to €196.9M from €209.5M at YE25. In our view, the quarter reinforces that Aquafil’s lower fixed cost base and operating efficiencies are supporting margins even before a broader demand recovery, while the improving balance sheet provides additional flexibility heading into 2027.
+UGI Utilities is scheduled to begin a system upgrade project on Tuesday, September 1, 2026, that will impact Womelsdorf Borough. The natural gas main replacement is part of UGI’s commitment to provide safe and reliable service and is an opportunity for residents and businesses along the project route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Aquafil maintained its improved margin profile despite a substantial Q2 input-cost increase, with EBITDA margin of 15.3% versus 15.5% a year ago and 1H26 margin expanding to 15.0% from 13.6%. Management indicated the normal pricing lag is approximately three months, with key North American customers incorporating higher raw-material pricing beginning in August and additional recovery expected into 4Q.
-* Balance-sheet progress remains a meaningful part of the thesis, with NFP declining to €196.9M from €209.5M at YE25 and NFP/LTM EBITDA improving to 2.64x from 2.89x. Management continues to prioritize deleveraging, while indicating further progress could eventually reopen capacity for higher CapEx or external growth.
-* The main remaining 2026 execution requirement is now volume rather than margin recovery. First-grade volumes increased only 0.3% in 1H26 versus management's approximately 5% full-year objective, implying a meaningful H2 acceleration is required even as management continues to reaffirm its annual goals and describes Europe as the principal area of demand uncertainty.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-aquafil-s-p-a-bit-ecnl-2q26)
+UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-About Stonegate
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Stonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking, equity research and capital raising for public and private companies.
-
-Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
-
-Source: Stonegate, Inc.
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-aquafil-s-p-a-bit-ecnl-2q26)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aquafil-holds-margins-amid-cost-pressures-volume-growth-key-for-2026/609e9d4bcc8157c00808993f612f1acd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-begins-major-natural-gas-main-replacement-in-womelsdorf/7c05147f3029c97ce26c0cb0b2469fca) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/31/aquafils-2q26-results-show-resilience-amid-cost-pressures-stonegate-says/)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/ugi-system-upgrades-beginning-tomorrow-in-womelsdorf-borough)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-to-begin-natural-gas-main-replacement-in-womelsdorf-borough)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/stonegate-capital-partners-updates-coverage-on-aquafil-spa-bit-ecnl-2q26)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ugi-system-upgrade-to-replace-natural-gas-main-in-womelsdorf-borough)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ugi-comienza-el-reemplazo-de-la-tuberia-principal-de-gas-natural-en-el-municipio-de-womelsdorf)
+
+Pickup - [https://burstable.news](https://burstable.news/news/ugi-utilities-to-begin-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ugi-utilities-beginnt-mit-dem-austausch-von-erdgasleitungen-in-womelsdorf-borough)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ugi-utilities-comenzara-el-reemplazo-de-la-tuberia-principal-de-gas-natural-en-el-municipio-de-womelsdorf)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ugi-utilities-debutera-le-remplacement-des-conduites-principales-de-gaz-naturel-dans-larrondissement-de-womelsdorf)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ugi-utilities-iniciara-substituicao-de-rede-principal-de-gas-natural-em-womelsdorf-borough)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ugi-to-replace-natural-gas-mains-in-womelsdorf-borough-starting-september-1)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough-offering-conversion-opportunities)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ugi-utilities-to-begin-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/ugi-begins-natural-gas-main-replacement-in-womelsdorf-borough)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/ugi-to-begin-natural-gas-main-replacement-in-womelsdorf-borough/202637958)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/7c05147f3029c97ce26c0cb0b2469fca)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/31/neonZ0ve.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/268/31/ellaIl7u.webp)

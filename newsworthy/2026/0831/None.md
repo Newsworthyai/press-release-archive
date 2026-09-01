@@ -1,126 +1,102 @@
-# Pioneering Marketer Bryan Eisenberg to Discuss AI's Impact on Customer Engagement at YOU x AI Summit
+# AstroKapoor Brings Vedic Astrology Guidance Online
 
-Bryan Eisenberg, New York Times bestselling author and one of the original architects of digital marketing, will deliver the opening keynote at the inaugural YOU x AI Summit on September 12, 2026 at The Performing Arts Community Center (The PACC) in Waco, Texas.
+AstroKapoor is expanding access to personalized Vedic astrology and spiritual guidance through a range of astrology and traditional wellness services designed to help individuals seek clarity and direction in different areas of life.
 
- His session, "Before the Algorithm, There Was Your Story. That Hasn't Changed," opens a one-day event built around a premise Eisenberg has spent thirty years proving in practice: technology changes the delivery mechanism. It has never changed what makes a customer decide to trust you.
+ The platform offers personalized astrology consultations, predictive astrology, Vastu guidance, spiritual remedies, and Yagya services. These offerings are based on traditional Vedic astrology practices and are designed to provide individuals with insights tailored to their personal circumstances and concerns.
 
- Starting in the late 1990s, Eisenberg and his brother Jeffrey published over two million words on digital persuasion, predating most of today's AI models. Together they coined the term conversion rate optimization and wrote a string of bestsellers, including the New York Times bestsellers Call to Action and Waiting for Your Cat to Bark, along with Be Like Amazon, The Rice and Beans Millionaire, and their newest release, I Think I Swallowed An Elephant. Bryan also founded the Web Analytics Association, now the Digital Analytics Association.
+ AstroKapoor focuses on areas that are important to everyday life, including career, relationships, family matters, personal development, and future planning. By combining traditional astrological knowledge with individualized guidance, the platform aims to help people better understand their circumstances and explore practical approaches to their concerns.
 
- "In all persuasive momentum, there are two forces you work on: reducing friction and increasing motivation," Eisenberg said. "Today there is zero friction to produce content. You can generate text, images, and video automatically. Which means the only force left is motivation, and motivation is the human connection. That trust only happens between real humans."
+ In addition to predictive astrology, AstroKapoor provides specialized services related to Vastu and spiritual practices. Yagya and other traditional remedies are offered for individuals who are interested in incorporating established spiritual practices into their personal journey.
 
- Eisenberg recently illustrated the idea with a simple comparison he now uses with clients: AI behaves like a nervous system. It connects everything, carries the signal, and speeds up every reaction in a business. What it does not do is decide where the business is going, what it believes, or who it is. Those decisions still belong to the brain, the heart, and the gut of the people running it. Integrating AI into a business with a clear direction accelerates growth, while in a directionless business, it amplifies inefficiencies.
+ The platform is committed to making astrology-related guidance more accessible to people looking for personalized insights. Each consultation is intended to focus on the individual's specific questions and circumstances rather than providing only general predictions.
 
- "The more you are you, the better the AI is actually going to be," Eisenberg said. "It's you with the AI, not the AI instead of you."
+ AstroKapoor continues to develop its range of services while maintaining an emphasis on traditional Vedic principles and personalized consultation. Through its online presence, the platform provides a convenient way for individuals to explore astrology, Vastu, spiritual remedies, and related services.
 
- For Eisenberg, this principle is practical and proven. From his home base in Round Rock, he chairs the Round Rock Chamber of Commerce Ambassador program, which he has grown from 21 ambassadors to its maximum capacity of 50, and hosts the Rock Solid: Round Rock Business Leaders podcast, which tells the story of one of the fastest-growing counties in the country through the people building it. He now uses AI to extend the reach of those local stories, cutting hours of production work each week while keeping human judgment at the center of every decision.
-
- "Bryan and Jeffrey Eisenberg were writing the playbook for digital marketing when most of us were still figuring out email," said Fernando Labastida, founder of Viral Genius Institute and co-host of the summit. "Having Bryan open the YOU x AI Summit is a statement about what this event is: practitioners who have lived through every technology wave, showing you how to make this one yours."
-
- The YOU x AI Summit, hosted by Rogue Media Network and Viral Genius Institute, is built on the premise that AI should amplify human ingenuity, not replace it. The one-day event features 14 speakers, 8 hands-on workshops, and an AI showcase, and is expected to draw roughly 200 entrepreneurs, small business owners, creators, educators, nonprofit leaders, and professionals from across Texas.
-
- The YOU x AI Summit takes place Saturday, September 12, 2026, at The Performing Arts Community Center (The PACC) in Waco, Texas. Registration and details are available at youxai.live.
-
- About Bryan Eisenberg Bryan Eisenberg is a Wall Street Journal, New York Times, USA Today, and BusinessWeek bestselling author, keynote speaker, and pioneer of conversion rate optimization and Persuasion Architecture. With his brother Jeffrey, he has authored eleven bestselling books, including Call to Action, Waiting for Your Cat to Bark, Be Like Amazon, The Rice and Beans Millionaire, and I Think I Swallowed An Elephant. He is the founder of the Web Analytics Association, co-owns A Place At Home North Austin with his wife Stacey, chairs the Round Rock Chamber of Commerce Ambassador program (grown from 21 members to its maximum of 50), and hosts the Rock Solid: Round Rock Business Leaders podcast. Through BuyerLegends, he aids businesses in being discovered, comprehended, and preferred by both human customers and AI systems that influence purchasing decisions. More at bryaneisenberg.com.
-
- About the YOU x AI Summit The YOU x AI Summit is where human genius meets machine intelligence. The annual conference brings together entrepreneurs, creators, educators, marketers, and business leaders to explore how artificial intelligence can amplify human creativity, accelerate business growth, and unlock new opportunities through practical, hands-on learning.
-
- Media Contact
-
- Bryan EisenbergEmail Contact(347) 470-GROK (4765) 
+ For individuals interested in learning more about Vedic astrology and traditional spiritual practices, AstroKapoor provides a range of services intended to support greater awareness, reflection, and personal guidance. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202608312841/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+[Original/Source Press Release](https://newsworthy.ai/news/202608312847/astrokapoor-brings-vedic-astrology-guidance-online)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-marketing-pioneer-bryan-eisenberg-to-keynote-you-x-ai-summit/48eb4adaac472a7d8843d37463b33876) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/astrokapoor-expands-personalized-vedic-astrology-services/8f887fb16d72bba5825dda6b7c4d15f1) 
 
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/31/digital-marketing-pioneer-bryan-eisenberg-to-keynote-you-x-ai-summit-stressing-human-connection-in-age-of-ai/)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://advos.io/en](https://advos.io/en/astrokapoor-expands-online-access-to-personalized-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://advos.io/en](https://advos.io/en/ais-impact-on-customer-engagement-to-be-discussed-by-marketing-pioneer-at-you-x-ai-summit)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-the-age-of-ai)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-stressing-human-connection-in-ai-era)
+Pickup - [https://burstable.news](https://burstable.news/news/astrokapoor-expands-online-access-to-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://news.boerne.dev/texas-technology-news](https://news.boerne.dev/texas-technology-news/marketer-bryan-eisenberg-to-keynote-you-x-ai-summit-arguing-ai-amplifies-human-connection)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/astrokapoor-erweitert-online-zugang-zu-vedischer-astrologie-und-spiritueller-beratung)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/pioneering-marketer-bryan-eisenberg-to-keynote-you-x-ai-summit-in-waco-emphasizing-human-connection-in-ai-era)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/astrokapoor-amplia-el-acceso-en-linea-a-la-astrologia-vedica-y-la-guia-espiritual)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-pionero-del-marketing-bryan-eisenberg-sera-el-orador-principal-en-la-cumbre-you-x-ai-en-waco-enfatizando-la-conexion-humana-en-la-era-de-la-ia)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/astrokapoor-elargit-lacces-en-ligne-a-lastrologie-vedique-et-a-lorientation-spirituelle)
 
-Pickup - [https://burstable.news](https://burstable.news/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/astrokapoor-expande-acesso-online-a-astrologia-vedica-e-orientacao-espiritual)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/bryan-eisenberg-eroffnet-you-x-ai-summit-mit-keynote-menschliche-verbindung-im-ki-zeitalter)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/bryan-eisenberg-sera-el-orador-principal-en-you-x-ai-summit-destacando-la-conexion-humana-en-la-era-de-la-ia)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/astrokapoor-expands-online-access-to-personalized-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/bryan-eisenberg-sera-le-conferencier-principal-du-sommet-you-x-ai-mettant-laccent-sur-la-connexion-humaine-a-lere-de-lia)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/astrokapoor-expands-online-access-to-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/bryan-eisenberg-sera-o-palestrante-principal-do-you-x-ai-summit-destacando-a-conexao-humana-na-era-da-ia)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/astrokapoor-launches-online-platform-for-personalized-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pioneering-marketer-bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-the-age-of-ai)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://news.encinolabs.com/texas-technology-news](https://news.encinolabs.com/texas-technology-news/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/astrokapoor-expands-online-access-to-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/astrokapoor-expands-online-access-to-personalized-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-the-age-of-ai)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/astrokapoor-expands-online-access-to-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-arguing-ai-amplifies-human-connection-not-replaces-it)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-the-age-of-ai)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/astrokapoor-expands-online-access-to-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/ai-summit-keynote-bryan-eisenberg-argues-human-connection-remains-core-to-customer-engagement)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/astrokapoor-expands-access-to-personalized-vedic-astrology-and-spiritual-guidance-online)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/astrokapoor-expands-online-access-to-personalized-vedic-astrology-and-spiritual-guidance)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/astrokapoor-expands-access-to-personalized-vedic-astrology-and-s/202637959)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-ai-amplifies-human-connection-not-replaces-it)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/8f887fb16d72bba5825dda6b7c4d15f1)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-ai-era)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/08/31/astrokapoor-expands-online-access-to-personalized-vedic-astrology-and-spiritual-guidance/)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-connection-in-the-age-of-ai)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/digital-marketing-pioneer-bryan-eisenberg-to-keynote-inaugural-you-x-ai-summit)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bryan-eisenberg-to-keynote-you-x-ai-summit-emphasizing-human-con/202637951)
-
-Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/48eb4adaac472a7d8843d37463b33876)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/pioneering-marketer-bryan-eisenberg-to-discuss-ais-impact-on-customer-engagement-at-you-x-ai-summit)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/astrokapoor-brings-vedic-astrology-guidance-online)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/31/yawn3AVF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/268/31/mielDZwy.webp)
