@@ -1,107 +1,106 @@
-# Physicist Randy Lyman on Why Emotional Mastery, Not Strategy, Built His 8-Figure Exits
+# Hartig Drug Adds Nefense Nasal Care Family
 
-Episode 170 of The Proven Entrepreneur, titled 'The Physicist Who Sold Everything to Learn What Really Builds a Business,' hosted by Don Williams, features a candid conversation with Randy Lyman, a physicist and engineer with multiple patents who built and exited multiple eight-figure companies and earned a spot on the Inc. 500, not the 5,000. Published August 31, 2026, the episode makes the case that the true engine of durable business growth is not strategy or grit, but emotional mastery, a claim Lyman backs with 36 years of practice and hundreds of coaching engagements.
+Hartig Drug Company has expanded its product lineup by adding Nefense® nasal care products at select locations in Iowa, Illinois, and Wisconsin, offering customers new drug-free options for daily nasal hygiene.
 
- Williams and Lyman move quickly from résumé to reckoning, unpacking why so many high-IQ founders quietly stall out. Listeners get a working framework drawn straight from Lyman's book The Third Element, plus concrete stories from the factory floor and the boardroom. Topic threads include:
+ The new assortment brings together two companies with roots in Dubuque. Hartig Drug was founded in Dubuque in 1904 and has served generations of families across the Tri-State Area. Developed in Dubuque by Richard Downs, DDS, Nefense is backed by over forty years of clinical expertise in oral health, breathing, and airway function.
 
- * The 1989 Ford truck that exposed the emptiness of material milestones
-* Why young men shut off emotions to survive, and pay for it later as leaders
-* Reconciling Heisenberg's uncertainty principle and the 1927 double slit experiment with the law of attraction
-* Gratitude as a business "cheat code" and Williams' mission to move a million people into a daily practice
+ "We are excited to offer Nefense nasal solutions at Hartig drug stores," said Charlie Hartig, CEO of Hartig Drug Company. "There is real meaning in this too: a Dubuque developed product line now on Hartig shelves, reaching the communities we serve together."
 
- Lyman, who describes himself as a 64-year-old successful man still comfortable crying his tears, does not soften the physics or the feelings. Recalling the 1999 afternoon that reset his career, he tells Williams:
+ A Different Approach to Daily Nasal Hygiene The Nefense products available at participating Hartig Drug stores include:
 
- They proceeded to tell me that I was the problem for the business and that I could do better and I needed to look at myself in a nutshell. And they were right. Williams, for his part, traces his own turn to a talk he heard in Bangkok, Thailand, roughly a decade ago, delivered by a researcher now completing a doctoral program at Oxford on the intersection of neuroscience and spirituality. That talk, he says, convinced him that humans perform at their best in gratitude and at their worst in shame and fear.
+ Hyponasal: A hypochlorous acid nasal spray that contains HOCl for routine nasal cleansing. The non-medicated, steroid-free formula is designed to help rinse away everyday dust, pollen and airborne particles.
 
- The deeper half of the episode is where the physicist really shows up. Lyman sorts all of reality into three categories, thought and information, the physical body and world, and emotions, then argues that unresolved emotional energy creates a harmonic resonance the universe keeps mirroring back. He translates the same idea for skeptics using boardroom behavior, describing how tense founders trigger board members who behave "like wolves," while calm, emotionally clear leaders defuse the room. He also connects the physics definition of power, the ability to accomplish work, to team performance, insisting profits, expansion and industry change follow leaders who serve their people first. Founders can reach him at randylyman.com.
+ Hyponasal Junior: An HOCl nasal spray formulated specifically for children and designed for gentle daily nasal hygiene.
 
- About The Proven Entrepreneur Hosted by Don Williams, The Proven Entrepreneur delivers real success stories from founders who have actually built, scaled and exited companies. The show's mission is simple: help others, help others, most often by growing sales, sharpening customer experience, strengthening culture and coaching leaders to show up like rock stars. Episode 170 is available now wherever podcasts are heard, at provenentrepreneurshow.com, and on Apple Podcasts, where listeners can subscribe and leave a review. 
+ Hypobaby: An ultra-gentle HOCl nasal spray for infants and young children, designed for routine nasal cleansing and comfort.
+
+ Xyloclean: A xylitol nasal spray designed to moisturize the nasal passages and support a daily nasal care routine, including during dry indoor conditions and travel.
+
+ Hypochlorous acid (HOCl) is a natural component of human biology. White blood cells produce HOCl as part of the body's innate immune response. The molecule has also been studied in several areas of medicine.
+
+ Published randomized clinical research has evaluated low-concentration hypochlorous acid nasal irrigation in people with chronic sinonasal symptoms and allergic rhinitis. Those studies evaluated HOCl nasal irrigation generally and were not studies of Nefense-branded products.
+
+ “I believe hypochlorous acid (HOCl) is still in its infancy in terms of its role in medicine, as more applications continue to be discovered,” said F. Hunter Fuerste, MD, a board-certified ophthalmologist in Dubuque. “It is a gentle, nontoxic, naturally occurring molecule produced by white blood cells that has both anti-inflammatory and antimicrobial properties. Today, HOCl is being used in areas including skincare, wound care, eyelid hygiene for blepharitis, and oral rinses.”
+
+ From Dubuque Development to Tri-State Pharmacy Shelves For Hartig Drug, adding Nefense fits a long-standing focus on bringing health, wellness and everyday consumer products to the communities it serves, including products developed by local and regional businesses.
+
+ Nefense focuses on daily nasal hygiene, offering an alternative to medicated decongestants. The assortment gives customers nasal care options across different ages and needs, including an HOCl nasal spray for adults, age-specific nasal sprays for children and infants, and a xylitol nasal spray for moisturizing nasal care.
+
+ The addition also brings a locally developed health and wellness product from Dubuque into a pharmacy company that has called Dubuque home for more than 120 years.
+
+ Nefense products are available now at participating Hartig Drug locations. Customers can visit hartigdrug.com/stores to find a nearby Hartig Drug store and contact the location directly to confirm product availability.
+
+ About Hartig Drug Company Founded in Dubuque, Iowa, in 1904, Hartig Drug Company is a family-owned pharmacy and retail company serving communities throughout Iowa, Illinois and Wisconsin. Hartig Drug provides community pharmacy services along with health, wellness and everyday consumer products, with a continued focus on personalized service and strong local community relationships.
+
+ About Nefense Nefense, Natural Wellness & Defense, is a Dubuque, Iowa-based nasal wellness company focused on daily nasal hygiene, airway care and better breathing. Developed under the direction of Richard Downs, DDS, the Nefense portfolio includes HypoNasal, HypoNasal Junior, HypoBaby and XyloClean, with hypochlorous acid and xylitol-based formulations designed for routine nasal care.
+
+ Learn more at nefense.com
+
+ Media Contacts
+
+ Hartig Drug Company  [Email Contact](https://newsworthy.email/post/9f3a68ecfac991b24e418d8ced5ffae1-2851) Email Contact 563-588-8700 Nefense Product InquiriesSumit VermaEmail Contact(608) 330-1011 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609022854/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+[Original/Source Press Release](https://newsworthy.ai/news/202609022851/hartig-drug-adds-nefense-nasal-care-family)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/physicist-reveals-emotional-mastery-as-key-to-business-success/91908e992b80a6657f69e789cc2054be) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hartig-drug-partners-with-nefense-to-offer-nasal-care-products/ca155c4cf517c222b5ca26df071d0257) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://advos.io/en](https://advos.io/en/hartig-drug-expands-offerings-with-nefense-nasal-care-line)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hartig-drug-adds-nefense-nasal-care-family-to-local-stores)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hartig-drug-adds-nefense-nasal-care-family-to-shelves-offering-drug-free-options)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://burstable.news](https://burstable.news/news/hartig-drug-adds-nefense-nasal-care-products-offering-drug-free-options-in-tri-state-area)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hartig-drug-erweitert-sortiment-um-nefense-nasenpflegeprodukte-medikamentenfreie-optionen-im-dreilandereck)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hartig-drug-incorpora-productos-de-cuidado-nasal-nefense-ofreciendo-opciones-sin-medicamentos-en-el-area-triestatal)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hartig-drug-ajoute-les-produits-de-soins-nasaux-nefense-offrant-des-options-sans-medicament-dans-la-region-tri-etatique)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/hartig-drug-adiciona-produtos-de-cuidado-nasal-nefense-oferecendo-opcoes-sem-medicamentos-na-regiao-tri-estadual)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hartig-drug-adds-dubuque-developed-nefense-nasal-care-line-to-pharmacy-shelves)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/01/emotional-mastery-not-strategy-key-to-8-figure-exits-says-physicist-on-podcast/)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/hartig-drug-adds-nefense-nasal-care-family)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/hartig-drug-adds-nefense-nasal-care-products-bringing-dubuque-developed-solutions-to-tri-state-area)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/hartig-drug-adds-nefense-nasal-care-line-offering-drug-free-options-in-tri-state-area)
 
-Pickup - [https://advos.io/en](https://advos.io/en/physicist-randy-lyman-argues-emotional-mastery-not-strategy-was-key-to-his-eight-figure-exits)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/hartig-drug-adds-nefense-nasal-care-family)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/hartig-drug-adds-dubuque-developed-nefense-nasal-care-line-to-tri-state-stores)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/hartig-drug-expands-nasal-care-offerings-with-locally-developed-nefense-products)
 
-Pickup - [https://burstable.news](https://burstable.news/news/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/hartig-drug-adds-nefense-nasal-care-line-expanding-drug-free-options-in-tri-state-area)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/physiker-randy-lyman-erklart-warum-emotionale-meisterschaft-und-nicht-strategie-seine-8-stelligen-exits-ermoglichte)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/hartig-drug-adds-nefense-nasal-care-family-offering-drug-free-options-across-three-states)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-fisico-randy-lyman-sobre-por-que-el-dominio-emocional-no-la-estrategia-construyo-sus-salidas-de-ocho-cifras)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/hartig-drug-adds-nefense-nasal-care-products-bringing-dubuque-developed-solutions-to-tri-state-area)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-physicien-randy-lyman-explique-pourquoi-la-maitrise-emotionnelle-et-non-la-strategie-a-bati-ses-sorties-a-huit-chiffres)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/hartig-drug-adds-nefense-nasal-care-line-offering-drug-free-options-across-the-tri-state-area)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fisico-randy-lyman-sobre-por-que-o-dominio-emocional-nao-a-estrategia-construiu-suas-saidas-de-oito-digitos)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/hartig-drug-adds-nefense-nasal-care-family)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/emotional-mastery-not-strategy-drives-8-figure-exits-says-physicist-randy-lyman)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/hartig-drug-adds-nefense-nasal-care-family-bringing-dubuque-developed-products-to-tri-state-stores)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/physicist-randy-lyman-emotional-mastery-not-strategy-drives-8-figure-exits)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/hartig-drug-adds-nefense-nasal-care-products-bringing-locally-de/202638001)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/physicist-randy-lyman-reveals-emotional-mastery-as-key-to-8-figure-exits-on-the-proven-entrepreneur)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/02/hartig-drug-adds-nefense-nasal-care-line-offering-drug-free-options-in-tri-state-area/)
 
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/physicist-randy-lyman-reveals-emotional-mastery-as-key-to-8-figure-exits-on-the-proven-entrepreneur-podcast)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/hartig-drug-adds-nefense-nasal-care-family-2)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/physicist-randy-lyman-argues-emotional-mastery-not-strategy-is-key-to-business-success)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/emotional-mastery-not-strategy-drives-business-success-physicist-randy-lyman-tells-podcast-audience)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/physicist-randy-lyman-reveals-emotional-mastery-as-the-hidden-engine-behind-his-8-figure-exits)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/emotional-mastery-not-strategy-key-to-8-figure-exits-physicist-randy-lyman-tells-the-proven-entrepreneur)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/emotional-mastery-not-strategy-key-to-business-success-says-physicist-and-serial-entrepreneur-randy-lyman)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/emotional-mastery-not-strategy-is-the-real-driver-of-business-success-says-physicist-turned-entrepreneur-randy-lyman)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/physicist-randy-lyman-reveals-emotional-mastery-as-the-hidden-engine-behind-his-8-figure-exits)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/physicist-randy-lyman-on-why-emotional-mastery-not-strategy-built-his-8-figure-exits)
-
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/the-physicist-who-sold-everything-to-learn-what-really-builds-a-business)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/emotional-mastery-not-strategy-is-the-real-engine-behind-eight-figure-exits-says-physicist-randy-lyman)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/emotional-mastery-not-strategy-is-the-engine-of-8-figure-exits-physicist-randy-lyman-tells-the-proven-entrepreneur-podcast)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/physicist-randy-lyman-reveals-emotional-mastery-as-the-real-engine-of-business-growth-on-the-proven-entrepreneur)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/emotional-mastery-not-strategy-drives-8-figure-exits-physicist-s/202637986)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/hartig-drug-adds-nefense-nasal-care-family-2)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/1/rushjkIX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/2/kiwidxEB.webp)
