@@ -1,26 +1,92 @@
-# HKUST Tops Hong Kong Universities with More Than 1,000 HKPFS Recipients
+# 1win Charity Supports 35,000 Families Through Four Relief Initiatives Across Latin America
 
-Advancing the City's Development as an International Hub for High-Caliber Talent
+BUENOS AIRES, ARGENTINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 3 September 2026 –[1win Charity](https://www.instagram.com/1win.charity/) has supported approximately 35,000 families across Latin America through four humanitarian initiatives carried out in Colombia, Venezuela, and Chile in 2026. Over $100,000 was directed to emergency relief and recovery efforts, including emergency rescue equipment, construction materials, food, drinking water, medicine, hygiene products, and direct on-the-ground assistance.    The latest response followed the magnitude 7.4 earthquake that struck Colombia on August 10, 2026. The support from 1win Charity reached nearly 2,000 people, who received drinking water, food and hygiene kits, warm meals, blankets, sleeping mats, and first-aid supplies. A member of the 1win VIP community, Valentina Gómez, and Colombian creator Yeferson Cossio visited the affected communities to deliver relief.   Earlier in the year, 1win Charity supported more than 8,000 families after the June earthquakes in Venezuela. Working alongside local emergency organizations, hospitals, and community leaders, 1win delivered food, water, hygiene products, medicines, and medical supplies across affected communities in Caracas, La Guaira, and Miranda.   In Chile, 1win Charity carried out two major relief initiatives. Following extreme rainfall, winds, and storm surges in July, 1win Charity volunteers joined cleanup and debris-removal efforts in Quillón and Bulnes, while the organization provided rescue boats, drinking water, tools, protective equipment, and other provisions to communities and emergency teams.   The response followed an earlier initiative in the wake of devastating wildfires in Biobío and Ñuble, which burned more than 34,000 hectares. At the beginning of 2026, together with professional boxer Andrés Campos and the Chilean National Content Creators, 1win Charity supplied drinking water and emergency kits. Combined, the two Chilean initiatives supported approximately 20,000 families.   "For us, a long-term commitment to Latin America means being present all the time — during the happy celebrations and when communities face their most difficult moments. Our approach is to listen to local needs, work with trusted partners, and provide practical support where it can make a real difference," 1win Charity representatives mentioned.  Hashtag: #1winCharity[https://1win.charity/](https://1win.charity/)[https://www.linkedin.com/company/1win-global/](https://www.linkedin.com/company/1win-global/)[https://www.instagram.com/1win.charity/](https://www.instagram.com/1win.charity/)[https://www.youtube.com/@1winCharity](https://www.youtube.com/@1winCharity)The issuer is solely responsible for the content of this announcement.
 
-HONG KONG SAR - [Media OutReach Newswire](https://www.media-outreach.com/) - 3 September 2026 - As a global magnet for top-tier talent, The Hong Kong University of Science and Technology (HKUST) has established a stellar track record under the Hong Kong PhD Fellowship Scheme ([HKPFS](https://fytgs.hkust.edu.hk/scholarships/hong-kong-phd-fellowship-scheme)). Since the Research Grants Council (RGC) initiated the scheme 17 years ago in 2009, HKUST has welcomed over 1,000 fellowship recipients. Coming from over 50 countries and regions, these elite students account for more than a quarter of all HKPFS fellowship recipients to date, reinforcing HKUST's position as the leading destination for HKPFS awardees among Hong Kong's University Grants Committee (UGC)-funded universities.   In the 2026/27 academic year, which started this September, HKUST has welcomed over 100 new HKPFS recipients. Over the next three years, these doctoral students will receive a combined total of more than HK$112 million in fellowships and research allowances from the HKSAR Government. This achievement underscores HKUST's world-class research capabilities and commitment to nurturing talent, while affirming its pivotal role in attracting international research talent, supporting Hong Kong's development into a global hub for high-caliber talent, and advancing the city as an international center for post-secondary education, innovation and technology.   Since the first intake of doctoral students in the 2010/11 academic year, HKUST has enrolled more than 1,000 Fellowship recipients over the past 17 years, accounting for over a quarter of the Scheme's cumulative total. Notably, the University secured the highest number of HKPFS awardees among Hong Kong's universities for 14 of those academic years. Following the HKSAR Government's announcement in the 2025-26 Budget to increase the annual scheme quota to 400, HKUST has welcomed more than 100 recipients in both the 2025/26 and 2026/27 academic years. Each recipient is granted three years of financial support provided by RGC, which includes an annual stipend and research-related allowance worth around HK$358,800 per year.   Deeply encouraged by these achievements, Prof. Nancy IP, President of HKUST,stated: "For 35 years, HKUST has been driven by a commitment not only to advance knowledge, but to generate knowledge that creates meaningful impact. We believe transformative discoveries begin with curiosity, courage, and a willingness to explore the unknown. By fostering a vibrant environment for research, learning, and innovation, we empower our faculty and students to push boundaries and turn ideas into solutions that benefit society.   Over the past 17 years, more than a thousand outstanding students from around the world have chosen HKUST for their postgraduate research journey, enriching our community with diverse perspectives and reflecting the global recognition of our research excellence. Looking ahead, we will continue to attract talent from across the globe, strengthen interdisciplinary collaboration, and support young scholars to tackle the world's most pressing challenges through research and innovation for the benefit of Hong Kong, our nation, and the world."   Beyond the support provided under the HKPFS, HKUST offers a comprehensive package to its HKPFS recipients, including a full tuition waiver for four years, research and academic development funding, and guaranteed first-year accommodation, enabling students to fully dedicate themselves to research and expand their international academic networks.   The University also provides a range of [scholarships and support schemes](https://fytgs.hkust.edu.hk/admissions/Admission-to-Hong-Kong-Campus/submitting-an-application/scholarships-and-fees) for other full-time research postgraduate students, including the Postgraduate Studentship, which provides annual support of over HK$220,000, and the Global Research Award, which supports students in undertaking overseas research and academic exchange activities. In addition, the University has established the "HKUST RedBird PhD Award". Awardees receive a HK$40,000 recruitment award in their first year, followed by an annual HK$20,000 Academic Excellence Award in subsequent years, subject to satisfactory academic performance. These additional resources provide greater support for their academic development and research pursuits, allowing them to devote themselves fully to achieving research excellence.   The research domains of the HKPFS recipients admitted to HKUST span frontier areas, including artificial intelligence and future computing and electronics, biomedical sciences and translational medicine, materials science and future energy, innovation for business management and fintech, as well as sustainability and green technology. Throughout their PhD journey, they will engage in cutting-edge research while strengthening their research capabilities and teaching skills through scholarly publications, teaching assignments, and international academic exchanges. This rigorous training builds a solid foundation for their future careers in academia, research institutions, the innovation and technology industry, or entrepreneurial ventures.   Prof. Bert SHI, Dean of [HKUST Fok Ying Tung Graduate School](https://fytgs.hkust.edu.hk/) said, "HKUST's diverse pool of HKPFS recipients comes from more than 50 countries and regions, bringing talent from around the world together with home-grown undergraduate and master's graduates, some of whom discovered their passion for research early on through HKUST's Undergraduate Research Opportunities Program, while others chose to pursue advanced studies here after being inspired by cutting-edge research projects led by HKUST faculty. Together, these young doctoral students from diverse cultural and academic backgrounds unite with seasoned faculty members to form a vibrant, international, and dynamic scholarly community.   Upon graduation, HKUST doctoral graduates enjoy exceptional career prospects. Many join world-renowned universities and research institutes, dedicated to nurturing the next generation and chasing scientific breakthroughs. Others embark on entrepreneurial paths, transforming their research achievements into innovative solutions that benefit society. Several of these startups have secured robust backing from the government, investors, and industry partners, flourishing across various sectors to unlock long-term value for society."   Established by the RGC in 2009, the HKPFS aims to attract outstanding students from around the world who possess exceptional academic achievements and strong research potential to pursue research postgraduate studies at UGC-funded universities in Hong Kong. Recipients are selected through a highly competitive process based on academic performance, research capability and potential, communication skills, and leadership abilities. For the 2026/27 academic year, the scheme offers 400 fellowships.   Hashtag: #HKUST The issuer is solely responsible for the content of this announcement.
+About 1win Charity1win Charity is the philanthropic branch of 1win, dedicated to advancing sustainability, community development, and humanitarian assistance. Guided by its mission, "We Care. We Share", the organization supports vulnerable communities worldwide through programs focused on emergency relief, healthcare, education, and sustainable development. Working in partnership with nonprofit organizations, local institutions, and community leaders, 1win Charity develops initiatives that create lasting social impact.
 
-![](//track.media-outreach.com/index.php/WebView/485207/279561) 
+![](//track.media-outreach.com/index.php/WebView/484661/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/09/03/485207/)
+[Original/Source Press Release](https://www.media-outreach.com/news/argentina/2026/09/03/484661/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hkust-celebrates-over-1000-hkpfs-recipients-reinforcing-status-as-top-choice-for-research-talent/e8235db877b1a4959ff4635b66c03749) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1win-charity-aids-35000-families-across-latin-america/5f19f97f1cd1e08ebc56257d9a7b78ba) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/hkust-tops-hong-kong-universities-with-more-than-1000-hkpfs-recipients)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/hkust-tops-hong-kong-universities-with-more-than-1000-hkpfs-recipients)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/03/1win-charity-aids-35000-families-across-latin-america-in-2026/)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/1win-charity-supports-35000-families-through-four-relief-initiatives-across-latin-america)
+
+Pickup - [https://advos.io/en](https://advos.io/en/1win-charity-aids-35000-families-across-latin-america-with-over-100000-in-relief)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-four-relief-efforts)
+
+Pickup - [https://burstable.news](https://burstable.news/news/1win-charity-aids-35000-families-across-latin-america-through-four-relief-initiatives)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/1win-charity-unterstutzt-35000-familien-in-lateinamerika-durch-vier-hilfsinitiativen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/1win-charity-ayuda-a-35000-familias-en-america-latina-mediante-cuatro-iniciativas-de-ayuda)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-charite-1win-aide-35-000-familles-en-amerique-latine-grace-a-quatre-initiatives-de-secours)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/1win-charity-ajuda-35000-familias-na-america-latina-por-meio-de-quatro-iniciativas-de-socorro)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/1win-charity-extends-support-to-35000-families-across-latin-america-through-four-relief-initiatives)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/1win-charity-provides-humanitarian-aid-to-35000-families-across-latin-america)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/1win-charity-provides-relief-to-35000-families-across-latin-america-in-2026)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/1win-charity-aids-35000-families-across-latin-america-with-100k-in-relief-efforts)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/1win-charity-aids-35000-families-across-latin-america-with-four-relief-initiatives)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026-relief-efforts)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/1win-charity-provides-relief-to-35000-families-across-latin-america)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026-relief-efforts)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/1win-charity-extends-aid-to-35000-families-across-latin-america)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/1win-charity-aids-35000-families-across-latin-america-in-2026)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/1win-charity-extends-aid-to-35000-families-across-latin-america)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/1win-charity-aids-35000-families-in-latin-america-through-four-r/202638029)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/3/quizqOpt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/3/iconO5UY.webp)
