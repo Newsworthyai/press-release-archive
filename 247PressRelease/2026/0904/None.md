@@ -1,0 +1,20 @@
+# Wagners Law Firm Lawyers Recognized in 2027 Editions of Best Lawyers in Canada
+
+HALIFAX, NS, September 04, 2026 /24-7PressRelease/ -- Wagners Law Firm is pleased to announce that eight of its lawyers have been recognized in the 2027 editions of The Best Lawyers in Canada™ and Best Lawyers: Ones to Watch in Canada™.  The 2027 honourees include: Loreatha Boehner — The Best Lawyers in Canada™, Personal Injury Litigation Kate Boyle — The Best Lawyers in Canada™, Class Action Litigation Madeleine Carter — The Best Lawyers in Canada™, Class Action Litigation Lyndsay Jardine, K.C. — The Best Lawyers in Canada™, Personal Injury Litigation; Product Liability Law Peter McVey, K.C. — The Best Lawyers in Canada™, Appellate Practice Lisa Wagner — The Best Lawyers in Canada™, Personal Injury Litigation Raymond F. Wagner, K.C. — The Best Lawyers in Canada™, Class Action Litigation; Medical Negligence; Personal Injury Litigation Lauren Harper — Best Lawyers: Ones to Watch in Canada™, Medical Negligence  The recognitions span several areas of legal practice, including personal injury litigation, class action litigation, medical negligence, product liability law and appellate practice.  Best Lawyers uses a peer-review process for its annual recognitions. Lawyers are nominated and evaluated by other legal professionals practicing in the same geographic and legal practice areas. Reviewers consider the professional abilities and experience of candidates based on their knowledge of the law, professional conduct and reputation among peers. The Ones to Watch recognition similarly recognizes lawyers who have demonstrated professional excellence earlier in their careers.  Founded in Halifax in 1982, Wagners Law Firm helps injured people pursue compensation and navigate the legal process with clear advice and personalized support. The firm represents clients throughout the Atlantic Provinces and beyond.  Motor vehicle accidents are a central part of the firm's personal injury practice, including car, truck, motorcycle, bicycle, pedestrian, rideshare, hit-and-run, impaired-driving, whiplash, e-scooter and e-bike claims. The firm also handles slip and fall, premises liability, occupiers' liability, dog bite, medical malpractice, birth injury, sexual abuse and class action matters, including cases involving surgical errors, delayed diagnoses and emergency room errors.  Wagners Law Firm focuses on making the legal process easier for clients by providing clear explanations, regular communication and personalized, one-on-one legal support. The firm handles the legal work and communications with insurers while clients focus on their recovery.  The firm has more than 400 five-star Google reviews, provides support in French and Spanish, and operates on a contingency-fee basis, meaning clients pay no legal fees unless the firm succeeds.  Wagners Law Firm is a Halifax-based personal injury law firm founded in 1982. The firm represents clients throughout Atlantic Canada and beyond in personal injury, motor vehicle accidents, slip and fall, dog bites, medical malpractice, birth injury, sexual abuse and class actions. Wagners Law Firm offers free consultations and personalized legal support, with no fees unless it wins. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/538312/wagners-law-firm-lawyers-recognized-in-2027-editions-of-best-lawyers-in-canada)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wagners-law-firm-celebrates-8-lawyers-recognized-in-2027-best-lawyers-canada/4928cc698988c818c5f865a526d7cfad) 
+
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/04/eight-wagners-law-firm-lawyers-recognized-in-2027-best-lawyers-in-canada/)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/269/4/lamb25cP.webp)
