@@ -1,52 +1,76 @@
-# Garuda Indonesia Offers 170,000 Free Domestic Seats for Travellers Flying From 10 Countries
+# Fortran Corporation Announces Resignations
 
-International Passengers Travelling to Indonesia From 14 Origin Cities Across 10 Countries can add Eligible Domestic Roundtrip Flights at no Additional Fare, Encouraging Longer Stays, Multi-destination Travel, and a Broader Distribution of Tourism Spending Across the Archipelago
+HICKORY, N.C. - September 4, 2026 (NEWMEDIAWIRE) - Fortran Corporation (OTC FRTN) announces the resignation of Mr. Glenn Withers from the Board of Directors and Mr. Aaron Berry from his role as President.
 
- JAKARTA, INDONESIA - September 3, 2026 (NEWMEDIAWIRE) - Garuda Indonesia is offering 170,845 domestic roundtrip seats at no additional fare to eligible international passengers flying to Indonesia from 14 origin cities across 10 countries, as the national flag carrier seeks to encourage travellers to extend their journeys beyond the country’s main international gateways.
+ About Fortran Corporation: Fortran Corporation is a telecommunication system integrator dedicated to designing, implementing and maintaining complex telecommunications solutions focused on cloud based and AI platforms/services. Fortran is comprised of engineering and design, network services, sales, remote monitoring, and on-site service, fiber-optic and category cabling along with camera security. For more information, contact us at: info@fortrancorp.com.
 
- Available for travel from 1 August to 30 November 2026, the Free Domestic Flight program connects Garuda Indonesia’s international network with destinations across the archipelago, allowing eligible passengers holding roundtrip international tickets to Indonesia to add a domestic roundtrip journey as part of their itinerary.
+ Visit us at www.fortrancorp.com
 
- Carrying the spirit of #DiscoverMoreIndonesia, the initiative is designed to encourage international arrivals to visit more than one destination during a single trip, supporting longer stays and a wider distribution of tourism spending beyond major gateways such as Jakarta and Denpasar.
+ Safe Harbor Statement: Under the Private Securities Litigation Reform Act of 1995 Statements and information contained in this communication that refer to or include Fortran's estimated or anticipated future results or other non-historical expressions of fact are forward-looking statements that reflect Fortran's current perspective of existing trends and information as of the date of the communication. Forward looking statements generally will be accompanied by words such as "anticipate," "believe," "plan," "could," "should," "estimate," "expect," "forecast," "outlook," "guidance," "intend," "may," "might," "will," "possible," "potential," "predict," "project," or other similar words, phrases or expressions. Such forward-looking statements include but are not limited to. It is important to note that Fortran's plans, objectives, expectations and intentions are not predictions of actual performance. Actual results may differ materially from Fortran's current expectation depending upon a number of factors affecting Fortran's business. Factors that could cause or contribute to such differences include, but are not limited to, fluctuation in operating results, the ability of Fortran to compete successfully and other events. These factors also include, among others, the risks associated with the ongoing COVID-19 pandemic and related public health measures on its business, customers, markets and the worldwide economy: the inherent uncertainty associated with financial and other projections: the anticipated size of the markets and continued demand for Fortran's products: the impact of competitive products and pricing: changes in generally accepted accounting principles: successful compliance with governmental regulations applicable to Fortran's facilities, products and/or businesses; changes in laws, regulations and governmental policies: the loss of key senior management or staff: and other events factor and risks previously and from time to time disclosed in Fortran Corporation's filings with the OTC Markets Group Inc. including, specifically, those factors set forth in any "Risk Factors" section contained in such filings.
 
- The program also provides additional connectivity for members of the Indonesian diaspora, Indonesian migrant workers and Indonesian citizens returning from overseas who wish to continue their journeys to their home regions or other destinations across the country.
-
- Garuda Indonesia Marketing Group Head Prina Eka Putri said the initiative strengthens Indonesia’s travel proposition by combining the airline’s international reach with the breadth of its domestic network.
-
- “Indonesia offers far more than a single destination. By making onward domestic travel easier, we want international travellers to stay longer, explore more regions and experience more of what Indonesia has to offer,” Prina said.
-
- She added that the integration of international and domestic connectivity provides Garuda Indonesia with a differentiated proposition as regional destinations compete for international visitor traffic.
-
- “The proposition is simple: come to Indonesia, then discover more of Indonesia. Our network allows us to make that journey increasingly seamless and valuable for travellers,” she said.
-
- Garuda Indonesia Southeast Asia Branch Manager and Head of the Free Domestic Flight Project Management Office Agny Gallus Pratama said the allocation of more than 170,000 seats was designed to increase the potential economic value generated by each international arrival.
-
- “The opportunity is not only to bring more travellers into Indonesia, but to enable each arrival to reach more destinations,” Gallus said. “When visitors travel further and stay longer, the economic impact can extend to hotels, restaurants, local transportation, tourism operators and MSMEs across the regions.”
-
- By connecting international traffic more directly with its domestic network, Garuda Indonesia expects the program to help disperse visitor flows and tourism spending more widely across Indonesia.
-
- The initiative also supports the airline’s competitiveness in international markets by leveraging the breadth of its domestic network to offer travellers easier access to multiple destinations within a single Indonesia itinerary.
-
- Through this international-to-domestic connectivity, Garuda Indonesia aims to create greater value from each international arrival while enabling more destinations and local tourism ecosystems to benefit from the movement of international travellers.
-
- Further information on eligibility, booking procedures, participating flights, travel periods, available routes and terms and conditions is available through Garuda Indonesia’s official Free Domestic Flight webpage.
-
- PT GARUDA INDONESIA (PERSERO) TbkCORPORATE COMMUNICATIONS
-
- Media Contact:corpcomm@garuda-indonesia.comWebsite: garuda-indonesia.com | Instagram: @garuda.indonesia
+ Kent Greer828 324 4611kgreer@fortrancorp.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/garuda-indonesia-offers-170-000-free-domestic-seats-for-travellers-flying-from-10-countries-7089279)
+[Original/Source Press Release](https://www.newmediawire.com/news/fortran-corporation-announces-resignations-7089284)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/garuda-indonesia-offers-170000-free-domestic-seats-to-international-travelers/f887ba7610aa6fc8298828300a25d1ce) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fortran-corporation-announces-resignations-of-board-member-and-president/e178545a1b56fc64ae8c704ae5bd6890) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/04/fortran-corporation-announces-resignations-of-board-member-and-president/)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2096001624258863206)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e178545a1b56fc64ae8c704ae5bd6890)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/fortran-corporation-announces-leadership-changes-amid-strategic-focus-on-cloud-and-ai)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/fortran-corporation-anuncia-cambios-de-liderazgo-en-medio-de-un-enfoque-estrategico-en-la-nube-y-la-ia)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fortran-corporation-gibt-rucktritte-von-vorstandsmitglied-und-prasident-bekannt)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/e178545a1b56fc64ae8c704ae5bd6890)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fortran-corporation-anuncia-renuncias-de-miembro-de-la-junta-directiva-y-presidente)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fortran-corporation-annonce-la-demission-dun-membre-du-conseil-dadministration-et-de-son-president)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fortran-corporation-anuncia-renuncias-de-membro-do-conselho-e-presidente)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fortran-corporation-announces-board-resignations-amid-strategic-transition)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/fortran-corporation-announces-board-and-president-resignations)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/fortran-corporation-announces-board-and-president-resignations)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/fortran-corporation-announces-resignations-of-board-member-and-president)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/fortran-corporation-announces-resignations-of-board-member-and-president)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/fortran-corporation-announces-resignations-of-board-member-and-president)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/fortran-corporation-announces-resignations-of-board-member-and-president)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/fortran-corporation-announces-board-and-presidential-resignations)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/fortran-corporation-announces-board-and-president-resignations)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/fortran-corporation-announces-board-member-and-president-resignations)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/fortran-corporation-announces-board-and-president-resignations)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/fortran-corporation-announces-resignations-of-board-member-and-president)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/fortran-corporation-announces-board-resignation-and-leadership-change)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/fortran-corporation-announces-resignations-of-board-member-and-p/202638208)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/4/tallt7qi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/4/lushAsn5.webp)
