@@ -1,50 +1,66 @@
-# Academy of Intentional Magic Launches with Labor Day Call to Artists
+# Crude Energy Brings Working-Class Beverage Brand to ECRM
 
-The Academy of Intentional Magic (AIM), a new creative learning platform, today announced its launch, building on the nearly twenty-year legacy of the Poetry Barn and expanding into a broader commons for artists, writers, teachers, and creatives.
+Crude Energy Beverages Inc., a North American beverage company built around the people who keep industries moving, will participate in the ECRM Vitamin, Weight Management & Sports Nutrition Session, September 14-17 in Palm Beach Gardens, Florida.
 
- "Work is love made visible," said founder Lissa Kiernan, citing an aphorism from Kahlil Gibran's "The Prophet" that has stayed with her since high school. "For artists, that work is often what we can't stop returning to — the poem revised for the tenth time, the scale practiced ad nauseam, the scrappy xeriscape garden. That's the spirit behind the Academy."
+ Crude Energy will introduce its growing beverage portfolio to retailers as the company expands its presence in the U.S. market. The lineup includes Crude Energy energy drinks, flavored teas and Crude Brew Coffee.
 
- Poetry remains AIM's first love, but the frame has widened. The Academy now makes room for artists of all kinds — and especially for what happens between disciplines, when one way of seeing alters another. That interdisciplinary exchange continues year-round in Murmurations, AIM's online community for works-in-progress, questions, discoveries, and creative invitations.
+ But behind the products is a brand with a very specific audience.
 
- Academy of Intentional Magic provides a comprehensive ecosystem for working artists, encompassing eight interconnected areas:
+ Crude Energy was created for the working class, including the men and women working in oil and gas, construction, trucking, farming, welding, mechanics, skilled trades and other jobs that keep North America running.
 
- * Community — An online social community where artists network, collaborate, and share practices for maintaining balance between creative work and life.
-* Education — Curated Studios, Craft Labs, and Circles spanning the arts, continuing a tradition that began with AIM's pioneering online poetry workshops.
-* Mentoring — Access to a vetted consortium of master mentors, available from single consultations to ongoing relationships.
-* Publishing — Opportunities to share work through AIM's press and journal.
-* Library — Free public access to 4,000 volumes of poetry, with a specialization in single-author collections and rare, out-of-print titles.
-* Retreats — Immersive retreats and community-wide arts events led by master teaching artists.
-* Outreach — Partnerships with high schools to deliver multidisciplinary arts workshops and education.
+ “We built Crude for the people putting in long shifts, getting their hands dirty and getting the job done every day,” said Cory Yeik, president of Crude Energy Beverages. “These are our people. We understand the work, we understand the lifestyle, and we wanted to build a beverage brand that actually speaks to them.”
 
- Fall Offerings and a Labor Day Invitation
+ The roots of Crude Energy go back to 2012, when the founders created Rig Pig Apparel to provide clothing and personal protective equipment for workers in the oil and gas industry. The response to the brand helped inspire the idea of developing beverages around the same working-class community.
 
- AIM makes no distinction between art and craft, or between formal and popular traditions. A classical form and a rock lyric, a folk craft and a fine art, can be held with the same seriousness and the same welcome.
+ Crude Energy beverage formulations were developed beginning in 2019, but the company's original plans to enter the U.S. market were interrupted by the COVID-19 pandemic. The founders continued developing the business, expanding into Crude Brew Coffee and other beverages before resuming their plans for broader North American distribution.
 
- Accordingly, fall offerings wander through myth, wonder, and the stars. One of the first offerings is "Sky Writing: Write Your Own Horoscope, a workshop led by somatic astrologer Cory Nakasue, taking place on September 8, 15, 22, and 29 from 6–8 p.m. ET. The workshop approaches the horoscope as a creative and symbolic form — part interpretation, part storytelling, and part poetry.
+ Today, the Crude Energy lineup is led by bold energy drink flavors including Fossil Fuel, Heavy Crude and Overtime Blues. The company also offers flavored teas and Crude Brew Coffee.
 
- To mark Labor Day, AIM is inviting artists to share what they're working on in Murmurations — a messy draft, a half-finished painting, a melody, a collage, an outline, an experiment, even the seed of an idea. The invitation, in keeping with AIM's philosophy, comes with no expectation of polish: the Academy wants to see the work while it's still becoming.
+ Crude Brew is made with Honduran coffee beans sourced from a group of 72 farmers and is available in Dark Roast and Medium Roast varieties, with a Black Gold roast also developed for the line.
 
- AIM is also currently inviting teaching artists to propose a practice, experience, or learning module for future offerings.
+ For CEO Kimberley Johnson, Crude Energy's participation at ECRM represents another step toward getting the company's products in front of more of the consumers the brand was created to serve.
 
- The Academy of Intentional Magic's programs are available now at www.academyofintentionalmagic.com.
+ “The working class is a huge part of this country, but you don't see many beverage brands built specifically around them,” Johnson said. “Crude Energy is. Whether you're on a rig, behind the wheel of a truck, working a construction site or putting in hours on a farm, we want you to look at a can of Crude and know exactly who it's for.”
 
- About the Academy of Intentional Magic The Academy of Intentional Magic (AIM) is a commons for creative practice, celebrating art, imagination, and mystery. Growing out of nearly twenty years of Poetry Barn workshops, readings, and retreats — including its pioneering online MFA-quality poetry workshops launched in 2007 — AIM has grown into a full ecosystem of community, education, mentorship, publishing, and outreach for artists across disciplines. 
+ Crude Energy's brand message is summed up in a simple question: What Fuels You?
+
+ At ECRM, the company will participate in scheduled meetings with buyers representing major health, specialty, food, drug and mass retail channels as it works to expand its U.S. retail footprint.
+
+ About Crude Energy Beverages Inc. Crude Energy Beverages Inc. is a North American beverage company built around the people who keep industries moving. Created with the working class in mind, the brand serves consumers across oil and gas, construction, trucking, farming, skilled trades and other demanding professions. Its growing beverage portfolio includes Crude Energy energy drinks, flavored teas and Crude Brew Coffee, with bold flavors and distinctive branding inspired by the hardworking communities the company was created to serve. Learn more at crude-energy.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609072627/academy-of-intentional-magic-launches-with-labor-day-call-to-artists)
+[Original/Source Press Release](https://newsworthy.ai/news/202609072884/crude-energy-brings-working-class-beverage-brand-to-ecrm)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/academy-of-intentional-magic-launches-to-empower-artists-across-disciplines/dcbe1b640d6d9bef2e8fe15e58bec218) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crude-energy-beverages-to-showcase-working-class-brand-at-ecrm/8582401227d6c7216b8dabf22a67d993) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/academy-of-intentional-magic-launches-with-labor-day-call-to-artists)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/academy-of-intentional-magic-launches-with-labor-day-call-to-artists)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/07/crude-energy-beverages-targets-working-class-consumers-at-ecrm-session/)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/crude-energy-brings-working-class-beverage-brand-to-ecrm)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/7/epicyv_f.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/7/vibeYOgf.webp)
