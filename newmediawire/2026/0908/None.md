@@ -1,60 +1,42 @@
-# Ocumetics Announces Initiation of Patient Recruitment for Upcoming Group Two Human Clinical Surgeries
+# Nano-X Imaging (NNOX) Expands Nanox.ARC Distribution in New England
 
-CALGARY, ALBERTA - September 8, 2026 (NEWMEDIAWIRE) - Ocumetics Technology Corp. (“Ocumetics” or the “Company”) (TSXV: OTC) (OTCQB: OTCFF) (FRA: 2QBO) is pleased to announce that its clinical facility in Mexico City has initiated the patient recruitment process for Group Two of the Company’s ongoing human clinical study of its next-generation accommodating intraocular lens (the “Ocumetics Lens”).
+LOS ANGELES, CA - September 8, 2026 (NEWMEDIAWIRE) - Nanox (NASDAQ: NNOX), through its U.S.-based subsidiary Nanox Impact Inc., entered into a distribution agreement with Associated X-Ray Imaging Corp. to support deployment of the Nanox.ARC across New England. Under the agreement, Associated X-Ray Imaging will market, distribute and support the FDA-cleared, multisource 3D digital tomosynthesis system, leveraging its regional customer relationships and service infrastructure. The agreement expands Nanox’s U.S. channel partner network and is intended to increase access to the Nanox.ARC in outpatient and community-based clinical settings across targeted markets.
 
- Key Highlights
+ To view the full press release, visit https://nnw.fm/ChGtd
 
- - Group Two clinical study underway - Patient recruitment has begun in Mexico City, with surgeries targeted for Fall 2026.
+ About Nanox
 
- - Moving beyond safety - The Group Two study will evaluate the Ocumetics Lens for safety plus near-and distance-vision performance.
+ Nanox is focused on driving the world’s transition to preventive health care by delivering an integrated, end-to-end medical imaging and healthcare services platform.
 
- - Next-generation technology - Patients will receive the latest-generation Ocumetics Lens implanted with an enhanced delivery system.
+ Nanox combines affordable imaging hardware, advanced AI-based solutions, cloud-based software, access to remote radiology, health IT solutions, and a marketplace to enable earlier detection, improved clinical efficiency, and broader access to care.
 
- - 12-month data milestone approaching - Group One patients are reaching their 12-month follow-ups, providing longer-term clinical data.
+ Nanox’s vision is to expand the reach of medical imaging both within and beyond traditional hospital settings by providing a seamless solution from scan to interpretation and beyond. By leveraging proprietary digital X-ray technology, AI-driven analytics, and a clinically driven approach, Nanox aims to enhance the efficiency of routine imaging workflows, support early detection of disease, and improve patient outcomes.
 
- - Positive Group One experience - The first group clinical outcomes met and exceeded the Company’s expectations and provided important information on the Lens’s safety, performance and handling.
+ The Nanox ecosystem includes Nanox.ARC, a cost-effective, 3D multi-source digital tomosynthesis imaging system designed for ease of use and scalability; Nanox.AI, a suite of AI-based algorithms that augment the interpretation of routine CT imaging to identify early signs often associated with chronic disease; Nanox.CLOUD, a cloud-based platform for secure data management, storage, and advanced imaging analytics; Nanox.MARKETPLACE and USARAD Holdings, which provide access to remote radiology and cardiology experts and comprehensive teleradiology services; and Nanox Health IT, which combines deep healthcare IT expertise with leading technology partners to deliver RIS, PACS, AI, dictation, and secure infrastructure solutions that streamline workflows and support safer, more efficient care delivery.
 
- Following the encouraging clinical experience and positive results observed in Group One patients, the Company is now preparing to advance to the next group of patients. Unlike Group One, which focused solely on safety, the primary and secondary purposes of the Group Two surgeries are to study the safety, distance, and near vision performance of the new Ocumetics accommodating intraocular lens.
+ By integrating imaging technology, AI, cloud infrastructure, clinical expertise, a marketplace, and health information technology, Nanox seeks to lower barriers to adoption, improve utilization, and advance preventive care worldwide.
 
- The Mexico City clinical facility, which successfully performed Group One surgeries in Fall 2025, has begun the process of identifying and recruiting eligible patients in preparation for the upcoming Fall 2026 surgeries.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
 
- Dean Burns, President and CEO of Ocumetics, said: “We are extremely excited to begin the process of moving into our larger Group Two study. Commencement of this study represents another important milestone in the continued clinical development of the Ocumetics Lens. Recruiting will be completed soon and we will schedule surgical dates shortly thereafter.”
+ The latest news and updates relating to NNOX are available in the company’s newsroom at https://ibn.fm/NNOX
 
- Group Two patients will receive Ocumetics’ next-generation accommodating intraocular lens, incorporating the Company’s latest design advancements. The Ocumetics Lens will be delivered using the Company’s enhanced lens delivery system.
+ Forward Looking Statements
 
- “We are particularly excited to reach the 12-month milestone for our Group One patients, which will provide an important body of longer-term clinical data as we continue to advance the Ocumetics Lens,” said Dean Burns. “At the same time, the Group Two study represents an important step forward as we introduce our next-generation Ocumetics Lens together with our next-generation lens delivery system. This combination represents the continued evolution of our technology and our commitment to developing a truly differentiated solution for patients seeking improved vision across a broader range of distances.”
-
- The Company’s Group One clinical outcomes met and exceeded the Company’s expectations regarding the safety, performance and handling of the Ocumetics Lens. Patients have continued to be followed as part of the Company’s ongoing clinical evaluation. Twelve-month follow-up visits, representing an important study milestone, are in progress.
-
- About Ocumetics
-
- Ocumetics Technology Corp. (TSXV: OTC) (OTCQB: OTCFF) (FRA: 2QBO) is a Canadian research and product development company that is dedicated to developing advanced vision correction solutions that enhance the quality of life for patients. Through innovative research and development, Ocumetics aims to transform the field of ophthalmology with state-of-the-art intraocular lenses and other vision-enhancing technologies.
-
- Ocumetics is in the first-in-human early feasibility study phase of a game-changing technology for the ophthalmic industry. Ocumetics has developed a dynamic intraocular lens that fits within the natural lens compartment of the eye, potentially to eliminate the need for corrective lenses. It is designed to allow the eye’s natural muscle activity to shift focus from distance to near, providing clear vision at all distances without the help of glasses or contact lenses, and without perceptible time lag.
-
- FOR FURTHER INFORMATION, PLEASE CONTACT:
-
- David BurwellDirector, Investor Relationsdave.burwell@ocumetics.com(403) 410-7907
-
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- CAUTIONARY STATEMENT REGARDING FORWARD-LOOKING INFORMATION: This news release includes certain “forward-looking statements” under applicable Canadian securities legislation. Forward-looking statements include, but are not limited to, statements with respect to the commencement, timing and scope of the Corporation’s planned clinical trial program and other research and development activities and that they will be conducted as expected. Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable, are subject to known and unknown risks, uncertainties, and other factors which may cause the actual results and future events to differ materially from those expressed or implied by such forward-looking statements. Such factors include but are not limited to: operational matters, historical trends, current conditions and expected future developments, access to financing as well as other considerations that are believed to be appropriate in the circumstances. There can be no assurance that such statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers should not place undue reliance on forward-looking statements. The Corporation disclaims any intention or obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ocumetics-announces-initiation-of-patient-recruitment-for-upcoming-group-two-human-clinical-surgeries-7089326)
+[Original/Source Press Release](https://www.newmediawire.com/news/nano-x-imaging-nnox-expands-nanox-arc-distribution-in-new-england-7089351)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ocumetics-begins-patient-recruitment-for-group-two-clinical-study/4c388f0aac40a10d4ebcfce0c0ec75b4) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/ocumetics-begins-patient-recruitment-for-group-two-clinical-surgeries-of-its-accommodating-intraocular-lens/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nanox-expands-arc-distribution-in-new-england-with-new-partner/e6b0512472f5ec9cf9722fc39cd5c34e) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/fondmOCU.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/jinxI6Wm.webp)
