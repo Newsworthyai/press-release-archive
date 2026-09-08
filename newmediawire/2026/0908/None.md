@@ -1,108 +1,72 @@
-# AcroMeta to Enter Ambient Temperature Cellular Logistics Through Strategic Partnership With Macro HRD SG Pte. Ltd.
+# CHARBONE Announces Closing of $1.5M Drawdown With RiverFort to Accelerate Growth
 
-* AcroMeta to acquire a strategic stake in Macro-ATCLS Pte. Ltd., for the Ambient Temperature Cellular Logistics business.
-* Option to acquire an exclusive licence to deploy the Ambient Temperature Cellular Logistics platform across Southeast Asia.
-* The Group will continue to evaluate strategic opportunities that support its long-term growth.
+VARENNES, QUEBEC - September 8, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a vertically integrated industrial gases company focused on production, distribution and storage of clean ultra-high purity (“UHP”) hydrogen and other strategic industrial gases, is pleased to announce the closing of the $1.5 million drawdown previously announced on September 2, 2026 from RiverFort Global Opportunities PCC Ltd (“RiverFort” or “Lender”), representing half of the second drawdown of up to $3 million that is available to the Company prior to the date falling 6 calendar months from the first drawdown closing of the secured convertible loan facility (the “Convertible Loan”) for up to $10 million as previously announced on April 29, 2026.
 
- SINGAPORE - September 7, 2026 (NEWMEDIAWIRE) - AcroMeta Group Limited (“AcroMeta”, or the “Company”, and together with its subsidiaries, the “Group”) today announced that it has entered into a non-binding term sheet (“Term Sheet”) with Macro HRD SG Pte. Ltd. (“Macro”), a Singapore-based provider of management consultancy services to the healthcare sector. The Term Sheet sets out the principal terms for a strategic partnership between AcroMeta and Macro-ATCLS Pte. Ltd. (“Macro-ATCLS”), the company through which Macro’s Ambient Temperature Cellular Logistics technology is being commercialised.
+ Transaction Overview
 
- Mr Lawrence Toh, Executive Director of AcroMeta Group Limited, said, “This proposed strategic partnership gives us the opportunity to build a position in an industry where cell and gene therapy logistics are expected to grow at double-digit rates in the years ahead. We see this as a natural extension of our strategy to grow our portfolio beyond our core operations, and we’re excited about the potential to build a meaningful presence in bringing this technology into Southeast Asia.”
+ CHARBONE has successfully completed the closing of the $1.5 million second drawdown under the Convertible Loan with RiverFort. The Convertible Loan is structured as a multi-drawdown secured facility, with additional tranches available to the Company over the term of the agreement, subject to customary conditions and mutual agreement between the parties. Accordingly, the Company may complete an additional drawdown of up to $1.5 million pursuant to the $3 million that is set aside under the second drawdown provision of the Convertible Loan.
 
- About Ambient Temperature Cellular Logistics (ATCLS)
+ Key Terms of the Convertible Loan
 
- Ambient Temperature Cell Logistics (ATCLS) is an emerging technology licensed by Macro HRD, designed to fundamentally transform the transportation and distribution of living cells and other temperature-sensitive biological materials by eliminating reliance on conventional refrigerated and cryogenic cold chains. ATCLS uses proprietary ambient-temperature preservation and reactivation technologies, supported by its proprietary Gradient Equilibrium Decision Modeling (GEDM) platform for real-time governance, chain-of-identity and process control, enabling dormant living cells to be transported at ambient temperature and reactivated at the point of use.
+ - Total facility size: Up to $10 million secured Convertible Loan, structured in multiple drawdowns.
 
- The opportunity addresses rapidly expanding markets including stem cells, CAR-T/immune-cell therapy, gene therapy, regenerative medicine, organ and tissue transplantation, and cell-and-gene-therapy logistics; the underlying markets cited in the project materials range from US$5.2 billion for immune-cell therapy to US$47 billion for organ transplantation, while the global cell-and-gene-therapy 3PL market is estimated at US$1.81 billion in 2025 and projected to reach US$16.95 billion by 2035 (25.1% CAGR).
+ - Drawdowns: The Initial Drawdown of $3 million closed on April 29, 2026. $1.5 million of the second drawdown of up to $3 million is now closed, and the remaining $1.5 million may be advanced to the Company prior to the date falling 6 calendar months from the first drawdown closing, subject to mutual agreement. The remaining $4 million out of $10 million will be available to be drawn by the Company in aggregate during the Convertible Loan term, subject to mutual agreement between the Company and RiverFort and customary conditions set out in the Convertible Loan agreement.
 
- Based on defined ambient-addressable segments, ATCLS estimates a Serviceable Addressable Market (SAM) of approximately US$14.5 billion by 2032, positioning the technology as a potential category-creating solution capable of reducing the cost, fragility and geographic limitations of conventional cold-chain logistics. (See Footnote 1)
+ - Term: Drawdowns under the Convertible Loan are available for a three-year term, with each drawdown repayable over 18 months. The maturity dates are October 29, 2027 for the initial drawdown and March 4, 2028 for the $1.5 million second drawdown.
 
- Proposed Exclusive Licensing Arrangement for Southeast Asia
+ - Interest: 12% per annum, payable in cash every 4 months. Default interest capped at 24%.
 
- AcroMeta will have an option to acquire an exclusive licence to deploy the ATCLS technology across agreed territories in Southeast Asia, including the right to appoint sub-licensees. The proposed exclusive licensing arrangement is intended to provide AcroMeta with the rights to develop and commercialise the ATCLS business within Southeast Asia.
+ - Conversion: The $1.5 million of the second drawdown is convertible, at the option of the Lender, into units composed of one common share of the Company and 0.3 of a warrant, at a conversion price of $0.196875 per unit. If not converted before, 10% shall be repaid at the end of 6 months, 20% at the end of 12 months and 70% on maturity date in 18 months. The securities issued upon any conversion of the principal amount of the Convertible Loan will be subject to the statutory four-month hold period in Canada from the closing date.
 
- This structure allows AcroMeta to secure exclusive rights across the Southeast Asian markets, together with a first right to acquire additional territories, significantly expanding the Group’s potential commercial reach for the ATCLS technology.
+ - Warrants: Each whole warrant issued in connection with the $1.5 million drawdown will be exercisable to acquire one additional common share of CHARBONE, at a price per share of $0.236250, for a period of 48 months, subject to a maximum of 5 years from the Convertible Loan closing date, April 29, 2026.
 
- Building AcroMeta’s Platform Growth Strategy
+ - Security: Secured with a first ranking hypothec over the universality of all present and future movable property of each of Charbone Hydrogène Québec Inc. (Sorel-Tracy project) and Charbone Hydrogen Corporation.
 
- The Group intends to continue evaluating strategic opportunities to support its long-term value creation for shareholders. The Board remains focused on disciplined capital allocation as the Group progresses through its next phase of development.
+ - An implementation fee of 5% of the drawdowns has been paid in cash on closing of each drawdown.
 
- Footnote 1: This information was provided by Macro's management and has not been verified by the board of directors. The directors have not audited or verified the data supplied by the company.
+ As a result of the closing of the $1.5 million drawdown, RiverFort currently holds an aggregate of $4.5 million in principal amount owing under the Convertible Loan. CHARBONE and RiverFort will continue to evaluate subsequent drawdowns under the Convertible Loan facility, which may be advanced over time in accordance with the agreement and at the Company’s request in line with capital requirements.
 
- About AcroMeta Group Limited (SGX: 43F)
+ Use of Proceeds
 
- AcroMeta Group Limited (“AcroMeta” or the “Company”, and together with its subsidiaries, the “Group”), is in the business of facility management services. The Company has been listed on the Catalist board of the Singapore Exchange since 2016. For more information, please visit www.AcroMeta.com.
+ The Convertible Loan is a key component of CHARBONE’s broader strategy to scale hydrogen production capacity and expand its industrial gas platform across North America. The proceeds from the $1.5 million drawdown are expected to be used to:
 
- About Macro HRD SG Pte. Ltd. (Macro HRD)
+ - Accelerate development timelines of the Company’s clean UHP hydrogen production plants
 
- Macro HRD is a Singapore-based biotechnology and therapeutics company established in 2024, focused on developing scalable, precision-medicine solutions for high-burden infectious diseases with significant unmet medical needs.
+ - Support capital expenditures and equipment deployment
 
- The company integrates advanced biology, therapeutic platform technologies and AI/ML-enabled decision systems to accelerate drug discovery and translational development from scientific research through clinical application. Its development portfolio includes innovative approaches targeting HIV/AIDS, HPV and other enveloped viruses, supported by proprietary therapeutic and drug-delivery platforms.
+ - Provide general working capital to accelerate near-term growth initiatives
 
- Macro HRD brings together an international network of scientific, clinical, regulatory, investment and technology expertise, with the mission of translating breakthrough science into novel therapeutics with meaningful global healthcare impact.
+ Benoit Veilleux, Chief Financial Officer and Corporate Secretary of CHARBONE, commented: “With this capital now closed, we are focused on execution to maintain our rapid pace of growth. The proceeds are being deployed directly toward our priorities at Sorel-Tracy and across our industrial gas platform, and we remain committed to delivering on the milestones we have communicated to our shareholders."
 
- Media and Analysts Contact:Waterbrooks Consultants Pte LtdMr Wayne Koo Tel: +65 9338 8166 / +65 8901 9780Email: wayne.koo@waterbrooks.com.sgEmail: query@waterbrooks.com.sg
+ About RiverFort
 
-View the original release on www.newmediawire.com 
+ RiverFort provides debt and equity-based capital to high-growth companies. As an international business operating from offices in London, Australia and Gibraltar along with a strong presence in Europe, and Canada, RiverFort has a multi-sector and global orientation. RiverFort prides itself in creating mutually beneficial partnerships between its alternative funding sources, including family office co-investors, and investee companies it believes in. The RiverFort team has executed in excess of US$15 billion of growth financing transactions.
+
+ About CHARBONE CORPORATION
+
+ CHARBONE is a vertically integrated industrial gases company focused on developing and operating a network of supply hubs for the production, storage, and distribution of Ultra-High Purity (UHP) strategic industrial gases. The Company serves customers across sectors including semiconductors, artificial intelligence and data centers, advanced pharmaceuticals, and aerospace and defense technologies, where UHP gases are critical for high-precision manufacturing processes and operational performance. CHARBONE is advancing a network of clean UHP hydrogen production plants across North America and selected international markets. The Company’s modular, decentralized, and demand-driven approach, combined with its integrated storage and distribution platform for all UHP gases, supports scalable growth, enhances operational flexibility, and enables more stable and diversified revenue generation. This model allows CHARBONE to efficiently serve mid-tier industrial gas customers with a reliable supply of UHP gases, including hydrogen, helium, oxygen, and any other high-demand gases that are often difficult to source reliably at the regional level. The Company is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gases, while addressing supply gaps for underserved industrial customers and accelerating the shift towards localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). For more information, please visit: www.charbone.com.
+
+ Forward-Looking Statements
+
+ This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Filing Statement dated March 31, 2022, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
+
+ Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
+
+ Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
+
+ Contact Charbone CorporationTelephone: +1 450 678 7171Email: ir@charbone.comBenoit VeilleuxCFO and Corporate Secretary 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd-7089316)
+[Original/Source Press Release](https://www.newmediawire.com/news/charbone-announces-closing-of-1-5m-drawdown-with-riverfort-to-accelerate-growth-7089318)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/acrometa-partners-to-revolutionize-cell-logistics-with-atcls-technology/7c2b5d391f090127d1a2148358397945) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-closes-1-5m-drawdown-from-convertible-loan/4cae9fd2607761f8838bb6fd383e0cdc) 
 
-
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/acrometa-group-signs-term-sheet-to-enter-cell-and-gene-therapy-logistics-market)
-
-Pickup - [https://advos.io/en](https://advos.io/en/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/acrometa-enters-cell-and-gene-therapy-logistics-with-strategic-partnership-and-southeast-asia-licensing-option)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://burstable.news](https://burstable.news/news/acrometa-group-to-enter-cell-and-gene-therapy-logistics-with-strategic-partnership-and-southeast-asian-licensing-option)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/acrometa-group-steigt-mit-strategischer-partnerschaft-und-sudostasiatischer-lizenzoption-in-die-zell-und-gentherapie-logistik-ein)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/acrometa-group-incursionara-en-la-logistica-de-terapias-celulares-y-genicas-con-alianza-estrategica-y-opcion-de-licencia-en-el-sudeste-asiatico)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-groupe-acrometa-va-entrer-dans-la-logistique-de-therapies-cellulaires-et-geniques-grace-a-un-partenariat-strategique-et-une-option-de-licence-en-asie-du-sud-est)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/grupo-acrometa-entrara-na-logistica-de-terapia-celular-e-genica-com-parceria-estrategica-e-opcao-de-licenca-no-sudeste-asiatico)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/acrometa-to-expand-into-ambient-temperature-cellular-logistics-via-strategic-partnership-with-macro-hrd)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/acrometa-enters-ambient-temperature-cellular-logistics-via-strategic-partnership-with-macro-hrd)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/acrometa-enters-strategic-partnership-to-bring-ambient-temperature-cellular-logistics-to-southeast-asia)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/acrometa-enters-cell-and-gene-therapy-logistics-with-strategic-stake-in-macro-atcls)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-via-strategic-partnership-with-macro-hrd)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/acrometa-to-enter-ambient-temperature-cellular-logistics-through/202638224)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/07/acrometa-to-enter-ambient-temperature-cellular-logistics-through-strategic-partnership-with-macro-hrd-sg-pte-ltd/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/maska8bm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/ninapetL.webp)
