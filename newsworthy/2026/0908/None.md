@@ -1,54 +1,126 @@
-# Bessent's 'Economic Outcast' War, Flock Camera Bluetooth Fears and a Pipe Bomber Cover-Up
+# DataTurk.ai's Comprehensive Study Highlights Top Home Service Training Providers
 
-The milestone Episode 1900 of the No Agenda Show, titled Trust The Plan, published September 3, 2026, arrives on host Adam Curry's 62nd birthday and the podcast's 19th anniversary. Broadcasting from Rotterdam in the Netherlands, Curry is joined by returning guest co-host Rob Dew (Sir Deucifer) of alexjoneslive.com to deconstruct Treasury Secretary Scott Bessent's escalating financial war on Iran, the surveillance creep of Flock cameras, fresh revelations about the January 6 pipe bomber, and the speculative AI data center bubble reshaping American power grids.
+DataTurk.ai has released its 2026 Home Service Training & Coaching Study, comparing six leading organizations serving HVAC, plumbing, electrical and other home service contractors.
 
- The episode threads several fast-moving stories through a single lens: who controls the flow of money, data and narrative. Topics include:
+ The study evaluates Nexstar Network, CertainPath, Service Excellence, Service Nation, CEO Warrior and Power Selling Pros across eight categories: Operational Systems & Business Infrastructure, Financial Accountability & Performance Management, Enterprise Scalability, Organizational Alignment, Customer Journey Consistency, Cross-Department Communication, Behavioral Reinforcement and Customer Experience Alignment.
 
- * Bessent's Operation Economic Outcast, secondary sanctions, and cutting entities out of SWIFT and the Federal Reserve wire
-* Tom Luongo's thesis that Europe needs a war to blow out bond spreads and consolidate debt under the ECB and digital euro
-* The Leipzig airport quadcopter incident being used to invoke NATO Article 5 talk
-* Flock camera Bluetooth pings, Signal Trace hardware, and the “Have I Been Flocked” website
-* Ricky Schroder's “trust the plan” hay-bale video and the Lindsay Clancy TikTok verdict frenzy
+ The analysis found that Nexstar Network ranked first in Operational Systems & Business Infrastructure, Financial Accountability & Performance Management and Enterprise Scalability.
 
- Curry plays extended clips of Bessent on Fox News and CNBC threatening Iran-connected assets in the British Virgin Islands, quoting the Treasury Secretary directly: “We know where in the British Virgin Islands your accounts are at these trust companies. We know the $100 million houses you have around the world, and we are going to freeze those.” Dew, boots-on-the-ground at January 6, walks through his own footage of armored officers striking the crowd and describes the plainclothes provocateurs he witnessed near the Capitol scaffolding.
+ Service Excellence ranked first in Organizational Alignment, Customer Journey Consistency, Cross-Department Communication, Behavioral Reinforcement and Customer Experience Alignment.
 
- The hosts spend significant time on ex-FBI agent Kyle Seraphin's revelation, corroborated by investigative journalist Steve Baker and Congressman Barry Loudermilk, that the January 6 pipe bomber's phone pinged on FirstNet, the post-9/11 law enforcement-only cellular network with 94% three-dimensional location accuracy. They connect this to the arrest of Brian Cole Jr., a size-12 DoorDash driver whose shoes do not match cobblestone measurements pointing to a size 9. Elsewhere, penetration tester Sir Patrick Coble argues data center speculators should post registered capital bonds to protect communities when the bubble bursts, comparing the boom to the 1890s railroad build-out and the dot-com fiber glut. Nvidia's acquisition of Hugging Face, Jevons paradox, and Maria Bartiromo's exit from Fox News round out the tech and media beats.
+ CertainPath ranked second in the three systems-focused categories. Nexstar Network ranked second in the five people- and customer-focused categories.
 
- About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture and the forces shaping the daily news cycle. Known for its media deconstruction, sharp humor, and value-for-value model, the show offers an irreverent alternative to conventional news analysis. Episode 1900 is available now wherever podcasts are heard. 
+ DataTurk.ai did not name a single overall winner.
+
+ “The question isn’t, ‘Who is the best training company?’ The better question is, ‘Who is best equipped to solve the problem holding your company back right now?’” said Bryan Eisenberg, VP of DataTurk.ai. “A contractor that needs better financial controls has a different problem from one that needs better communication between the call center, technicians, salespeople and managers. This study helps owners match the problem to the provider.”
+
+ The study also identifies CEO Warrior for its focus on leadership, accountability and culture; Service Nation for education, business resources and peer community; and Power Selling Pros for specialized customer service and sales communication coaching.
+
+ DataTurk.ai based the analysis on publicly available information about each organization’s training programs, coaching models, methodologies and areas of focus.
+
+ Rather than combining all eight categories into a single score, DataTurk.ai recommends that contractors first identify the business problems that limit performance, then compare providers within those specific categories.
+
+ To help contractors identify where they need support, DataTurk.ai also offers a short business diagnostic quiz. The diagnostic helps owners identify which areas of the business deserve attention first, then connects those needs to the training and coaching categories evaluated in the study.
+
+ Read the complete 2026 Home Service Training & Coaching Study and take the diagnostic quiz to see which areas of your business may need the most attention.
+
+ About DataTurk.ai DataTurk.ai helps home service business owners turn their ServiceTitan data into a clear direction. Its UpScore performance system evaluates key operating results across Booking, Dispatch, Conversion, Revenue Quality and Revenue Trend, helping owners quickly identify where performance is strong, where it is slipping and what deserves attention first. UpScore gives management a clearer way to prioritize decisions without having to dig through dozens of reports and metrics. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609082875/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+[Original/Source Press Release](https://newsworthy.ai/news/202609082886/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-s-1900th-episode-trust-the-plan-or-question-it/4c9a451d576373e15f4a02bfda5e41cd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2026-home-service-training-study-reveals-top-coaching-programs/6216257c75ff27e3b58e435f3418fab7) 
 
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://humanresourcesnews.substack.com](https://humanresourcesnews.substack.com/p/6216257c75ff27e3b58e435f3418fab7)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://advos.io/en](https://advos.io/en/new-study-ranks-home-service-training-providers-emphasizes-problem-specific-solutions)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/dataturkai-study-reveals-trade-offs-in-home-service-training-providers)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/dataturkai-study-ranks-home-service-training-providers-by-specific-business-needs)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://burstable.news](https://burstable.news/news/dataturkai-study-ranks-home-service-training-providers-across-key-business-categories)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/dataturkai-studie-bewertet-schulungsanbieter-fur-hausdienstleistungen-in-wichtigen-geschaftskategorien)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/07/no-agenda-show-episode-1900-bessents-financial-war-flock-surveillance-and-jan-6-pipe-bomber-revelations/)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/estudio-de-dataturkai-clasifica-a-los-proveedores-de-capacitacion-para-servicios-del-hogar-en-categorias-clave-de-negocio)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/une-etude-de-dataturkai-classe-les-prestataires-de-formation-pour-services-a-domicile-dans-des-categories-commerciales-cles)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/bessents-economic-outcast-war-flock-camera-bluetooth-fears-and-a-pipe-bomber-cover-up)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/6216257c75ff27e3b58e435f3418fab7)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/estudo-da-dataturkai-classifica-provedores-de-treinamento-para-servicos-domesticos-em-categorias-chave-de-negocios)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/new-study-ranks-home-service-training-providers-by-specific-business-needs)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/dataturkai-study-reveals-trade-offs-among-home-service-training-providers)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-specific-business-needs)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/new-study-ranks-home-service-training-providers-urges-contractors-to-match-needs-to-programs)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/new-study-ranks-home-service-training-providers-by-specific-business-needs)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-category)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/dataturkai-study-ranks-home-service-training-providers-across-eight-performance-categories)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/dataturkai-study-ranks-home-service-training-providers-by-specific-business-needs)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/new-study-ranks-home-service-training-providers-by-specific-business-needs-not-overall-winner)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-specific-business-needs)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-specialization-not-overall-winner)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-category)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/dataturkai-study-reveals-top-home-service-training-providers-by-category-not-overall-winner)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/dataturkai-study-reveals-trade-offs-among-home-service-training-providers)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/new-study-ranks-home-service-training-providers-across-eight-critical-categories)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/new-study-ranks-home-service-training-providers-by-business-problem-not-overall-winner)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/dataturkai-study-ranks-home-service-training-providers-by-specif/202638236)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/6216257c75ff27e3b58e435f3418fab7)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/dataturkais-comprehensive-study-highlights-top-home-service-training-providers)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/new-study-ranks-home-service-training-providers-by-specific-business-needs/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/8/roamlBVi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/8/noraSIYb.webp)

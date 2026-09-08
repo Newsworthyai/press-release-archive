@@ -1,72 +1,60 @@
-# CHARBONE Announces Closing of $1.5M Drawdown With RiverFort to Accelerate Growth
+# Ocumetics Announces Initiation of Patient Recruitment for Upcoming Group Two Human Clinical Surgeries
 
-VARENNES, QUEBEC - September 8, 2026 (NEWMEDIAWIRE) - CHARBONE CORPORATION (TSXV: CH; OTCQB: CHHYF; FSE: K47) (“CHARBONE” or the “Company”), a vertically integrated industrial gases company focused on production, distribution and storage of clean ultra-high purity (“UHP”) hydrogen and other strategic industrial gases, is pleased to announce the closing of the $1.5 million drawdown previously announced on September 2, 2026 from RiverFort Global Opportunities PCC Ltd (“RiverFort” or “Lender”), representing half of the second drawdown of up to $3 million that is available to the Company prior to the date falling 6 calendar months from the first drawdown closing of the secured convertible loan facility (the “Convertible Loan”) for up to $10 million as previously announced on April 29, 2026.
+CALGARY, ALBERTA - September 8, 2026 (NEWMEDIAWIRE) - Ocumetics Technology Corp. (“Ocumetics” or the “Company”) (TSXV: OTC) (OTCQB: OTCFF) (FRA: 2QBO) is pleased to announce that its clinical facility in Mexico City has initiated the patient recruitment process for Group Two of the Company’s ongoing human clinical study of its next-generation accommodating intraocular lens (the “Ocumetics Lens”).
 
- Transaction Overview
+ Key Highlights
 
- CHARBONE has successfully completed the closing of the $1.5 million second drawdown under the Convertible Loan with RiverFort. The Convertible Loan is structured as a multi-drawdown secured facility, with additional tranches available to the Company over the term of the agreement, subject to customary conditions and mutual agreement between the parties. Accordingly, the Company may complete an additional drawdown of up to $1.5 million pursuant to the $3 million that is set aside under the second drawdown provision of the Convertible Loan.
+ - Group Two clinical study underway - Patient recruitment has begun in Mexico City, with surgeries targeted for Fall 2026.
 
- Key Terms of the Convertible Loan
+ - Moving beyond safety - The Group Two study will evaluate the Ocumetics Lens for safety plus near-and distance-vision performance.
 
- - Total facility size: Up to $10 million secured Convertible Loan, structured in multiple drawdowns.
+ - Next-generation technology - Patients will receive the latest-generation Ocumetics Lens implanted with an enhanced delivery system.
 
- - Drawdowns: The Initial Drawdown of $3 million closed on April 29, 2026. $1.5 million of the second drawdown of up to $3 million is now closed, and the remaining $1.5 million may be advanced to the Company prior to the date falling 6 calendar months from the first drawdown closing, subject to mutual agreement. The remaining $4 million out of $10 million will be available to be drawn by the Company in aggregate during the Convertible Loan term, subject to mutual agreement between the Company and RiverFort and customary conditions set out in the Convertible Loan agreement.
+ - 12-month data milestone approaching - Group One patients are reaching their 12-month follow-ups, providing longer-term clinical data.
 
- - Term: Drawdowns under the Convertible Loan are available for a three-year term, with each drawdown repayable over 18 months. The maturity dates are October 29, 2027 for the initial drawdown and March 4, 2028 for the $1.5 million second drawdown.
+ - Positive Group One experience - The first group clinical outcomes met and exceeded the Company’s expectations and provided important information on the Lens’s safety, performance and handling.
 
- - Interest: 12% per annum, payable in cash every 4 months. Default interest capped at 24%.
+ Following the encouraging clinical experience and positive results observed in Group One patients, the Company is now preparing to advance to the next group of patients. Unlike Group One, which focused solely on safety, the primary and secondary purposes of the Group Two surgeries are to study the safety, distance, and near vision performance of the new Ocumetics accommodating intraocular lens.
 
- - Conversion: The $1.5 million of the second drawdown is convertible, at the option of the Lender, into units composed of one common share of the Company and 0.3 of a warrant, at a conversion price of $0.196875 per unit. If not converted before, 10% shall be repaid at the end of 6 months, 20% at the end of 12 months and 70% on maturity date in 18 months. The securities issued upon any conversion of the principal amount of the Convertible Loan will be subject to the statutory four-month hold period in Canada from the closing date.
+ The Mexico City clinical facility, which successfully performed Group One surgeries in Fall 2025, has begun the process of identifying and recruiting eligible patients in preparation for the upcoming Fall 2026 surgeries.
 
- - Warrants: Each whole warrant issued in connection with the $1.5 million drawdown will be exercisable to acquire one additional common share of CHARBONE, at a price per share of $0.236250, for a period of 48 months, subject to a maximum of 5 years from the Convertible Loan closing date, April 29, 2026.
+ Dean Burns, President and CEO of Ocumetics, said: “We are extremely excited to begin the process of moving into our larger Group Two study. Commencement of this study represents another important milestone in the continued clinical development of the Ocumetics Lens. Recruiting will be completed soon and we will schedule surgical dates shortly thereafter.”
 
- - Security: Secured with a first ranking hypothec over the universality of all present and future movable property of each of Charbone Hydrogène Québec Inc. (Sorel-Tracy project) and Charbone Hydrogen Corporation.
+ Group Two patients will receive Ocumetics’ next-generation accommodating intraocular lens, incorporating the Company’s latest design advancements. The Ocumetics Lens will be delivered using the Company’s enhanced lens delivery system.
 
- - An implementation fee of 5% of the drawdowns has been paid in cash on closing of each drawdown.
+ “We are particularly excited to reach the 12-month milestone for our Group One patients, which will provide an important body of longer-term clinical data as we continue to advance the Ocumetics Lens,” said Dean Burns. “At the same time, the Group Two study represents an important step forward as we introduce our next-generation Ocumetics Lens together with our next-generation lens delivery system. This combination represents the continued evolution of our technology and our commitment to developing a truly differentiated solution for patients seeking improved vision across a broader range of distances.”
 
- As a result of the closing of the $1.5 million drawdown, RiverFort currently holds an aggregate of $4.5 million in principal amount owing under the Convertible Loan. CHARBONE and RiverFort will continue to evaluate subsequent drawdowns under the Convertible Loan facility, which may be advanced over time in accordance with the agreement and at the Company’s request in line with capital requirements.
+ The Company’s Group One clinical outcomes met and exceeded the Company’s expectations regarding the safety, performance and handling of the Ocumetics Lens. Patients have continued to be followed as part of the Company’s ongoing clinical evaluation. Twelve-month follow-up visits, representing an important study milestone, are in progress.
 
- Use of Proceeds
+ About Ocumetics
 
- The Convertible Loan is a key component of CHARBONE’s broader strategy to scale hydrogen production capacity and expand its industrial gas platform across North America. The proceeds from the $1.5 million drawdown are expected to be used to:
+ Ocumetics Technology Corp. (TSXV: OTC) (OTCQB: OTCFF) (FRA: 2QBO) is a Canadian research and product development company that is dedicated to developing advanced vision correction solutions that enhance the quality of life for patients. Through innovative research and development, Ocumetics aims to transform the field of ophthalmology with state-of-the-art intraocular lenses and other vision-enhancing technologies.
 
- - Accelerate development timelines of the Company’s clean UHP hydrogen production plants
+ Ocumetics is in the first-in-human early feasibility study phase of a game-changing technology for the ophthalmic industry. Ocumetics has developed a dynamic intraocular lens that fits within the natural lens compartment of the eye, potentially to eliminate the need for corrective lenses. It is designed to allow the eye’s natural muscle activity to shift focus from distance to near, providing clear vision at all distances without the help of glasses or contact lenses, and without perceptible time lag.
 
- - Support capital expenditures and equipment deployment
+ FOR FURTHER INFORMATION, PLEASE CONTACT:
 
- - Provide general working capital to accelerate near-term growth initiatives
+ David BurwellDirector, Investor Relationsdave.burwell@ocumetics.com(403) 410-7907
 
- Benoit Veilleux, Chief Financial Officer and Corporate Secretary of CHARBONE, commented: “With this capital now closed, we are focused on execution to maintain our rapid pace of growth. The proceeds are being deployed directly toward our priorities at Sorel-Tracy and across our industrial gas platform, and we remain committed to delivering on the milestones we have communicated to our shareholders."
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- About RiverFort
+ CAUTIONARY STATEMENT REGARDING FORWARD-LOOKING INFORMATION: This news release includes certain “forward-looking statements” under applicable Canadian securities legislation. Forward-looking statements include, but are not limited to, statements with respect to the commencement, timing and scope of the Corporation’s planned clinical trial program and other research and development activities and that they will be conducted as expected. Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable, are subject to known and unknown risks, uncertainties, and other factors which may cause the actual results and future events to differ materially from those expressed or implied by such forward-looking statements. Such factors include but are not limited to: operational matters, historical trends, current conditions and expected future developments, access to financing as well as other considerations that are believed to be appropriate in the circumstances. There can be no assurance that such statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers should not place undue reliance on forward-looking statements. The Corporation disclaims any intention or obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
 
- RiverFort provides debt and equity-based capital to high-growth companies. As an international business operating from offices in London, Australia and Gibraltar along with a strong presence in Europe, and Canada, RiverFort has a multi-sector and global orientation. RiverFort prides itself in creating mutually beneficial partnerships between its alternative funding sources, including family office co-investors, and investee companies it believes in. The RiverFort team has executed in excess of US$15 billion of growth financing transactions.
-
- About CHARBONE CORPORATION
-
- CHARBONE is a vertically integrated industrial gases company focused on developing and operating a network of supply hubs for the production, storage, and distribution of Ultra-High Purity (UHP) strategic industrial gases. The Company serves customers across sectors including semiconductors, artificial intelligence and data centers, advanced pharmaceuticals, and aerospace and defense technologies, where UHP gases are critical for high-precision manufacturing processes and operational performance. CHARBONE is advancing a network of clean UHP hydrogen production plants across North America and selected international markets. The Company’s modular, decentralized, and demand-driven approach, combined with its integrated storage and distribution platform for all UHP gases, supports scalable growth, enhances operational flexibility, and enables more stable and diversified revenue generation. This model allows CHARBONE to efficiently serve mid-tier industrial gas customers with a reliable supply of UHP gases, including hydrogen, helium, oxygen, and any other high-demand gases that are often difficult to source reliably at the regional level. The Company is committed to supporting the global transition to a lower-carbon economy by providing accessible, decentralized clean hydrogen and specialty gases, while addressing supply gaps for underserved industrial customers and accelerating the shift towards localized clean energy. CHARBONE is listed on the TSX Venture Exchange (TSXV: CH), the OTC Markets (OTCQB: CHHYF), and the Frankfurt Stock Exchange (FSE: K47). For more information, please visit: www.charbone.com.
-
- Forward-Looking Statements
-
- This news release contains statements that are “forward-looking information” as defined under Canadian securities laws (“forward-looking statements”). These forward-looking statements are often identified by words such as “intends”, “anticipates”, “expects”, “believes”, “plans”, “likely”, or similar words. The forward-looking statements reflect management's expectations, estimates, or projections concerning future results or events, based on the opinions, assumptions and estimates considered reasonable by management at the date the statements are made. Although Charbone believes that the expectations reflected in the forward-looking statements are reasonable, forward-looking statements involve risks and uncertainties, and undue reliance should not be placed on forward-looking statements, as unknown or unpredictable factors could cause actual results to be materially different from those reflected in the forward-looking statements. The forward-looking statements may be affected by risks and uncertainties in the business of Charbone. These risks, uncertainties and assumptions include, but are not limited to, those described under “Risk Factors” in the Corporation’s Filing Statement dated March 31, 2022, which is available on SEDAR+ at www.sedarplus.ca; they could cause actual events or results to differ materially from those projected in any forward-looking statements.
-
- Except as required under applicable securities legislation, Charbone undertakes no obligation to publicly update or revise forward-looking information.
-
- Neither TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- Contact Charbone CorporationTelephone: +1 450 678 7171Email: ir@charbone.comBenoit VeilleuxCFO and Corporate Secretary 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/charbone-announces-closing-of-1-5m-drawdown-with-riverfort-to-accelerate-growth-7089318)
+[Original/Source Press Release](https://www.newmediawire.com/news/ocumetics-announces-initiation-of-patient-recruitment-for-upcoming-group-two-human-clinical-surgeries-7089326)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/charbone-closes-1-5m-drawdown-from-convertible-loan/4cae9fd2607761f8838bb6fd383e0cdc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocumetics-begins-patient-recruitment-for-group-two-clinical-study/4c388f0aac40a10d4ebcfce0c0ec75b4) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/ocumetics-begins-patient-recruitment-for-group-two-clinical-surgeries-of-its-accommodating-intraocular-lens/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/ninapetL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/fondmOCU.webp)
