@@ -1,42 +1,124 @@
-# Datavault AI(TM) (NASDAQ: DVLT) Featured in Coverage of the Disruptive Growth &amp; Life Sciences Conference
+# Onco-Innovations Ltd. (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H) Builds Manufacturing, IND and Capital Foundation Ahead of Planned Clinical Translation
 
-Datavault AI(TM) (NASDAQ: DVLT) is an artificial intelligence and data monetization company focused on transforming data and real-world assets into secure, measurable and monetizable digital assets. The company has built an integrated technology ecosystem that combines artificial intelligence, data valuation, tokenization, cybersecurity, high-performance computing and exchange infrastructure to support the full lifecycle of data — from creation and authentication through valuation, licensing, tokenization and monetization.
+Disseminated on behalf of Onco-Innovations Ltd. (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H) and may include paid advertising.
 
- Datavault AI operates through its Data Sciences and Acoustic Sciences divisions. The Data Sciences division provides AI-powered technologies designed to organize, score and value data, establish ownership and usage rights, create digital twins and tokenized assets, and enable monetization through licensing and purpose-built exchanges. The Company’s Information Data Exchange(R) (“IDE”) and related technologies are designed to transform proprietary data and real-world assets into measurable, tradable digital assets, creating opportunities for recurring licensing, royalty and transaction-based revenue.
+ * Investors in biotechnology often look for companies with a clear path toward clinical development, where regulatory preparation, manufacturing readiness and access to capital can help reduce execution risk.
+* Onco-Innovations Ltd. is advancing ONC010, a nanoparticle-encapsulated PNKP inhibitor designed to target DNA repair pathways involved in cancer survival and treatment resistance.
+* The company has strengthened its clinical foundation through manufacturing milestones, IND-enabling activities, strategic partnerships and a recent funding arrangement designed to support continued advancement of its oncology pipeline.
 
- The Acoustic Sciences division includes the company’s WiSA(R), ADIO(R) and Sumerian(R) technologies and intellectual property. Its patented technologies enable high-definition wireless audio, spatial audio, inaudible data transmission, synchronization and authentication, providing both standalone commercial opportunities and a data-capture and authentication layer within Datavault AI’s broader ecosystem.
+ For biotechnology investors, a clear path to the clinic can be one of the most important indicators of a company’s development potential. In oncology, where programs often face significant scientific, regulatory and financial hurdles, companies that demonstrate measurable progress across manufacturing, preclinical testing and operational execution may be better positioned to advance promising therapies.
 
- Together, these capabilities create an end-to-end platform designed to help enterprises establish ownership of data and assets, determine their value, protect them, and monetize them across a range of industries, including sports and entertainment, events and venues, healthcare, biotech, financial services, education, real estate and energy. For more information, visit the company’s website at: https://dvlt.ai/insights
+ One company working to advance this transition is Onco-Innovations (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H), a preclinical-stage precision oncology company focused on developing therapies targeting…
 
- To register to attend, visit: https://moodycapital.com/conference/
+ Read More>>
 
- To view IBN’s coverage of the conference, visit https://ibn.fm/MoodyCapital2026ConferenceAbout Moody Capital Solutions Inc.
+ NOTE TO INVESTORS: The latest news and updates relating to ONNVF are available in the company’s newsroom at https://nnw.fm/ONNVF
 
- Moody Capital Solutions is an independent, full-service investment bank with more than 40 years of experience in capital raising, M&A, and advisory services, and is recognized as a market leader in rights offerings. Member FINRA/SIPC.www.moodycapital.com
+ About NetworkNewsWire
 
- About IBN’s Coverage
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- IBN, a multifaceted financial news and publishing company, is providing the online investment community with a custom-built portal that includes summaries on each of the companies participating at Moody Capital Solutions 2026 Disruptive Growth and Life Sciences Conference. In addition to enabling proficient evaluation of each company via one-click access to market research tools and helpful website links, IBN is using social media and syndicated articles to maximize the visibility of the event.
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more than a decade, IBN has provided real-time coverage for numerous global events and conferences through its various brands, social media accounts and investment newsletters. To further expand visibility of participating companies at these events, and to ensure another successful year for its event collaborations, IBN’s syndication partners have extended digital coverage to include individual broadcasts on financial websites and platforms visited by millions of investors daily.
+ For more information, please visit https://www.NetworkNewsWire.com
 
- For more information, please visit https://ibn.ai/
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the IBN website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
 
- IBN.AiAustin, Texaswww.IBN.Ai512.354.7000 OfficeEditor@IBN.Ai 
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/datavault-aitm-nasdaq-dvlt-featured-in-coverage-of-the-disruptive-growth-life-sciences-conference/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/datavault-ai-to-present-at-moody-capital-2026-conference/434aa292631806a949caf168efd5d98e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onco-innovations-advances-onc010-toward-clinic-with-manufacturing-and-capital-milestones/f2b9945257c7f78db6f618d7652defc8) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2097430051876680035)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-and-capital-milestones/)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/onco-innovations-advances-onc010-toward-clinic-with-key-milestones)
+
+Pickup - [https://advos.io/en](https://advos.io/en/onco-innovations-bolsters-manufacturing-regulatory-and-capital-readiness-for-onc010-clinical-translation)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-funding-milestones)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-milestones-and-funding-for-onc010)
+
+Pickup - [https://burstable.news](https://burstable.news/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-and-capital-milestones)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/onco-innovations-treibt-onc010-mit-meilensteinen-bei-fertigung-und-kapital-in-richtung-klinischer-studien-voran)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/onco-innovations-avanza-onc010-hacia-ensayos-clinicos-con-hitos-de-fabricacion-y-capital)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/onco-innovations-fait-progresser-onc010-vers-les-essais-cliniques-grace-a-des-etapes-cles-en-fabrication-et-en-financement)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/onco-innovations-avanca-onc010-rumo-aos-ensaios-clinicos-com-marcos-de-fabricacao-e-capital)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/onco-innovations-strengthens-manufacturing-ind-and-capital-foundation-for-onc010-advancement)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/onco-innovations-strengthens-manufacturing-ind-readiness-and-capital-for-cancer-therapy-advancement)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/onco-innovations-strengthens-clinical-foundation-for-onc010-with-manufacturing-ind-and-capital-milestones)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones-for-onc010)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/onco-innovations-strengthens-manufacturing-ind-and-capital-foundation-for-clinical-advancement-of-onc010)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/onco-innovations-ltd-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-capital-milestones)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f2b9945257c7f78db6f618d7652defc8)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/onco-innovations-advances-onc010-toward-clinical-trials-with-new-manufacturing-and-funding-milestones)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-ind-and-capital-milestones)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/onco-innovations-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/onco-innovations-strengthens-clinical-foundation-for-onc010-with-manufacturing-ind-and-capital-milestones)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-capital-milestones)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/onco-innovations-strengthens-clinical-foundation-for-onc010-with/202638285)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/f2b9945257c7f78db6f618d7652defc8)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/8/keepIiKT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/8/ulnaOYCd.webp)

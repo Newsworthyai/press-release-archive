@@ -1,42 +1,112 @@
-# Nano-X Imaging (NNOX) Expands Nanox.ARC Distribution in New England
+# A Strong Partner for Repair Shops: Elring Brings Together Knowledge, Service, and Technical Expertise
 
-LOS ANGELES, CA - September 8, 2026 (NEWMEDIAWIRE) - Nanox (NASDAQ: NNOX), through its U.S.-based subsidiary Nanox Impact Inc., entered into a distribution agreement with Associated X-Ray Imaging Corp. to support deployment of the Nanox.ARC across New England. Under the agreement, Associated X-Ray Imaging will market, distribute and support the FDA-cleared, multisource 3D digital tomosynthesis system, leveraging its regional customer relationships and service infrastructure. The agreement expands Nanox’s U.S. channel partner network and is intended to increase access to the Nanox.ARC in outpatient and community-based clinical settings across targeted markets.
+DETTINGEN, ERMS and FRANKFURT AM MAIN - September 8, 2026 (NEWMEDIAWIRE) - Advances in vehicle technology are driving demand for specialist expertise and technical support. At Automechanika 2026, “Elring - Das Original” will unveil enhancements to Elring Garage, a central platform for specialist information, training, and technical support. Under the banner “Preferred Partner. Original Quality. Expert Service.,” Elring aims to support auto workshops and trade partners as mobility evolves, providing them with products, technical know-how, and services tailored to their day-to-day operations.
 
- To view the full press release, visit https://nnw.fm/ChGtd
+ With “We maintain mobility” as its guiding message, “Elring - Das Original” will present a comprehensive range of products, technical services, and knowledge-sharing resources for professional repair shops. Alongside high-quality sealing solutions and extensive OE expertise, Elring Garage provides training, technical support, and direct access to specialist knowledge. In this way, Elring helps repair shops work confidently with new technologies, streamline repair processes, and strengthen their long-term competitiveness.
 
- About Nanox
+ “As a trusted partner to repair shops and distributors, we aim to provide far more than high-quality replacement parts. Building on our broad product portfolio, technical services, and Elring Garage, we help workshop professionals successfully navigate the challenges of a changing mobility landscape. Shaping the future of mobility together with our customers is a key pillar of our SHAPE30 Group strategy,” says Dirk Willers, ElringKlinger’s Chief Sales Officer (CSO), whose responsibilities include the Aftermarket business for the “Elring - Das Original” brand.
 
- Nanox is focused on driving the world’s transition to preventive health care by delivering an integrated, end-to-end medical imaging and healthcare services platform.
+ Elring Garage: Knowledge, service, and networking on a single platform
 
- Nanox combines affordable imaging hardware, advanced AI-based solutions, cloud-based software, access to remote radiology, health IT solutions, and a marketplace to enable earlier detection, improved clinical efficiency, and broader access to care.
+ Elring Garage brings together technical information, services, training courses, webinars, TechTalks, digital learning resources, and practical videos on a central platform. Developed in response to strong demand for greater technical support, hands-on knowledge, and direct access to specialist expertise, Elring Garage helps repair shops handle diagnostic, maintenance, and repair work efficiently while continually expanding their capabilities. The enhanced platform gives workshop professionals quick access to relevant technical information, application guidance, and practical support. It therefore helps repair professionals complete repairs more quickly and safely, work confidently with new vehicle technologies, and continually broaden their technical expertise.
 
- Nanox’s vision is to expand the reach of medical imaging both within and beyond traditional hospital settings by providing a seamless solution from scan to interpretation and beyond. By leveraging proprietary digital X-ray technology, AI-driven analytics, and a clinically driven approach, Nanox aims to enhance the efficiency of routine imaging workflows, support early detection of disease, and improve patient outcomes.
+ Elring Garage is also evolving into an international network for workshop professionals, engine specialists, and automotive technology enthusiasts. Digital and face-to-face formats allow participants to connect with peers around the world, build new relationships, and share knowledge and practical experience. The portfolio ranges from technical articles, service information, and exploded-view drawings to the Elring Academy, hands-on training, webinars, TechTalks, and roadshows, complemented by a service hotline, the Sealant Advisor, and various community and networking opportunities.
 
- The Nanox ecosystem includes Nanox.ARC, a cost-effective, 3D multi-source digital tomosynthesis imaging system designed for ease of use and scalability; Nanox.AI, a suite of AI-based algorithms that augment the interpretation of routine CT imaging to identify early signs often associated with chronic disease; Nanox.CLOUD, a cloud-based platform for secure data management, storage, and advanced imaging analytics; Nanox.MARKETPLACE and USARAD Holdings, which provide access to remote radiology and cardiology experts and comprehensive teleradiology services; and Nanox Health IT, which combines deep healthcare IT expertise with leading technology partners to deliver RIS, PACS, AI, dictation, and secure infrastructure solutions that streamline workflows and support safer, more efficient care delivery.
+ Among the highlights is the new English-language video podcast “Elring Garage FM - Facts & Myths.” The podcast brings together technical trainers and product experts to explore current issues in engine technology and workshop practice, explain the underlying technical principles, assess industry trends, and distinguish established facts from persistent myths. Available on major podcast platforms, the series delivers in-depth technical insights to audiences around the world.
 
- By integrating imaging technology, AI, cloud infrastructure, clinical expertise, a marketplace, and health information technology, Nanox seeks to lower barriers to adoption, improve utilization, and advance preventive care worldwide.
+ By continuing to develop Elring Garage, Elring aims to support repair shops not only with products but also with specialist knowledge and technical assistance. “High-quality repairs depend on having the right products and the necessary technical knowledge. Elring Garage brings together technical expertise, professional development, and international knowledge-sharing to support workshops as they adapt to technological change,” says Georges Mourad, Vice President Aftermarket at ElringKlinger AG.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: http://IBN.fm/Disclaimer
+ Product innovations for today’s repair challenges
 
- The latest news and updates relating to NNOX are available in the company’s newsroom at https://ibn.fm/NNOX
+ Alongside Elring Garage, Elring is showcasing a wide range of product innovations for professional engine and powertrain repairs at Automechanika. Highlights include new components for engine and transmission applications, such as oil pans, valve covers, oil filter housings, oil separators, and specialist tools for workshop use. The range also includes cylinder-head gaskets developed specifically for use after the cylinder head or engine block has been machined, ensuring a reliable seal following the repair. Elring is also steadily expanding its portfolio for alternative powertrain technologies. These include gaskets for electric drive units (EDUs), shaft seals for electric drives, and solutions for battery, inverter, and high-voltage applications.
 
- Forward Looking Statements
+ With the further expansion of its LiqRep portfolio, Elring is also strengthening its range of solutions for economical, sustainable repairs. Designed for plastic and metal components, these solutions support resource-efficient repairs and help lower the associated costs.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Elring at Automechanika 2026Hall 4.0 | Booth C12
+
+ For further information, please contact:ElringKlinger AG | Strategic CommunicationsDr. Jens WinterPh.: +49 7123 724-88335 | E-mail: jens.winter@elringklinger.com
+
+ About Elring
+
+ The Elring aftermarket brand offers everything in a single package: original equipment quality, functional reliability, and efficient, all-round service. This includes, for example, sales and technical training courses, service information, exploded-view drawings for trucks and vans, monthly newsletters with topics relating to engine sealing, online sealant advice, innovative installation videos, the Elring Academy, the training truck, and much more besides.
+
+ Original Elring products are highly regarded among dealers, mechanics, and their customers around the globe. In addition to cylinder head and specialty gaskets, this also includes rotary shaft seals and valve stem seals, sealing compounds, and threadlockers as well as cylinder head bolts and complete gasket sets for full and partial overhauls. Elring is also committed to the electrification of its aftermarket portfolio by adding new products to the range.
+
+ Contact:For further information, please contact:ElringKlinger AGDr. Jens WinterStrategic CommunicationsMax-Eyth-StraBe 272581 Dettingen/ErmsGermanyPhone: +49 7123 724-88335E-mail: [jens.winter@elringklinger.com](mailto:jens.winter@elringklinger.com) 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/nano-x-imaging-nnox-expands-nanox-arc-distribution-in-new-england-7089351)
+[Original/Source Press Release](https://www.newmediawire.com/news/a-strong-partner-for-repair-shops-elring-brings-together-knowledge-service-and-technical-expertise-7089366)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nanox-expands-arc-distribution-in-new-england-with-new-partner/e6b0512472f5ec9cf9722fc39cd5c34e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elring-garage-enhanced-to-support-workshops-at-automechanika-2026/2c7a4b3b369b954082dcc68232b4b35c) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/elring-expands-elring-garage-platform-to-support-workshops-amid-evolving-vehicle-technology)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/elring-mejora-la-plataforma-elring-garage-para-apoyar-a-los-talleres-en-medio-de-la-evolucion-de-la-tecnologia-vehicular)
+
+Pickup - [https://burstable.news](https://burstable.news/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/elring-erweitert-elring-garage-plattform-zur-unterstutzung-von-werkstatten-angesichts-sich-entwickelnder-fahrzeugtechnologie)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/elring-mejora-la-plataforma-elring-garage-para-apoyar-a-los-talleres-de-reparacion-en-medio-de-la-evolucion-tecnologica-de-los-vehiculos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/elring-ameliore-la-plateforme-elring-garage-pour-soutenir-les-ateliers-de-reparation-face-a-levolution-de-la-technologie-automobile)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/elring-aprimora-plataforma-elring-garage-para-apoiar-oficinas-em-meio-a-evolucao-da-tecnologia-veicular)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/2c7a4b3b369b954082dcc68232b4b35c)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-evolving-vehicle-technology)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/elring-enhances-elring-garage-platform-to-support-repair-shops-a/202638291)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/2c7a4b3b369b954082dcc68232b4b35c)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/elring-enhances-elring-garage-platform-to-support-repair-shops-amid-technological-change/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/jinxI6Wm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/8/jinxZH0k.webp)

@@ -1,46 +1,92 @@
-# Puerto Rico Financial Services Forum Returns as a Premier Caribbean Gathering for Banking and Insurance Leaders
+# Lotto.com® Celebrates Keno Expansion into Ohio, Oregon, and Puerto Rico with Special New Customer Bonus
 
-SAN JUAN, PR — September 8, 2026 — (NOTICIAS NEWSWIRE) — The Puerto Rico Financial Services Forum has officially opened registration for its sixth edition, taking place on November 2–3, 2026, at the Sheraton Puerto Rico Convention Center in San Juan.
+JERSEY CITY, NJ — September 8, 2026 — (NOTICIAS NEWSWIRE) — Lotto.com, the nation’s first online lottery platform to digitally deliver draw games and scratch tickets, announced today that Keno is now fully operational and available to customers in Ohio, Oregon, and Puerto Rico. Following the successful introduction of the game in Massachusetts earlier this year, the expansion marks another milestone in Lotto.com’s strategy to bring innovative lottery experiences to more players while increasing digital engagement with state lotteries.
 
- Recognized as one of the Caribbean’s leading gatherings focused on international banking and insurance, the Forum brings together senior executives, regulators, institutional investors, insurers, international banks, compliance leaders, legal experts and government officials from Puerto Rico, the United States, Latin America and the Caribbean. Over the course of its previous editions, the event has continued to grow, reinforcing its position as a premier platform for industry dialogue, collaboration and business development in the region.
+ Keno is a draw‑style numbers game that offers players a flexible, fast‑paced alternative to traditional lottery formats, with draws occurring on average between 3 – 5 minutes. Designed to be simple to play with multiple ways to win, Keno allows customers to choose how many numbers to play, how much to wager, and how long they want to stay in the game – all through a seamless digital experience available via Lotto.com and the app during operational hours. Designed to complement traditional lottery games, Keno provides a dynamic experience that appeals to both new and existing lottery players.
 
- The 2026 edition will expand its international reach with speakers and high-level discussions centered on the evolving challenges and opportunities shaping the future of financial services. Key topics will include artificial intelligence in insurance and financial crime compliance, fintech and Banking-as-a-Service, correspondent banking, captive insurance, AML and sanctions, digital assets, regulatory and law enforcement priorities, and investment strategies.
+ The launch of Keno in Ohio, Oregon, and Puerto Rico significantly expands access to one of the most popular lottery game formats in the world. Keno provides an engaging complement to traditional jackpot games such as Powerball® and Mega Millions® while creating new opportunities for lottery participation. Collectively, these 3 jurisdictions account for over $800 million in annual Keno sales, demonstrating that significant lottery play extends well beyond national jackpot games.
 
- Featured speakers include Mónica Rodríguez, Commissioner of Financial Institutions; Suzette del Valle, Commissioner of Insurance of Puerto Rico; Angelo Colombo of AIG; David White of Morgan White Group; Jeff Radke of Accelerant; Zahira Rodríguez Gonzalvo of Popular; Scott Kosnoff of Faegre Drinker Biddle & Reath LLP; Osho Jha of Arbol Inc.; Christina Kindstedt of Advantage Insurance Management; Oscar Angarita of Kredit Plus; Rubén Gely of IICG; Antonio Ramírez of McConnell Valdés; Alberto Pagan of Certus Income; and Gregory Cobb of SAGE.
+ “Following our successful launch in Massachusetts earlier this year, we are excited to expand our Keno portfolio across North America into Ohio, Oregon, and Puerto Rico,” said Thomas Metzger, CEO of Lotto.com Inc. “High frequency games like Keno represent an important evolution of our mission to modernize lottery participation while helping our lottery partners reach new and existing players through trusted digital channels.”
 
- The program will also bring together leaders from across the banking, fintech, regulatory and compliance sectors, including Stephanie L. Connor of Holland and Knight, Christian Ford of DLA Piper; Zachary Kessler of the U.S. Department of Treasury, Rebecca “Becky” Schauer of Blue Ridge Bank; Jason Chorlins of Kaufman Rossin; Fabio Garcia of Payblr; Eduardo Solorzano of Amerant Bank; Tony Borrayo of One Forty; Kyle Clark of Anchorage Bank;
+ Customers 18 years of age and older in Ohio, Oregon, and Puerto Rico can now access Keno through Lotto.com and the Lotto.com app, where they can conveniently order tickets and manage their lottery play from their mobile devices or computers.
 
- Jimmy Grace former Compliance Officer of TD Bank; Francisco Tony Navarro of RED Ventures; Eric Bloom of Banco San Juan Internacional; Jarryd E. Anderson of Ropes & Gray LLP; and Carl Fornaris of Winston & Strawn.
+ To celebrate the launch of Keno in Massachusetts, Ohio, Oregon, and Puerto Rico, Lotto.com is offering eligible new customers a one-time promotional credit of $3 toward their first Keno order. Use code 3OFFKENO, in MA, OH, and OR; and code KINO in PR (Only Applicable in Massachusetts, Ohio, Oregon, and Puerto Rico- Service fees applied. Expires12/31/26 11:59 pm EST). Visit Lotto.com for more promotional terms and details.
 
- The program will also address emerging issues surrounding digital assets, financial crime and enforcement, with speakers including James Lee of Chainalysis; Roderick Schwarz of CSMB; Dustin Palmer of Anchorage Digital Bank; Dennis Lormel of DML Associates; and Sonia Torres of DLA Piper.
+ As Lotto.com continues to expand its digital lottery offerings nationwide, the company remains focused on delivering secure, responsible, and innovative lottery experiences that create value for both players and lottery organizations.
 
- The Forum will feature keynote speaker Ignacio Gomez, an award-winning investigative journalist who has exposed corruption, financial crime and corporate misconduct across borders.
+ For more information on Lotto.com, or to begin ordering official state lottery tickets “Winever,” visit www.lotto.com.
 
- “More than a conference, the Puerto Rico Financial Services Forum has established itself as a high-level networking destination where decision-makers and influential leaders connect, exchange ideas, and explore new opportunities for collaboration and growth,” said Hugo Cordova, President of the Puerto Rico International Insurers Association (PRIIA).
+ About Lotto.com Inc.
 
- “The Puerto Rico Financial Services Forum continues to strengthen Puerto Rico’s position as a hub for international banks and insurers, while creating a platform for dialogue around innovation, regulation, and the future of the financial industry,” expressed Eduardo Colón, President of the Puerto Rico International Banks Association (PRIBA).
+ Headquartered in Jersey City, New Jersey, Lotto.com is the first digital platform for ordering official state lottery draw and scratch games on both mobile and web based platforms. As a lottery courier enabling player participation in the U.S. State Lotteries, Lotto.com helps lotteries across the country contribute incremental funds to state-run programs across education, parks, emergency responders, veterans’ health and other important services.
 
- This year’s edition will also provide sponsors and participating organizations with direct access to a highly specialized and influential audience, offering valuable opportunities for brand visibility, strategic engagement and relationship-building within the financial services sector.
+ Lotto.com is the only Better Business Bureau Accredited lottery courier service and is certified by Gaming Laboratories International (GLI) and the National Council on Problem Gambling (NCPG), underscoring its commitment to security, compliance, and responsible gaming.
 
- Organizers encourage financial institutions, insurance companies, law firms, accounting firms, technology providers and related organizations to secure their participation early as additional speakers, featured sessions and announcements will be unveiled in the coming weeks.
+ Lotto.com has over 4 million customers and has created 12 millionaires via state-run games, including the largest Lotto.com Scratch Tickets ticket win in history – $3 million to a customer in Colorado. In June 2023, Lotto.com introduced the Lotto.com Scratch Tickets, which are currently available in Arizona, Colorado, Massachusetts, Nebraska, Ohio, and Oregon. Lotto.com is currently available in Arizona, Arkansas, Colorado, Maine, Massachusetts, Minnesota, Nebraska, New Jersey, New York, Ohio, Oregon, and Puerto Rico with plans to expand to additional states in the near future.
 
- For more information and registration, visit: www.financialservicesforumpr.com
-
- About the Puerto Rico Financial Services Forum The Puerto Rico Financial Services Forum is hosted by the Puerto Rico International Insurers Association (PRIIA) and the Puerto Rico International Banks Association (PRIBA). Now in its sixth edition, the Forum has become an annual gathering for leaders across Puerto Rico’s international banking, insurance and financial services sectors.
-
- CONTACT: Beatriz De Jesús, R-870 787-638-0819 beatriz@adworkscorp.com 
+ CONTACT: Havas Formula lotto@havasformula.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/puerto-rico-financial-services-forum-returns/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/lotto-com-celebrates-expansion/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/puerto-rico-financial-services-forum-2026-opens-registration/c23d304bd79bf3e3261eca19180ad7c3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lotto-com-expands-keno-to-ohio-oregon-and-puerto-rico/3d757254cedda87668aa5c74b8f5bd2d) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-new-customer-bonus)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-new-customer-bonus)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-engagement)
+
+Pickup - [https://news.bostondailytribune.com/curated](https://news.bostondailytribune.com/curated/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-access)
+
+Pickup - [https://burstable.news](https://burstable.news/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-new-customer-bonus)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/lottocom-erweitert-keno-auf-ohio-oregon-und-puerto-rico-und-bietet-neuen-kunden-einen-bonus)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/lottocom-expande-keno-a-ohio-oregon-y-puerto-rico-ofreciendo-bonificacion-para-nuevos-clientes)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lottocom-etend-keno-a-lohio-loregon-et-porto-rico-offrant-un-bonus-aux-nouveaux-clients)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/lottocom-expande-keno-para-ohio-oregon-e-porto-rico-oferecendo-bonus-para-novos-clientes)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-access)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-new-customer-bonus)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-access)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-3-promo-credit-to-new-customers)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-engagement)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-engagement)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-engagement)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/3d757254cedda87668aa5c74b8f5bd2d)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-targeting-800m-annual-market)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-special-bonus)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-access)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-enhancing-digital-lottery-reach)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-offering-new-customer-bonus)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-boosting-digital-lottery-engagement)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/lottocom-expands-keno-to-ohio-oregon-and-puerto-rico-targeting-8/202638286)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/8/plumww9H.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/8/icy1Bze.webp)
