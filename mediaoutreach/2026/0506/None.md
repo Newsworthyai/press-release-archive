@@ -1,0 +1,50 @@
+# Thailand Approves $29 Billion Investment Wave as Data Center Demand Surges
+
+TikTok leads new BOI approvals as Thailand moves to strengthen power readiness, clean energy access and fast-track strategic investment
+
+BANGKOK, THAILAND - [Media OutReach Newswire](https://www.media-outreach.com) - 6 May 2026 - Thailand's Board of Investment (BOI) has approved six major projects worth a combined 958 billion baht, or approximately USD 29 billion, led by a large-scale data infrastructure expansion by TikTok System (Thailand) Co., Ltd., underscoring the country's growing role as a regional hub for data centers, cloud services and AI-driven digital infrastructure.   The approvals were made at a BOI Board meeting chaired by Mr. Ekniti Nitithanprapas, Deputy Prime Minister and Minister of Finance. The Board also approved a second batch of projects under the Thailand FastPass mechanism and discussed with energy agencies steps to strengthen electricity readiness and improve access to clean energy — two increasingly important factors in attracting large-scale digital and high-technology investment.   Mr. Narit Therdsteerasukdi, Secretary General of the BOI, said the latest approvals reflect growing investor confidence in Thailand at a time when global companies are racing to expand digital infrastructure across Asia.   "Amid continuing global volatility, investment in Thailand's digital and advanced technology sectors continues to grow, reflecting investor confidence in the country's potential as a regional technology hub," Mr. Narit said. "For Thailand to capture this new investment cycle, we must be ready not only with investment incentives, but also with sufficient power, clean-energy options, skilled talent, deeper supply chains and a reliable facilitation system that allows projects to move quickly from approval to operation."   Of the six approved projects, three are in data center and data hosting services, with a combined investment value of 913 billion baht, or approximately USD 27 billion.   The largest project is by TikTok System (Thailand) Co., Ltd., valued at 842 billion baht, or approximately USD 25 billion. The project will install additional servers and expand data storage and processing infrastructure across Bangkok, Samut Prakan and Chachoengsao Province, supporting rising demand for digital services and strengthening Thailand's role in regional digital infrastructure.   Beyond its core infrastructure investment, TikTok has also committed to developing digital literacy and e-commerce curricula to help create new business opportunities for Thai entrepreneurs and strengthen the country's digital workforce.   Another approved project is a 46 billion baht, or USD 1.4 billion, data center investment by Skyline Data Center and Cloud Services Co., Ltd., part of the UAE-based DAMAC Group. Located in Chachoengsao, the project will support an IT load of 200 megawatts.   A third data center project, by Bridge Data Centres IIO (Thailand) Co.,Ltd. from Singapore, was approved with an investment value of 24.6 billion baht, or USD 746 million. Located in Chonburi, the project will support an IT load of 134 megawatts.   The remaining approved projects cover renewable energy, circular economy and resource-based industries. PureCycle (Thailand) Co.,Ltd. will invest 8.18 billion baht, or USD 248 million, in recycled plastic pellet production in Rayong, using technology exclusively licensed from P&G, with Thailand serving as a key production base for the Asian market. Dan Khun Thot Wind One Co., Ltd. will invest 4.7 billion baht, or USD 143 million, in an 89-megawatt wind power generation project in Nakhon Ratchasima. ASEAN Potash Chaiyaphum Plc. will invest 31.4 billion baht, or USD 952 million, in potassium chloride production in Chaiyaphum, producing a key input for potash fertilizer.   To accelerate project implementation, the BOI Board also selected nine additional projects worth 52 billion baht, or USD 1.6 billion, for Thailand FastPass, following the first batch of 16 projects. The latest selection brings the FastPass portfolio to 25 projects, with a combined investment value of 223 billion baht, or USD 6.8 billion.   The FastPass mechanism is designed to streamline approval and permitting procedures, speed up coordination among relevant agencies — including the BOI, the Department of Industrial Works, the Industrial Estate Authority of Thailand, the Office of Natural Resources and Environmental Policy and Planning, the Customs Department and power-related agencies — and help strategic projects begin operations faster.   At the same meeting, the Board outlined steps to strengthen electricity readiness with the Ministry of Energy and the Energy Regulatory Commission, focusing on urgent power supply needs for incoming investment, particularly in the Eastern region. The Board also directed action on accelerating the issuance of Thailand's Power Development Plan (PDP) to support future demand, new energy technologies and long-term power-system planning.   The Board also advanced plans for clean energy mechanisms, including Direct Renewable Power Purchase Agreements, or Direct PPA, which would allow private companies to buy and sell renewable electricity directly, with participation criteria and grid-service charges to be announced shortly. The Board also acknowledged the launch of Utility Green Tariff 2, or UGT2, a source-specific green tariff designed to give companies more options for procuring clean electricity.   The Board also tasked the BOI with coordinating with relevant agencies to consider regulatory improvements that would facilitate clean energy investment, including easing power-generation licensing conditions for foreign operators installing solar rooftops, and clarifying rules to support self-generation under Independent Power Supply, or IPS, arrangements.   Mr. Narit said the combination of large-scale digital investment, power readiness, clean energy access, skilled talent and faster investment facilitation is central to Thailand's competitiveness in the next phase of global investment.   "Thailand is entering a new investment cycle in which speed, power readiness, clean energy access and skilled talent will be decisive," he said. "The BOI is working with partner agencies to ensure that major projects can move from approval to operation as quickly as possible, while strengthening the infrastructure, workforce, supply chains and ecosystem needed for long-term growth in the digital economy."   USD conversion based on an estimated exchange rate of 33 baht per USD.  Hashtag: #boinews #thailandboardofinvestment[https://www.boi.go.th](https://www.boi.go.th)[https://www.facebook.com/boithailandnews](https://www.facebook.com/boithailandnews)The issuer is solely responsible for the content of this announcement.
+
+Thailand Board of InvestmentEstablished in 1966, the Office of the Board of Investment (BOI) has continuously played an essential role for over 60 years in promoting value-adding investment for the country, from both foreign and Thai investors, to enhance national competitiveness and drive towards a new era of sustainable and balanced growth.   Investment Services Center- PR Section, The Office of the Board of Investment (BOI)   555 Vibhavadi-Rangsit Road, Chatuchak Bangkok 10900 Tel. +66 (0) 2553 8111, Fax: +66 (0) 2553 8222
+
+![](//track.media-outreach.com/index.php/WebView/463332/279561) 
+
+---
+
+[Original/Source Press Release](https://www.media-outreach.com/news/thailand/2026/05/06/463332/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tiktok-s-25b-thai-data-center-leads-boi-approvals/0c858373cc2b3b12e14a293233a2259e) 
+
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/thailand-approves-29-billion-investment-wave-as-data-center-demand-surges)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/9/loftpWz_.webp)
