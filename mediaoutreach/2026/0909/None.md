@@ -1,94 +1,100 @@
-# Shenzhen-Hong Kong-Guangzhou Innovation Cluster in China maintains global lead
+# Bain Capital and Omnam Group announce the sale of the Lake Como Edition Hotel to Sansiri Capital
 
-HONG KONG SAR - [Media OutReach Newswire](https://www.media-outreach.com/) - 9 September 2026 - The World Intellectual Property Organization (WIPO) released its Global Innovation Index (GII) 2026 on September 8, revealing that the Shenzhen-Hong Kong-Guangzhou metropolitan cluster, located in Southern China, has once again secured the top position among the world's 100 leading innovation clusters. This marks another triumph for the Guangdong-Hong Kong-Macao Greater Bay Area (GBA), solidifying its status as a global powerhouse for scientific advancement and technological entrepreneurship.   The annual GII ranking evaluates innovation activity through three core metrics: international patent filings via WIPO's Patent Cooperation Treaty (PCT), scientific publications and the number of venture capital deals. For this year's ranking, the Shenzhen-Hong Kong-Guangzhou cluster filed 2,259 PCT applications, published 4,060 scientific articles and had 138 venture capital deals, all per 1 million inhabitants over the past five years.   Welcoming the announcement, a spokesman for the Hong Kong Special Administrative Region (HKSAR) Government said the ranking reaffirms the outstanding innovative capacity and the innovation and technology (I&T)-supporting financing ecosystem of the GBA.   "Expediting I&T development has been a policy priority of this Government," the spokesman added, highlighting the HKSAR Government's continuous development of the original grant patent system and introduction of the patent box regime, which offers tax concessions for intellectual property income to promote innovation.    The HKSAR Government's strategic investments are already yielding tangible results. The number of start-ups in Hong Kong has surged from over 1,500 in 2015 to more than 5,200 in 2025. The city's two I&T flagships—Hong Kong Science Park and Cyberport—have collectively nurtured around 20 unicorns to date.   A landmark development in this trajectory is the official opening of the Hong Kong Park of the Hetao Shenzhen-Hong Kong Science and Technology Innovation Co-operation Zone (the Loop Hong Kong Park) in December 2025. Over 100 technology enterprises and institutions have already signed leases and begun moving in. The Loop Hong Kong Park is poised to serve as an important platform for basic scientific research, commercialisation, pilot production, and international I&T collaboration within the GBA.   Furthermore, the establishment of the San Tin Technopole Company Limited in June 2026 is set to develop 210 hectares of I&T land in the San Tin Technopole, which is located in Hong Kong's Northern Metropolis development. It will create a vital node for integrated upstream, midstream and downstream industrial development, alongside the Loop Hong Kong Park.   Hong Kong's financial machinery remains a cornerstone of its innovation success. The city boasts a vibrant private equity market with assets under management nearing US$250 billion, ranking second in Asia after the Chinese Mainland.   Looking ahead, Hong Kong will proactively align its strategy with the National 15th Five-Year Plan to fortify its position as an international I&T centre. The city will also further deepen collaboration with GBA sister cities, and contribute to the nation's efforts in building a modern industrial system and achieving high-level scientific and technological self-reliance and strength.        Hashtag: #HongKong #Shenzhen #Guangzhou #InnovationCluster #Top #GBA #I&T[https://www.brandhk.gov.hk/](https://www.brandhk.gov.hk/)[https://www.linkedin.com/company/brand-hong-kong/](https://www.linkedin.com/company/brand-hong-kong/)[https://x.com/Brand_HK/](https://x.com/Brand_HK/)[https://www.facebook.com/brandhk.isd](https://www.facebook.com/brandhk.isd)[https://www.instagram.com/brandhongkong](https://www.instagram.com/brandhongkong)The issuer is solely responsible for the content of this announcement.
+The transaction follows the landmark property’s March 2026 debut and marks the completion of the joint venture transformation of the Lake Como site into a five-star EDITION hotel
 
-![](//track.media-outreach.com/index.php/WebView/486271/279561) 
+BANGKOK, THAILAND – [Media OutReach Newswire](https://www.media-outreach.com/) – 9 September 2026 – [Bain Capita](https://www.baincapital.com/news/bain-capital-acquire-gong-cha-one-worlds-fastest-growing-tea-brands-ta-associates)[l](https://www.baincapital.com/news/bain-capital-acquire-gong-cha-one-worlds-fastest-growing-tea-brands-ta-associates), a leading global private investment firm, and [Omnam Group](https://www.omnamgroup.com/), a Europe-based hospitality real estate developer and investor, recently announced the sale of [The Lake Como EDITION](https://www.editionhotels.com/lake-como/) to Sansiri Capital, the hospitality trophy asset fund of [Sansiri Public Company Limited](https://www.sansiri.com/en/), a leading Thai real estate developer with more than 40 years of experience. The transaction marks the culmination of the partners' transformation of the landmark Lake Como property into one of Italy's most significant new luxury hospitality destinations. The transaction is expected to be completed in the next several weeks. Completion remains subject to customary closing conditions and required third-party approvals. Financial terms were not disclosed.    Set on the shores of Cadenabbia, the property occupies a rare waterfront position opposite Bellagio, with access to Milan and Malpensa International Airport in approximately one hour. The landmark 19th-century palazzo was acquired by Bain Capital and Omnam Group in late 2021. An extensive redevelopment began in April 2022, reimagining the historic property as The Lake Como EDITION. The hotel opened in March 2026, just under six months ago, as part of Marriott International's EDITION Hotels portfolio, introducing a new expression of contemporary luxury to one of Italy's most iconic destinations.    At acquisition, Bain Capital and Omnam identified an opportunity to create a new luxury hospitality offering in a market characterized by strong international demand, limited five-star supply and significant barriers to new lakeside development. Acquiring the property with vacant possession enabled the partners to undertake a comprehensive repositioning rather than an incremental refurbishment.   The sale reflects growing international investor interest in distinctive, experience-led European hospitality assets and marks Sansiri's strategic expansion into Europe's luxury hospitality sector through the Sansiri Capital fund, further strengthening its portfolio of trophy assets. For Bain Capital and Omnam Group, the transaction demonstrates the value created by combining real estate investment, development expertise and leading hospitality partners to reposition a complex asset.   The redevelopment substantially reconfigured the property, reducing the former hotel's room count from nearly 300 to 148 larger rooms and suites and creating a new spa and wellness building, alongside an extensive food and beverage and leisure offering. The transformation also incorporated the property's distinctive waterfront amenities, including its floating pool and beach club.    Ali Haroon, a Partner and Head of Europe Real Estate for Bain Capital, said:   "Lake Como is a strong example of how we approach real estate investing in Europe. We focus on sectors supported by long-term structural demand and opportunities where our capital, local relationships and hands-on capabilities can fundamentally transform an asset. Together with Omnam, we have taken a highly underinvested property in an irreplaceable location and created a contemporary luxury destination for the international market. This is exactly the type of complex, execution-led opportunity we seek across our Europe Real Estate strategy."    David Zisser, CEO and Founder of Omnam Group, said:   "The Lake Como EDITION has been an ambitious undertaking from the outset. Our vision was to take a remarkable historic property in one of the world's most iconic destinations and give it new relevance through architecture, design and hospitality, while remaining deeply connected to the character of Lake Como.   Together with Bain Capital and an exceptional group of partners, we have taken that vision from acquisition and development through to the opening of a landmark new hotel. We are immensely proud of what has been created. The completion of this transaction is a significant milestone for Omnam and a testament to the strength of our development approach, while marking the beginning of an exciting new chapter for The Lake Como EDITION."   The sale of The Lake Como EDITION marks the latest chapter in Omnam Group's expanding presence across Europe, where an ambitious pipeline of projects is currently underway in Florence, Venice, Puglia and Sicily — each reimagining distinctive properties into internationally relevant lifestyle destinations.   The acquisition also marks a significant international investment for Sansiri Public Company Limited, bringing one of Lake Como's newest luxury hospitality assets into its trophy-asset portfolio through Sansiri Capital, the hospitality trophy-asset investment arm.   Napat Thavisin, President of International Operations, Sansiri Public Company Limited and Managing Director of Sansiri Capital, said:   "The acquisition of The Lake Como EDITION marks a significant milestone in advancing Sansiri's New S-Curve strategy. It strengthens our financial resilience and diversifies risk across our global hospitality portfolio. We remain focused on ultra-luxury trophy assets in gateway cities and high-demand leisure destinations—markets characterised by robust demand and inherently constrained supply. This disciplined capital-allocation approach is designed to maximise long-term shareholder value.    As Thailand's No.1 most trusted luxury real estate developer, with 40 year of experience, Sansiri brings a proven record in global markets from The Manner SoHo, New York to the growth of Standard International prior to its acquisition by Hyatt Hotels Corporation. Leveraging this expertise, we look forward to stewarding this exceptional investment in The Lake Como EDITION under Sansiri Capital's ownership, in collaboration with Marriott International, which will continue to operate the hotel, while further diversifying our revenue streams across major global currencies. Looking ahead, Sansiri will actively pursue trophy-asset investments in premier leisure and gateway destinations worldwide, reinforcing our position as a fully integrated global real estate and lifestyle investment platform."   Hashtag: #SansiriThe issuer is solely responsible for the content of this announcement.
+
+![](//track.media-outreach.com/index.php/WebView/485165/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/09/09/486271/)
+[Original/Source Press Release](https://www.media-outreach.com/news/thailand/2026/09/09/485165/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/shenzhen-hong-kong-guangzhou-tops-global-innovation-index-again/fed79416eefbeb705d95bcd6f43091f9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bain-capital-and-omnam-sell-lake-como-edition-to-sansiri-capital/e086e3824eb1fe36ecf30be42f37abab) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/09/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-in-wipo-index/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/09/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital-marking-luxury-hospitality-milestone/)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/shenzhen-hong-kong-guangzhou-innovation-cluster-in-china-maintains-global-lead)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/bain-capital-and-omnam-group-announce-the-sale-of-the-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/shenzhen-hong-kong-guangzhou-tops-global-innovation-index-again-reinforcing-greater-bay-areas-tech-prowess)
+Pickup - [https://advos.io/en](https://advos.io/en/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://advos.io/en](https://advos.io/en/shenzhen-hong-kong-guangzhou-innovation-cluster-tops-global-index-again)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipo-index)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/bain-capital-and-omnam-group-sell-the-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-tops-global-index-again-underscoring-gbas-rise-as-it-powerhouse)
+Pickup - [https://burstable.news](https://burstable.news/news/bain-capital-and-omnam-group-sell-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://burstable.news](https://burstable.news/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipos-2026-rankings)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/bain-capital-und-omnam-group-verkaufen-lake-como-edition-hotel-an-sansiri-capital)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/innovationscluster-shenzhen-hongkong-guangzhou-behauptet-weltweite-spitzenposition-im-wipo-ranking-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/bain-capital-y-omnam-group-venden-el-hotel-edition-del-lago-de-como-a-sansiri-capital)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-cluster-de-innovacion-shenzhen-hong-kong-guangzhou-mantiene-el-liderazgo-global-en-el-ranking-de-la-ompi-2026)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/bain-capital-et-omnam-group-vendent-lhotel-edition-du-lac-de-come-a-sansiri-capital)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-cluster-shenzhen-hong-kong-guangzhou-conserve-la-premiere-place-mondiale-dans-le-classement-2026-de-lompi)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/bain-capital-e-omnam-group-vendem-hotel-edition-no-lago-de-como-para-a-sansiri-capital)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/cluster-de-inovacao-shenzhen-hong-kong-guangzhou-mantem-lideranca-global-no-ranking-de-2026-da-ompi)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipo-index)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/bain-capital-and-omnam-group-sell-the-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-reinforcing-gbas-tech-dominance)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-in-wipos-2026-index)
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/bain-capital-and-omnam-group-sell-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-in-wipo-index)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipos-2026-index)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital-marking-a-new-chapter-for-luxury-hospitality-investment)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-in-wipo-index)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital-marking-a-milestone-in-luxury-hospitality-investment)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/chinas-shenzhen-hong-kong-guangzhou-innovation-cluster-tops-global-ranking-again)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/bain-capital-and-omnam-group-sell-the-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-maintains-global-lead-in-wipo-index)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-top-spot-in-wipo-index)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-showcasing-greater-bay-areas-growing-it-strength)
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/e086e3824eb1fe36ecf30be42f37abab)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-crown-bolstering-greater-bay-areas-tech-ambitions)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-hotel-to-sansiri-capital)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipo-2026-ranking)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/bain-capital-and-omnam-group-sell-the-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipo-index)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-lead-in-wipos-2026-index)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/bain-capital-and-omnam-group-sell-the-lake-como-edition-to-sansiri-capital-marking-a-milestone-in-luxury-hospitality-investment)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/shenzhen-hong-kong-guangzhou-innovation-cluster-retains-global-l/202638294)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-capital)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/bain-capital-and-omnam-group-sell-lake-como-edition-to-sansiri-c/202638300)
+
+Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/e086e3824eb1fe36ecf30be42f37abab)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/9/pintBt00.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/9/zero64yi.webp)

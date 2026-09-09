@@ -1,54 +1,122 @@
-# ORGANA International Brings Nearly Three Decades of Natural Wellness Experience to ECRM
+# ROS® Teams Up with FranMan to Issue Updated Franchise Recruitment Manual 
 
-For nearly three decades, ORGANA International has built its business around plant-derived minerals, natural ingredients, and wellness products designed to become part of consumers' everyday routines. Now, the company is looking to bring that experience to a broader retail audience.
+Recruitment Operating System (ROS®) today announced the release of its updated and expanded Franchise Recruitment Manual, bringing the industry leading resource in line with how today’s high-performing franchise recruitment teams operate. Created in collaboration with FranMan - the gold standard in creating professional operating manuals - the updated instruction manual offers the most up-to-date advice for integrating proven recruitment principles with modern recruiting tools and best practices. This updated publication marks the first significant update of the ROS® Franchise Recruitment Manual since 2021.
 
- ORGANA International CEO Larry Mills will participate in the ECRM Vitamin, Weight Management & Sports Nutrition Session, Sept. 14-17 in Palm Beach Gardens, Florida, where he will meet with buyers representing major health, specialty, food, drug, and mass retail channels.
+ "The fundamentals of great franchise recruitment haven't changed, and we don't want them to,” stated Art Coley, founder and CEO of ROS®. “What has changed are the tools, data, and technology available to recruiters. Our job is to bring those pieces together without making recruitment more complicated. We want to take an already powerful resource and make it even more relevant to how champion recruiters operate today.”
 
- Rather than introducing a newly launched company or a single-product brand, Mills will arrive at ECRM with a business that traces its roots to 1997 and a portfolio that has expanded over the years to include plant-derived minerals, liquid oxygen, herbal wellness products, topical products, and other natural formulations.
+ About the ROS® Franchise Recruitment Manual For high-performing franchise sales and development teams, the ROS® Recruiter Manual has long served as a practical framework, outlining the primary role and responsibilities of recruiters and how best to move candidates through ROS®’ proprietary 8-Step recruitment process. However, the process and pace of franchise recruiting efforts have significantly evolved since the publication's last major update. Accordingly, so has ROS®. Now more than ever, recruiters have access to expanded datasets, AI-driven technologies, and candidate intel that’s much more sophisticated - all right at their fingertips. Which is why the latest edition of the manual combines the timeless recruitment principles and processes the industry has come to know and trust with the latest tools and best practices today’s recruiters need to perform at the highest level. In compiling these critical updates, ROS® collaborated with longtime publishing partner FranMan to oversee the project, organize the expanded content, and develop the next generation of the ROS® Franchise Recruitment Manual.
 
- "We've been doing this for a long time, and we've learned a tremendous amount by listening to our customers and continuing to evolve the ORGANA product line," said Mills. "What excites me about ECRM is the opportunity to sit down with retailers, tell them who we are, show them what we've built, and explore where ORGANA might fit with their customers."
+ What’s New: The ROS® Franchise Recruitment Manual In previewing the contents of the next generation of the ROS® Franchise Recruitment Manual, careful consideration was given to updating several key areas of the overall process, such as:
 
- From a Wellness Company to a Retail Opportunity ORGANA's participation comes as the company works to expand its U.S. retail presence and introduce its products to consumers beyond its existing online channels.
+ * Recruitment AnalyticsIntroduces how recruiters can use data and performance metrics to understand their own pipeline, identify opportunities for improvement, and make better decisions throughout the recruitment process.
+* Artificial IntelligenceIncorporates practical best practices for how recruiters can responsibly use AI to support their work and execution throughout the recruitment process.
+* Recruiter Behaviors & PerformanceExpands beyond scripts and process execution to address the daily, weekly, and monthly behaviors of high-performing recruiters - including how and when they should review their performance.
+* Different Types of Franchise BuyersProvides additional context for recruiting candidates beyond the traditional individual franchise buyer, including multi-unit, institutional, portfolio, and other sophisticated franchise candidates.
+* Candidate FundingStrengthens guidance around the role funding plays in the recruitment process while keeping the content focused on timeless best practices rather than individual vendors or funding providers.
+* FDD & Recruitment Process Best PracticesExpands certain areas of the existing manual where additional depth can help recruiters more effectively guide candidates through critical stages of the process.
+* Modern Learning & Content IntegrationExplores how the manual can connect with other ROS® educational resources, including ROS Academy™, video, digital content, and other learning formats, creating a more integrated experience for recruiters.
 
- The company's portfolio includes ORGANA Fulvic Acid Trace Mineral Drink, Liquid Oxygen, Essiac Tea, magnesium creams, and its new Mineral Shots, which are packaged in a colorful point-of-purchase display designed to give retailers a highly visible, ready-to-merchandise format for counters, shelves, and other high-traffic locations.
+ Lennon Coley, VP of Analytics at ROS®, is circumspect when speaking about the outsized role analytics plays in the updated manual. “Historically, we’ve been very clear in our belief that analytics shouldn’t be limited to what you can access in an executive report - the information is far too valuable. We believe recruiters should have a crystal-clear understanding of their own numbers, including how they operate and where best to apply them. What we’ve accomplished by expanding our guidance in the analytics space is in tying their importance directly to recruiter behaviors and execution - which represents a significant step forward in the process.”
 
- That breadth gives ORGANA an opportunity to discuss more than an individual product during its ECRM meetings. Mills plans to introduce buyers to the company's broader approach to wellness, its history, and the potential for different ORGANA products to complement a retailer's existing assortment.
+ ROS® updated Franchise Recruitment Manual goes a long way in advancing the recruiting industry’s best practices, policies, operations, and standards. While its contents remain faithful to the industry’s bedrock principles, the new additions account for the latest developments and advancements in procedures, tools, resources, techniques, and sophisticated candidate behaviors - offering franchise recruitment professionals a holistic approach to continuous improvement and outcomes.
 
- "Every retailer is different, and that's one of the reasons I'm looking forward to these conversations," Mills said. "We're not going into ECRM assuming one product or one approach is right for everyone. We want to understand what buyers are looking for and have meaningful conversations about where ORGANA could make sense."
-
- A Changing Natural Wellness Marketplace The retail wellness marketplace has evolved considerably since ORGANA was founded in 1997. Consumers today have access to more wellness products, more information, and more choices than ever before.
-
- At the same time, interest in ingredient sourcing, plant-derived nutrition, convenient wellness formats, and greater transparency has created new opportunities for brands that can clearly communicate what differentiates their products.
-
- ORGANA has increasingly emphasized consumer education around those subjects. Recent company initiatives have explored topics ranging from soil health and nutrient density to nutrient absorption, fulvic minerals, and plant-derived nutrition.
-
- For Mills, bringing that educational approach into conversations with retailers is an important part of introducing the ORGANA brand.
-
- "Today's consumers ask questions," Mills said. "They want to understand ingredients and why they're choosing one product over another. We believe education and transparency are increasingly important parts of building a wellness brand that consumers can trust."
-
- Building on Nationwide Online Availability ORGANA enters its September retail meetings with its products already available to consumers nationwide through Amazon and OneLavi.
-
- That online availability gives consumers an opportunity to discover the ORGANA portfolio today while the company explores relationships that could bring its products to additional retail channels.
-
- "ECRM is about what comes next for ORGANA," Mills added. "We've built the company steadily over the years, and we're excited about the opportunity to meet new retail partners and introduce ORGANA to many more consumers."
-
- Consumers can explore and purchase ORGANA products through the company's Amazon storefront and on OneLavi.com. To learn more about the company's wellness philosophy visit organa.net.
-
- About [ORGANA International](https://organa.net/) Founded in 1997, ORGANA International is a wellness company committed to delivering natural, bioavailable products that help people live healthier lives. From trace minerals and liquid oxygen to magnesium creams and detoxification teas, ORGANA’s product line is designed to restore vital elements often missing in modern lifestyles. Headquartered in Springville, Utah, ORGANA is a customer-first company with a 5-star BBB rating and nearly three decades of dedication to natural wellness.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ About Recruitment Operating System (ROS®) Recruitment Operating System (ROS®) helps franchise brands recruit more franchisees through lead generation, sales process management, advanced analytics, and executive reporting. ROS® partners with franchise organizations to improve pipeline performance and accelerate responsible system growth. For more information, please visit https://www.recruitwithros.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609092890/organa-international-brings-nearly-three-decades-of-natural-wellness-experience-to-ecrm)
+[Original/Source Press Release](https://newsworthy.ai/news/202609092888/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/organa-international-expands-retail-presence-at-ecrm-session/2fe39671baf1964a473fb418a27a41b3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ros-unveils-updated-franchise-recruitment-manual-with-ai-and-analytics/465e36f86a59ec5dfd8754130b6349c6) 
 
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/09/rosr-and-franman-release-updated-franchise-recruitment-manual-to-reflect-modern-tools-and-practices/)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://advos.io/en](https://advos.io/en/rosr-updates-franchise-recruitment-manual-with-ai-and-analytics-focus)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-align-with-modern-recruiting-tools)
+
+Pickup - [https://burstable.news](https://burstable.news/news/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/rosr-und-franman-veroffentlichen-aktualisiertes-franchise-rekrutierungshandbuch)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/rosr-y-franman-publican-el-manual-actualizado-de-reclutamiento-de-franquicias)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/rosr-et-franman-publient-un-manuel-de-recrutement-de-franchise-mis-a-jour)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/rosr-e-franman-lancam-manual-atualizado-de-recrutamento-de-franquias)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-align-with-modern-recruiting-tools)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-align-with-modern-recruiting-practices)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/rosr-unveils-updated-franchise-recruitment-manual-with-franman-integrating-modern-tools-and-analytics)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/rosr-updates-franchise-recruitment-manual-to-reflect-modern-tools-and-data)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-reflecting-modern-tools-and-best-practices)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-reflect-modern-tools-and-practices)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-integrate-ai-and-analytics)
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/465e36f86a59ec5dfd8754130b6349c6)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-reflecting-modern-tools-and-best-practices)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-reflecting-modern-tools-and-practices)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/rosr-and-franman-unveil-updated-franchise-recruitment-manual-reflecting-modern-tools-and-best-practices)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/rosr-and-franman-release-updated-franchise-recruitment-manual-to-reflect-modern-recruiting-tools-and-best-practices)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/rosr-releases-updated-franchise-recruitment-manual-to-align-with-modern-recruiting-tools-and-practices)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/rosr-updates-franchise-recruitment-manual-to-reflect-modern-tools-and-best-practices)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/rosr-and-franman-release-updated-franchise-recruitment-manual-to/202638302)
+
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/465e36f86a59ec5dfd8754130b6349c6)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/rosr-teams-up-with-franman-to-issue-updated-franchise-recruitment-manual)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/9/linesTCV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/9/quayvS6G.webp)

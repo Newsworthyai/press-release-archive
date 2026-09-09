@@ -1,57 +1,74 @@
-# Voyageur Pharmaceuticals Achieves First Milestone on Feasibility Study for Iodine Production; Secures USD $1 Million Payment
+# Naturally Amish Signs Binding LOI to Acquire USDA-Inspected Meat Processing Facility in the Midwest
 
-CALGARY, ALBERTA - September 9, 2026 (NEWMEDIAWIRE) - Voyageur Pharmaceuticals Ltd. (TSX.V: VM) (OTC Pink: VYYRF) (“Voyageur” or the “Company”), a Canadian developer of pharmaceutical-grade barium and iodine contrast media for medical imaging, is pleased to announce that it has achieved the first milestone under its non-dilutive Collaboration and Funding Agreement with Bayer AG (“Bayer”) dated February 10, 2026 (the “Agreement”) by submitting a complete feasibility work plan and timetable which has been approved by Bayer. (Collaboration funding news https://finance.yahoo.com/news/voyageur-pharmaceuticals-announces-collaboration-bayer-144926270.html )
+Acquisition Would Advance Vertical Integration and Expand Direct-to-Consumer, Restaurant and Grocery Opportunities
 
- Voyageur’s Houston R&D team has successfully proved out the Company’s proprietary patent-pending Mueller iodine extraction process, including laboratory production of 99.8% purity iodine from Anadarko Basin produced water. Those results provided the technical confirmation required for Bayer to advance the program. The transportable pilot plant is now nearing completion and is scheduled to enter field operation this fall. On that basis, Bayer has remitted Milestone Payment I of USD $1,000,000 to Voyageur. Together with the Initial Funds of USD $350,000 paid on March 31, 2026 following execution of the Agreement, Voyageur has now received USD $1,350,000 of the USD $2,350,000 committed by Bayer. This funding will allow Fluor to complete the FEL-3 feasibility study once the pilot plant is operational and field data are available. The remaining Milestone Payment II of USD $1,000,000 is scheduled to be released upon completion of that study.
+ ANGOLA, INDIANA - September 9, 2026 (NEWMEDIAWIRE) - Simulated Environment Concepts, Inc. (OTC: SMEV), operating as Naturally Amish™, announced that the Company has signed a binding Letter of Intent (“LOI”) and placed a $25,000 deposit toward the acquisition of a fully operational, USDA-inspected livestock slaughter and meat processing facility strategically located in the Midwest near its growing network of Amish farms in Indiana and Ohio.
 
- “Achievement of this first milestone under our agreement with Bayer is an important step forward for Voyageur,” said Brent Willis, President and Chief Executive Officer of Voyageur. “It confirms that the feasibility work is advancing as planned and triggers the first major non-dilutive payment under the collaboration. This capital is expected to further accelerate our iodine supply strategy and move us closer to validating a reliable North American source of high-purity iodine for use in contrast media drugs. Combined with our Frances Creek barium project and planned drug manufacturing capabilities, this work remains central to building a secure, vertically integrated supply chain for radiology drugs.”
+ The proposed acquisition represents a major step in Naturally Amish’ strategy to build a vertically integrated farm-to-table platform connecting livestock raised within Amish farming communities directly to consumers, restaurants, grocery stores, foodservice companies and wholesale customers.
 
- Subject to successful completion of the feasibility study, Bayer and Voyageur may consider advancing the project into a second phase, to negotiate a long-term offtake supply agreement. The project proposes a 1,000 tonnes per year of iodine production, with a staged production rollout, beginning with 200 tonnes per year production. Upon completion and testing of Voyageur's 200 tonnes per year iodine extraction unit (Mueller process), Voyageur may evaluate to construct and deploy 200 tonnes/year units to the field and build out over time and potentially expand capacity to 1,000 tonnes per year. In such a scenario, a central Iodine manufacturing facility would process the iodine concentrate created from the Mueller processing units, and manufacture USP Pharmaceutical grade iodine, used in manufacturing iodine contrast drugs.
+ The acquisition of the facility will immediately add approximately $2 million or more in existing annual revenue to the Naturally Amish platform, while the Company believes its planned expansion of processing, Direct-to-Consumer sales, restaurant and grocery distribution could potentially generate an additional approximately $3 million in revenue during the first full year of operations following the acquisition. These projections are based on current management assumptions and are subject to execution, market conditions and completion of the transaction.
 
- The non-dilutive funding will support continued feasibility work through 2026 and reflects ongoing technical progress toward potentially establishing a domestic, high-purity iodine supply for Bayer iodine contrast drug manufacturing.
+ The facility provides year-round slaughter and processing services for cattle, hogs, lambs and goats, including custom processing and USDA-inspected processing for commercial retail and wholesale markets.
 
- Engineering Support from Fluor
+ Ownership of USDA-inspected processing capacity would give Naturally Amish greater control over processing schedules, quality, product development, distribution and margins, while reducing its dependence on third-party processors.
 
- Fluor Corporation (NYSE: FLR), a leading global engineering, procurement, and construction firm, has been actively supporting Voyageur with engineering, thermodynamic modeling, and project planning. Work is progressing on schedule.
+ The strategic location would also allow Naturally Amish to process cattle closer to participating Amish farms in Indiana and Ohio and support the Company's efforts to secure additional cattle processing and supply relationships throughout the Midwest.
 
- Subsequent engineering phases will progress through FEL-2 (Concept Design) and FEL-3 (Basic Design) to define a practical demonstration-scale configuration of the modular Field Unit plus Central Hub architecture. The FEL-2 phase is expected to require approximately four to five months, followed by FEL-3 of approximately seven to nine months, with corresponding increases in engineering definition and cost-estimate accuracy.
+ Noah Wagler, CEO of Naturally Amish and Simulated Environment Concepts, Inc., stated: “Processing is one of the most important links between the farmer and the consumer. Acquiring a USDA-inspected facility near our Indiana and Ohio farm network would give Naturally Amish greater control over our supply chain while helping us move products directly from Amish farms into homes, restaurants and grocery stores.”
 
- Strategic Context
+ Wagler added: “In today's environment of high beef prices, limited processing capacity and uncertainty throughout the food supply chain, we believe vertical integration can create significant competitive advantages. Beyond the facility's existing revenue base, we believe Naturally Amish can create substantial additional revenue by expanding throughput and building our Direct-to-Consumer, restaurant and grocery channels.”
 
- Voyageur’s vertically integrated strategy aims to improve supply-chain security, reduce reliance on imported raw materials, and lower operating costs for the production of medical imaging contrast agents. The global contrast media market is estimated at approximately USD $7.06 billion. https://www.marketresearchfuture.com/reports/contrast-media-market/companies
+ Expansion and Technology Opportunities
 
- Mr. Willis added: “Voyageur is focused on building multiple potential revenue streams through a staged commercialization strategy. This includes near-term opportunities from barium contrast sales, iodine sales under the Bayer collaboration, and longer-term opportunities from barium and iodine-based contrast drug sales. The Bayer collaboration, combined with technical support from Fluor, continues to strengthen the foundation for scalable domestic iodine production.” The Company will provide further updates as the feasibility work progresses, and additional technical milestones are achieved.
+ The property offers significant room for future growth, including the potential for:
 
- About Voyageur Pharmaceuticals Ltd.
+ * Expanded cattle processing capacity
+* A second production line
+* A standalone smokehouse
+* Additional refrigeration, freezer and packaging capacity
+* Private-label and Naturally Amish branded products
+* Expanded Direct-to-Consumer fulfillment
+* Restaurant and grocery distribution
+* Retail storefront expansion
 
- Voyageur, a Canadian public company trading under the symbol VM on the TSXV, is in development of barium and iodine Active Pharmaceutical Ingredients (API) and intends to offer high-performance, cost-effective imaging contrast agents. With a strategic focus on vertically integrating the barium and iodine contrast markets, Voyageur aims to become a key player by producing its own barium and iodine. Voyageur has developed five barium contrast products that have Health Canada licenses.
+ The facility also includes three-phase electrical service, recent refrigeration upgrades and important wastewater discharge permitting, providing infrastructure that management believes could support future expansion.
 
- Voyageur's business plan is set to generate cash flow by partnering with established third-party GMP pharmaceutical manufacturers in Canada thereby ensuring the validation of its products by regulatory agencies worldwide. As Voyageur solidifies its presence in the market, it plans to transition into a high-margin domestic manufacturer of radiology drugs, further expanding its revenue streams.
+ Naturally Amish is also evaluating the introduction of proprietary and patented technologies into the processing operation that management believes may have the potential to improve processing efficiency, product quality and production economics, subject to testing, licensing and applicable regulatory requirements.
 
- At the core of its operations, Voyageur owns a 100% interest in the Frances Creek barium sulfate (barite) project. Currently, the world’s pharmaceutical barium sulfate is almost entirely synthetically produced which management believes results in a less effective imaging quality product. Voyageur’s Frances Creek resource boasts a rare and high grade mineral suitable for the pharmaceutical marketplace that Voyageur believes will replace the current products with higher quality lower cost imaging products.
+ Creating a Farm-to-Consumer Platform
 
- Voyageur's ambitious vision is to become the first vertically integrated company in the radiology contrast media drug market. By controlling all primary input costs, from the sourcing of raw materials to final production, Voyageur intends to ensure quality and cost efficiency. With its approach, it embodies the motto of "From Earth to Bottle," highlighting Voyageur's commitment to responsible sourcing and manufacturing practices.
+ Naturally Amish' strategy is designed to participate in more of the agricultural value chain - from livestock production through processing, packaging, distribution and ultimately sales to the consumer.
 
- For Further Information:
+ The proposed facility would support multiple revenue channels, including Direct-to-Consumer beef, restaurant and foodservice sales, grocery distribution, private-label production and USDA processing services for other livestock producers.
 
- Brent Willis, CEOBrent@vpharma.ca, 403-923-5944info@vpharma.ca
+ The Company believes controlling strategic processing infrastructure can strengthen Naturally Amish' ability to grow its branded beef business while creating additional value for participating Amish farmers.
 
- Albert Deslauriers, CFOAlbert@vpharma.cahttps://voyageurpharmaceuticals.ca
+ Acquisition Process
 
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this news release.
+ Naturally Amish has executed a binding LOI and made an initial $25,000 deposit toward the transaction. Since the facility is near the Amish community, the seller has requested to withhold the name of the facility until closing.
 
- Cautionary Statement Regarding “Forward-Looking” Information
+ The acquisition remains subject to customary due diligence, definitive agreements, financing, regulatory review, verification or continuation of required USDA authority and permits, and other customary closing conditions.
 
- This news release may contain certain forward-looking statements and forward-looking information (collectively, "forward-looking statements"), including without limitation: the successful completion of the feasibility study for the iodine project and second milestone under the Agreement; the successful completion of the engineering phases for the iodine project; the testing, refining, market launch, manufacturing, sales and revenue from Voyageur's barium and iodine contrast products; the Company’s business plan and the Company successfully raising additional financing to support the business plan; the Company's aim to become a key player in the barium and iodine contrast markets; the Company's plan to transition into a high-margin manufacturer of radiology drugs; the Company's belief that the Frances Creek Project's mineral will replace the current synthetic products in the pharmaceutical marketplace with higher quality imaging products; and the Company's belief that it can ensure quality and cost efficiency by controlling all primary input costs. Forward-looking statements normally contain words like "will", "intend", "anticipate", "could", "should", "may", "might", "expect", "estimate", "forecast", "plan", "potential", "project", "assume", "contemplate", "believe", "shall", "scheduled", and similar terms. Forward-looking statements are not guarantees of future performance, actions, or developments and are based on expectations, assumptions, and other factors that management currently believes are relevant, reasonable, and appropriate in the circumstances. Although management believes that the forward-looking statements herein are reasonable, actual results could be substantially different due to the risks and uncertainties associated with and inherent to Voyageur's business. Additional material risks and uncertainties applicable to the forward-looking statements herein include, without limitation, the impact of general economic conditions, and unforeseen events and developments. This list is not exhaustive of the factors that may affect the Company's forward-looking statements. Many of these factors are beyond the control of Voyageur. All forward-looking statements included in this news release are expressly qualified in their entirety by these cautionary statements. The forward-looking statements contained in this news release are made as at the date hereof, and Voyageur undertakes no obligation to update publicly or to revise any of the included forward-looking statements, whether as a result of new information, future events, or otherwise, except as may be required by applicable securities laws. Risks and uncertainties about the Company's business are more fully discussed under the heading "Risk Factors" in its most recent filings. They are otherwise disclosed in its filings with securities regulatory authorities available on SEDAR+ at www.sedarplus.ca.
+ Additional information will be announced as material developments occur.
+
+ About Naturally Amish™
+
+ Naturally Amish™ is building an agricultural and consumer-products platform designed to connect the traditions and agricultural expertise of Amish farming communities with modern technology, processing, distribution and Direct-to-Consumer commerce. Naturally Amish operates through Simulated Environment Concepts, Inc. (OTC: SMEV).
+
+ Forward-Looking Statements
+
+ This press release contains forward-looking statements regarding the proposed acquisition, future processing capacity, anticipated revenues, expansion plans, operating efficiencies, margins, distribution opportunities, technology and the Company's business strategy. Forward-looking statements involve risks and uncertainties, and actual results may differ materially from expectations. Any revenue projections are management estimates based on current assumptions and are not guarantees of future performance. The proposed acquisition remains subject to due diligence, definitive agreements, financing, regulatory requirements, USDA requirements and other customary closing conditions. There can be no assurance that the transaction will be completed or that anticipated benefits or projected revenues will be realized. Simulated Environment Concepts, Inc. OTC: SMEV Operating as Naturally Amish™
+
+ Contact: Bryan Wilkinsonbryan@smevco.com
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/voyageur-pharmaceuticals-achieves-first-milestone-on-feasibility-study-for-iodine-production-secures-usd-1-million-payment-7089384)
+[Original/Source Press Release](https://www.newmediawire.com/news/naturally-amish-signs-binding-loi-to-acquire-usda-inspected-meat-processing-facility-in-the-midwest-7089415)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/voyageur-hits-milestone-gets-1m-from-bayer-for-iodine/832bdfbd8bdc359d08e75f2a5ed97cd8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/naturally-amish-moves-to-acquire-usda-inspected-processing-facility/6f9dd5fa4733dcd02ecb9c59d24a63bf) 
 
  
 
@@ -59,4 +76,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/9/swimgQkf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/9/fondgftv.webp)
