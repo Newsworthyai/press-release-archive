@@ -1,124 +1,120 @@
-# Onco-Innovations Ltd. (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H) Builds Manufacturing, IND and Capital Foundation Ahead of Planned Clinical Translation
+# InvestorNewsBreaks – Quantum BioPharma Ltd. (NASDAQ: QNTM) Gains Editorial Spotlight Following FDA Clearance for Lucid-MS Phase 2 Trial
 
-Disseminated on behalf of Onco-Innovations Ltd. (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H) and may include paid advertising.
+This article has been disseminated on behalf of Quantum BioPharma Ltd. and may include paid advertising.
 
- * Investors in biotechnology often look for companies with a clear path toward clinical development, where regulatory preparation, manufacturing readiness and access to capital can help reduce execution risk.
-* Onco-Innovations Ltd. is advancing ONC010, a nanoparticle-encapsulated PNKP inhibitor designed to target DNA repair pathways involved in cancer survival and treatment resistance.
-* The company has strengthened its clinical foundation through manufacturing milestones, IND-enabling activities, strategic partnerships and a recent funding arrangement designed to support continued advancement of its oncology pipeline.
+ Quantum BioPharma (NASDAQ: QNTM) was featured in BioMedWire editorial coverage highlighting FDA clearance of the company Investigational New Drug (“IND”) application to begin a randomized, double-blind, placebo-controlled phase 2 trial of Lucid-MS in people with multiple sclerosis (“MS”). Lucid-MS, also known as Lucid-21-302, is a patented, first-in-class drug candidate designed to inhibit peptidyl arginine deiminase 2 (“PAD2”) and target demyelination rather than broadly suppressing the immune system. The editorial notes that Lucid-MS previously completed phase 1 testing in healthy volunteers, with the company reporting favorable safety and tolerability, and discusses Quantum BioPharma parallel research collaboration with scientists at Massachusetts General Hospital and Harvard Medical School involving a PET imaging tracer designed to quantify demyelination.
 
- For biotechnology investors, a clear path to the clinic can be one of the most important indicators of a company’s development potential. In oncology, where programs often face significant scientific, regulatory and financial hurdles, companies that demonstrate measurable progress across manufacturing, preclinical testing and operational execution may be better positioned to advance promising therapies.
+ The coverage also highlights recent analyst attention, including Rodman & Renshaw initiation of coverage with a Buy rating and $8 price target, as Quantum BioPharma prepares Lucid-MS for its first clinical testing in people with MS. The editorial places the company alongside broader biopharmaceutical developments involving Sanofi (NASDAQ: SNY), Roche Holding AG (OTCQX: RHHBY), Biogen Inc. (NASDAQ: BIIB) and Clene Inc. (NASDAQ: CLNN), spanning vaccines, ophthalmology and neurological diseases.
 
- One company working to advance this transition is Onco-Innovations (CBOE CA: ONCO) (OTCQB: ONNVF) (FSE: W1H), a preclinical-stage precision oncology company focused on developing therapies targeting…
+ To view the full press release, visit https://ibn.fm/cwPHa
 
- Read More>>
+ About Quantum BioPharma Ltd.
 
- NOTE TO INVESTORS: The latest news and updates relating to ONNVF are available in the company’s newsroom at https://nnw.fm/ONNVF
+ Quantum is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum invented UNBUZZD(TM) and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“Unbuzzd”) (formerly, Celly Nutrition Corp.), led by industry veterans. Quantum retains ownership of 19.84% (as of March 31, 2026) of Unbuzzd at www.unbuzzd.com. The agreement with Unbuzzd also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum retains 100% of the rights to develop similar products or alternative formulations specifically for pharmaceutical and medical uses.
 
- About NetworkNewsWire
+ NOTE TO INVESTORS: The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ About InvestorWire
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.NetworkNewsWire.com
+ For more information, please visit https://www.InvestorWire.com
 
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- NetworkNewsWire is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/onco-innovations-advances-onc010-toward-clinic-with-manufacturing-and-capital-milestones/f2b9945257c7f78db6f618d7652defc8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-s-lucid-ms-gets-fda-nod-for-phase-2-ms-trial/007a5d48081aa838a693d0e5b23f1ce8) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/quantum-biopharmas-fda-clearance-for-lucid-ms-phase-2-trial-marks-potential-shift-in-multiple-sclerosis-treatment)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://advos.io/en](https://advos.io/en/quantum-biopharmas-lucid-ms-gets-fda-clearance-for-phase-2-multiple-sclerosis-trial)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/quantum-biopharma-gains-fda-clearance-for-lucid-ms-phase-2-trial-in-multiple-sclerosis)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://x.com](https://twitter.com/i/status/2097430051876680035)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/quantum-biopharma-gains-fda-clearance-to-begin-phase-2-trial-of-lucid-ms-in-multiple-sclerosis)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-and-capital-milestones/)
+Pickup - [https://burstable.news](https://burstable.news/news/quantum-biopharma-gains-fda-clearance-for-phase-2-multiple-sclerosis-trial-of-lucid-ms)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/onco-innovations-ltd-cboe-ca-onco-otcqb-onnvf-fse-w1h-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://x.com](https://twitter.com/i/status/2098094694093693189)
 
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/onco-innovations-advances-onc010-toward-clinic-with-key-milestones)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://advos.io/en](https://advos.io/en/onco-innovations-bolsters-manufacturing-regulatory-and-capital-readiness-for-onc010-clinical-translation)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/quantum-biopharma-erhalt-fda-zulassung-fur-phase-2-studie-zu-lucid-ms-bei-multipler-sklerose)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-funding-milestones)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-milestones-and-funding-for-onc010)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/quantum-biopharma-obtiene-la-autorizacion-de-la-fda-para-el-ensayo-de-fase-2-de-lucid-ms-en-esclerosis-multiple)
 
-Pickup - [https://burstable.news](https://burstable.news/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-and-capital-milestones)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/quantum-biopharma-obtient-le-feu-vert-de-la-fda-pour-un-essai-de-phase-2-du-lucid-ms-dans-la-sclerose-en-plaques)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/onco-innovations-treibt-onc010-mit-meilensteinen-bei-fertigung-und-kapital-in-richtung-klinischer-studien-voran)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/quantum-biopharma-obtem-aprovacao-da-fda-para-ensaio-de-fase-2-de-lucid-ms-em-esclerose-multipla)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/onco-innovations-avanza-onc010-hacia-ensayos-clinicos-con-hitos-de-fabricacion-y-capital)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fda-clearance-of-quantum-biopharmas-ind-for-lucid-ms-phase-2-trial-signals-a-new-approach-to-multiple-sclerosis-treatment)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/onco-innovations-fait-progresser-onc010-vers-les-essais-cliniques-grace-a-des-etapes-cles-en-fabrication-et-en-financement)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/quantum-biopharma-gains-fda-clearance-for-phase-2-multiple-sclerosis-trial-of-lucid-ms)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/onco-innovations-avanca-onc010-rumo-aos-ensaios-clinicos-com-marcos-de-fabricacao-e-capital)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/quantum-biopharmas-fda-clearance-for-lucid-ms-phase-2-trial-signals-new-direction-in-multiple-sclerosis-treatment)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/quantum-biopharma-wins-fda-clearance-for-first-in-class-multiple-sclerosis-drug-trial)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/onco-innovations-strengthens-manufacturing-ind-and-capital-foundation-for-onc010-advancement)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/quantum-biopharmas-lucid-ms-gains-fda-clearance-for-phase-2-multiple-sclerosis-trial)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/onco-innovations-strengthens-manufacturing-ind-readiness-and-capital-for-cancer-therapy-advancement)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/quantum-biopharma-gains-fda-clearance-for-first-in-class-multiple-sclerosis-drug-trial)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/onco-innovations-strengthens-clinical-foundation-for-onc010-with-manufacturing-ind-and-capital-milestones)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/quantum-biopharmas-lucid-ms-advances-to-phase-2-multiple-sclerosis-trial-after-fda-clearance)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones-for-onc010)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/quantum-biopharmas-lucid-ms-wins-fda-clearance-for-phase-2-multiple-sclerosis-trial)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/onco-innovations-strengthens-manufacturing-ind-and-capital-foundation-for-clinical-advancement-of-onc010)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/quantum-biopharma-gains-fda-clearance-for-phase-2-multiple-sclerosis-trial-of-lucid-ms)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/onco-innovations-ltd-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-capital-milestones)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/quantum-biopharmas-fda-clearance-for-lucid-ms-phase-2-trial-signals-shift-toward-targeted-ms-therapy)
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/f2b9945257c7f78db6f618d7652defc8)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/quantum-biopharmas-lucid-ms-advances-to-phase-2-multiple-sclerosis-trial-following-fda-clearance)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/onco-innovations-advances-onc010-toward-clinical-trials-with-new-manufacturing-and-funding-milestones)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/fda-clearance-positions-quantum-biopharmas-lucid-ms-for-first-ms-clinical-trial-targeting-demyelination)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-ind-and-capital-milestones)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/quantum-biopharma-wins-fda-clearance-for-lucid-ms-phase-2-trial-in-multiple-sclerosis-drawing-analyst-and-editorial-attention)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/onco-innovations-builds-manufacturing-ind-and-capital-foundation-ahead-of-planned-clinical-translation)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/quantum-biopharmas-lucid-ms-advances-to-phase-2-ms-trial-after-fda-clearance)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/onco-innovations-strengthens-clinical-foundation-for-onc010-with-manufacturing-ind-and-capital-milestones)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/quantum-biopharma-wins-fda-clearance-for-phase-2-multiple-sclero/202638364)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/onco-innovations-strengthens-clinical-foundation-with-manufacturing-and-capital-milestones)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/08/quantum-biopharma-gains-fda-clearance-for-lucid-ms-phase-2-trial-in-multiple-sclerosis/)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/onco-innovations-advances-onc010-toward-clinical-trials-with-manufacturing-ind-and-capital-milestones)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/onco-innovations-strengthens-clinical-foundation-for-onc010-with/202638285)
-
-Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/f2b9945257c7f78db6f618d7652defc8)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/investornewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-gains-editorial-spotlight-following-fda-clearance-for-lucid-ms-phase-2-trial)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/8/ulnaOYCd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/10/jadeIEvS.webp)

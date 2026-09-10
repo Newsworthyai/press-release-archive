@@ -1,16 +1,18 @@
-# InvestorNewsBreaks – SPARC AI Inc. (CSE: SPAI) (OTCQB: SPAIF) (Frankfurt: 5OV0) Launches Overwatch Patrol for GPS-Denied Dismounted Operations
+# American Fusion(TM) Inc. (AMFN) Moves Texatron(TM) Program Into More Demanding Test Phase as Harbinger Updates Coverage
 
-This article has been disseminated on behalf of SPARC AI Inc. and may include paid advertising.
+* The Texatron(TM) program has moved from prototype development into active testing, with the company reporting continued work on its 500 kW and 5 MW configurations.
+* The company says repeatable pulsed magnetic-confinement tests have produced peak pressures of approximately 100,000 atmospheres, an experimental result that it is using to advance its deuterium–helium-3 (D–³He) fusion work.
+* American Fusion(TM) is targeting D–³He fusion and is developing a pulsed magnetic-compression architecture rather than a conventional steady-state magnetic-confinement system.
+* The company’s 5 MW pre-production Texatron(TM) has progressed through testing at Texas Tech University, following Texas regulatory approval for the company’s research systems.
+* Harbinger Research has updated its coverage of American Fusion(TM), highlighting the transition into active testing, 100 pending U.S. patent applications, the OTCQB listing, and potential future technical and commercial milestones.
 
- SPARC AI (CSE: SPAI) (OTCQB: SPAIF) (Frankfurt: 5OV0) launched Overwatch Patrol, a dismounted positioning application designed to provide continuous location information to soldiers and security personnel when GPS is jammed, spoofed, degraded or unavailable. Unveiled at the International Defense Industry Exhibition (“MSPO”) in Kielce, Poland, Overwatch Patrol operates through the company’s cloud-based Overwatch Positioning Network without additional hardware and can be delivered through a native application or standard web browser. The platform enables multiple team members to share live positions without GPS and allows users to establish shared rally points for independent navigation. SPARC AI also held meetings at MSPO with prospective technology partners, including discussions with tactical radio network providers regarding potential integration of Overwatch Patrol with existing communications infrastructure.
+ American Fusion(TM) (OTCBQ: AMFN), a developer of next-generation fusion energy technologies, is entering a more consequential phase of its fusion program as recent testing updates coincide with new equity research coverage examining the company’s progress toward commercial validation.
 
- To view the full press release, visit https://ibn.fm/yjArz
+ The Southlake, Texas-based company announced recently that its Texatron(TM) Fusion Engine(TM) development program had continued to produce repeatable magnetic-confinement results, including peak confinement pressures of approximately 100,000 atmospheres (https://ibn.fm/ITBKg). The company is now working to characterize the combination of temperature, density and…
 
- About SPARC AI Inc.
+ Read More>>
 
- SPARC AI is a defence technology company solving one of the most critical challenges in modern autonomous systems: accurate navigation and targeting when GPS is unavailable. The company’s AI-powered platform transforms the low-cost inertial sensors already inside commercial drones into precision instruments without additional hardware, external signals, or complex integration. SPARC AI’s software-only approach enables GPS-denied capability at the scale and cost required for modern drone operations.
-
- NOTE TO INVESTORS: The latest news and updates relating to SPAIF are available in the company’s newsroom at https://ibn.fm/SPAIF
+ NOTE TO INVESTORS: The latest news and updates relating to AMFN are available in the company’s newsroom at https://ibn.fm/AMFN
 
  About InvestorWire
 
@@ -26,10 +28,10 @@ This article has been disseminated on behalf of SPARC AI Inc. and may include pa
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-sparc-ai-inc-cse-spai-otcqb-spaif-frankfurt-5ov0-launches-overwatch-patrol-for-gps-denied-dismounted-operations/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/american-fusiontm-inc-amfn-moves-texatrontm-program-into-more-demanding-test-phase-as-harbinger-updates-coverage/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sparc-ai-unveils-gps-denied-overwatch-patrol-at-mspo/e69fb86b89363f09c31757592d992244) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-s-texatrontm-enters-active-testing-hits-100000-atmospheres/9310ded6304e9756df98207fc504e6e9) 
 
  
 
@@ -37,4 +39,4 @@ This article has been disseminated on behalf of SPARC AI Inc. and may include pa
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/10/dune_V2H.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/10/fernzC9J.webp)
