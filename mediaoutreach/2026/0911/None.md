@@ -1,90 +1,48 @@
-# Emblem, Mascot and Theme Slogan of WCH Beijing 27 Unveiled at One-Year Countdown Event
+# Belt and Road Summit in Hong Kong welcomes over 6,200 global leaders to explore new business opportunities
 
-BEIJING, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 11 September 2026 – On 10 September, the one-year countdown event for the World Athletics Championships Beijing 27 (WCH Beijing 27) was held in the Golden Hall of the National Stadium, commonly known as the Bird's Nest. Amidst the anticipation of the audience, the emblem, mascot, and theme slogan of the WCH Beijing 27 were officially unveiled, conveying the message of Beijing through unique designs.    The emblem, "Jing Yue", centred on the Temple of Heaven and the Chinese character "" (Jing), draws on the expressive charm of Chinese calligraphy, engraves Beijing's local identity, and radiates the vibrant energy of athletics.    The mascot, "Jing Yan", draws inspiration from "Yan'er", the mascot of the 2015 edition of the Championships. Modelled after the Beijing swift, it symbolises "the return of the swift after 12 years". The design subtly incorporates traditional Chinese kite patterns and the expressive eye makeup of Peking Opera, while a lightning-bolt dynamic adds a sense of speed. This seamlessly blends natural vitality, culture, art, and athletic competition. It not only nods to the 2015 edition of the Championships, but also brings Beijing's rich cultural heritage vividly to life.   The theme slogan "Every Step Counts" embodies the relentless competitive spirit that every step and every effort matters. It sends a warm yet resolute message to the world: on the road to excellence, every wholehearted effort holds extraordinary value.   In his video address, President of World Athletics Sebastian Coe noted that Beijing is the first city in the world to have successfully hosted both the Summer and Winter Olympics, with a remarkable record of staging world-class events. He said the World Championships Beijing 2015 produced many iconic moments, and that World Athletics firmly believes China will stage the 2027 edition of the Championships to the highest possible standard and deliver an unforgettable sporting spectacular for audiences across the globe.   The World Athletics Championships Beijing 27 will be held at the National Stadium from 10 to 19 September 2027. More than 2,000 athletes from over 200 countries and regions will gather at the Bird's Nest for this grand athletics celebration. Hashtag: #WCHBeijing27 #EveryStepCountsThe issuer is solely responsible for the content of this announcement.
+HONG KONG SAR - [Media OutReach Newswire](https://www.media-outreach.com/) - 11 September 2026 - The 11th Belt and Road Summit was successfully held at the Hong Kong Convention & Exhibition Centre (September 9–10), attracting over 6,200 political and business elites from more than 70 countries and regions under the Belt and Road Initiative (BRI) and beyond, exploring co-operation opportunities for mutually beneficial development.   During the two-day event, more than 60 Memoranda of Understanding (MoUs) and bilateral co-operation agreements were witnessed. The total value of these MoUs, together with new projects and deals finalised before and during the Summit, is over US$3.1 billion.   Hosted by the Hong Kong Special Administrative Region (HKSAR) Government since 2016, the summit remains the premier business and investment platform for Hong Kong's participation in and contribution to the BRI.   Noting that the BRI is a shared blueprint for the future, rooted in a rich history of cross-cultural collaboration, HKSAR Chief Executive John Lee said: "Hong Kong, as a place where East meets West, is where capital, talent, businesses and opportunities converge. In addition to strengthening our relations with traditional partners, Hong Kong continues to expand our network of friends along the Belt and Road."   Under the theme "Advancing High-quality Development · Embarking on a New Journey", business and government leaders discussed co-operation across trade and commerce, legal services, green technology, logistics, artificial intelligence and new quality productive forces.   The summit explored new co-operation landscapes and emerging opportunities in trade, investment and development across Belt & Road markets and other regions, with a special focus on ASEAN, Central Asia and the Middle East, underscoring Hong Kong's unique role as a "super connector" and "super value-adder".   Mr Lee has led high-level business delegations to explore opportunities in 13 Belt and Road countries across ASEAN, the Middle East and Central Asia, delivering a total of over 250 MoUs and other agreements. These covered policy coordination, trade and investment, expanded connectivity and support for companies, underlining Hong Kong's focus on opening new markets, forming new partnerships and advancing regional co-operation.    This year's summit featured three newly-added special chapters – the GoGlobal Chapter, Central Asia Chapter and Middle East Chapter. The GoGlobal Chapter offered a one-stop platform for exchange and matchmaking for Chinese Mainland enterprises looking to tap new markets overseas, while the Central Asia and Middle East chapters invited local officials and business leaders to share investment opportunities.   "In light of the shifting geopolitics, rising trade protectionism and the reshaping of global supply chains, businesses going global is no longer simply an option; it is an increasingly important strategy for Chinese Mainland enterprises to diversify risks, strengthen resilience and pursue new growth opportunities," said the HKSAR Government's Secretary for Commerce and Economic Development, Mr Algernon Yau.   A freshly integrated University Zone highlighted Hong Kong universities' R&D strengths and their capabilities in technology commercialisation across the Belt & Road region, consolidating Hong Kong's position as an international education hub. The Summit also introduced a debut Dialogue for Future session, promoting think-tank exchanges on "The Belt and Road Initiative and Asia-Pacific Co-operation in a Changing Global Landscape".   Through the Project Investment Session, Belt and Road Deal-Making, and Exhibition Zones, this year's event showcased over 300 investment projects, and arranged more than 800 one-on-one deal-making meetings, helping enterprises connect with potential partners.         Hashtag: #HongKong #Belt&Road #BRI #Summit #Global #Business #Opportunities[https://www.brandhk.gov.hk/](https://www.brandhk.gov.hk/)[https://www.linkedin.com/company/brand-hong-kong/](https://www.linkedin.com/company/brand-hong-kong/)[https://x.com/Brand_HK/](https://x.com/Brand_HK/)[https://www.facebook.com/brandhk.isd](https://www.facebook.com/brandhk.isd)[https://www.instagram.com/brandhongkong](https://www.instagram.com/brandhongkong)The issuer is solely responsible for the content of this announcement.
 
-![](//track.media-outreach.com/index.php/WebView/486761/279561) 
+![](//track.media-outreach.com/index.php/WebView/486775/279561) 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/09/11/486761/)
+[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/09/11/486775/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beijing-unveils-emblem-mascot-slogan-for-2027-world-athletics/b1995f1cc75924c00d785a1cd6f17345) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/11th-belt-and-road-summit-generates-us-3-1-billion-in-deals/cd74ea3a39930e9f04adc6b98eb4ef55) 
 
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/beijing-unveils-emblem-mascot-and-slogan-for-world-athletics-championships-2027)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://burstable.news](https://burstable.news/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/hong-kong-belt-and-road-summit-draws-6200-leaders-secures-31-billion-in-deals/)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/peking-enthullt-emblem-maskottchen-und-slogan-fur-die-leichtathletik-weltmeisterschaften-2027)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/pekin-presenta-el-emblema-la-mascota-y-el-eslogan-para-el-campeonato-mundial-de-atletismo-de-2027)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pekin-devoile-lembleme-la-mascotte-et-le-slogan-des-championnats-du-monde-dathletisme-2027)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pequim-revela-emblema-mascote-e-slogan-para-o-campeonato-mundial-de-atletismo-de-2027)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-world-athletics-championships-2027)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships-signaling-global-ambitions)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-world-athletics-championships-2027)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-world-athletics-championships-2027)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletic/202638381)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/beijing-unveils-emblem-mascot-and-slogan-for-2027-world-athletics-championships/)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/emblem-mascot-and-theme-slogan-of-wch-beijing-27-unveiled-at-one-year-countdown-event)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/belt-and-road-summit-in-hong-kong-welcomes-over-6200-global-leaders-to-explore-new-business-opportunities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/11/urgemjbM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/11/pinkUJRN.webp)
