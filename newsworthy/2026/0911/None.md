@@ -1,114 +1,116 @@
-# Rai's Mobile Notary Expands Nationwide, Offering 1-Hour Notary Service to Hospitals and Jails
+# Tempest Droneworx Selected to Present at Venture Atlanta 2026
 
-Rai's Mobile Notary, a nationwide mobile notary and apostille agency, continues to expand its footprint across the United States, offering same-hour notarization services to clients in hospitals, correctional facilities, airports, and private residences alike.
+Tempest Droneworx™ today announced its selection as one of the Southeast’s most promising tech companies to present at Venture Atlanta 2026, the Southeast’s premier technology innovation event and one of the nation’s leading venture capital conferences. Taking place October 14-15 at the Woodruff Arts Center and Atlanta Symphony Hall, Venture Atlanta brings together the region’s fastest-growing technology companies with top-tier investors, corporate innovation leaders, and potential strategic partners from across the country.
 
- Founded in 2012, the company built its reputation on a simple promise: bring the notary to the client, not the other way around. Today, Rai's Mobile Notary operates a network of more than 192,000 professional notary signing agents nationwide, allowing the company to dispatch a certified, bonded, and insured notary to virtually any location in the country - often within an hour of booking.
+ Now in its 19th year, Venture Atlanta has helped launch more than 1,000 companies, facilitating more than $8.8 billion in capital raised and $22 billion in successful exits.
 
- "Getting documents notarized shouldn't add stress to an already difficult day," a company representative said. "Whether someone is confined to a hospital bed, incarcerated and needs a power of attorney signed, or simply too busy to leave the office, we built our business around meeting people exactly where they are."
+ Chosen through a highly competitive application process, Tempest Droneworx™ joins a select group of emerging companies recognized for their innovation, market opportunity, leadership team, customer traction, and growth potential. This year’s presenting companies span sectors including AI, enterprise software, fintech, healthcare, cybersecurity, climate technology, robotics, manufacturing, defense technology, and other emerging markets.
 
- The company's core offerings include Mobile Notary Services, providing certified notaries who travel directly to a client's home, office, or any location of their choosing, and Traveling Notary Services, designed for clients who are on the move or unable to reach a traditional notary office.
+ “Over the last several years, we’ve gone from proving that our technology works to proving that it solves real problems,” said Ty Audronis, founder and CTO of Tempest Droneworx™. “We’ve demonstrated our technology with the FAA and U.S. Air Force, we’re working with universities and commercial customers, and we’re bringing Corvus MRDR™ to market. Being selected for Venture Atlanta gives us the opportunity to tell that story to people who understand what it takes to turn proven technology into a much larger company. We’re looking forward to meeting investors and strategic partners who can help us accelerate that next stage of growth.”
 
- For legal document delivery, the company offers Process Server Services, ensuring subpoenas, summons, and complaints are served promptly and in full compliance with legal requirements nationwide.
+ Tempest Droneworx™ develops real-time intelligence technology designed to prevent issues from becoming serious problems through real-time insight. Its technology brings data from robots, drones, cameras, sensors, RADAR, and other sources together into a real-time 3D common operating picture, allowing people and autonomous systems to understand what is happening and act on that information. Unlike systems built around a specific aircraft, sensor, communications network, or AI provider, Tempest Droneworx™ is designed to work across platforms and technologies, allowing customers to use the systems they already have and integrate new ones as their needs change.
 
- Rai's Mobile Notary also maintains a dedicated Jail Notary Service, sending experienced notaries into correctional facilities to notarize powers of attorney and other legal documents for incarcerated individuals - a service the company says requires specialized knowledge of facility protocols.
+ As in previous years, Venture Atlanta 2026 is anticipated to be a sold-out event.
 
- For clients needing documents authenticated for use abroad, the company provides Apostille Services, streamlining the process of getting documents legally recognized in countries under the Hague Convention, including birth certificates, marriage licenses, and corporate filings.
+ “Venture Atlanta is where promising companies get discovered and where the right connections can change what comes next,” said Allyson Eman, CEO of Venture Atlanta. “This year’s companies represent some of the Southeast’s strongest and most ambitious founders and technologies. Being selected in such a competitive field is a significant achievement, and we’re excited to give these companies a platform to connect with hundreds of investors and influential leaders who can help turn visibility into capital, partnerships, and growth.”
 
- Beyond these core services, the company also offers emergency and 24-hour notary dispatch, airport notary services, remote online notarization, document courier services, and translations.
+ Each year, Venture Atlanta brings together hundreds of venture capital firms, corporate venture groups, private equity investors, and Fortune 500 innovation leaders seeking the next generation of high-growth technology companies. Venture Atlanta alumni include some of the Southeast’s most successful technology companies, including Bark, CallRail, Car360, Flock Safety, Florence Healthcare, ParkMobile, Salesloft, Kabbage, Bitcoin Depot, PrizePicks, Stax, SingleOps, Pindrop, and Terminus.
 
- To date, the company reports having completed more than 16,600 signings, supported by a growing team it describes as its "brilliant minds" behind the scenes.
+ To learn more about Tempest Droneworx™, visit www.tempestdroneworx.com. For more information about Venture Atlanta, to register for the event, or to view the conference schedule, please visit www.ventureatlanta.org.
 
- Rai's Mobile Notary emphasizes that its rapid growth has not come at the expense of service quality. Every notary in its network is vetted for experience with the unique protocols required in sensitive settings - including correctional facilities and medical environments - ensuring documents are notarized correctly the first time and hold up to legal scrutiny.
+ About Venture Atlanta Venture Atlanta, the Southeast’s technology innovation event, is where the region’s most promising tech companies meet the country's top-tier investors. As the Southeast's largest investor showcase helping launch more than 1,000 companies and raise over $8.8 billion in funding to date, the event connects the region’s top entrepreneurs with local and national investors and others in the technology ecosystem who can help them raise the capital they need to grow their businesses. The annual nonprofit event is a collaboration of the Atlanta CEO Council, Metro Atlanta Chamber, and the Technology Association of Georgia (TAG). For more information, visit www.ventureatlanta.org. For updates, follow Venture Atlanta on Twitter and LinkedIn, and visit the Venture Atlanta blog.
 
- Clients can book an appointment online or by calling the company's toll-free line, with agents typically confirming orders within 30 seconds of a request.
+ About Tempest Droneworx™ Tempest Droneworx™ is a Houston-based real-time intelligence technology company with a mission of preventing issues from becoming serious problems through real-time insight. Its Harbinger™ platform aggregates, controls, analyzes, and disseminates information from unmanned systems, security cameras, LiDAR, thermal and RGB sensors, RADAR, satellite data, and other sources into a real-time 3D common operating picture.
 
- About Rai's Mobile NotaryRai's Mobile Notary & Apostille, based in Henderson, Nevada, provides mobile notary, apostille, and process server services nationwide. Since 2012, the company has aimed to combine technology with responsive customer service to make document notarization convenient, no matter the client's location or circumstances.
+ Tempest Droneworx™ technology is platform-, sensor-, communications-, AI/ML-, and presentation-agnostic, allowing customers to integrate existing and future systems without being locked into a single hardware or software ecosystem. The company’s technology has been demonstrated through programs with the Federal Aviation Administration and U.S. Air Force, including simultaneous control of heterogeneous unmanned aircraft and the development of airspace deconfliction and real-time 3D common operating picture capabilities.
 
- Media ContactRai's Mobile Notary1000 N Green Valley Pkwy, #440-811, Henderson, NV 89074Toll-Free: 1-800-766-5146Email: Email ContactWebsite: www.raismobilenotary.com 
+ Tempest Droneworx™ is also bringing Corvus MRDR™ (Modular Robotics Development & Reporting) to market, an engineering platform that allows researchers and developers to build and test robotics, autonomy, cooperative control, and multi-vehicle technologies using combinations of virtual and physical systems in the same environment. Corvus MRDR™ enables teams to move incrementally from simulation to real hardware without rebuilding the test environment around their code, while capturing telemetry for analysis and playback.
+
+ Tempest Droneworx™ serves defense, government, public safety, research, agriculture, infrastructure, and commercial markets. The company is an SBA-certified Service-Disabled Veteran-Owned Small Business headquartered in Houston, Texas. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609112897/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+[Original/Source Press Release](https://newsworthy.ai/news/202609112899/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rai-s-mobile-notary-expands-nationwide-with-same-hour-service/0f7d0bf4d10f87e2ca1441d458da3463) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026/74e73d84482858f983552a6c54f011da) 
 
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-spotlighting-real-time-intelligence-technology/)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://advos.io/en](https://advos.io/en/tempest-droneworx-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-platform)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/10/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails/)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-platform)
 
-Pickup - [https://advos.io/en](https://advos.io/en/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-signaling-growth-ambitions-for-real-time-intelligence-platform)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/houstons-tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/rais-mobile-notary-se-expande-a-nivel-nacional-y-lleva-el-servicio-de-notaria-en-1-hora-a-hospitales-y-carceles)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://burstable.news](https://burstable.news/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/tempest-droneworx-de-houston-seleccionada-para-presentarse-en-venture-atlanta-2026)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/rais-mobile-notary-expandiert-landesweit-und-bietet-1-stunden-notardienst-in-krankenhausern-und-gefangnissen-an)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/rais-mobile-notary-se-expande-a-nivel-nacional-y-ofrece-servicios-de-notaria-en-una-hora-en-hospitales-y-carceles)
+Pickup - [https://burstable.news](https://burstable.news/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-technology)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/rais-mobile-notary-setend-a-lechelle-nationale-et-propose-un-service-de-notaire-en-1-heure-dans-les-hopitaux-et-les-prisons)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/tempest-droneworx-ausgewahlt-fur-prasentation-bei-venture-atlanta-2026-um-echtzeit-intelligenztechnologie-vorzustellen)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/rais-mobile-notary-expande-nacionalmente-oferecendo-servico-de-cartorio-em-1-hora-para-hospitais-e-prisoes)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tempest-droneworx-seleccionada-para-presentar-en-venture-atlanta-2026-mostrando-su-tecnologia-de-inteligencia-en-tiempo-real)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tempest-droneworx-selectionnee-pour-presenter-a-venture-atlanta-2026-mettant-en-avant-sa-technologie-dintelligence-en-temps-reel)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/tempest-droneworx-selecionada-para-apresentar-na-venture-atlanta-2026-exibindo-tecnologia-de-inteligencia-em-tempo-real)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-notarization-to-hospitals-and-jails)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-signaling-growth-ambitions)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-services-to-hospitals-and-jails)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-defense-tech-growth)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-signaling-growth-ambitions)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-technology)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-services-to-hospitals-and-jails)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-innovation)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/rais-mobile-notary-goes-nationwide-with-1-hour-service-to-hospitals-and-jails)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-spotlighting-real-time-intelligence-tech)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/mobile-notary-expands-nationwide-bringing-same-hour-service-to-hospitals-and-jails)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-platform)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-growth-potential)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-services-to-hospitals-and-jails)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-signaling-growth-phase-for-real-time-intelligence-technology)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-services-to-hospitals-jails-and-airports)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-platform)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/rais-mobile-notary-expands-nationwide-bringing-1-hour-notary-ser/202638377)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/rais-mobile-notary-expands-nationwide-offering-1-hour-notary-service-to-hospitals-and-jails)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-hi/202638380)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/11/beanW9TU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/11/fondUvk0.webp)
