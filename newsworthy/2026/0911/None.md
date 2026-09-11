@@ -1,116 +1,86 @@
-# Tempest Droneworx Selected to Present at Venture Atlanta 2026
+# NWB Finland Oy Brings Retail-Friendly Sustainable Packaging to ECRM
 
-Tempest Droneworx™ today announced its selection as one of the Southeast’s most promising tech companies to present at Venture Atlanta 2026, the Southeast’s premier technology innovation event and one of the nation’s leading venture capital conferences. Taking place October 14-15 at the Woodruff Arts Center and Atlanta Symphony Hall, Venture Atlanta brings together the region’s fastest-growing technology companies with top-tier investors, corporate innovation leaders, and potential strategic partners from across the country.
+For retailers, sustainability is increasingly about more than what happens inside a product. Packaging can also influence how a product fits within a retailer's assortment, sustainability goals and relationship with environmentally conscious consumers.
 
- Now in its 19th year, Venture Atlanta has helped launch more than 1,000 companies, facilitating more than $8.8 billion in capital raised and $22 billion in successful exits.
+ NWB Finland Oy will bring that retail-focused message to the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session, September 14-17 in Palm Beach Gardens, Florida, where the Finnish company will showcase AINA Natural Water and its distinctive 5-liter and 10-liter bag-in-box formats.
 
- Chosen through a highly competitive application process, Tempest Droneworx™ joins a select group of emerging companies recognized for their innovation, market opportunity, leadership team, customer traction, and growth potential. This year’s presenting companies span sectors including AI, enterprise software, fintech, healthcare, cybersecurity, climate technology, robotics, manufacturing, defense technology, and other emerging markets.
+ Unlike premium water packaged primarily in individual plastic bottles, AINA combines naturally filtered groundwater from Northern Finland with larger-format packaging designed to substantially reduce the amount of plastic used.
 
- “Over the last several years, we’ve gone from proving that our technology works to proving that it solves real problems,” said Ty Audronis, founder and CTO of Tempest Droneworx™. “We’ve demonstrated our technology with the FAA and U.S. Air Force, we’re working with universities and commercial customers, and we’re bringing Corvus MRDR™ to market. Being selected for Venture Atlanta gives us the opportunity to tell that story to people who understand what it takes to turn proven technology into a much larger company. We’re looking forward to meeting investors and strategic partners who can help us accelerate that next stage of growth.”
+ For retailers, NWB Finland Oy believes that creates an opportunity extending beyond the water itself.
 
- Tempest Droneworx™ develops real-time intelligence technology designed to prevent issues from becoming serious problems through real-time insight. Its technology brings data from robots, drones, cameras, sensors, RADAR, and other sources together into a real-time 3D common operating picture, allowing people and autonomous systems to understand what is happening and act on that information. Unlike systems built around a specific aircraft, sensor, communications network, or AI provider, Tempest Droneworx™ is designed to work across platforms and technologies, allowing customers to use the systems they already have and integrate new ones as their needs change.
+ "Retailers are increasingly looking for products that give consumers a reason to choose them while also supporting the values they want their stores and brands to represent," said Marita Weiman, Quality Assurance Manager at NWB Finland Oy. "AINA gives retailers a premium natural water with a sustainability story that is immediately visible in the packaging."
 
- As in previous years, Venture Atlanta 2026 is anticipated to be a sold-out event.
+ Packaging That Helps Retailers Tell a Story AINA's bag-in-box format provides retailers with several potential merchandising advantages. Its distinctive appearance can help differentiate the product from rows of traditional bottled water, while the larger format is designed for everyday use in homes, offices and other settings.
 
- “Venture Atlanta is where promising companies get discovered and where the right connections can change what comes next,” said Allyson Eman, CEO of Venture Atlanta. “This year’s companies represent some of the Southeast’s strongest and most ambitious founders and technologies. Being selected in such a competitive field is a significant achievement, and we’re excited to give these companies a platform to connect with hundreds of investors and influential leaders who can help turn visibility into capital, partnerships, and growth.”
+ Just as importantly, the packaging gives retailers a straightforward sustainability message to communicate to shoppers: consumers can purchase a larger quantity of premium drinking water while relying on substantially less plastic packaging than conventional individual bottles.
 
- Each year, Venture Atlanta brings together hundreds of venture capital firms, corporate venture groups, private equity investors, and Fortune 500 innovation leaders seeking the next generation of high-growth technology companies. Venture Atlanta alumni include some of the Southeast’s most successful technology companies, including Bark, CallRail, Car360, Flock Safety, Florence Healthcare, ParkMobile, Salesloft, Kabbage, Bitcoin Depot, PrizePicks, Stax, SingleOps, Pindrop, and Terminus.
+ That can help retailers demonstrate their commitment to offering more environmentally responsible choices without asking consumers to sacrifice convenience or product quality.
 
- To learn more about Tempest Droneworx™, visit www.tempestdroneworx.com. For more information about Venture Atlanta, to register for the event, or to view the conference schedule, please visit www.ventureatlanta.org.
+ "We think the best sustainability innovations are the ones consumers can understand immediately," Weiman said. "When shoppers see AINA, the difference isn't hidden. The format itself helps tell the story, and that can be valuable for retailers as well as consumers."
 
- About Venture Atlanta Venture Atlanta, the Southeast’s technology innovation event, is where the region’s most promising tech companies meet the country's top-tier investors. As the Southeast's largest investor showcase helping launch more than 1,000 companies and raise over $8.8 billion in funding to date, the event connects the region’s top entrepreneurs with local and national investors and others in the technology ecosystem who can help them raise the capital they need to grow their businesses. The annual nonprofit event is a collaboration of the Atlanta CEO Council, Metro Atlanta Chamber, and the Technology Association of Georgia (TAG). For more information, visit www.ventureatlanta.org. For updates, follow Venture Atlanta on Twitter and LinkedIn, and visit the Venture Atlanta blog.
+ Inside the packaging is naturally filtered groundwater originating in the Pudasjärvi region of Northern Finland. The water filters naturally through layers of soil, sand and rock before being mechanically filtered and packaged.
 
- About Tempest Droneworx™ Tempest Droneworx™ is a Houston-based real-time intelligence technology company with a mission of preventing issues from becoming serious problems through real-time insight. Its Harbinger™ platform aggregates, controls, analyzes, and disseminates information from unmanned systems, security cameras, LiDAR, thermal and RGB sensors, RADAR, satellite data, and other sources into a real-time 3D common operating picture.
+ AINA contains approximately 32 mg/L of Total Dissolved Solids (TDS), with a naturally low mineral content that contributes to its soft, neutral taste and clean finish.
 
- Tempest Droneworx™ technology is platform-, sensor-, communications-, AI/ML-, and presentation-agnostic, allowing customers to integrate existing and future systems without being locked into a single hardware or software ecosystem. The company’s technology has been demonstrated through programs with the Federal Aviation Administration and U.S. Air Force, including simultaneous control of heterogeneous unmanned aircraft and the development of airspace deconfliction and real-time 3D common operating picture capabilities.
+ A Different Proposition for the Water Aisle At ECRM, NWB Finland Oy will present AINA as an opportunity for retailers to add differentiation to the premium water category through a combination of:
 
- Tempest Droneworx™ is also bringing Corvus MRDR™ (Modular Robotics Development & Reporting) to market, an engineering platform that allows researchers and developers to build and test robotics, autonomy, cooperative control, and multi-vehicle technologies using combinations of virtual and physical systems in the same environment. Corvus MRDR™ enables teams to move incrementally from simulation to real hardware without rebuilding the test environment around their code, while capturing telemetry for analysis and playback.
+ * Distinctive Shelf Presence - 5-liter and 10-liter bag-in-box formats that stand apart from conventional bottled water.
+* A Clear Sustainability Story - Packaging designed to substantially reduce plastic use compared with traditional individual bottled-water formats.
+* Consumer Relevance - A format for shoppers seeking convenient everyday hydration while becoming more conscious of packaging waste.
+* Premium Northern Finland Origin - Naturally filtered groundwater sourced from Northern Finland.
+* Retailer Brand Alignment - A product that can complement retailers' broader efforts to offer consumers more sustainability-focused choices.
 
- Tempest Droneworx™ serves defense, government, public safety, research, agriculture, infrastructure, and commercial markets. The company is an SBA-certified Service-Disabled Veteran-Owned Small Business headquartered in Houston, Texas. 
+ NWB Finland Oy's ECRM participation comes as the company continues expanding AINA Natural Water into the United States, including its upcoming first U.S. consumer availability through OneLavi.com.
+
+ "We're coming to ECRM ready to talk about what AINA can bring to a retailer's water category," Weiman said. "It's not simply another premium water. It's an opportunity to offer consumers something visibly different while adding a strong sustainability story to the shelf."
+
+ For more information about AINA Natural Water, visit AINA Natural Water. To learn more about NWB Finland Oy, visit NWB Finland Oy.
+
+ For more information, visit ainanaturalwater.fi and nwb.fi.
+
+ About [NWB Finland Oy](https://nwb.fi/about-us/) NWB Finland Oy is a Finland-based company focused on sustainable beverage packaging and natural water solutions. Headquartered in Pudasjärvi, Finland, the company was founded with a mission to develop environmentally responsible alternatives to traditional beverage packaging while delivering premium-quality products to consumers around the world.
+
+ Its flagship brand, AINA Natural Water, features naturally filtered groundwater sourced from Northern Finland, a region known for its pristine natural environment and abundant groundwater resources. The water is packaged in innovative bag-in-box formats designed to reduce plastic consumption while providing a convenient solution for households, businesses, hospitality venues, and events.
+
+ NWB Finland Oy's long-term vision is to make Northern Finland's natural groundwater available to consumers globally while continuing to invest in sustainable packaging solutions that support both consumer needs and environmental responsibility. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609112899/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+[Original/Source Press Release](https://newsworthy.ai/news/202609112910/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026/74e73d84482858f983552a6c54f011da) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nwb-finland-oy-to-showcase-aina-natural-water-at-ecrm-2026/37d1479d67b48045acd2bad36e10a89c) 
 
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-spotlighting-real-time-intelligence-technology/)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://advos.io/en](https://advos.io/en/tempest-droneworx-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-platform)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-platform)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/nwb-finland-oy-brings-retail-friendly-sustainable-packaging-to-ecrm)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-signaling-growth-ambitions-for-real-time-intelligence-platform)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/houstons-tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/tempest-droneworx-de-houston-seleccionada-para-presentarse-en-venture-atlanta-2026)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/tempest-droneworx-selected-to-present-at-venture-atlanta-2026)
-
-Pickup - [https://burstable.news](https://burstable.news/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-technology)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/tempest-droneworx-ausgewahlt-fur-prasentation-bei-venture-atlanta-2026-um-echtzeit-intelligenztechnologie-vorzustellen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tempest-droneworx-seleccionada-para-presentar-en-venture-atlanta-2026-mostrando-su-tecnologia-de-inteligencia-en-tiempo-real)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tempest-droneworx-selectionnee-pour-presenter-a-venture-atlanta-2026-mettant-en-avant-sa-technologie-dintelligence-en-temps-reel)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/tempest-droneworx-selecionada-para-apresentar-na-venture-atlanta-2026-exibindo-tecnologia-de-inteligencia-em-tempo-real)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-signaling-growth-ambitions)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-defense-tech-growth)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-signaling-growth-ambitions)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-technology)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-innovation)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-spotlighting-real-time-intelligence-tech)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-showcasing-real-time-intelligence-platform)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-growth-potential)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-signaling-growth-phase-for-real-time-intelligence-technology)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-platform)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/tempest-droneworx-chosen-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/tempest-droneworx-to-present-at-venture-atlanta-2026-highlighting-real-time-intelligence-technology)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/tempest-droneworx-selected-to-present-at-venture-atlanta-2026-hi/202638380)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/finnish-company-brings-bag-in-box-water-to-us-retail-targeting-plastic-waste/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/11/fondUvk0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/11/apexpcZm.webp)

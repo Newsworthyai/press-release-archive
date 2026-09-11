@@ -1,42 +1,48 @@
-# Welcome to America Expands to ViX and Univision Puerto Rico-WSTE Channel 7
+# HITN presents Townhall ‘Los niños y el tiempo en pantalla’: A Practical Guide for Hispanic Families on Healthy Screen Time in Early Childhood
 
-WASHINGTON, DC — September 11, 2026 — (NOTICIAS NEWSWIRE) — HCN Global-La Red Hispana, the largest independent producer of educational and informational content for Spanish-language radio, print and digital platforms in the United States, is celebrating the expansion of its flagship program, Bienvenidos a América, to ViX and Univisión Puerto Rico-WSTE Channel 7, joining more than 80 radio and television affiliates across the United States.
+MIAMI, FL — September 11, 2026 — (NOTICIAS NEWSWIRE) — Edye and Vida y Salud, HITN Media’s preschool streaming and wellness platforms, present the townhall Los niños y el tiempo en pantalla (Children and Screen Time), a discussion in Spanish-language that addresses one of the most complex challenges of modern parenting: the relationship between preschoolers and electronic devices. The program will air on Sunday, September 13 at 8:00pm EDT/PDT on HITN TV and will be available for free on HITNGo so families can watch it whenever they need to.
 
- Since its launch in 1997, Bienvenidos a América has informed and supported generations of Hispanic immigrants in the United States, becoming one of the longest-running Spanish-language programs dedicated to helping audiences understand the issues that directly affect their lives and communities.
+ Hosted by journalist Nathalia Ortiz, the town hall features a timely and much-needed conversation with two specialists—Dr. Nidsy Mejía Roque, a developmental and behavioral pediatrician and member of the American Board of Pediatrics, and Dr. Fernanda Lucchese-Lobato, a pediatric neuropsychologist—discussing expert testimonials and revealing in-person surveys. The program brings together insights from Dr. Thresia Gambon, spokesperson for the American Academy of Pediatrics (AAP); Matías Dodel, PhD, professor in the Department of Social Sciences at the Catholic University of Uruguay; and Lina Acosta Sandaal, a development expert, psychotherapist, founder of Stop Parenting Alone, and director at KLA Academy in Miami. The surveys were conducted on the ground by parenting blogger Mariela Irala.
 
- “Bienvenidos a América has not only made history — it continues to make history. After 29 years of uninterrupted broadcasting, its arrival on ViX and Univision Puerto Rico marks another major milestone for HCN Global-La Red Hispana and demonstrates the enduring strength of a program that continues to earn the trust of generations of Latinos across the United States,” said Jeff Kline, President and Founder of HCN Global-La Red Hispana.
+ “This issue is urgent and highly relevant to our Latino audiences: the trends we see in the United States often set the tone globally, and parents need to be empowered with clear, evidence-based information that is guilt free,” said Guillermo Sierra, EVP and Head at HITN Media. “Both Vida y Salud and Edye, follow the American Academy of Pediatrics recommendations and continuously work alongside parents and caregivers to promote a healthy relationship with technology that prioritizes guidance, context, and content quality—without turning screens into a constant source of conflict.”
 
- The expansion represents the natural evolution of a program that began on radio nearly three decades ago and has successfully adapted to changing technology and new media consumption habits while remaining true to its original mission of serving the Hispanic community.
+ Los niños y el tiempo en pantalla offers constructive answers and avoids singling out parents while posing key questions: Is it just about screen time, or does content matter too? How do viewing habits and whether children are alone or accompanied shape their experience? What activities and relationships get displaced? When should adults step in, and how can limits be set without turning technology into a constant source of conflict? At the heart of the discussion are the American Academy of Pediatrics digital media guidelines, which invites us to reflect on the quality and context of the digital experience, rather than focusing solely over the number of minutes.
 
- “This growth reaffirms HCN Global-La Red Hispana’s commitment to delivering high-quality, culturally relevant content to Hispanic audiences wherever they are and on the platforms they use every day,” said Alison Rodden, CEO of HCN Global-La Red Hispana.
+ Los niños y el tiempo en pantalla empowers families to make informed decisions. The idea is clear: it’s not about being perfect parents, but about being present, staying informed, supporting children, and building a healthier relationship with technology—for both children and adults.
 
- Throughout its history, Bienvenidos a América has distinguished itself by combining journalism, expert analysis, practical guidance and direct audience engagement. Immigration has long been at the heart of the program’s editorial mission, with coverage ranging from changes in immigration laws and policies to citizenship, naturalization, visas, deportations, and other issues affecting millions of immigrant families. The program also addresses a broader range of topics important to Hispanic communities, including health, education, civic engagement, financial literacy and community empowerment.
+ This is the first of many initiatives that HITN will roll out on this important topic. “We want to lead the movement, initiate a critically important conversation, and empower parents to manage this challenge for the benefit of their children,” added Sierra.
 
- Currently hosted by journalist José López Zamorano, Bienvenidos a América regularly features immigration attorneys, policy experts and other specialists who break down the latest developments and answer questions directly from listeners and viewers.
+ HITN Media and its brands Vida y Salud and Edye join forces to provide Spanish-speaking families with trusted content on health, wellness, and child development. Vida y Salud, through VidaySalud.com and as a programming block on HITN TV, offers articles, videos, medical resources, and segments that promote healthy habits and informed decisions. Edye, a Spanish-language preschool content platform, supports this mission with practical resources, quality entertainment, and evidence-based guidance that helps child development and encourages a healthier relationship with technology.
 
- In recent years, the program’s digital transformation has significantly expanded its original role as a trusted connection to the community.
+ About Vida y Salud Vida y Salud, developed by HITN Media, is a brand dedicated to providing reliable health and wellness content for Spanish-speaking families through its digital platform VidaySalud.com, where users can access articles, videos, medical resources, and interactive tools such as “Ask Lisa”, a free chat with doctors supported by artificial intelligence. In addition, Vida y Salud is featured as an educational programming block on HITN TV, offering segments, interviews, and curated content designed to promote healthy habits, informed decision-making, and the empowerment of the community in all aspects of their well-being.
 
- Its traditional radio distribution has grown to include podcasts, live streaming, social media, television, digital video and on-demand content. Its expansion to ViX and Univision Puerto Rico-WSTE Channel 7, now brings the Bienvenidos a América brand into a new multiplatform era, extending its reach to younger audiences and to consumers who increasingly turn to streaming, digital video and social platforms such as Facebook, Instagram, TikTok and YouTube for news, information and community-focused content. You can watch the show on ViX by searching “Bienvenidos a América” in the ViX app or web platform.
+ For more information: Webpage: www.vidaysalud.com Instagram: @vidaysalud_com Facebook: @VidaySalud.com YouTube: @HITN Vida y salud tv X: @VidaySalud
 
- Nearly three decades after its first broadcast, Bienvenidos a América continues to evolve while remaining anchored in the mission that has defined it since 1997: making complex issues easier to understand, providing practical and trustworthy information, and creating a platform where the voices and concerns of Hispanic communities are heard.
+ About Edye Edye, an HITN Media brand, is a premium content platform for preschool-age children, which includes an SVOD platform, the pay-TV linear channel Edye-TV, programming blocks for broadcast television, and various digital games and activities. Edye offers fun and safe content, curated by children’s content experts. Edye has one of the largest catalogs of internationally recognized quality preschool series, featuring characters much loved by children, as well as games, activities, e-books, and guides to help parents understand the value and benefits of the content. For more than seven years, Edye has been available in Spanish and Portuguese on major digital platforms and devices, as well as through pay-TV, Internet, and mobile phone operators in the United States and Latin America, including Brazil.
 
- About HCN Global HCN Global is a human-centered, award-winning, data-informed, full-service marketing, communications, advertising, public relations and grassroots activation organization. For more than 40 years, HCN Global has worked alongside communities to develop culturally grounded campaigns, programming and content designed to inform, connect and inspire action. Through La Red Hispana, LatinEQUIS, and Melanin Thriving, HCN Global reaches 10+ million people weekly across multicultural and rural multimedia, trusted local leaders, and health worker networks in the US and beyond. For more information, visit hcnglobal.com.
+ For more information: Website: edye.com PLAY website: play.edye.com Google Play: EDYE App Store: edye LinkedIn: @edye Instagram: @edyeapp Facebook: @edyetv YouTube: @edyetv
 
- CONTACT: Susana Perez 786-447-1606 susana.perez@hcnglobal.com 
+ About HITN Media HITN Media is the leading Spanish-language media company offering educational and cultural programming for the whole family. HITN reaches more than 35 million households in the United States and Puerto Rico via DIRECTV, DIRECTV NOW, AT&T U-verse, AT&T TV, AT&T TV Now, DISH Network, Verizon FiOS TV, Comcast Xfinity, Charter Spectrum, Mediacom, CenturyLink Prism, and Altice, Liberty Cable and Claro (Puerto Rico). Download the HITN GO app, available on Apple, Android, Apple TV, and Roku® with subscription.
+
+ For more information: Corporate website: HITN.org TV website: hitn.tv LinkedIn: @HITN Facebook: @HITNtv X: @hitn Instagram: @HITNtv YouTube: @HITNTelevision
+
+ Link to images
+
+ CONTACT: Virginia Ariemma prensa@edye.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/bienvenidos-a-america-expands/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/hitn-presents-townhall/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bienvenidos-a-america-expands-to-vix-and-univision-puerto-rico/a7db987b655a70aaa0a58e7502691c9e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hitn-media-tackles-preschoolers-screen-time-in-spanish-town-hall/e15f0bcb8722768d40a56cc2a9ca3965) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/bienvenidos-a-america-expands-to-vix-and-univision-puerto-rico-extending-reach-to-younger-hispanic-audiences/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/11/hitn-townhall-addresses-preschoolers-screen-time-for-hispanic-families/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/11/lushjagV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/11/icyiQ9b.webp)
