@@ -1,111 +1,113 @@
-# Wolfson Group Heads to ECRM to Advance U.S. Retail Expansion
+# Solomon Dwiggins Freer & Steadman Attorneys Earn Multiple 2026 Legal Honors
 
+Solomon Dwiggins Freer & Steadman, Ltd., a Las Vegas law firm focused on trust, estate, probate, tax, guardianship, and business-related matters, is pleased to announce that several of its attorneys have earned recognition from prominent legal ranking organizations in 2026.
 
-For Wolfson Group, building a larger presence in the United States means looking beyond e-commerce and creating relationships across the broader retail marketplace.
+ The firm’s attorneys were recognized by Super Lawyers® Mountain States, The Best Lawyers in America®, Chambers and Partners, and Nevada Business Magazine. These honors span multiple areas of practice and reflect peer feedback, independent research, and professional achievement.
 
- The Scotland-based international consumer wellness company will participate in the ECRM Vitamin, Weight Management & Sports Nutrition Session, September 14-17 in Palm Beach Gardens, Florida, where it will meet with buyers representing major health, specialty, food, drug and mass-market retail channels.
+ Super Lawyers® Mountain States 2026 Eight Solomon Dwiggins Freer & Steadman attorneys were selected for the 2026 Super Lawyers Mountain States list:
 
- Wolfson Group enters the meetings with an established U.S. presence through Amazon and a clear objective for its next stage of growth: expanding availability through additional online retailers and brick-and-mortar stores.
+ * Dana A. Dwiggins
+* Alan D. Freer
+* Brian K. Steadman
+* Brian P. Eagan
+* Alexander G. LeVeque
+* Jeffrey P. Luszeck
+* Ross E. Evans
+* Roberto M. Campos
 
- "Amazon has given our brands an important foundation in the U.S. market, but we see a much larger opportunity ahead," said Scott Dingwall, Founder and CEO of Wolfson Group. "The next step is expanding where consumers can find us, and ECRM gives us the opportunity to sit down with retailers across multiple channels and explore where our portfolio can fit."
+ Dana Dwiggins, Alan Freer, Brian Steadman, Brian Eagan, Alexander LeVeque, and Jeffrey Luszeck were also named to the Mountain States Top 100 list. Alan Freer received additional recognition among the Top 10 attorneys, while Dana Dwiggins was included among the Top 50 Women.
 
- Wolfson Group's portfolio includes the established wellness brands PhenQ, TestoPrime, NooCube and YourBiology, spanning categories such as weight management, cognitive wellness, gut health and men's wellbeing.
+ Craig Friedel, Daniel Robinson, and Michael Desmond were recognized as 2026 Mountain States Rising Stars.
 
- The company's participation comes as Wolfson Group works to translate its digital commerce experience into a broader omnichannel presence in the United States. The ECRM format brings brands and retailers together for scheduled, focused meetings, allowing Wolfson Group to introduce its portfolio while learning more about the needs of individual retail channels.
+ Super Lawyers uses a multiphase selection process that includes independent research, peer nominations, and peer evaluations. The organization recognizes attorneys across numerous practice areas who have achieved a high degree of professional accomplishment and peer recognition.
 
- For Dingwall, those conversations are about more than securing additional points of distribution. They are also an opportunity to understand how established international brands can best serve U.S. retailers and their customers.
+ The Best Lawyers in America® 2027 Nine firm attorneys were recognized in the 2027 edition of The Best Lawyers in America, which was released in August 2026:
 
- "Every retail channel is different, and that's one of the reasons these meetings are valuable," Dingwall said. "We can have direct conversations about what buyers are seeing, what their customers are looking for and how our brands might complement their existing wellness offerings. Those insights are important as we build our U.S. strategy for the long term."
+ * Roberto M. Campos
+* Dana A. Dwiggins
+* Brian P. Eagan
+* Ross E. Evans
+* Alan D. Freer
+* Craig D. Friedel
+* Alexander G. LeVeque
+* Jeffrey P. Luszeck
+* Brian K. Steadman
 
- Wolfson Group's broader U.S. growth plans include expanding retail relationships, strengthening distribution and continuing to build consumer awareness around its portfolio. The company views its September meetings as another step in developing the partnerships necessary to extend its reach beyond its current Amazon presence.
+ The recognitions cover Litigation - Trusts and Estates, Trusts and Estates, Elder Law, Business Organizations, and Tax Law.
 
- From its home base in Scotland to one of the world's largest consumer markets, Wolfson Group said its goal is to build a U.S. presence that combines the reach of digital commerce with the accessibility and visibility of a broader retail footprint.
+ Alan Freer was also named the 2027 Best Lawyers® “Lawyer of the Year” for Litigation - Trusts and Estates in Las Vegas. This distinction is awarded to one attorney in a particular practice area and geographic region based on peer-review evaluations.
 
- About [Wolfson Group](https://wolfsongroup.co.uk/pages/about-us) Wolfson Group is an international consumer wellness company focused on building science-led brands that help people live healthier lives. Its portfolio spans weight management, cognitive health, gut health, men's wellness, beauty and healthy ageing, serving millions of consumers worldwide through direct-to-consumer, marketplace and retail channels.
+ Daniel Robinson and Michael Desmond were recognized in the 2027 edition of Best Lawyers: Ones to Watch® in America, which recognizes attorneys demonstrating professional excellence earlier in their private-practice careers.
 
- Wolfson Group's portfolio includes the established wellness brands PhenQ, TestoPrime, NooCube and YourBiology, spanning categories such as weight management, cognitive wellness, gut health and men's wellbeing. The brands are currently available to U.S. consumers through Amazon while the company pursues broader retail opportunities nationwide. 
+ 2026 Chambers High Net Worth Guide Solomon Dwiggins Freer & Steadman and five of its attorneys earned recognition in the 2026 Chambers High Net Worth Guide for Private Wealth Law.
+
+ Alan Freer and Brian Steadman received Band 1 rankings. Dana Dwiggins, Alexander LeVeque, and Jeffrey Luszeck received Band 2 rankings, with Luszeck newly recognized in the 2026 guide.
+
+ Chambers and Partners develops its rankings through independent research that includes interviews with clients, attorneys, and other legal professionals. The High Net Worth Guide focuses on law firms and professional advisers serving high-net-worth and ultra-high-net-worth individuals and families.
+
+ Nevada Business Magazine’s 2026 Top Rank Attorneys Nevada Business Magazine also recognized several members of the firm in its 2026 Top Rank Attorneys program.
+
+ Alan Freer, Brian Steadman, Brian Eagan, Jeffrey Luszeck, and Craig Friedel were named Top Rank Attorneys. Daniel Robinson and Michael Desmond received Best Up and Coming recognition.
+
+ The annual program highlights Nevada attorneys selected by their peers from private practice and public service.
+
+ About Solomon Dwiggins Freer & Steadman, Ltd. Established in 2005, Solomon Dwiggins Freer & Steadman, Ltd. is a boutique law firm based in Las Vegas. The firm represents individuals, families, fiduciaries, and businesses throughout Nevada in matters involving trust and estate litigation, probate, trust administration, estate and tax planning, asset protection, guardianship, business planning, and commercial litigation.
+
+ To learn more about the firm, its attorneys, and recent announcements, visit www.sdfnvlaw.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609142911/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
+[Original/Source Press Release](https://newsworthy.ai/news/202609142915/solomon-dwiggins-freer-and-steadman-attorneys-earn-multiple-2026-legal-honors)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wolfson-group-expands-u-s-retail-presence-at-ecrm/82a9a68c77f83d79978fd851f1e89658) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solomon-dwiggins-freer-steadman-attorneys-earn-2026-legal-honors/586b7dacbcba3d49e9c4448f8e0a710f) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/wolfson-group-targets-us-retail-expansion-at-ecrm-event)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/wolfson-group-leverages-ecrm-to-expand-us-retail-presence-beyond-amazon)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-earn-multiple-2026-legal-honors)
 
-Pickup - [https://burstable.news](https://burstable.news/news/wolfson-group-turns-to-ecrm-to-expand-us-retail-presence-beyond-amazon)
+Pickup - [https://burstable.news](https://burstable.news/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/wolfson-group-setzt-auf-ecrm-um-seine-us-prasenz-im-einzelhandel-uber-amazon-hinaus-auszubauen)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/solomon-dwiggins-freer-steadman-anwalte-erhalten-mehrere-juristische-auszeichnungen-fur-2026)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/wolfson-group-recurre-a-ecrm-para-ampliar-su-presencia-minorista-en-ee-uu-mas-alla-de-amazon)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/abogados-de-solomon-dwiggins-freer-steadman-obtienen-multiples-reconocimientos-legales-en-2026)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-groupe-wolfson-se-tourne-vers-ecrm-pour-etendre-sa-presence-aux-etats-unis-au-dela-damazon)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/solomon-dwiggins-freer-steadman-les-avocats-du-cabinet-recoltent-de-multiples-distinctions-juridiques-pour-2026)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/grupo-wolfson-recorre-a-ecrm-para-expandir-presenca-no-varejo-dos-eua-alem-da-amazon)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/advogados-da-solomon-dwiggins-freer-steadman-conquistam-multiplas-honrarias-juridicas-em-2026)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/wolfson-group-leverages-ecrm-to-expand-us-retail-footprint-beyond-amazon)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-top-2026-legal-honors)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/wolfson-group-leverages-ecrm-to-drive-us-retail-expansion-beyond-amazon)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-receive-top-legal-honors-for-2026)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/wolfson-group-leverages-ecrm-to-expand-us-retail-presence-beyond-amazon)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/wolfson-group-to-attend-ecrm-to-expand-us-retail-presence)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/solomon-dwiggins-freer-steadman-attorneys-garner-top-legal-honors-for-2026)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/wolfson-group-leverages-ecrm-to-drive-us-retail-expansion-beyond-amazon)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-earn-multiple-2026-legal-honors)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/wolfson-group-turns-to-ecrm-to-drive-us-retail-expansion-beyond-amazon)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/wolfson-group-leverages-ecrm-to-drive-us-retail-expansion-beyond-amazon)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-top-legal-honors-for-2026)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/wolfson-group-targets-us-retail-expansion-beyond-amazon-at-ecrm)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/solomon-dwiggins-freer-steadman-attorneys-receive-multiple-2026-legal-honors)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/wolfson-group-turns-to-ecrm-to-accelerate-us-retail-expansion-beyond-amazon)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/wolfson-group-leverages-ecrm-to-expand-us-retail-presence-beyond-amazon)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-multiple-2026-legal-honors)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/wolfson-group-leverages-ecrm-to-expand-us-retail-presence-beyond-amazon)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-top-legal-honors-for-2026)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/wolfson-group-targets-us-retail-expansion-through-ecrm-meetings)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-top-legal-honors-for-2026)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/wolfson-group-targets-us-retail-expansion-through-ecrm-meetings)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/solomon-dwiggins-freer-steadman-attorneys-garner-top-legal-honors-for-2026)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/wolfson-group-leverages-ecrm-meetings-to-drive-us-retail-expansi/202638596)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/wolfson-group-heads-to-ecrm-to-advance-us-retail-expansion)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/14/wolfson-group-pursues-us-retail-expansion-beyond-amazon-at-ecrm-event/)
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/solomon-dwiggins-freer-steadman-attorneys-earn-multiple-2026-leg/202638619)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/14/mielIv6_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/14/neonZfp3.webp)
