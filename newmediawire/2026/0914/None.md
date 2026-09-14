@@ -1,142 +1,106 @@
-# LAURION Reports Multiple Gold and Polymetallic Intercepts
+# How OneRoyal Bridges The Gap Between Market Analysis And Performance With AI Integration
 
-TORONTO, ONTARIO - September 14, 2026 (NEWMEDIAWIRE) - LAURION Mineral Exploration Inc. (TSX-V: LME | OTC: LMEFF | FSE: 5YD) (“LAURION” or the “Company”) is pleased to report assay results from drill holes LBX26-106 and LBX26-107 from its ongoing 2026 Phase 1 diamond drilling program at its 100%-owned Ishkoday Gold and Polymetallic Project (“Ishkoday”), located approximately 220 km northeast of Thunder Bay and 28 km northeast of Beardmore, Northwestern Ontario.
+By Meg Flippin, Benzinga
 
- Highlights Include:
+ Online trading has evolved, so should your broker. OneRoyal wants to be your one-stop shop with AI- and ML-driven tools. Click here to see why it’s the CFD broker for all traders.
 
- LBX26-106:
+ DETROIT, MICHIGAN - September 14, 2026 (NEWMEDIAWIRE) - Long gone are the days when online trading was defined only by zero-commission trades and speedy execution. Thanks to advances in technology, mobile-first platforms, artificial intelligence and machine learning, everyday traders and investors now have access to things like overnight trading, non-stop information flow, real-time sentiment analysis and AI-driven decision tools. Information now spreads rapidly and markets are more accessible, leading to various different behaviors being witnessed among traders.
 
- * 3.75 m grading 0.568 g/t Au, 12.40 g/t Ag, 0.46% Cu and 1.75% Zn (278.75 m to 282.50 m), including:
-* 2.30 m grading 0.886 g/t Au, 19.26 g/t Ag, 0.73% Cu and 1.64% Zn (280.2 m to 282.5 m); and
-* 0.50 m grading 1.730 g/t Au, 43.20 g/t Ag, 1.51% Cu and 3.40% Zn (282.0 m to 282.5 m).
-* 4.70 m grading 0.582 g/t Au, 2.53 g/t Ag, 0.07% Cu and 0.93% Zn (172.50 m to 176.50 m).
-* 2.70 m grading 0.742 g/t Au, 3.88 g/t Ag, 0.10% Cu and 1.58% Zn (174.50 m to 177.20 m), including:
-* 0.50 m grading 3.220 g/t Au, 9.70 g/t Ag, 0.30% Cu and 6.29% Zn (174.50 m to 175.00 m).
+ They now have more choice, which has created an expectation for more institutional-grade analytics, personalized trading signals and actionable market insights in addition to speedy execution and low-cost trading.
 
- LBX26-107:
+ OneRoyal Ticks The Boxes For Modern Traders
 
- * 1.15 m grading 1.374 g/t Au, 10.10 g/t Ag, 0.49% Cu and 2.01% Zn (239.80 m to 240.95 m), including:
+ To meet the needs of modern traders, brokers have to offer a dynamic trading platform that ticks all those boxes and continues to innovate as technologies evolve. They can get that and more with OneRoyal, the CFD brokerage with over twenty years in the industry. While OneRoyal has been around for decades and serves more than 163 countries, it doesn’t take its market for granted and is constantly evolving, rolling out advanced technologies to help traders maintain that market edge.
 
- * 0.50 m grading 1.170 g/t Au, 20.10 g/t Ag, 1.03% Cu and 3.64% Zn (240.45 m to 240.95 m).
+ After all, OneRoyal was one of the first CFD brokers to integrate and offer AI- and machine learning-powered tools into its platform, embedding ML algorithms into the everyday trading environment. That allowed retail accounts to process more big-data insights that were once exclusive to institutional desks.
 
- * 2.90 m grading 0.608 g/t Au, 11.93 g/t Ag, 0.34% Cu and 0.93% Zn (351.40 m to 354.30 m), including:
-* 0.80 m grading 1.975 g/t Au, 39.50 g/t Ag, 1.45% Cu and 2.72% Zn (353.50 m to 354.30 m).
+ Since doing that, OneRoyal has rolled out several AI- and ML-driven upgrades, including integration with Acuity’s AI-driven suite of analytics, which provides traders with overall market mood and trading sentiment. Within that suite, there is SignalX, which gives traders access to ready-to-use trading ideas and AssetIQ, which provides a single dashboard for any asset that houses price charts, news and sentiment scores in one place. There is also an AI tool that automatically reads thousands of news headlines and social posts to score market mood, an AI-driven economic calendar, a market scanner to spot unusual trading activity, daily intel and personal alerts.
 
- Phase 1 Drill Program and Progress
+ On the charting side, OneRoyal’s Autochartist tool uses ML to scan technical price charts to spot patterns and support and resistance levels across thousands of assets in real time. It then pairs those patterns with probability models to estimate the likelihood of a breakout.
 
- Through targeted infill, expansion and exploration drilling, LAURION’s 2026 Phase 1 drill program is designed to systematically advance the A-Zone, which may support the evaluation of a potential maiden Mineral Resource Estimate (“MRE”). Drill holes LBX26-106 and LBX26-107 were designed to test the A-Zone and McLeod mineralized systems at depth and along strike, tighten drill spacing, and evaluate priority geophysical targets. Together, the drilling is providing additional information regarding the geometry and potential extent of mineralization, and is being evaluated to assess continuity within the mineralized system.
+ Want to take your trading to the next level with AI and machine learning tools? Click here to register and explore OneRoyal’s offerings.
 
- LBX26-106 was designed to test the A-Zone down-plunge, including the down-plunge continuation of the vertical section of grade vectorization. The hole was intended to provide additional information to evaluate the continuity and geometry of mineralization at depth, and strengthen LAURION’s geological understanding of the A-Zone.
+ Access = Diversification
 
- LBX26-107 was designed to test the McLeod mineralized horizon while reducing the pierce-point spacing between 2022 drill holes. The hole also provided an opportunity to simultaneously test a chargeability anomaly identified in the 2015 Abitibi geophysical survey, combining tighter drill coverage of the known mineralized horizon with testing of a geophysical target.
+ Beyond AI and ML tools, clients can trade over 2,000 markets from one account, including forex and CFDs on shares, indices, commodities, cryptocurrencies and ETFs. OneRoyal says being able to diversify across so many different asset classes on one platform serves as a positive differentiator. With some other brokerages that offer less access, investors may be forced to have multiple accounts to get the same exposure. Understanding that variety is the spice of life, even in trading, OneRoyal currently offers several software and mobile apps to its clients, including MT4, MT5, One Pro Copy, One Copy Trader, MultiTerminal and MultiFX.
 
- Building on the program to date, LAURION increased its planned Phase 1 drilling from 3,865 metres to 5,605 metres across 22 drill holes. The expanded program is being informed by SRK Consulting’s independent structural gap analysis of the A-Zone, which identified five priority target areas where additional drilling may address key gaps in the existing drill database and further strengthen geological understanding. LAURION is using this framework, together with ongoing drill results, to prioritize near-term drilling as it continues to systematically advance the A-Zone toward its potential maiden MRE. Specific targets, sequencing and timing remain subject to, among other things, ongoing results and available financing.
+ OneRoyal reports it has a reputation for building a trading infrastructure that is stable even in extreme market conditions, secure and transparent. Traders have access to local support, a plethora of educational materials and information, including weekly blogs, videos, live streams, Q&As and events. Even the insights provided by its AI-driven tools like Market Scanner serve to educate traders, automatically translating complex market movements into visual data, pairing live price charts with the specific news events or economic data that caused a move. That teaches traders why prices are reacting, helping take the guesswork out of the equation.
 
- LBX26-106 Assay Summary
+ The broker also lets traders practice before trading real money with the demo account option. Funded with $100,000 in practice funds, it lets traders familiarize themselves with the platform and test their strategies in a simulated environment. It's another way to learn with less risk. Once ready to start trading live, OneRoyal keeps pricing cheap, featuring raw spreads from 0.0 pips on ECN and Prime accounts (and 1.4 pips on Classic), zero commissions on Classic setups, low per-lot fees on ECN ($3.50 per side) and Prime ($1.75 per side), plus leverage scaling up to 1:1,000.
 
- LBX26-107 Assay Summary
+ Street Cred Too
 
- Table
+ But don’t take OneRoyal’s word for it. The brokerage has received a lot of accolades over the past year that position it as an industry veteran. It has won awards for reliability and for its AI tools, including Most Trusted Multi-Asset Broker at the Gazet International Annual Awards, 2026, Most Reliable Forex Broker at FXDailyInfo, 2026, Best Value Forex Broker at FXDailyInfo, 2026, Best AI Tools at Trade Brains, 2025 and Best AI Trading Technology at Jeddah Fintech Week, 2025.
 
- Note: All Core lengths are drilled thicknesses; true widths have not yet been determined. Intervals are calculated using a nominal cut-off and may include internal dilution; “including” intervals are sub-intervals of higher grade contained within the reported interval.
+ Online trading has evolved from the days when execution and pricing were all that mattered. Today, the modern trader has a lot more information coming at them 24 hours a day and needs help making sense of it all in real time. They also want support when they want it, access to advanced technology and a trading edge. They can seek that and more with OneRoyal, a veteran CFD broker that can support traders of all levels. Ready to see if you can take your trading to the next level? Click here to register with OneRoyal to explore its offerings.
 
- Sampling and QA/QC Protocols
+ Featured image from Shutterstock.
 
- All drill core is transported and stored inside the core logging facility located at the Ishkoday Project in Greenstone, Ontario.
+ This content was originally published on Benzinga. Read further disclosures here.
 
- LAURION employs an industry standard system of external standards, blanks and duplicates for all of its sampling, in addition to the QA/QC protocol employed by the laboratory. After logging, core samples were identified and then cut in half along the core axis in the same building and then zip tied individually in plastic sample bags with a bar code. Approximately five or six of these individual bags were then stacked into a “rice” white material bag and stored on a skid for final shipment to the laboratory. All core samples were shipped to the ALS facility in Thunder Bay, Ontario, which were then prepared by ALS Global Geochemistry in Thunder Bay and analyzed by ALS Global Analytical Lab in North Vancouver, British Columbia. Samples are processed by 4-acid digestion and analyzed by fire assay on 50 g pulps and ICP-AES (Inductively Coupled Plasma – Atomic Emission Spectroscopy).
-
- Over limit analyses are reprocessed with gravimetric finish. A total of 5% blanks and 5% standard are inserted randomly within all samples. 5% of the best assay result pulps were sent for re-assays. All QA/QC results were verified, and no contamination or bias was observed. The remaining half of the core, as well as the unsampled core, is stored in temporary core racks at the core logging facility in Beardmore and moved to the core storage facility at the Ishkoday Project.
-
- Note: QA/QC review of standards and duplicates indicates analytical results are reliable. One zinc standard adjacent to a high-grade zinc interval returned elevated values consistent with expected analytical behaviour following high-grade samples.
-
- Qualified Person
-
- The technical contents of this press release have been reviewed and approved by Dr. Trevor Boyd, Ph.D., P.Geo., a consultant to LAURION and a Qualified Person as defined by National Instrument 43-101 – Standards of Disclosure for Mineral Projects (“NI 43-101”). Dr. Boyd is independent of the Company within the meaning of NI 43-101.
-
- About LAURION
-
- LAURION Mineral Exploration Inc. is listed on the TSX Venture Exchange (LME), OTCQB (LMEFF), and Frankfurt Stock Exchange (5YD), and is a mid-stage Canadian mineral exploration company, focused on advancing the 100%-owned Ishkoday Gold and Base Metal Project in Northern Ontario.
-
- The Ishkoday Project covers approximately 57 km² within the prolific Beardmore-Geraldton and Onaman-Tashota Greenstone Belts and hosts a single 6.0 km by 2.5 km mineralised corridor. Historical and modern exploration programs have completed over 98,000 metres of drilling, confirming a large and evolving gold-rich base metal mineral system.
-
- LAURION’s strategy emphasizes disciplined, data-driven exploration, systematic technical advancement, integrated geological modelling, and responsible capital allocation. The Company is focused on strengthening geological confidence, expanding the scale of the mineral system, and positioning the project for a potential future MRE. LAURION continues to evaluate opportunities that may enhance project development flexibility, including potential non-dilutive initiatives such as the evaluation of historical surface stockpile processing. The Company’s objective is to build technical clarity, scale, and long-term project value before monetization, ensuring that future development decisions or strategic opportunities are supported by strong geological foundations and reduced execution risk.
-
- Cynthia Le Sueur-Aquin, President and CEO of LAURION, is the Company’s largest shareholder, holding 17,221,306 common shares, reflecting strong alignment between management and shareholders.
-
- For Further Information, Contact:
-
- LAURION Mineral Exploration Inc.Cynthia Le Sueur-Aquin – President and CEOTel: 1-705-788-9186 Fax: 1-705-805-9256
-
- Douglas Vass - Investor Relations Consultant Email: info@laurion.caWebsite: http://www.LAURION.ca
-
- Follow us on: X (@LAURION_LME), Instagram (laurionmineral) and LinkedIn
-
- Caution Regarding Forward-Looking Information
-
- This press release contains forward-looking statements, which reflect the Company’s current expectations regarding future events including with respect to LAURION’s business, operations and condition, management’s objectives, strategies, beliefs and intentions, the Company’s ability to advance the Ishkoday Project and achieve the Company’s strategic and technical objectives (within the above-stated timeframes, if at all), including with respect to the Company’s expectations regarding the MRE, the nature, focus, timing and potential results of the Company’s exploration, drilling and prospecting activities, including the Company’s exploration program and planned exploration and drilling activities referenced in this press release, and the statements regarding the Company’s exploration or consideration of any possible strategic alternatives and transactional opportunities, as well as the potential outcome(s) of this process, the possible impact of any potential transactions referenced herein on the Company or any of its stakeholders, and the ability of the Company to identify and complete any potential acquisitions, mergers, financings or other transactions referenced herein, and the timing of any such transactions.
-
- The forward-looking statements involve risks and uncertainties. Actual events and future results, performance or achievements expressed or implied by such forward-looking statements could differ materially from those projected herein including as a result of a change in the trading price of the common shares of LAURION, the failure to obtain the consents, permits and/or approvals from applicable governmental bodies, regulators and First Nations communities, required in connection with the Company’s strategic and technical objectives, the risk that additional drilling may not support the preparation of an MRE, the TSX Venture Exchange or any other applicable regulator not providing its approval for any strategic alternatives or transactional opportunities, the interpretation and actual results of current exploration activities, changes in project parameters as plans continue to be refined, future prices of gold and/or other metals, possible variations in grade or recovery rates, failure of equipment or processes to operate as anticipated, the failure of contracted parties to perform, labor disputes and other risks of the mining industry, delays in obtaining governmental approvals or financing or in the completion of exploration, as well as those factors disclosed in the Company’s publicly filed documents. Investors should consult the Company’s ongoing quarterly and annual filings, as well as any other additional documentation comprising the Company’s public disclosure record, for additional information on risks and uncertainties relating to these forward-looking statements. The reader is cautioned not to rely on these forward-looking statements. Subject to applicable law, the Company disclaims any obligation to update these forward-looking statements. Readers are cautioned to not place undue reliance on the assay values reported in this press release.
-
- NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICE PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THE CONTENT OF THIS NEWS RELEASE.
+ This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-7089566)
+[Original/Source Press Release](https://www.newmediawire.com/news/how-oneroyal-bridges-the-gap-between-market-analysis-and-performance-with-ai-integration-7089568)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/laurion-hits-high-grade-gold-and-polymetallic-intercepts-at-ishkoday/5f923cc3d3fff2447e02039bbc95fdb3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oneroyal-leverages-ai-and-ml-to-empower-modern-traders/3594646d0ef9d320bc27892a7d92cad7) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/laurion-reports-high-grade-gold-and-polymetallic-intercepts-at-ishkoday-project)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/14/oneroyal-bridges-market-analysis-and-performance-gap-with-ai-integration/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-at-ishkoday-advancing-toward-maiden-resource-estimate)
+Pickup - [https://advos.io/en](https://advos.io/en/oneroyal-integrates-ai-and-machine-learning-to-meet-evolving-trader-demands)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/laurions-new-drill-results-strengthen-path-toward-maiden-resource-at-ishkoday)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
 
-Pickup - [https://burstable.news](https://burstable.news/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-at-ishkoday-project)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/oneroyal-integrates-ai-and-ml-to-meet-evolving-trader-demands)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/laurion-meldet-mehrere-gold-und-polymetallische-abschnitte-im-ishkoday-projekt)
+Pickup - [https://burstable.news](https://burstable.news/news/oneroyal-integrates-ai-to-bridge-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/laurion-informa-multiples-intersecciones-de-oro-y-polimetalicas-en-el-proyecto-ishkoday)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/oneroyal-integriert-ki-um-die-lucke-zwischen-marktanalyse-und-trading-performance-zu-schliessen)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/laurion-annonce-de-multiples-interceptions-auriferes-et-polymetalliques-sur-le-projet-ishkoday)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/oneroyal-integra-ia-para-cerrar-la-brecha-entre-el-analisis-de-mercado-y-el-rendimiento-comercial)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/laurion-relata-multiplas-intersecoes-de-ouro-e-polimetalicos-no-projeto-ishkoday)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/oneroyal-integre-lia-pour-combler-le-fosse-entre-lanalyse-de-marche-et-la-performance-de-trading)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/laurion-reports-high-grade-gold-and-polymetallic-intercepts-at-ishkoday-expands-drill-program)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/oneroyal-integra-ia-para-preencher-a-lacuna-entre-analise-de-mercado-e-desempenho-de-negociacao)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/laurions-latest-assays-highlight-strong-gold-and-polymetallic-mineralization-at-ishkoday)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/oneroyal-sets-new-standard-for-retail-trading-with-ai-and-machine-learning-integration)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-expands-phase-1-drilling-at-ishkoday)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/laurion-reports-multiple-gold-and-polymetallic-intercepts-at-ishkoday-project)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-the-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/laurions-expanded-drilling-at-ishkoday-returns-high-grade-gold-and-base-metals-advancing-toward-maiden-resource-estimate)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/oneroyal-integrates-ai-and-machine-learning-to-meet-evolving-trader-demands)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-at-ishkoday-project)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/oneroyal-integrates-ai-and-ml-to-close-the-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/laurions-new-drill-results-strengthen-path-to-maiden-resource-at-ishkoday)
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-trading-performance)
 
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/laurion-reports-high-grade-gold-and-polymetallic-intercepts-expands-drilling-at-ishkoday-project)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/oneroyal-integrates-ai-to-bridge-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/laurion-mineral-exploration-reports-high-grade-gold-and-polymetallic-intercepts-at-ishkoday-project)
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/oneroyal-integrates-ai-and-ml-to-transform-cfd-trading-for-retail-investors)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/laurions-latest-drill-results-reveal-high-grade-gold-and-polymetallic-mineralization-at-ishkoday)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-close-the-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/laurions-latest-drill-results-strengthen-case-for-maiden-resource-at-ishkoday)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-empower-retail-traders-with-institutional-grade-analytics)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/laurion-reports-multiple-gold-and-polymetallic-intercepts-at-ishkoday-expands-phase-1-drilling)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-gap-between-market-analysis-and-trading-performance)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/laurions-high-grade-gold-and-polymetallic-intercepts-signal-potential-for-maiden-resource-at-ishkoday)
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-trading-performance)
 
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/laurions-latest-drill-results-reveal-high-grade-gold-and-base-me/202638618)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/oneroyal-integrates-ai-and-ml-tools-to-meet-evolving-trader-demands)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/oneroyal-uses-ai-and-machine-learning-to-bridge-gap-between-mark/202638623)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/14/miel3qij.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/14/knobYrQy.webp)
