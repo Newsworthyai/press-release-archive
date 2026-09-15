@@ -1,106 +1,64 @@
-# How OneRoyal Bridges The Gap Between Market Analysis And Performance With AI Integration
+# Yocale.ai Expands Its Beauty and Wellness Operating System With Next-Generation Invoicing
 
-By Meg Flippin, Benzinga
+VANCOUVER, BRITISH COLUMBIA - September 14, 2026 (NEWMEDIAWIRE) - Yocale.ai Inc. (CSE: YAI) (OTC: YOAIF) (Frankfurt: K4G) ("Yocale.ai" or the "Company"), the AI-powered operating system for the beauty and wellness industry, today announced the launch of next-generation Yocale Invoicing, now the layer through which sales, integrated payments and balances flow inside the Yocale operating system. Fully integrated by design and standalone when needed, it expands the Company's commerce and financial infrastructure while strengthening the connected data foundation across the platform. It handles a broad range of a business's sales, letting salons, medspas, and wellness businesses invoice clients and track what they owe in the same system they use to manage appointments.
 
- Online trading has evolved, so should your broker. OneRoyal wants to be your one-stop shop with AI- and ML-driven tools. Click here to see why it’s the CFD broker for all traders.
+ Beauty and wellness is built on repeat business. In medical aesthetics, 73% of patients are repeat patients, according to the American Med Spa  Association's 2024 Medical Spa State of the Industry Report. Over the course of that relationship, a client books services, buys products, leaves balances outstanding and pays across several visits, and no single appointment record captures it.
 
- DETROIT, MICHIGAN - September 14, 2026 (NEWMEDIAWIRE) - Long gone are the days when online trading was defined only by zero-commission trades and speedy execution. Thanks to advances in technology, mobile-first platforms, artificial intelligence and machine learning, everyday traders and investors now have access to things like overnight trading, non-stop information flow, real-time sentiment analysis and AI-driven decision tools. Information now spreads rapidly and markets are more accessible, leading to various different behaviors being witnessed among traders.
+ Yocale Invoicing extends the transaction workflow beyond the booked appointment. A sale can start at the front desk, in the treatment room, or from a client profile. It can cover a service, a retail product, or both on the same invoice. It can be split across multiple payments, or cover several clients under a single payer, with each service still attached to the person who received it. Unlike a traditional appointment checkout, Yocale Invoicing can operate independently of a booking while still staying connected to the broader client and business workflow.
 
- They now have more choice, which has created an expectation for more institutional-grade analytics, personalized trading signals and actionable market insights in addition to speedy execution and low-cost trading.
+ Every one of those transactions runs through the same workflow as a booked appointment and lands on the same operational record. What was sold, who sold it, who paid for it, and what remains outstanding all sit on the client's file, alongside refunds, taxes, tips and staff attribution. That gives businesses a connected view of staff sales performance, commissions, product trends and client purchase history.
 
- OneRoyal Ticks The Boxes For Modern Traders
+ "We didn’t want to simply add an invoice screen to an appointment platform,” said Aydin Asli, Chief Executive Officer of Yocale.ai. "Sales in this industry don't wait for a booking. They happen at the front desk, in the treatment room, halfway through a course of treatments. We built for how these businesses actually sell, not how software assumes they do. We're expanding the financial infrastructure within Yocale to support a much broader commerce experience over time."
 
- To meet the needs of modern traders, brokers have to offer a dynamic trading platform that ticks all those boxes and continues to innovate as technologies evolve. They can get that and more with OneRoyal, the CFD brokerage with over twenty years in the industry. While OneRoyal has been around for decades and serves more than 163 countries, it doesn’t take its market for granted and is constantly evolving, rolling out advanced technologies to help traders maintain that market edge.
+ As more of a business's transaction activity is managed inside Yocale, the platform becomes more central to how that business operates, creating additional opportunities across software, commerce and embedded financial services over time.
 
- After all, OneRoyal was one of the first CFD brokers to integrate and offer AI- and machine learning-powered tools into its platform, embedding ML algorithms into the everyday trading environment. That allowed retail accounts to process more big-data insights that were once exclusive to institutional desks.
+ In practice, that means a business can:
 
- Since doing that, OneRoyal has rolled out several AI- and ML-driven upgrades, including integration with Acuity’s AI-driven suite of analytics, which provides traders with overall market mood and trading sentiment. Within that suite, there is SignalX, which gives traders access to ready-to-use trading ideas and AssetIQ, which provides a single dashboard for any asset that houses price charts, news and sentiment scores in one place. There is also an AI tool that automatically reads thousands of news headlines and social posts to score market mood, an AI-driven economic calendar, a market scanner to spot unusual trading activity, daily intel and personal alerts.
+ * Start a Transaction Without a Booking: A sale can start at the front desk, in the treatment room, or from a client profile, no booking required.
+* Put Services and Products on One Invoice: Staff can add retail products to an invoice alongside services, or sell a product on its own for a fast front-desk checkout. Products can be scanned with a supported barcode scanner, and each one updates inventory and the client's purchase history.
+* Check Out a Group with One Payer: Businesses can combine appointments for several clients into a single invoice paid by one person, with each service attached to the client who received it. Useful for couples, families, and other group visits.
+* Preserve Invoice History: Editing an unpaid invoice creates a new version and keeps the old one, so businesses can see what changed and when.
+* Support Flexible Payment Management: Businesses can record a payment, take several payments against the same invoice, or send the client a payment request directly from the invoice.
 
- On the charting side, OneRoyal’s Autochartist tool uses ML to scan technical price charts to spot patterns and support and resistance levels across thousands of assets in real time. It then pairs those patterns with probability models to estimate the likelihood of a breakout.
+ As more operational and financial activity is connected within Yocale, the Company expects the resulting data to support deeper reporting, automation and intelligent decision support over time. The launch further advances Yocale.ai's embedded-fintech strategy for the beauty and wellness industry.
 
- Want to take your trading to the next level with AI and machine learning tools? Click here to register and explore OneRoyal’s offerings.
+ Yocale Invoicing is available to Yocale customers today, as a standalone invoicing and point-of-sale solution or as part of the broader Yocale platform.
 
- Access = Diversification
+ About Yocale.ai
 
- Beyond AI and ML tools, clients can trade over 2,000 markets from one account, including forex and CFDs on shares, indices, commodities, cryptocurrencies and ETFs. OneRoyal says being able to diversify across so many different asset classes on one platform serves as a positive differentiator. With some other brokerages that offer less access, investors may be forced to have multiple accounts to get the same exposure. Understanding that variety is the spice of life, even in trading, OneRoyal currently offers several software and mobile apps to its clients, including MT4, MT5, One Pro Copy, One Copy Trader, MultiTerminal and MultiFX.
+ Yocale.ai Inc. (CSE: YAI) is an AI-powered operating system for the beauty and wellness industry, serving businesses from independent salons and med-spas to multi-location enterprise wellness brands. Combining vertical SaaS, embedded fintech, data intelligence, and AI automation within a single configurable platform, Yocale.ai unifies customer acquisition, bookings, payments, client engagement, and day-to-day operations, creating a connected operational data foundation for AI-driven automation and decision support across the business. Built on more than a decade of technology development through the Yocale platform, the Company's technology has supported thousands of service providers across more than 22 countries. Yocale.ai is headquartered in Vancouver, British Columbia.
 
- OneRoyal reports it has a reputation for building a trading infrastructure that is stable even in extreme market conditions, secure and transparent. Traders have access to local support, a plethora of educational materials and information, including weekly blogs, videos, live streams, Q&As and events. Even the insights provided by its AI-driven tools like Market Scanner serve to educate traders, automatically translating complex market movements into visual data, pairing live price charts with the specific news events or economic data that caused a move. That teaches traders why prices are reacting, helping take the guesswork out of the equation.
+ For further information
 
- The broker also lets traders practice before trading real money with the demo account option. Funded with $100,000 in practice funds, it lets traders familiarize themselves with the platform and test their strategies in a simulated environment. It's another way to learn with less risk. Once ready to start trading live, OneRoyal keeps pricing cheap, featuring raw spreads from 0.0 pips on ECN and Prime accounts (and 1.4 pips on Classic), zero commissions on Classic setups, low per-lot fees on ECN ($3.50 per side) and Prime ($1.75 per side), plus leverage scaling up to 1:1,000.
+ Aydin AsliChief Executive OfficerYocale.ai Inc.350-889 Harbourside DriveNorth Vancouver, British Columbia V7P 3S1Phone: +1 (855) 996-2253Email: aydin.asli@yocale.aiWebsite: www.yocale.ai
 
- Street Cred Too
+ Cautionary Notes Regarding Forward-Looking Information
 
- But don’t take OneRoyal’s word for it. The brokerage has received a lot of accolades over the past year that position it as an industry veteran. It has won awards for reliability and for its AI tools, including Most Trusted Multi-Asset Broker at the Gazet International Annual Awards, 2026, Most Reliable Forex Broker at FXDailyInfo, 2026, Best Value Forex Broker at FXDailyInfo, 2026, Best AI Tools at Trade Brains, 2025 and Best AI Trading Technology at Jeddah Fintech Week, 2025.
+ This news release contains "forward-looking information" within the meaning of applicable Canadian securities legislation. Forward-looking information includes, but is not limited to, statements regarding the Company's product roadmap, platform innovation and development, commercialization of new features, customer adoption, business strategy, future operations, and the Company's long-term growth objectives.
 
- Online trading has evolved from the days when execution and pricing were all that mattered. Today, the modern trader has a lot more information coming at them 24 hours a day and needs help making sense of it all in real time. They also want support when they want it, access to advanced technology and a trading edge. They can seek that and more with OneRoyal, a veteran CFD broker that can support traders of all levels. Ready to see if you can take your trading to the next level? Click here to register with OneRoyal to explore its offerings.
+ Forward-looking information is based on management's current expectations, estimates, assumptions and projections, including assumptions regarding the Company's ability to execute its business plan, commercialize its technology, continue developing and enhancing its platform, and comply with applicable laws and regulatory requirements.
 
- Featured image from Shutterstock.
+ Forward-looking information is subject to known and unknown risks, uncertainties and other factors that could cause actual results to differ materially from those expressed or implied, including risks relating to general economic conditions, competition, customer adoption, product development, execution risk, and the risks described in the Company's public disclosure documents available on SEDAR+.
 
- This content was originally published on Benzinga. Read further disclosures here.
+ Although the Company believes that the expectations and assumptions reflected in such forward-looking information are reasonable, there can be no assurance that they will prove to be correct. Readers are cautioned not to place undue reliance on forward-looking information. The Company undertakes no obligation to update forward-looking information except as required by applicable securities laws.
 
- This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
+ Neither the Canadian Securities Exchange nor its Regulation Services Provider accepts responsibility for the adequacy or accuracy of this news release.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/how-oneroyal-bridges-the-gap-between-market-analysis-and-performance-with-ai-integration-7089568)
+[Original/Source Press Release](https://www.newmediawire.com/news/yocale-ai-expands-its-beauty-and-wellness-operating-system-with-next-generation-invoicing-7089583)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/oneroyal-leverages-ai-and-ml-to-empower-modern-traders/3594646d0ef9d320bc27892a7d92cad7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yocale-ai-launches-next-gen-invoicing-for-beauty-and-wellness/199bc7dcdb64342b74daa84c822378ad) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/14/oneroyal-bridges-market-analysis-and-performance-gap-with-ai-integration/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/oneroyal-integrates-ai-and-machine-learning-to-meet-evolving-trader-demands)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/oneroyal-integrates-ai-and-ml-to-meet-evolving-trader-demands)
-
-Pickup - [https://burstable.news](https://burstable.news/news/oneroyal-integrates-ai-to-bridge-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/oneroyal-integriert-ki-um-die-lucke-zwischen-marktanalyse-und-trading-performance-zu-schliessen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/oneroyal-integra-ia-para-cerrar-la-brecha-entre-el-analisis-de-mercado-y-el-rendimiento-comercial)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/oneroyal-integre-lia-pour-combler-le-fosse-entre-lanalyse-de-marche-et-la-performance-de-trading)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/oneroyal-integra-ia-para-preencher-a-lacuna-entre-analise-de-mercado-e-desempenho-de-negociacao)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/oneroyal-sets-new-standard-for-retail-trading-with-ai-and-machine-learning-integration)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-the-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/oneroyal-integrates-ai-and-machine-learning-to-meet-evolving-trader-demands)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/oneroyal-integrates-ai-and-ml-to-close-the-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-trading-performance)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/oneroyal-integrates-ai-to-bridge-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/oneroyal-integrates-ai-and-ml-to-transform-cfd-trading-for-retail-investors)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-close-the-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-empower-retail-traders-with-institutional-grade-analytics)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-gap-between-market-analysis-and-trading-performance)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-trading-performance)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/oneroyal-integrates-ai-and-machine-learning-to-bridge-market-analysis-and-performance)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/oneroyal-integrates-ai-and-ml-tools-to-meet-evolving-trader-demands)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/oneroyal-uses-ai-and-machine-learning-to-bridge-gap-between-mark/202638623)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/14/yocaleai-launches-next-generation-invoicing-to-expand-beauty-and-wellness-operating-system/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/14/knobYrQy.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/14/blur1Q2X.webp)
