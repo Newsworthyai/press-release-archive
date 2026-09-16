@@ -1,64 +1,56 @@
-# Axiom HRS Serves Nashville Healthcare and Construction Employers
+# Counseling and Wellness Center of Pittsburgh Director Featured on AI in Therapy
 
-Axiom HRS Applies Industry-Specific HR Models to Nashville Healthcare, Construction, and Manufacturing
+Counseling and Wellness Center of Pittsburgh's Clinical Director Featured in City Paper on AI in Therapy
 
- Indianapolis, United States - September 16, 2026 / Axiom Human Resource Solutions /
+ Pittsburgh, United States - September 16, 2026 / Counseling and Wellness Center of Pittsburgh /
 
- NASHVILLE, Tenn., September 14, 2026. Axiom HRS, an Indianapolis-based UKG Ready Preferred Partner providing payroll and HR outsourcing since 2011, has extended its managed payroll and HR services to employers across Nashville and Middle Tennessee.
+ The Counseling and Wellness Center of Pittsburgh's Clinical Director Featured in Pittsburgh City Paper on the Role of AI in Therapy and Psychiatry
 
-The expansion follows Axiom's earlier entry into the Louisville/Kentuckiana market and builds on the company's established base serving Indianapolis and Indiana employers. Service in Nashville is delivered remotely by Axiom's existing client teams, consistent with how the company already serves employers outside Indiana, rather than through a newly staffed local office.
+PITTSBURGH, PA — The Counseling and Wellness Center of Pittsburgh (CWCPGH) is proud to announce that Clinical Director Kristen Walker, LPC, was recently featured in Pittsburgh City Paper, offering expert insight into how artificial intelligence is reshaping the landscape of mental health treatment and psychiatric care.
 
-A Growth-Stage Operating ModelThe expansion targets fast-growing, multi-location employers in the 50-to-2,000-employee range - organizations where hiring volume, management layers, and site count are outpacing the payroll and HR processes originally built to support them.
+In the feature, Walker — a DBT, CBT, EMDR trained therapist who has worked in the mental health field since 1995 — spoke to the growing intersection of technology and clinical practice, addressing both the opportunities and the limitations AI presents for therapists, psychiatric providers, and the clients they serve. Her comments reflect CWCPGH's broader commitment to staying at the forefront of emerging tools in behavioral health while preserving the human relationship at the center of effective care.
 
-Axiom's approach connects recruiting and onboarding, time and attendance, payroll processing, and workforce reporting on the UKG Ready platform. A single named account team handles implementation and remains involved after go-live, rather than routing clients through a rotating support queue.
+"As a field, we have to engage thoughtfully with these tools rather than either dismissing them outright or adopting them uncritically," said Walker. "AI can support access and efficiency, but it cannot replace the clinical judgment, trust, and relational depth that make therapy work."
 
-Axiom is positioning its Nashville offering around three growth pressure points identified through existing client work: onboarding data that must be re-entered at every handoff as hiring accelerates, inconsistent manager approvals as management layers multiply, and workforce reporting that fails to answer leadership's questions as locations and roles expand.
+Walker's inclusion in the piece continues a pattern of media recognition for CWCPGH's clinical team, who have previously been featured in outlets including the Pittsburgh Post-Gazette, The Pitt News, and CBS Pittsburgh, speaking on topics ranging from seasonal affective disorder to neurodivergence-affirming care.
 
-The company offers three entry points depending on where a client's process is breaking down: stabilizing payroll operations, connecting fragmented onboarding and recruiting workflows, or extending day-to-day HR administration capacity.
+"Kristen's perspective on AI in psychiatry reflects the kind of forward-thinking, client-centered approach we've built our practice around," said Stephanie Wijkstrom, LPC, Founder and CEO of CWCPGH. "As the industry navigates rapid technological change, it's important that voices grounded in direct clinical experience are part of that conversation — and we're proud that Kristen's is one of them."
 
-Serving Nashville's Growth IndustriesAxiom applies the same operating model to industry patterns it already serves from its Indianapolis base. In healthcare and care services, that includes credentialing, multi-role scheduling, and shift complexity. In construction and trades, it covers job costing, multi-state compliance, and prevailing wage workflows. In manufacturing and retail, the focus is on supporting hourly, shift-based workforces.
+CWCPGH, based in Pittsburgh with additional locations across the region, offers individual, family, and group therapy along with psychiatric and psychological testing services, serving clients across the full spectrum of mental health needs.
 
-Learn more at axiomhrs.com/nashville-hr-services/.
+About The Counseling and Wellness Center of Pittsburgh
 
-About Axiom HRSAxiom HRS is an Indianapolis-based provider of managed payroll, HR outsourcing, and workforce management services for growing employers. A UKG Ready Preferred Partner since 2011, Axiom combines UKG Ready technology with hands-on implementation, payroll administration, HR support, and a dedicated account team. Axiom serves employers across Indiana, with expanding markets in Tennessee and Kentucky.
+The Counseling and Wellness Center of Pittsburgh provides comprehensive mental health and wellness services, including therapy, psychiatry, and psychological testing, delivered by a team of nationally board-certified counselors and providers across the greater Pittsburgh region.
 
-For more information, visit axiomhrs.com.
+The Counseling and Wellness Center of Pittsburgh
 
-Contact InformationAxiom Human Resource Solutions
+412-322-2129
 
-9400 Priority Way W Dr.
+info@counselingwellnesspgh.com
 
-Indianapolis, IN 46240
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/lcGuVzujt7AlG42uv5Qzstl4r1pubDbgtuWmUFzi.png) [](https://counselingwellnesspgh.com) Contact Information:
 
-United States
-
-Andy Zelt
-
-+1-317-587-1019
-
-https://axiomhrs.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/nUOi765nDQF8ZdOaldo2rQbO09CPAebxwCJlnOrs.jpg) [](https://axiomhrs.com) Contact Information:
-
- Axiom Human Resource Solutions
+ Counseling and Wellness Center of Pittsburgh
 
  
 
-9400 Priority Way W Dr.  Indianapolis, IN 46240United States
+830 Western Ave, Pittsburgh, PA 15233, United States  Pittsburgh, PA 15233United States
 
- Andy Zelt +1-317-587-1019 https://axiomhrs.com 
+ Corryn Ling +1-412-322-2129 https://counselingwellnesspgh.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/axiom-hrs-serves-nashville-healthcare-and-construction-employers-448460)
+[Original/Source Press Release](https://mediawiretoday.com/counseling-and-wellness-center-of-pittsburgh-director-featured-on-ai-in-therapy-448470)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/axiom-hrs-brings-managed-payroll-and-hr-to-nashville-employers/fe9976784691b464bcbe57b6b3ca0734) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pittsburgh-clinical-director-weighs-in-on-ai-in-therapy/b8545de36cb66d24afc7cdc307d791af) 
 
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/clinical-director-featured-in-pittsburgh-city-paper-on-ais-role-in-therapy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/16/filonEE6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/16/lofttMSX.webp)
