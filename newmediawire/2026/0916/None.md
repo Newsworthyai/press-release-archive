@@ -1,4 +1,4 @@
-# Silver Crown Royalties Completes Third 1% Nsr Titiminas Royalty Acquisition
+# Silver Crown Royalties Completes Third 1% NSR Titiminas Royalty Acquisition
 
 TORONTO, ON - September 16, 2026 (NEWMEDIAWIRE) - Silver Crown Royalties Inc. (Cboe: SCRI, OTCQX: SLCRF, BF: QS0) (“Silver Crown”, “SCRi”, the “Corporation”, or the “Company”) is pleased to announce that it has completed the previously announced acquisition (the "Acquisition") of a third existing privately held 1% net smelter return royalty (the "Royalty") on Titiminas Silver Inc.'s ("Titiminas Silver") Madre Sierra deposit (the "Project") in Jauja, Peru, further to its news release dated September 3, 2026.
 
@@ -22,14 +22,16 @@ TORONTO, ON - September 16, 2026 (NEWMEDIAWIRE) - Silver Crown Royalties Inc. (C
 
  This document does not constitute an offer to sell, or a solicitation of an offer to buy, securities of the Company in Canada, the United States, or any other jurisdiction. Any such offer to sell or solicitation of an offer to buy the securities described herein will be made only pursuant to subscription documentation between the Company and prospective purchasers. Any such offering will be made in reliance upon exemptions from the prospectus and registration requirements under applicable securities laws, pursuant to a subscription agreement to be entered into by the Company and prospective investors.
 
- CBOE CANADA DOES NOT ACCEPT RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS NEWS RELEASE. 
+ CBOE CANADA DOES NOT ACCEPT RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS NEWS RELEASE.
+
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/silver-crown-royalties-completes-third-1-nsr-titiminas-royalty-acquisition-7089674)
+[Original/Source Press Release](https://www.newmediawire.com/news/silver-crown-royalties-completes-third-1-nsr-titiminas-royalty-acquisition-7089675)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-crown-royalties-acquires-third-1-nsr-on-madre-sierra-silver-project/98f866fba3a469abd9562dbc3dfe0ffd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-crown-closes-third-1-nsr-royalty-on-peru-silver-project/24ab79a130a48d35073e7dcd1a09e71a) 
 
  
 
@@ -37,4 +39,4 @@ TORONTO, ON - September 16, 2026 (NEWMEDIAWIRE) - Silver Crown Royalties Inc. (C
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/evenUhtq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/chef9IX3.webp)
