@@ -1,31 +1,34 @@
-# From the Farm to the Cap Table: Naturally Amish Puts Conviction Behind SMEV With Open Market Purchases
+# VERAXA Biotech (VRXA) Building a New Approach to Precision Cancer Therapy
 
-ANGOLA, IN - September 16, 2026 (NEWMEDIAWIRE) - Simulated Environment Concepts, Inc. (OTC: SMEV), operating as Naturally Amish, announced today that over the last few trading sessions the Company's management purchased more than $50,000 of SMEV common stock, approximately 3.5 million shares, in the open market at an average price of approximately $0.0145 per share. Naturally Amish reserves the right to make additional open-market purchases from time to time as it deems necessary and in the best interests of the Company and its shareholders. Management is encouraged by the opportunity to continue supporting the share structure as the business grows.
+* VERAXA is developing antibody-based cancer therapies aimed at improving the therapeutic window of existing treatment modalities.
+* Its proprietary BiTAC platform uses two complementary molecules that are designed to activate cytotoxic activity only when both recognize targets on the same tumor cell.
+* The company is applying the BiTAC concept to both antibody-drug conjugates (“ADCs”) and T-cell engagers (“TCEs”), with an emphasis on solid tumors.
+* With ADCs and bispecific antibodies attracting substantial investment, VERAXA is operating in oncology markets where technological differentiation can have significant strategic value.
 
- The Company believes these purchases reflect confidence in Naturally Amish’s long-term plan and in the growth already underway across its agricultural, processing, retail and consumer platform. Just as important, management wants shareholders and the market to see that Naturally Amish is putting skin in the game on both sides of the ball: investing in the business itself, and buying its own stock in the open market as a show of conviction in the share structure and the long-term value being built.
+ LOS ANGELES, CA - September 16, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) is developing a new generation of antibody-based cancer therapies at a time when oncology research is increasingly focused on a difficult question: how can powerful treatments be made more selective without sacrificing their ability to kill cancer cells? The wiss biotechnology company is approaching that problem through a portfolio of antibody-drug conjugates (“ADCs”), T-cell engagers (“TCEs”) and engineered antibody formats. At the center of the strategy is its proprietary BiTAC, or Bi-targeted Tumor-Associated Cytotoxicity, concept.
 
- Noah Wagler, President and CEO of Naturally Amish and SMEV, stated: “The Amish think in generations, not quarters. We talk about a 400-year plan because Naturally Amish is being built for our children, grandchildren and the generations after them. That is why we are buying our own stock in the open market and bringing in partners who are willing to put real capital into the Company at a premium to the market. We are putting our own conviction behind this Company, and we are building something that lasts.”
+ ![](http://newmediawire.s3.amazonaws.com/6aaac0aada846f543cccc452_1)
 
- In addition, as previously announced in the Company’s August 28, 2026 press release, foundational strategic investor Menno Wagler has agreed to acquire 100% equity for his $450,000 investment at $0.015 per share, with those shares restricted for two years, further aligning his interests with Naturally Amish’s long-term growth strategy. These proceeds are being used to fund the Company’s build-out plan, which will continue to roll out over the next few months, including the previously announced binding letter of intent to acquire a USDA-inspected meat processing facility in the Midwest, on which the Company has already placed a $25,000 deposit.
+ The objective is not simply to produce another antibody with a new target. VERAXA is attempting to change the…
 
- Naturally Amish is preparing to launch direct-to-consumer beef sales at naturallyamish.com and open its first retail location, giving households a farm-to-table option in person and online alongside the Company’s growing wholesale and retail customer base. Management believes demand for trusted, high-quality beef remains strong, and these next steps are intended to put Naturally Amish product directly in front of consumers while the Company continues serving restaurants, retailers and other wholesale accounts.
+ Read More
 
- About Naturally Amish
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- Naturally Amish is developing an integrated agriculture and consumer platform focused on beef processing, direct-to-consumer food sales, agricultural technology, retail markets, travel centers, biochar and infrastructure serving Amish agricultural communities. Naturally Amish currently operates through Simulated Environment Concepts, Inc. (OTC: SMEV).
+ The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
 
- Forward-Looking Statements
+ Forward Looking Statements
 
- This release contains forward-looking statements that involve risks and uncertainties. Actual results may differ materially from expectations. Nothing in this release should be interpreted as a recommendation or solicitation to buy or sell securities. The Company makes no representation regarding future trading activity, liquidity or market price.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Contact: Bryan Wilkinsonbryan@smevco.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/from-the-farm-to-the-cap-table-naturally-amish-puts-conviction-behind-smev-with-open-market-purchases-7089685)
+[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-building-a-new-approach-to-precision-cancer-therapy-7089689)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/naturally-amish-management-buys-50k-in-smev-stock-signals-confidence/7cc83fbef5d1965fb0b9112304373e68) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-s-bitac-platform-aims-to-revolutionize-precision-cancer-therapy/d032bad6b6b34ce9296307f98d5f4d11) 
 
  
 
@@ -33,4 +36,4 @@ ANGOLA, IN - September 16, 2026 (NEWMEDIAWIRE) - Simulated Environment Concepts,
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/talluKVw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/fondGAZe.webp)

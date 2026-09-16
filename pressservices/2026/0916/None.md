@@ -1,56 +1,44 @@
-# Counseling and Wellness Center of Pittsburgh Director Featured on AI in Therapy
+# River Landing Dentistry Founder Featured on Polaris Podcast
 
-Counseling and Wellness Center of Pittsburgh's Clinical Director Featured in City Paper on AI in Therapy
+Dr. Rebeca Zechmann of River Landing Dentistry Joins Group Practice Accelerator Podcast Season 6
 
- Pittsburgh, United States - September 16, 2026 / Counseling and Wellness Center of Pittsburgh /
+ Daniel Island, United States - September 16, 2026 / River Landing Dentistry /
 
- The Counseling and Wellness Center of Pittsburgh's Clinical Director Featured in Pittsburgh City Paper on the Role of AI in Therapy and Psychiatry
+ DANIEL ISLAND, S.C. — Dr. Rebeca Zechmann, DDS, founder of River Landing Dentistry, is the featured guest on the newest episode of the Group Practice Accelerator Podcast from Polaris Healthcare Partners. The episode, “Clinical Coaching That Works: Inside the Polaris Approach,” released September 10, 2026 as Season 6, Episode 36, and is available on YouTube and major podcast platforms.
 
-PITTSBURGH, PA — The Counseling and Wellness Center of Pittsburgh (CWCPGH) is proud to announce that Clinical Director Kristen Walker, LPC, was recently featured in Pittsburgh City Paper, offering expert insight into how artificial intelligence is reshaping the landscape of mental health treatment and psychiatric care.
+In the conversation with host Jamie West Falasz, Dr. Zechmann discusses her experience with the Polaris Clinical Coaching program alongside Dr. Vivek Solanki — what the coaching process looked like from the inside, how it supported her doctors and team, and the outcomes she observed as the practice grew. The episode is aimed at clinicians and practice leaders who want a practical look at how structured coaching, feedback and support translate into day-to-day clinical change rather than staying an idea on paper.
 
-In the feature, Walker — a DBT, CBT, EMDR trained therapist who has worked in the mental health field since 1995 — spoke to the growing intersection of technology and clinical practice, addressing both the opportunities and the limitations AI presents for therapists, psychiatric providers, and the clients they serve. Her comments reflect CWCPGH's broader commitment to staying at the forefront of emerging tools in behavioral health while preserving the human relationship at the center of effective care.
+A Growing Lowcountry Practice Built Around Comprehensive CareRiver Landing Dentistry has grown from its original Daniel Island office into a multi-location group practice serving the Charleston area, with offices in Daniel Island, Nexton, Summerville, North Charleston and Mount Pleasant. The practice offers family and preventive dentistry, crowns, dentures, root canal therapy, sleep apnea and snoring appliances, TMJ/TMD treatment, wisdom teeth removal, emergency care, cosmetic dentistry, dental implants, periodontics and sedation dentistry, including oral and IV sedation.
 
-"As a field, we have to engage thoughtfully with these tools rather than either dismissing them outright or adopting them uncritically," said Walker. "AI can support access and efficiency, but it cannot replace the clinical judgment, trust, and relational depth that make therapy work."
+Dr. Zechmann earned her Doctor of Dental Surgery degree from the University of Maryland School of Dentistry and completed a General Practice Residency at the Baltimore VA Medical Center, after earning a B.A. in Biology and Romance Languages and an M.S. in Molecular and Cellular Biology from The Johns Hopkins University. She has completed postgraduate training at The Pankey Institute and has advanced training in restorative dentistry and IV sedation, with a clinical focus on full-mouth rehabilitation, TMJ/TMD treatment and complex restorative care. A third-generation Mexican American who is fluent in Spanish, she is active in the Daniel Island Business Association, the Mount Pleasant and North Charleston chambers of commerce, and the Rotary Club of Daniel Island.
 
-Walker's inclusion in the piece continues a pattern of media recognition for CWCPGH's clinical team, who have previously been featured in outlets including the Pittsburgh Post-Gazette, The Pitt News, and CBS Pittsburgh, speaking on topics ranging from seasonal affective disorder to neurodivergence-affirming care.
+Why the Episode Matters for Group PracticesClinical coaching is one of the few levers a growing group practice can pull that touches both patient care and doctor retention at the same time. The episode walks through how that support is structured, how doctors receive feedback, and what practice leaders should expect when they put a coaching program in place. Patients in the Charleston area can learn more about the practice’s approach to comprehensive, patient-first care at River Landing Dentistry.
 
-"Kristen's perspective on AI in psychiatry reflects the kind of forward-thinking, client-centered approach we've built our practice around," said Stephanie Wijkstrom, LPC, Founder and CEO of CWCPGH. "As the industry navigates rapid technological change, it's important that voices grounded in direct clinical experience are part of that conversation — and we're proud that Kristen's is one of them."
+About River Landing DentistryRiver Landing Dentistry is a family and general dental practice founded by Dr. Rebeca Zechmann, serving Daniel Island, Nexton, Summerville, North Charleston and Mount Pleasant, South Carolina. The team provides preventive, restorative, cosmetic, implant, periodontal and sedation dentistry for patients of all ages. The main office is located at 145 River Landing Drive, Suite 102, Daniel Island, SC 29492. To schedule, call or text (843) 242-0645 or visit riverlandingdentistry.com.
 
-CWCPGH, based in Pittsburgh with additional locations across the region, offers individual, family, and group therapy along with psychiatric and psychological testing services, serving clients across the full spectrum of mental health needs.
+Listen to the episode: https://youtu.be/pUKYUYbXRDE
 
-About The Counseling and Wellness Center of Pittsburgh
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/NWV6wDG4lZ1osBhCWD2aksOz2LuGSriKmr9ZvmeG.jpg) [](https://riverlandingdentistry.com) Contact Information:
 
-The Counseling and Wellness Center of Pittsburgh provides comprehensive mental health and wellness services, including therapy, psychiatry, and psychological testing, delivered by a team of nationally board-certified counselors and providers across the greater Pittsburgh region.
-
-The Counseling and Wellness Center of Pittsburgh
-
-412-322-2129
-
-info@counselingwellnesspgh.com
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/lcGuVzujt7AlG42uv5Qzstl4r1pubDbgtuWmUFzi.png) [](https://counselingwellnesspgh.com) Contact Information:
-
- Counseling and Wellness Center of Pittsburgh
+ River Landing Dentistry
 
  
 
-830 Western Ave, Pittsburgh, PA 15233, United States  Pittsburgh, PA 15233United States
+145 River Landing Dr Suite 102  Daniel Island, SC 29492United States
 
- Corryn Ling +1-412-322-2129 https://counselingwellnesspgh.com 
+ Mike Zechmann +1-843-242-0645 https://riverlandingdentistry.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/counseling-and-wellness-center-of-pittsburgh-director-featured-on-ai-in-therapy-448470)
+[Original/Source Press Release](https://mediawiretoday.com/river-landing-dentistry-founder-featured-on-polaris-podcast-448554)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pittsburgh-clinical-director-weighs-in-on-ai-in-therapy/b8545de36cb66d24afc7cdc307d791af) 
-
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/clinical-director-featured-in-pittsburgh-city-paper-on-ais-role-in-therapy)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-rebeca-zechmann-shares-clinical-coaching-insights-on-polaris-podcast/e503473fd05154ac19141bbf7854db1f) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/16/lofttMSX.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/16/lenddw3A.webp)
