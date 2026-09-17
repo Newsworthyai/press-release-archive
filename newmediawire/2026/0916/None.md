@@ -1,34 +1,59 @@
-# VERAXA Biotech (VRXA) Building a New Approach to Precision Cancer Therapy
+# Public and Private Nuclear Companies Meet Institutional Investors at the StoneX Nuclear Innovation Summit, September 23-24
 
-* VERAXA is developing antibody-based cancer therapies aimed at improving the therapeutic window of existing treatment modalities.
-* Its proprietary BiTAC platform uses two complementary molecules that are designed to activate cytotoxic activity only when both recognize targets on the same tumor cell.
-* The company is applying the BiTAC concept to both antibody-drug conjugates (“ADCs”) and T-cell engagers (“TCEs”), with an emphasis on solid tumors.
-* With ADCs and bispecific antibodies attracting substantial investment, VERAXA is operating in oncology markets where technological differentiation can have significant strategic value.
+Presentations, Two Panels and One-on-One Meetings in Knoxville, Tennessee, Then a Day Inside Oak Ridge National Laboratory
 
- LOS ANGELES, CA - September 16, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) is developing a new generation of antibody-based cancer therapies at a time when oncology research is increasingly focused on a difficult question: how can powerful treatments be made more selective without sacrificing their ability to kill cancer cells? The wiss biotechnology company is approaching that problem through a portfolio of antibody-drug conjugates (“ADCs”), T-cell engagers (“TCEs”) and engineered antibody formats. At the center of the strategy is its proprietary BiTAC, or Bi-targeted Tumor-Associated Cytotoxicity, concept.
+ Uranium Enrichment, Small Modular Reactors, Microreactors, Fast Reactors, Molten Salt Reactors, Fusion and Waste Disposal
 
- ![](http://newmediawire.s3.amazonaws.com/6aaac0aada846f543cccc452_1)
+ NEW YORK, NY - September 16, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. is the Marketing Partner for the Nuclear Innovation Summit, a B2i Digital Featured Conference hosted by StoneX in Knoxville and Oak Ridge, Tennessee, on September 23 and 24, 2026.
 
- The objective is not simply to produce another antibody with a new target. VERAXA is attempting to change the…
+ ![](http://newmediawire.s3.amazonaws.com/6aab108ada846f543cccc45e_1)
 
- Read More
+ B2i Digital highlights the summit and the participating companies to a media network with a monthly audience of 330 million and a community of 1.7 million investors.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ Day 1, September 23, at the Marriott Knoxville Downtown brings company presentations, fireside chats, pre-scheduled investor meetings and a cocktail reception. Two panels anchor the day. From Prototype to Profitability covers the commercialization of nuclear, and Chains & Cycles takes on the gaps in the nuclear fuel cycle.
 
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
+ Day 2, September 24, is Oak Ridge National Laboratory: presentations and Q&A with department heads at 8:30 AM, then lab tours, with buses back at the hotel or Knoxville Airport by 1:00 PM. Representatives of the Department of Energy's Gateway for Accelerated Innovation in Nuclear (GAIN) voucher program will be on site.
 
- Forward Looking Statements
+ “I've been to my fair share of investor conferences, but none of them ended with a bus ride to a national lab. Day 1 is management teams, 2 panels and your 1x1s in Knoxville. Day 2 you're inside Oak Ridge National Laboratory, where a lot of this science started in 1943. StoneX created a unique experience with this event,” said David Shapiro, Chief Executive Officer of B2i Digital.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ Event details and company profiles: https://b2idigital.com/stonex-nuclear-innovation-summit
+
+ Institutional investors can request registration: https://www.meetmax.com/sched/event_143257/investor_reg_new.html?attendee_role_id=INVESTOR
+
+ Confirmed participants as of September 16, 2026 (subject to change):
+
+ Centrus Energy Corp.Deep Fission, Inc.Deep Isolation Nuclear, Inc.Deployable EnergyFirst American NuclearKyoto Fusioneering Ltd.NuCube EnergyNuScale Power CorporationONE Nuclear EnergyRadiant NuclearScaled AtomicsStarCore NuclearTerra Innovatum Global N.V.Terrestrial Energy Inc.Urenco
+
+ About StoneX
+
+ StoneX is a global financial services firm founded in 1924 and headquartered in New York City, serving institutional, commercial and self-directed clients around the world. For more information, visit https://www.stonex.com.
+
+ About B2i Digital, Inc.
+
+ B2i Digital, Inc. partners with conferences, public companies, and capital markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Its media network spans 800+ news, broadcast, and trade outlets with a 330 million+ combined monthly audience, plus 1.7 million+ followers, 70,000 opt-in email subscribers, and a rolodex of 235,000+ capital markets contacts. That reach gets clients seen; its conferences put them in the room with investors. The Capital Markets Matchmaker℠ takes every story From Marketing to Meetings℠. B2i Digital is headquartered in New York City.
+
+ Discover more Featured Companies, Featured Experts, and upcoming Featured Conferences at b2idigital.com.
+
+ B2i Digital Contact Information
+
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.comhttps://www.linkedin.com/in/davidshapironyc
+
+ B2i Digital Social Mediahttps://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigitalhttps://www.threads.net/@davidshapironyc
+
+ Disclosure & Disclaimer
+
+ B2i Digital, Inc. is the Marketing Partner of the Nuclear Innovation Summit. B2i Digital, Inc. is not an affiliate of StoneX Group Inc. or StoneX Financial Inc. and is not authorized to represent or act on behalf of either of them in any capacity. StoneX has not reviewed or approved the content contained herein or on the b2idigital.com website. Content related to any specific company referenced in this release was provided by that company, approved by that company, or obtained from publicly available sources. B2i Digital, Inc. has not independently verified the accuracy or completeness of such information, and no representation or warranty, express or implied, is made as to its accuracy.
+
+ This content is provided for informational purposes only and does not constitute an offer to sell or a solicitation of an offer to buy any security, nor should it be relied upon as the basis for any investment decision. B2i Digital, Inc. is not a registered broker-dealer, investment adviser, or financial adviser, and nothing herein should be construed as investment, legal, tax, or accounting advice. Readers should consult their own advisers and conduct their own due diligence before making any investment decision.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-building-a-new-approach-to-precision-cancer-therapy-7089689)
+[Original/Source Press Release](https://www.newmediawire.com/news/public-and-private-nuclear-companies-meet-institutional-investors-at-the-stonex-nuclear-innovation-summit-september-23-24-7089703)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-s-bitac-platform-aims-to-revolutionize-precision-cancer-therapy/d032bad6b6b34ce9296307f98d5f4d11) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuclear-innovation-summit-investors-meet-advanced-nuclear-firms-at-oak-ridge/317f6a4f5d28858799a154d3382c157e) 
 
  
 
@@ -36,4 +61,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/fondGAZe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/16/keepag1z.webp)

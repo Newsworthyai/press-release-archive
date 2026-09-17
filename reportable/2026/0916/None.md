@@ -1,62 +1,46 @@
-# Alignable Launches Allie, a Personal Networking Assistant Built on 14 Years of Small Business Relationship Data
+# Upstart Takes On One of AI's Biggest Problems
 
-BOSTON, SEPTEMBER 16, 2026
+DALLAS, TEXAS, SEPTEMBER 16, 2026
 
-Alignable, the largest relationship intelligence platform for small businesses in North America, today launched Allie, an AI networking assistant that helps members act on the network they have already built.
+In today's AI-driven world, more information is generated daily. The average knowledge worker already spends roughly 2.5 hours a day, nearly a third of the workday, searching for information. That is in addition to time spent dealing with confident, but unreliable AI generated answers. Cognatum launched today as the first Intelligence Management System for regulated enterprises and the solution to that problem. Every AI system a company uses today needs a source of information. Often times, it is data from the internet. In more advanced systems designed for enterprise use, it may be that company’s documents, policies, and data. The AI system answers questions as if it already knows which content is accurate, current, and approved. It generates answers even when they are not correct or based on usable information. IDC reports that the average knowledge worker wastes 2.5 hours daily on these tasks. That is nearly a third of the workday spent searching for information or trying to verify AI results, at a cost of more than $5 million a year for an organization of a thousand people.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Alignable launches Allie, an AI networking assistant that helps small business members act on the relationships they have already built by showing which connections to prioritize and when to reach out.
-* Allie leverages Alignable’s connection graph and 14 years of real relationship signals across 12 million small businesses to identify high-potential relationships, draft outreach, and flag the right moments for introductions, follow-ups, or referrals.
-* Allie is available today to all paying Alignable members in the U.S. and Canada.
+Key Takeaways:* Cognatum launches as the first Intelligence Management System for regulated enterprises, built on ISO 30401 and extended for the AI age to govern enterprise knowledge and deliver defensible AI answers.
+* The platform connects bidirectionally to more than 50 enterprise systems and runs a continuous, AI-driven knowledge lifecycle loop above existing repositories, with humans approving in Microsoft Teams to ensure accuracy, governance, and full data sovereignty in single-tenant or air-gapped deployments.
+* Cognatum is available now, with initial customer cohorts going live this month and each engagement starting with a 30-day beta on the customer's own instance, documents, and workflows.
 
-[Click image above to view full announcement.](https://alignable.reportablenews.com/pr/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
+[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/upstart-takes-on-one-of-ai-s-biggest-problems)
 
-About Alignable
+About Cognatum
 
-Alignable is the largest relationship intelligence platform for small businesses in North America. For 14 years, Alignable has helped small business owners turn the people who know them into their most effective source of growth — from customer introductions to the referral partners and network allies most CRMs never see. Today, more than 12 million members across every industry and geography in the U.S. and Canada rely on Alignable to put those relationships to work. Learn more at alignable.com.
+Cognatum is the Intelligence Management System for intelligent enterprises. The Intelligence Layer where one governed home for organizational knowledge is served, identically and simultaneously, to the people who work there and the AI systems they deploy. Every answer carries its approver, its date, and its source. Grounded in the ISO 30401 knowledge management framework and The Cognatum Loop Knowledge Management Framework. Cognatum was co-founded by Perry Robinson, Jerry Murry, Scott Getchel and Gary Murry. It is headquartered in Dallas, Texas. Knowledge governed. Intelligence everywhere. Learn more at cognatum.ai.
 
-Contacts:Don Martelli617-413-6773Don@alignable.com
+About Atoka Tech
 
-Source: Alignable
+Atoka Tech is the company behind RocketDocs (rocketdocs.com), Luma (askluma.io), and RFx Tech (rfxtech.ai).
+
+About WhatNow Technologies Group
+
+WhatNow Technologies Group is the company behind Attrilock (attrilock.com), AutomataNow (automatanow.com) and Sovrinty (sovrinty.ai).
+
+Contacts:Lexi Hotchkin (210) 709-2702
+
+Source: Newsworthy.ai
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://alignable.reportablenews.com/pr/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
+[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/upstart-takes-on-one-of-ai-s-biggest-problems)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/alignable-launches-allie-ai-networking-assistant-for-small-business/325eaeac5bef34937cfdc1bd73034d17) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cognatum-launches-intelligence-management-system-for-regulated-enterprises/a1a609f1ac109d0be28d8ae112db1bbb) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/alignable-launches-allie-an-ai-networking-assistant-for-small-businesses)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/alignable-launches-allie-a-personal-networking-assistant-built-on-14-years-of-small-business-relationship-data)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/269/16/herbTQVI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/269/16/knobGNuA.webp)
