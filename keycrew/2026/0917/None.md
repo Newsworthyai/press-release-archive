@@ -1,40 +1,31 @@
-# Kaufman & Company Build 2030
+# Kaufman &amp; Company Expands Florida Focus, Deploying Team to Orlando to Acquire Land and Distressed Assets With Its Own Capital
 
-National Initiative Bringing Housing and AI Infrastructure Under One Development Platform
+ORLANDO, Florida, September, 2026. Kaufman & Company, the private investment and holding firm led by founder and CEO Daniel Kaufman, today announced a dedicated Florida market initiative across the firm and its affiliated entities, including Florida-based Convivium Living. The firm is bringing its own team members into its existing Orlando office to pursue land and existing asset acquisitions across the state.
 
- LOS ANGELES — September 2026
+ The move reflects Kaufman & Company’s view that Florida is entering a period of meaningful dislocation. The firm expects significant declines in both land values and existing asset pricing over the next 24 months and intends to be an active buyer throughout that cycle.
 
- Kaufman & Company today announced BUILD 2030, a national development initiative designed to bring the company’s housing, real estate, construction, technology and AI infrastructure capabilities together under a coordinated investment and development strategy.
+ “We are seeing tremendous distress in Florida right now, and with it, real opportunity,” said Daniel Kaufman, Founder and CEO of Kaufman & Company. “I believe over the next two years we will see land and existing assets reprice in a significant way. We intend to be buyers. We are not raising capital, we are not setting up a fund, and we are not taking on investors. This is our own money, and that means when we like a deal, we can move.”
 
- The premise behind the initiative is straightforward: America’s next infrastructure cycle will not be defined solely by roads, bridges and traditional utilities. It will increasingly be defined by two things the country needs significantly more of: places for people to live and computing infrastructure capable of supporting an AI-driven economy.
+ Proprietary capital, no outside investors
 
- Kaufman & Company intends to participate in both.
+ Kaufman & Company is funding the Florida initiative entirely from its own balance sheet. The firm is not raising capital, will not form any investment funds, and will not accept outside investors for this effort. Operating without third party capital allows the firm to make decisions directly, underwrite on its own timeline, and offer sellers, lenders, and brokers a straightforward path to closing.
 
- “Everyone is talking about the AI infrastructure boom, but infrastructure cannot only be about machines. If we’re going to build infrastructure for AI, we should be equally serious about building infrastructure for people.”— Daniel Kaufman, Founder and Principal, Kaufman & Company
+ Team on the ground in Orlando
 
- BUILD 2030 will coordinate projects and investment across the Kaufman & Company platform, which today includes operating companies spanning residential development, build-to-rent, workforce and affordable housing, custom housing, commercial and hospitality development, AI infrastructure, real estate advisory and venture capital.
+ Rather than hiring out the effort, Kaufman & Company is relocating and deploying members of its existing team to its Orlando office, which already serves as the firm’s Florida base. The Orlando team will work alongside the firm’s affiliated development, construction, and housing platforms to evaluate, acquire, and reposition assets.
 
- The strategy builds on more than 25 years of development experience across the Kaufman platform, representing more than $2 billion in project value and more than 10,000 housing units developed.
+ What the firm is looking for
 
- Infrastructure Convergence Unlike a conventional development strategy focused on a single asset class, BUILD 2030 is designed around what Kaufman calls “infrastructure convergence.”
+ The Florida initiative will focus on:
 
- Housing requires land, power, transportation, entitlement expertise, construction capacity and capital. AI infrastructure requires many of the same things.
+ * Land, including entitled, partially entitled, and stalled development sites
+* Existing assets facing capital, lender, or ownership pressure
+* Workforce and attainable housing opportunities
+* Off-market and lender-driven transactions
 
- Kaufman believes the developers capable of understanding both physical and digital infrastructure will have a significant advantage during the next decade.
+ Kaufman & Company typically evaluates opportunities in the range of $5 million to $250 million. Owners, lenders, special servicers, brokers, and bankers with Florida opportunities are invited to contact the firm directly.
 
- “The real estate industry still tends to put everything into separate boxes: multifamily, build-to-rent, affordable housing, data centers, technology. We don’t see it that way. We see land, infrastructure, housing, technology and capital increasingly colliding. BUILD 2030 is our response to that.”
-
- Community Impact The initiative will also emphasize community impact as Kaufman & Company evaluates future AI infrastructure locations.
-
- Rather than viewing data centers as isolated industrial projects, the company intends to explore opportunities where infrastructure investment can support broader economic development, including workforce housing, community improvements and local employment.
-
- “We don’t want to be the developer that arrives in a community, consumes power and leaves behind a box. The better model is to ask what else our investment can unlock for the people who already live there.”Kaufman & Company’s existing platform includes residential and mixed-use development, workforce and affordable housing, build-to-rent communities, hospitality, AI infrastructure and a venture portfolio developing technology for the real estate industry.
-
- BUILD 2030 will serve as the connective strategy across those businesses as the company evaluates its next generation of projects and partnerships.
-
- “We’ve spent 25 years building real estate. The next 25 will be about building the infrastructure around it.”
-
- About Kaufman & CompanyKaufman & Company is a permanent-capital holding company founded by Daniel Kaufman with an integrated platform spanning residential development, workforce housing, AI infrastructure, real estate services and venture capital. Its operating companies pursue projects and investments across the United States.
+ About Kaufman & Company Kaufman & Company is a private investment and holding firm spanning real estate development, venture investment, and infrastructure. Its affiliated entities include Convivium Living, DEK Builds, Kaufman Development, Kaufman Real Estate and Consulting, Oldivai, FORGE Development Partners, LoneStar Kaufman Development Partners, and Kaufman Ventures. Founder and CEO Daniel Kaufman has more than 25 years of experience building, lending, and investing across housing markets in Florida, Texas, the Mountain West, Vermont, and the Northeast, and has led investments resulting in over $2 billion in property investments and the financing and development of more than 10,000 housing units. Learn more at thekaufmanco.com.
 
  Media ContactJanine RodriguesKeyCrew Mediajanine@keycrew.co
 
@@ -42,10 +33,10 @@ National Initiative Bringing Housing and AI Infrastructure Under One Development
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/kaufman-company-build-2030-2/)
+[Original/Source Press Release](https://keycrew.co/journal/kaufman-company-expands-florida-focus-deploying-team-to-orlando-to-acquire-land-and-distressed-assets-with-its-own-capital/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kaufman-company-launches-build-2030-to-merge-housing-and-ai-infrastructure/8773cfe79e283d599759192f2fd8e3d9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kaufman-company-launches-florida-buying-spree-amid-distress/3543bc9274a37bd0fd400874e4c2575c) 
 
  
 
@@ -53,4 +44,4 @@ National Initiative Bringing Housing and AI Infrastructure Under One Development
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/269/17/mielBrAW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/269/17/fondORlD.webp)
