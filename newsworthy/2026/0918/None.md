@@ -1,68 +1,67 @@
-# Virtual Summit Addresses the Emotional Skills Gap in AI-Driven Workplaces
+# Tobin Injury Law Recognized in 2027 Best Law Firms
 
-FeelWise, Minds of Light, and Strike Marketing Institute will co-host the Emotional Skill Gap Summit, a four-day virtual event for learning and development, HR, and team leaders, September 29 through October 2, 2026. Sessions run 9 a.m. to 2 p.m. Central Time each day.
+Tobin Injury Law, a leading Atlanta personal injury firm serving individuals and families across Georgia, has been honored in the 2027 edition of Best Law Firms. This accolade joins a series of professional honors for Tobin Injury Law and its founder, attorney Darren M. Tobin. Tobin specializes in personal injury and wrongful death cases, representing clients across Georgia in motor vehicle collisions, commercial truck accidents, pedestrian injuries, premises liability, and other serious injury claims.
 
- The premise is that as AI takes over analytical and routine tasks, human skills like emotional intelligence, cross-communication, and trust-building become increasingly vital for team success. According to the World Economic Forum's Future of Jobs Report 2025, employers anticipate that 39% of core skills will evolve by 2030, with leadership and social influence showing the greatest increase in importance, rising by 22 percentage points since 2023. Most organizations have no structured way to develop those skills. The sessions pair research-based frameworks with tools attendees can use with their teams.
+ “We are grateful for this recognition and proud of the work our entire team does for our clients,” said Tobin. “Our goal has always been to combine exceptional legal representation with genuine care for the people and families who trust us.”
 
- "Companies have a plan for AI adoption. Few have a plan for the skills AI doesn't replace," said Tina Schweiger, founder of FeelWise. "Those skills can be taught and practiced like any other, and these four days show how."
+ Tobin Injury Law has handled significant personal injury and wrongful death cases in Georgia. Among Tobin's reported results are a $100 million federal jury verdict in 2022 and a $22.7 million wrongful death settlement involving a tractor-trailer collision in 2023.
 
- More than 25 speakers include Russell Scherwin, leadership professor at the University of Georgia and former CMO of IBM Watson Commerce; Dr. Justin James Kennedy, professor of behavioral neuroscience, TEDx speaker, and author; Stephen Busette of Siemens; Robert Gramillano, executive coach and clinical professor at DePaul University; Dr. Charmain Jackman, CEO of InnoPsych; and Drs. Judith and Bob Wright of LiveWright.
+ Darren Tobin graduated magna cum laude from the University of Georgia and earned his law degree there, highlighting his academic excellence. He has been licensed to practice law in Georgia since 2008. His professional recognitions have also included Super Lawyers, The National Trial Lawyers Top 100, Georgia Trend's Legal Elite, and an AV Preeminent rating from Martindale-Hubbell.
 
- Two days cover emotional regulation, resilience, human-centered leadership, and workplace culture. Minds of Light Day, led by Executive Director Alison Jones, centers on neurodivergent perspectives and communication between neurodivergent and neurotypical colleagues. Emotionally Intelligent AI Day, October 2, is sponsored by Grand Strategy Consulting and addresses staying emotionally grounded while working alongside AI tools. Speakers that day include Zena Collins, consultant at Grand Strategy Consulting, a MSCEIT 2 emotional intelligence practitioner and author of Stop Wasting Time With AI.
+ About Darren M. Tobin Darren M. Tobin is the founder of Tobin Injury Law and a Georgia trial attorney focused on representing individuals and families in serious personal injury and wrongful death cases. Highlights of his background and career include:
 
- "Neurodivergent people are a growing part of the workforce, and the unwritten emotional rules of most workplaces were not designed for how they communicate," said Alison Jones, founder and executive director of Minds of Light. "Many spend energy every day decoding tone, masking, and translating between communication styles, on top of the job itself. Rapid change in how work gets done adds to that load. Emotional skills training has to work for every kind of mind."
+ * Founder of Tobin Injury Law: Tobin established the Atlanta-based firm in 2019 to represent injured individuals and families in personal injury and wrongful death matters.
+* Georgia Education: He graduated magna cum laude from the University of Georgia before earning his J.D. from the University of Georgia School of Law, where he participated in Moot Court and served on the Honor Court.
+* Extensive Litigation Experience: Before founding Tobin Injury Law, Tobin practiced family law and later worked in nationwide mass tort litigation involving pharmaceutical and medical device cases.
+* $100 Million Jury Verdict: Tobin secured a $100 million federal jury verdict on behalf of a client.
+* $22.7 Million Wrongful Death Settlement: His results include a $22.7 million settlement in a disputed-liability wrongful death case involving a commercial truck.
+* $1.6 Million Bicycle Accident Verdict: Tobin also obtained a $1.6 million jury verdict in a Georgia bicycle accident case.
+* Professional Recognition: Tobin's professional honors include recognition by Super Lawyers, Georgia Trend's Legal Elite, and an AV Preeminent rating from Martindale-Hubbell.
+* Georgia Legal Community Leadership: Tobin is the founder and president of the Jewish Bar Association of Georgia and has participated in leadership and educational roles within Georgia's legal community.
 
- Registration is $29, priced so individuals can attend without a budget approval process, and closes September 29. Attendees can add a donation to Minds of Light or bundle registration with the FeelWise emotional intelligence card deck. Registered attendees receive recordings of every session.
+ These accomplishments reflect the experience and trial-focused approach Darren Tobin brings to Tobin Injury Law's representation of people facing serious injuries and families dealing with wrongful death.
 
- Event Details * Event: Emotional Skill Gap Summit
-* Dates: September 29-October 2, 2026, 9 a.m.-2 p.m. Central Time
-* Format: 100% virtual; recordings included with registration
-* AI Day sponsor: Grand Strategy Consulting
-* Registration: $29 at the-emotional-skill-gap-summit.heysummit.com; closes September 29
+ About Tobin Injury Law
 
- About FeelWise FeelWise builds visual tools that help people recognize, name, and work with their emotions. Families, educators, and organizations use the system to make emotional awareness a skill that can be practiced.
-
- About Minds of Light Minds of Light is a nonprofit community founded by and for autistic and neurodivergent individuals. It offers mentorship, emotional intelligence education, and community programs.
-
- About Strike Marketing Institute Strike Marketing Institute, founded by Fernando Labastida and based in Austin, Texas, helps bootstrapped B2B founders build visibility and category leadership without paid advertising. 
+ Tobin Injury Law is a personal injury law firm based in Atlanta, Georgia. Led by founder Darren M. Tobin, the firm represents people and families in cases involving car accidents, commercial truck accidents, motorcycle accidents, bicycle and pedestrian injuries, premises liability, catastrophic injuries, and wrongful death. Tobin Injury Law has been recognized in the 2027 edition of Best Law Firms. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609182951/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+[Original/Source Press Release](https://newsworthy.ai/news/202609182948/tobin-injury-law-recognized-in-2027-best-law-firms)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/emotional-skill-gap-summit-4-day-virtual-event-for-hr-leaders/57748f919c52b6b8df1afb642c80df27) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tobin-injury-law-honored-in-2027-best-law-firms-edition/34c402470fb7a94f4418fba31a400367) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/virtual-summit-addresses-the-emotional-skills-gap-in-ai-driven-workplaces)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/tobin-injury-law-recognized-in-2027-best-law-firms)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/18/epicWJ4A.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/18/icywt2b.webp)

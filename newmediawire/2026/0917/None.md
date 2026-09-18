@@ -1,35 +1,59 @@
-# Hep Global Reorganizes Its Management
+# Organizations Unite to Defend Texas Dementia Research Initiative
 
-GUGLINGEN, GERMANY - September 17, 2026 (NEWMEDIAWIRE) - The hep global Group is restructuring its management team for the next phase of development: Martin Vogt (44) is taking over the position of Chief Executive Officer (CEO) effective immediately. He succeeds company founder Christian Hamann (55), who is stepping down from the CEO role at his own request after nearly 17 years but will remain with the management team as Chief Financial Officer (CFO). Hamann had already assumed responsibility for the finance division in May 2026.
+AUSTIN - September 18, 2026 (NEWMEDIAWIRE) - The Texas-headquartered American Heart Association, a relentless force changing the future of health for everyone, everywhere, and the Alzheimer’s Association, the leading voluntary health organization dedicated to Alzheimer's care, support and research, have filed an amicus brief supporting the Dementia Prevention and Research Institute of Texas (DPRIT), a voter-approved initiative to advance research on Alzheimer’s disease and related dementias. The filing comes as litigation has delayed implementation of the groundbreaking initiative approved through Proposition 14 in November 2025. The measure passed with nearly 70% of the vote.
 
- With this succession plan, which has been carefully prepared over the long term, hep global is committed to continuity in corporate leadership and a clear distribution of management responsibilities. Martin Vogt has been with the hep global Group since early 2024 and most recently served as Chief Project Officer, overseeing global project development. In this role, he played a key role in the strategic and operational advancement of the project business.
+ ![](https://iprsoftwaremedia.com/67/files/20187/AHA_LOGO-RGB_rk_LG.jpg)
 
- As CFO, Christian Hamann will focus on the financial management of the company. The management team is rounded out by Georg von Eichendorff Strachwitz, who has served as Chief Operating Officer (COO) since 2021.
+ The brief requests the Court of Appeals for the Fifteenth Judicial District affirm the trial court’s dismissal of this case in its entirety based on the following arguments:
 
- “I am very grateful for the trust of our employees, customers, and partners over the past 17 years,” says Christian Hamann. “As an international developer of solar energy projects, we have made a significant contribution to the energy transition since our founding. Martin Vogt is a leader who knows our company, our markets, and our strategic priorities very well. At the same time, I will remain closely connected to hep global as CFO and will focus on the company’s financial management. This allows us to establish clear lines of responsibility while ensuring continuity in corporate leadership.”
+ * Proposition 14 builds on a proven Texas model for medical research.
+* DPRIT will advance research of critical importance to the health of Texans.
+* Continued delay in implementing DPRIT is contrary to the public interest.
 
- “I would like to thank our founders, Christian Hamann and Thorsten Eitle, as well as the other shareholders, for their trust and their extraordinary contribution to building and successfully establishing our company,” says Martin Vogt. “hep global has many years of experience in the international development of solar energy projects and an established platform in our core markets. In recent years, we have consistently adapted our organizational and cost structures to changing market conditions. In doing so, we have laid the groundwork for the next phase of development. Our focus remains clear: We want to further strengthen our position as a reliable partner for the development of solar and battery storage projects. To this end, we are committed to continuity in our strategy and management, a focus on our core European markets, and targeted new growth initiatives.”About the hep global GroupThe hep global Group is an internationally active specialist in the development of solar projects and battery energy storage systems (BESS). For more than 15 years, the owner-managed company from Baden-Württemberg has been developing and planning renewable energy projects, mainly in Europe, Japan and North America. Its strategic focus is on greenfield developments and the integration of BESS. The hep global Group employs around 120 people worldwide with subsidiaries in Germany, Italy, Poland, the USA, Canada and Japan.Press contact:Evelyn KilincRomerstraBe 3D-74363 GuglingenTel.: +49 7135 93446-759 E-Mail: presse@hep.globalwww.hepsolar.com
+ This investment is important because nearly 460,000 Texans age 65 and older are living with Alzheimer’s disease, affecting families, caregivers and communities across the state. DPRIT is also an investment in the Texans who don't have cognitive impairment today. Research is what moves prevention, risk reduction and early detection from promising to proven - and what determines how the next generation ages.
 
- Investor contact:Christian HamannRömerstraBe 3D-74363 GuglingenTel.: +49 7135 93446-0E-Mail: greenbond@hep.globalwww.hepsolar.com
+ “Texas voters sent a clear message when they approved Proposition 14: families facing Alzheimer’s and other dementias cannot afford to wait. Every day of delay slows discovery, stalls the recruitment of top researchers to the state and pushes improved treatments and diagnosis further out of reach,” said Joanne Pike, DrPH, president and CEO of the Alzheimer’s Association. “DPRIT is an investment in what comes next: better prevention, earlier detection and a generation that grows older with more control over its brain health. We will keep working to see it succeed, because what it discovers will reach families far beyond Texas."
 
- Financial press contact:Frank Ostermair, Linh ChungIR4value GmbHKarl-Hromadnik-Str. 1481241 MunchenTel.: +49 211 178047-20E-Mail: linh.chung@ir4value.dewww.ir4value.de
+ The American Heart Association advocated for the passage of Proposition 14 and supports DPRIT because evidence shows heart health and brain health are deeply interconnected. Many of the same risk factors that increase the likelihood of heart disease and stroke, including high blood pressure, tobacco use, physical inactivity and obesity, are also linked to premature cognitive decline and dementia.
 
- 
+ The Alzheimer's Association supported the legislation that established DPRIT and led the voter education campaign that carried Proposition 14. That work rests on decades of engagement with state lawmakers and a grassroots network of advocates and community partners across Texas, and the Association is committed to seeing the voters' mandate fulfilled.
 
- 
+ "Breakthroughs don't happen by accident - they happen when communities make a long-term commitment to science, innovation and the people whose lives depend on them,” said Nancy Brown, CEO of the American Heart Association. ”The fight against Alzheimer’s and dementia is one of the most urgent public health challenges of our time, and progress depends on our willingness to invest in science before families run out of options. That’s exactly the opportunity Texas voters embraced through Proposition 14.”
 
- 
+ Voter-approved Proposition 14 provides $3 billion to DPRIT over 10 years, making it the largest state investment in brain health research in U.S. history.
 
- 
+ In calling for a swift resolution of the legal challenges standing in the way of this life saving and life changing research, the Heart Association and Alzheimer’s Association and the many patients and families we represent remain committed to working with the Texas lieutenant governor, other state elected officials and research and public health institutions across the state to implement DPRIT and initiate this investment to accelerate progress in brain-health research.
+
+ Additional Resources:
+
+ * Amicus brief (doc)
+* American Heart Association news release - https://newsroom.heart.org/news/several-cvd-conditions-risk-factors-linked-to-alzheimer-s-risk-notably-low-blood-pressure (June 2026)
+* American Heart Assoication information - Brain Health
+
+ About the American Heart Association
+
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+
+ About the Alzheimer’s Association
+
+ The Alzheimer’s Association is a worldwide voluntary health organization dedicated to Alzheimer’s care, support and research. Our mission is to lead the way to end Alzheimer's and all other dementia - by accelerating global research, driving risk reduction and early detection, and maximizing quality care and support. Our vision is a world without Alzheimer's and all other dementia®. Visit alz.org or call 800.272.3900.
+
+ For Media Inquiries - 214-706-1173
+
+ American Heart Association: Shelly.Hogan@heart.org
+
+ Alzheimer’s Association: 312.335.4078, Media@alz.org
+
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hep-global-reorganizes-its-management-7089751)
+[Original/Source Press Release](https://www.newmediawire.com/news/organizations-unite-to-defend-texas-dementia-research-initiative-7089792)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hep-global-appoints-martin-vogt-as-ceo-in-leadership-shakeup/e3963e27f8b481ed2d34ad3570bc4052) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heart-and-alzheimer-s-associations-defend-texas-dementia-research-initiative/c51a2808768f6e7de5ca060e1f17b433) 
 
  
 
@@ -37,4 +61,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/17/gleeZCUS.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/18/wamcS2XD.webp)

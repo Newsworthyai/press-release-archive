@@ -1,104 +1,81 @@
-# LAURION Advances Environmental and Permitting Activities at Ishkday Gold and Polymetallic Project
+# Western Star Announces 0.53% Wo3 In Soil At The Rowland Tungsten Property As Phase 2 Refines Drill Target Zones
 
-TORONTO ONTARIO - September 18, 2026 (NEWMEDIAWIRE) - LAURION Mineral Exploration Inc. (TSX-V: LME | OTC: LMEFF | FSE: 5YD) ("LAURION" or the "Company") is pleased to provide shareholders with an update on the environmental, technical and regulatory work supporting the continued advancement of the Company's 100%-owned Ishkōday Gold and Polymetallic Project in the Onaman-Tashota, Beardmore-Geraldton Greenstone Belt of Northwestern Ontario.
+VANCOUVER, BRITISH COLUMBIA - September 18, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE: WSR) (OTC: WSRIF) (FRA: 4K2) (the “Company” or “Western Star”) is pleased to announce results from the Phase 2 soil geochemical survey at its Rowland Tungsten Property in Elko County, Nevada, USA. The survey has defined two discrete, spatially coherent tungsten-in-soil anomalies, each expanding the zones around historical workings.
 
- ![](http://newmediawire.s3.amazonaws.com/6aac44fbda846f543cccc46b_1)
+ ![](http://newmediawire.s3.amazonaws.com/6aac35b8da846f543eccc310_1)
 
- LAURION is currently advancing two complementary initiatives associated with the historical Sturgeon River Mine: the recovery and remediation of the historical surface waste rock stockpile and the Company’s proposed Advanced Exploration Project focused on dewatering, rehabilitating and evaluating the historical Sturgeon River Mine shaft and underground workings.
+ Blake Morgan, the CEO and President of Western Star, stated, “These results show the methodical exploration approach is paying off. We have defined two significant soil anomalies over the historical workings and extended the recognised footprint well beyond them. Northern Zone B is the tighter of the two, a compact cluster elongate to the northeast, sitting within the modelled intrusive. Rowland Main is the larger footprint, and its best sample, 0.53% WO3, lies 250 metres from the nearest historical working on ground with no recorded past activity. That is the part that interests us most: the strongest result came from ground nobody has tested.”
 
- Over the past five years, LAURION has undertaken a comprehensive program of environmental baseline studies, technical investigations, indigenous and regulatory consultation to characterize existing site conditions and support project planning and applicable regulatory approvals.
+ Key Highlights:
 
- Background
+ * 315 soil samples collected across the Rowland Tungsten Property including a highly anomalous value of 4,240 ppm W (0.53% WO3) at sample R079.
+* Two discrete tungsten-in-soil anomalies defined: the Rowland Main anomaly and the Northern Zone B anomaly.
+* Rowland Main anomaly: 18 samples with anomalous values across a footprint of approximately 190 by 630 metres. The highest-grade sample also carries 66.9 ppm Sn, the highest tin value in the survey.
+* Northern Zone B anomaly: 13 anomalous samples across 190 by 190 metres, peaking at 228 ppm W - located close to rock-chip samples RO-18-01 to RO-18-03, which returned 0.35% to 1.22% WO3 as announced in July 2026.
+* The Northern Zone B anomaly lies within the modelled intrusive body resolved by the Company’s three-dimensional magnetic inversion, while the Rowland Main anomaly is associated with an interpreted magnetic-high lineament.
+* Soil geochemistry from the nearby White Star Tungsten Project (253 samples) remains pending and will be reported when received.
 
- Surface Stockpile Recovery
+ Phase 2 Soil Geochemical Survey Results
 
- LAURION has submitted an application for a Recovery of Minerals Permit to the Ministry of Energy and Mines, including a Recovery and Remediation Plan, under section 152.1 of Ontario’s Mining Act and Ontario Regulation 463/24.
+ The Phase 2 soil survey comprises 315 samples, collected across the Rowland Tungsten Property on lines spaced approximately 100 metres apart with a sample spacing of 25 to 50 metres. The programme was designed to provide continuous geochemical coverage across the property to refine the targets as we progress to drilling.
 
- The Sturgeon River Mine surface waste rock stockpile is a legacy of historic mining operations and based on historic and current technical information, contains mineralized material that LAURION is seeking authorization to recover under Ontario's regulatory framework for the recovery of minerals. The material currently exists on surface as a result of decades-old operations and its recovery is not expected to require new infrastructure, mining or underground development. The proposed work would involve the recovery of minerals from the historical surface waste rock stockpile through removal and off-site processing of the material, followed by remediation of the stockpile area in accordance with applicable provincial standards. These activities take into consideration, and are supported by, the assessment of potential environmental effects and identification of appropriate environmental protection and remediation measures.
+ Click Here Figure 1: Tungsten-in-soil results across the Rowland Tungsten property shown over a 1 m LiDAR hillshade and the historical geological mapping of Coats (1964, USGS Bulletin 1141-M).
 
- Shaft Dewatering and Advanced Exploration
+ Rowland Main Anomaly
 
- Separately, LAURION is advancing its plans to rehabilitate the historical Sturgeon River Mine shaft to facilitate further evaluation and exploration of the historical in-situ resource potential.
+ The larger of the two anomalies lies around the historical Rowland Main workings from which the Company reported a high-grade rock-chip assay of 4.02% WO3 in July 2026. Eighteen samples define a footprint of approximately 190 metres east-west by 630 metres north-south, elongate north-northeast. Six samples exceed 100 ppm W, headlined by R079 at 4,240 ppm W and supported by R082 (422 ppm W), R119 (373 ppm W), R116 (215 ppm W), R078 (176 ppm W) and R120 (110 ppm W). Sample R079 also returned 66.9 ppm Sn against a survey median of 2.8 ppm, the highest tin value recorded in the survey, and a tungsten-tin association consistent with a greisen-modified skarn system.
 
- The historical mine workings include a vertical shaft extending approximately 642 metres below surface and 15 historical underground levels. The mine has remained flooded since historical operations ceased, with approximately 114,000 cubic metres of static water previously estimated to be contained within the underground mine workings. The proposed Advanced Exploration Project would involve removal of the existing shaft cap, rehabilitation of the shaft collar and installation of a temporary exploration headframe and hoisting plant to allow for safe access, controlled dewatering of the shaft, and progressive rehabilitation of the shaft and existing underground levels. Once safe underground access has been established, LAURION intends to undertake underground exploration drilling and sampling to further evaluate the deposit and mineralized system. No commercial mineral production or ore processing is currently proposed as part of the Advanced Exploration Project.
+ Northern Zone B Anomaly
 
- To facilitate the evaluation and exploration of the historical underground workings, LAURION is currently preparing a Permit to Take Water (“PTTW”) application for the dewatering activities to submit to the Ministry of the Environment, Conservation and Parks (MECP), with a submission target for Q4 2026. Given the proposed volume of water taking, a detailed hydrogeological impact assessment will be completed to characterize the proposed taking and assess potential effects on surrounding groundwater and surface water resources. The assessment is expected to provide the technical basis for the proposed dewatering program and associated PTTW application.
+ The second anomaly covers an area of 200m x 200m. The peak value is 228 ppm W at sample R188, supported by R155 (174.5 ppm W), R217 (136.5 ppm W), R156 (110.0 ppm W) and R218 (105.5 ppm W). The anomaly is centered on the rock-chip samples RO-18-01, RO-18-02 and RO-18-03, which returned 0.35%, 1.22% and 0.54% WO₃ respectively, as announced by the Company in July 2026. The anomaly is developed over tactite and calc-silicate hornfels and Prospect Mountain quartzite.
 
- In parallel, LAURION is advancing other regulatory requirements necessary to undertake the proposed Advanced Exploration Project activities, including the preparation of an Advanced Exploration Closure Plan in accordance with Ontario’s Mining Act. Additional environmental approvals are also being advanced, as applicable, for project components, including mine water treatment and discharge, air and noise emissions, and associated project infrastructure. The applicable Advanced Exploration Closure Plan and additional environmental approval submissions are targeted for early 2027.
+ Relationship to Geophysics and Historical Workings
 
- Environmental Baseline Program
+ The two anomalies occupy different geophysical settings. Most of the strongest soil samples in the Northern Zone B area lie within the modelled intrusive body resolved at a susceptibility threshold of 0.010 SI by the three-dimensional magnetic inversion completed by East Coast Consulting, and the anomaly centre lies close to an interpreted magnetic-low lineament. The Rowland Main anomaly lies outside the modelled intrusive footprint and is associated with an interpreted magnetic-high lineament.
 
- Over the past five years, LAURION has commissioned and completed a comprehensive program of independent environmental baseline studies to support project planning and compliance with applicable regulatory requirements for the proposed surface stockpile recovery and Advanced Exploration Project. The program was designed to establish a detailed understanding of existing environmental conditions, support project design, inform the development of appropriate environmental protection, mitigation and remediation measures, and provide a baseline against which potential project-related environmental effects can be assessed and monitored.
+ Next Steps
 
- The environmental baseline studies completed to date include:
+ The soil geochemical results will be integrated with the completed UAV magnetic survey, the three-dimensional magnetic inversion and the rock-chip and channel assay results announced in July 2026 to advance drill target generation across the consolidated Jarbidge-Charleston tungsten footprint. Soil geochemistry from the nearby White Star Tungsten Project remains at the laboratory, and the Company will provide further updates as those results are received and interpreted.
 
- * Terrestrial ecology, species at risk and bat studies - surveys and assessments to characterize terrestrial habitat and evaluate the potential presence of protected species, including bat populations, within and surrounding the project area;
-* Aquatic and benthic studies - characterization of aquatic conditions and benthic communities to establish baseline conditions of surrounding waterbodies and support the assessment of potential effects associated with water-related activities at the site;
-* Groundwater and surface water studies - multi-year monitoring and characterization of groundwater and surface water quality and conditions within and surrounding the project area, providing baseline information against which any future changes can be assessed;
-* Shaft water and hydrogeological studies - characterization of conditions associated with the flooded historical mine workings to inform planning and assessment of the proposed dewatering program; and
-* Archaeological studies - completion of a Stage 1 Archaeological Assessment to identify areas of archaeological potential and inform the need for any subsequent assessment associated with the proposed project footprint.
+ Click Here to see Figure 2: The two tungsten-in-soil anomalies, shown on a 1 m LiDAR hillshade against the modelled intrusive body and the interpreted magnetic-high and magnetic-low lineaments from the Company’s three-dimensional magnetic inversion.
 
- Together, these studies provide a foundation for ongoing regulatory review and permitting activities, and will inform the development of project-specific environmental management, monitoring, mitigation and remediation measures. Environmental studies and monitoring programs will continue to be refined, as appropriate, as project planning and regulatory review activities progress.
+ Sample Assay Results
 
- Indigenous and Stakeholder Consultation
+ Click here to see Table 1: Selected tungsten-in-soil results from the Phase 2 survey, Rowland Tungsten Property.
 
- LAURION has continued to engage with applicable Indigenous communities regarding the progression of the Ishkōday Project, including the proposed transition to advanced exploration through dewatering of the historical mine shaft, as well as the recovery and off-site processing of the existing surface waste rock stockpile.
+ Quality Assurance and Quality Control (QA/QC):
 
- Project and permitting updates, including discussions regarding the advanced exploration permitting pathway, baseline studies, stockpile processing and shaft access, are being advanced through the Indigenous Joint Steering Committee. Project-specific consultation and engagement with Animbiigoo Zaagi’igan Anishinaabek First Nation (AZA), Bingwi Neyaashi Anishinaabek First Nation (BNA), and Biinjitiwaabik Zaaging Anishinaabek First Nation (BZA) has been initiated and will continue to inform project planning, design and permitting activities.
-
- In addition, as part of the Closure Plan process, LAURION will provide public notice of the proposed Closure Plan in accordance with the direction of the Ministry of Energy and Mines (MEM) in Ontario and the requirements of Ontario Regulation 35/24. The public consultation process will include public meetings.
-
- Management Commentary
-
- “Five years of rigorous, independent environmental baseline work is not a small undertaking, and I am proud of the diligence our team and consultants have brought to this work,” said Cynthia Le Sueur-Aquin, President and CEO of LAURION. “This stockpile represents decades-old mining waste sitting on surface today. Recovering potentially economic residual mineralization within the stockpile, and doing so responsibly, is exactly the kind of value-additive, environmentally sound project our shareholders should expect from LAURION. We've taken the time to build a comprehensive picture of site conditions before asking the Ministry to authorize this work, and we believe that thoroughness will serve both the project and the communities around it well as the applications move through review.”
-
- “Beyond the surface stockpile project, the proposed dewatering and rehabilitation of the historical Sturgeon River shaft is an equally important initiative for LAURION," added Ms. Le Sueur-Aquin. “Historical records indicate the presence of gold-bearing structures on multiple underground levels that were not fully explored prior to the cessation of mining activities in 1942. Subject to regulatory approvals, the proposed dewatering program is expected to provide safe underground access for geological mapping, sampling and evaluation, allowing our technical team to better understand the mineralized system. It is also anticipated that the program will facilitate the rehabilitation of a long-standing legacy mine hazard under regulatory oversight. This phase of work is exploratory in nature, and no ore will be mined, processed or sold as part of the proposed dewatering program.”
-
- Comments from Blue Heron Environmental
-
- “Blue Heron has been pleased to support LAURION with the environmental baseline studies and permitting work required to advance the Ishkōday Project,” said Linda Byron, Director at Blue Heron Environmental. “We appreciate the hard work and commitment demonstrated by the LAURION team throughout this process and are excited to see the Company take this important next step in moving the project forward.”
+ Soil samples were collected and submitted to a certified independent laboratory, ALS Global, for preparation and analysis. Samples were dried at a maximum of 60 degrees C and screened to minus 180 microns (preparation code PREP-41), and analysed for 32 elements including tungsten by lithium borate fusion and inductively coupled plasma mass spectrometry (method ME-MS81). Lithium borate fusion was selected because tungsten is refractory and partial digestions under-report tungsten hosted in scheelite and wolframite. WO3 values presented in this news release are calculated from elemental tungsten (W) results using a conversion factor of 1.2611. Chain-of-custody protocols were maintained throughout. Quality control comprised field duplicates inserted at a rate of approximately one in 32 samples, together with the certified reference materials, blanks and duplicates inserted by the laboratory in each analytical batch. Soil geochemical values represent surficial dispersion and are not, and should not be interpreted as, indicative of grade or of any mineral resource.
 
  Qualified Person
 
- The technical contents of this press release have been reviewed and approved by Dr. Trevor Boyd, Ph.D., P.Geo., a consultant to LAURION and a Qualified Person as defined by National Instrument 43-101 - Standards of Disclosure for Mineral Projects (“NI 43-101”). Dr. Boyd is independent of the Company within the meaning of NI 43-101.
+ The scientific and technical information contained in this news release has been reviewed and approved by Jasper Mowatt, a consultant to the company and a qualified person as defined by National Instrument 43-101, Standards of Disclosure for Mineral Projects. Mr. Mowatt is not independent of the company.
 
- About LAURION
+ About Western Star Resources
 
- LAURION Mineral Exploration Inc. is listed on the TSX Venture Exchange (LME), OTCQB (LMEFF), and Frankfurt Stock Exchange (5YD), and is a mid-stage Canadian mineral exploration company, focused on advancing the 100%-owned Ishkōday Gold and Base Metal Project in Northern Ontario.
+ Western Star Resources is a mineral exploration company focused on the acquisition, exploration and advancement of mineral properties, with a growing strategic emphasis on tungsten and critical minerals in the United States. The company is advancing a portfolio of past-producing tungsten assets in Nevada and New Mexico while maintaining additional exploration exposure through its Western Star property in British Columbia.
 
- The Ishkōday Project covers approximately 57 km² within the prolific Beardmore–Geraldton and Onaman–Tashota Greenstone Belts and hosts a single 6.0 km by 2.5 km mineralised corridor. Historical and modern exploration programs have completed over 98,000 metres of drilling, confirming a large and evolving gold-rich base metal mineral system.
+ Contact Information:Blake Morgan,Director, President and CEOblake@acvc.vc
 
- LAURION’s strategy emphasizes disciplined, data-driven exploration, systematic technical advancement, integrated geological modelling, and responsible capital allocation. The Company is focused on strengthening geological confidence, expanding the scale of the mineral system, and positioning the project for a potential future Mineral Resource Estimate (“MRE”). LAURION continues to evaluate opportunities that may enhance project development flexibility, including potential non-dilutive initiatives such as the evaluation of historical surface stockpile processing. The Company’s objective is to build technical clarity, scale, and long-term project value before monetization, ensuring that future development decisions or strategic opportunities are supported by strong geological foundations and reduced execution risk.
+ Neither the Canadian Securities Exchange nor its Regulation Services Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this press release.
 
- Cynthia Le Sueur-Aquin, President and CEO of LAURION, is the Company’s largest shareholder, holding 17,221,306 common shares, reflecting strong alignment between management and shareholders.
-
- For Further Information, Contact:LAURION Mineral Exploration Inc.Cynthia Le Sueur-Aquin – President and CEOTel: 1-705-788-9186 Fax: 1-705-805-9256
-
- Douglas Vass - Investor Relations ConsultantEmail: info@laurion.caWebsite: http://www.LAURION.caFollow us on: X (@LAURION_LME), Instagram (laurionmineral) and LinkedIn
-
- Caution Regarding Forward-Looking Information
-
- This press release contains forward-looking statements, which reflect the Company’s current expectations regarding future events including with respect to LAURION's business, operations and condition, management’s objectives, strategies, beliefs and intentions, the Company’s ability to advance the Ishkōday Project and achieve the Company’s strategic and technical objectives (within the above-stated timeframes, if at all), including with respect to the Company’s expectations regarding the MRE, the timing and the Company’s expectations regarding the permitting applications and submissions described in this press release, the nature, focus, timing and potential results of the Company's exploration, drilling and prospecting activities, including the Company’s planned recovery and remediation activities and the proposed Advanced Exploration Project, as referenced in this press release, and the statements regarding the Company’s exploration or consideration of any possible strategic alternatives and transactional opportunities, as well as the potential outcome(s) of this process, the possible impact of any potential transactions referenced herein on the Company or any of its stakeholders, and the ability of the Company to identify and complete any potential acquisitions, mergers, financings or other transactions referenced herein, and the timing of any such transactions.
-
- The forward-looking statements involve risks and uncertainties. Actual events and future results, performance or achievements expressed or implied by such forward-looking statements could differ materially from those projected herein including as a result of a change in the trading price of the common shares of LAURION, the failure to obtain the consents, permits and/or approvals from applicable governmental bodies, regulators and Indigenous communities, required in connection with the Company's strategic and technical objectives, the risk that additional drilling may not support the preparation of an MRE, the TSX Venture Exchange or any other applicable regulator not providing its approval for any strategic alternatives or transactional opportunities, the interpretation and actual results of current exploration activities, changes in project parameters as plans continue to be refined, future prices of gold and/or other metals, possible variations in grade or recovery rates, failure of equipment or processes to operate as anticipated, the failure of contracted parties to perform, labor disputes and other risks of the mining industry, delays in obtaining governmental approvals or financing or in the completion of exploration, as well as those factors disclosed in the Company’s publicly filed documents. Investors should consult the Company’s ongoing quarterly and annual filings, as well as any other additional documentation comprising the Company’s public disclosure record, for additional information on risks and uncertainties relating to these forward-looking statements. The reader is cautioned not to rely on these forward-looking statements. Subject to applicable law, the Company disclaims any obligation to update these forward-looking statements.
-
- NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICE PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THE CONTENT OF THIS NEWS RELEASE.
-
- 
+ Certain of the statements made and information contained herein may constitute “forward-looking information”. In particular references to the acquisition, future work programs or expectations on the quality or results of such work programs are subject to risks associated with operations on the property, exploration activity generally, equipment limitations and availability, as well as other risks that we may not be currently aware of. Accordingly, readers are advised not to place undue reliance on forward-looking information. Except as required under applicable securities legislation, the Company undertakes no obligation to publicly update or revise forward-looking information, whether as a result of new information, future events or otherwise.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/laurion-advances-environmental-and-permitting-activities-at-ishkday-gold-and-polymetallic-project-7089786)
+[Original/Source Press Release](https://www.newmediawire.com/news/western-star-announces-0-53-wo3-in-soil-at-the-rowland-tungsten-property-as-phase-2-refines-drill-target-zones-7089790)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/laurion-advances-permitting-for-ishkoday-gold-project-in-ontario/61f023b8662b3feae67515d2420e6a62) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/western-star-hits-0-53-wo3-in-soil-at-rowland-tungsten-nevada/bd1c297e2a6e90ddcf7b4b18d2faedaa) 
 
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/western-star-soil-survey-returns-053-wo3-at-rowland-tungsten-property)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/18/chefwcwG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/18/noraoGa9.webp)
