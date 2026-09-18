@@ -1,23 +1,44 @@
-# World Cities Turn to AI: Vinhomes Green Paradise – Can Gio Builds the Answer with WCCD Interim Custom ISO 37122 Smart City Certification
+# GoGlobal Task Force to visit Canada to support Mainland enterprises in expanding their global business
 
-CAN GIO, VIETNAM – [Media OutReach Newswire](https://www.media-outreach.com/) – 18 September 2026 – Vinhomes, Vietnam's leading developer of large-scale integrated urban complexes, has reached an important milestone: its Vinhomes Green Paradise – Can Gio project has been awarded the Interim Custom ISO 37122 Smart City Certification by the World Council on City Data (WCCD). The certification positions the project to become the first mega urban development in Vietnam to pursue internationally recognized smart city status, reinforcing Vinhomes' role in shaping the future of AI-powered urban living.    Vinhomes: Pioneering Vietnam's AI-Powered Urban Frontier   Vinhomes has spent years building integrated ecosystems that bring together artificial intelligence, digital services, and advanced infrastructure to meet the evolving demands of modern urban life, an approach that mirrors global trends. Analysts at McKinsey estimate that AI could unlock as much as $550 billion in value across the global real estate value chain (1). The latest Emerging Trends in Real Estate report, produced jointly by PwC and the Urban Land Institute, found that 75% of real estate professionals now use AI or machine learning in their operations, up sharply from 51% a year earlier (2).   The foundation for this strategy was laid in 2021, when Vinhomes brought the LEED Platinum-certified TechnoPark at Vinhomes Ocean Park into operation, a smart building engineered to match the operational performance standards of the world's top ten smart buildings. That was followed in 2025 by the launch of the Vinhomes Resident mini-app, built on V-App infrastructure developed by VinSmart Future. Designed as a one-stop service gateway, the app lets residents manage household information, book amenities, pay bills, track handover procedures, access digital community maps, and receive updates from a single screen. It has already attracted more than 35,000 users, generating a growing base of operational data that Vinhomes uses to refine its services and shape its long-term smart city strategy.   Security and infrastructure have received the same rigor. Vinhomes' proprietary SmartCity solution suite, purpose-built for low-rise urban areas, integrates security, infrastructure, and environmental management on a single platform. At its core is the KSVR security system paired with Smart Poles, a multifunctional infrastructure model that Vinhomes describes as a first in Vietnam, combining AI cameras, movement recognition and tracking, interactive smart lighting, digital media screens, mobile charging ports, and IoT sensors that monitor energy, water, and environmental quality in real time.   A Global Benchmark Takes Shape at Vinhomes Green Paradise   That long-term strategy finds its fullest expression in Vinhomes Green Paradise – Can Gio. The WCCD's Interim Custom ISO 37122 Smart City Certification recognizes the project's baseline of urban data, positioning it to become the first mega urban development in Vietnam to pursue internationally recognized smart city certification and setting a new benchmark for greenfield smart city development globally.   "This WCCD Interim Custom ISO 37122 Smart City Certification recognizes Vinhomes' long-term vision and commitment to developing a smart, sustainable, and future-ready urban model," said Dr. Patricia McCarney, President & CEO of the World Council on City Data and Director of Standardized Urban Metrics. "The Vinhomes Green Paradise - Can Gio urban development project is now equipped with a powerful baseline of data designed to propel success. We congratulate Vinhomes on this important certification milestone, a global first, setting a new precedent for greenfield developments in cities worldwide."   Mr. Chulse Oh, Head of AX Group at Korea Management Association Consultants (KMAC), echoed that recognition: "The award of the WCCD Interim Custom ISO 37122 Smart City Certification marks an important milestone in realizing the vision of a world-class smart city in Vietnam. KMAC will continue to support the project in developing smart city solutions and implementation strategies during the operational phase."   As global research from McKinsey and PwC/ULI confirms that AI-driven infrastructure is fast becoming a deciding factor in real estate value and investor confidence, Vinhomes continues to demonstrate that when deployed thoughtfully, artificial intelligence elevates how people live. From a LEED Platinum-certified smart building in 2021, to a digital resident platform now serving tens of thousands, to an internationally certified smart city taking shape at Can Gio, Vinhomes is building a future where progress is measured in quality of life.   Hashtag: #Vinhomes[https://vinhomes.vn/en](https://vinhomes.vn/en)The issuer is solely responsible for the content of this announcement.
-
-About VinhomesVinhomes is Vietnam's largest residential real estate and integrated township developer. The company pioneers the development of synchronized, modern large-scale townships, delivering premium living standards and unlocking sustainable investment opportunities for domestic and international clients.
-
- 1. McKinsey & Company, "Where AI is creating real value in real estate" – https://www.mckinsey.com/featured-insights/mckinsey-explainers/where-ai-is-creating-real-value-in-real-estate
-2. PwC & Urban Land Institute (ULI), "Emerging Trends in Real Estate: Europe 2026" – https://www.pwc.com/gx/en/industries/financial-services/real-estate/emerging-trends-real-estate/europe.html 
+HONG KONG SAR – [Media OutReach Newswire](https://www.media-outreach.com/)– 18 September 2026 – ​Invest Hong Kong (InvestHK), a member of the Task Force on Supporting Mainland Enterprises in Going Global (GoGlobal Task Force), will lead a delegation on a seven-day visit to Canada starting September 20 to support Mainland enterprises in expanding their global business.   As one of the outbound missions under the supervision of the Secretary for Commerce and Economic Development, Associate Director-General of Investment Promotion at InvestHK Ms Loretta Lee will lead the delegation comprising Chinese Mainland companies in sustainability and life and health sciences on a visit to Vancouver, Calgary and Edmonton. The visit aims to help Chinese Mainland enterprises understand the local ecosystems and precisely align their go-global needs, while attracting Canadian businesses in these strategic sectors to invest in Hong Kong, thereby driving new growth impetus.   Ms Lee said, "Canada is globally recognised for its exceptional research talent, clean technology leadership, and established life sciences ecosystem. As more Mainland green technology and life and health sciences enterprises pursue international growth through Hong Kong, they bring not only capital and access to one of the world's largest markets, but also serve as ideal partners for Canadian companies seeking to explore Asia and beyond. We are keen to build fresh synergies with Canadian businesses to strengthen innovation, collaboration, and investment flows."   During the visit, the delegation will meet with local institutions, chambers of commerce, and industry associations. They will also hold targeted discussions with leading Canadian green tech and healthcare enterprises, visit universities and research parks, and take part in sector-specific roundtables and business networking sessions.  Hashtag: #InvestHKThe issuer is solely responsible for the content of this announcement. 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/united-states/2026/09/18/488483/)
+[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/09/18/488546/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vinhomes-green-paradise-earns-global-smart-city-certification/fb0edbe663a457f652e476105bc0e543) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investhk-leads-mainland-delegation-to-canada-for-global-expansion/06d9fae0253b80e54ca0b2599c865ed8) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/goglobal-task-force-to-visit-canada-to-support-mainland-enterprises-in-expanding-their-global-business)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/18/pendAV7V.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/269/18/chipG5li.webp)
