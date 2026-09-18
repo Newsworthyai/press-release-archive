@@ -1,35 +1,35 @@
-# SS Innovations International (SSII) Expands Global Footprint as SSi Mantra Procedures Reach 14,103
+# Hep Global Reorganizes Its Management
 
-* The company reported continued growth of its SSi Mantra surgical robotic system, with installations reaching 238 as of September 8, 2026, with the installed base now spanning 12 countries, following recent launches in Colombia and Sri Lanka and further international expansion.
-* The company said cumulative SSi Mantra procedures reached 14,103, a 79% increase from 7,885 at the end of 2025.
-* Pediatric applications continue to expand, including a robotic kidney procedure performed on a 45-day-old infant in India using 5-millimeter instruments.
-* SS Innovations reported 188 cumulative robotic telesurgeries as of August 31, alongside long-distance procedures connecting surgeons and patients across countries.
-* The company expects FDA review of its 510(k) submission by the end of Q1 2027 and believes EU CE marking for SSi Mantra could be obtained by the end of 2026.
+GUGLINGEN, GERMANY - September 17, 2026 (NEWMEDIAWIRE) - The hep global Group is restructuring its management team for the next phase of development: Martin Vogt (44) is taking over the position of Chief Executive Officer (CEO) effective immediately. He succeeds company founder Christian Hamann (55), who is stepping down from the CEO role at his own request after nearly 17 years but will remain with the management team as Chief Financial Officer (CFO). Hamann had already assumed responsibility for the finance division in May 2026.
 
- LOS ANGELES, CA - September 17, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII), a developer of innovative surgical robotic technologies, is reporting continued growth in the use of its SSi Mantra surgical robotic system, with the company’s installed base and procedure count increasing as it expands into new countries and surgical applications.
+ With this succession plan, which has been carefully prepared over the long term, hep global is committed to continuity in corporate leadership and a clear distribution of management responsibilities. Martin Vogt has been with the hep global Group since early 2024 and most recently served as Chief Project Officer, overseeing global project development. In this role, he played a key role in the strategic and operational advancement of the project business.
 
- ![](http://newmediawire.s3.amazonaws.com/6aac1c65da846f5439ccc2dc_1)
+ As CFO, Christian Hamann will focus on the financial management of the company. The management team is rounded out by Georg von Eichendorff Strachwitz, who has served as Chief Operating Officer (COO) since 2021.
 
- In an update issued September 10, the company said 238 SSi Mantra systems were installed as of September 8, up 42% from 168 at the end of 2025. Procedures performed with the system reached 14,103, representing a 79% increase from 7,885 at year-end. The company also said approximately 1,500 physicians have now been trained on SSi Mantra, which has been used in…
+ “I am very grateful for the trust of our employees, customers, and partners over the past 17 years,” says Christian Hamann. “As an international developer of solar energy projects, we have made a significant contribution to the energy transition since our founding. Martin Vogt is a leader who knows our company, our markets, and our strategic priorities very well. At the same time, I will remain closely connected to hep global as CFO and will focus on the company’s financial management. This allows us to establish clear lines of responsibility while ensuring continuity in corporate leadership.”
 
- Read More
+ “I would like to thank our founders, Christian Hamann and Thorsten Eitle, as well as the other shareholders, for their trust and their extraordinary contribution to building and successfully establishing our company,” says Martin Vogt. “hep global has many years of experience in the international development of solar energy projects and an established platform in our core markets. In recent years, we have consistently adapted our organizational and cost structures to changing market conditions. In doing so, we have laid the groundwork for the next phase of development. Our focus remains clear: We want to further strengthen our position as a reliable partner for the development of solar and battery storage projects. To this end, we are committed to continuity in our strategy and management, a focus on our core European markets, and targeted new growth initiatives.”About the hep global GroupThe hep global Group is an internationally active specialist in the development of solar projects and battery energy storage systems (BESS). For more than 15 years, the owner-managed company from Baden-Württemberg has been developing and planning renewable energy projects, mainly in Europe, Japan and North America. Its strategic focus is on greenfield developments and the integration of BESS. The hep global Group employs around 120 people worldwide with subsidiaries in Germany, Italy, Poland, the USA, Canada and Japan.Press contact:Evelyn KilincRomerstraBe 3D-74363 GuglingenTel.: +49 7135 93446-759 E-Mail: presse@hep.globalwww.hepsolar.com
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ Investor contact:Christian HamannRömerstraBe 3D-74363 GuglingenTel.: +49 7135 93446-0E-Mail: greenbond@hep.globalwww.hepsolar.com
 
- The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
+ Financial press contact:Frank Ostermair, Linh ChungIR4value GmbHKarl-Hromadnik-Str. 1481241 MunchenTel.: +49 211 178047-20E-Mail: linh.chung@ir4value.dewww.ir4value.de
 
- Forward Looking Statements
+ 
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-expands-global-footprint-as-ssi-mantra-procedures-reach-14-103-7089746)
+[Original/Source Press Release](https://www.newmediawire.com/news/hep-global-reorganizes-its-management-7089751)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-ssi-mantra-procedures-reach-14103-installed-base-hits-238/b72a0b0ae9366ed40e8afc42f4d160c3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hep-global-appoints-martin-vogt-as-ceo-in-leadership-shakeup/e3963e27f8b481ed2d34ad3570bc4052) 
 
  
 
@@ -37,4 +37,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/17/neonzy53.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/17/gleeZCUS.webp)
