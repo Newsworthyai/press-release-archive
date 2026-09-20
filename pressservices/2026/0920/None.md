@@ -1,51 +1,51 @@
-# SmileHQ Offers Braces and Orthodontic Care in Washington DC
+# Two Years After Helene: Who's Moving To-and-From Western North Carolina
 
-SmileHQ Provides Metal Braces and Full Orthodontic Treatment for All Ages in Washington DC
+Buncombe County Sees Steepest Migration Reversal of Any Large U.S. County
 
- Bowie, United States - September 19, 2026 / SmileHQ /
+ Asheville, United States - September 18, 2026 / Dry Ridge Moving /
 
- SmileHQ has expanded its orthodontic services in Washington, DC, now offering a full spectrum of braces and orthodontic treatment options for children, teens, and adults under one roof. The practice has structured its care model to address the dental and orthodontic needs of entire families at a single location, consolidating services that patients would otherwise seek from multiple providers.
+ ASHEVILLE, N.C. — September 22, 2026 — Buncombe County recorded the sharpest reversal in domestic migration of any large county in the United States in the year after Tropical Storm Helene, and the number of homes for sale in the county has doubled since the storm, according to a new analysis of public data by Asheville-based Dry Ridge Moving. The study, released ahead of the storm’s second anniversary on September 26 and 27, combines Census, IRS, Realtor.com, Zillow and Bureau of Labor Statistics data to show how movement into and out of Western North Carolina has changed since September 2024.
 
-Orthodontic Treatment for All Age Groups
+Among the 620 U.S. counties with at least 100,000 residents, Buncombe’s net domestic migration fell the most relative to its population between the year before the storm and the year after. In the year before Helene, 1,768 more people moved into the county from elsewhere in the United States than moved out. In the year after, 2,056 more people left than arrived. The swing equals 13.7 net movers per 1,000 residents. The next-largest reversal was in Craighead County, Arkansas, at 12.1. Census estimates released in March showed the shift left Buncombe with 1,810 fewer residents in July 2025 than a year earlier, the county’s first annual decline since at least 2000.
 
-SmileHQ provides orthodontic treatment in Washington, DC across every stage of life, from early childhood evaluations to adult corrective care. The practice offers metal braces in Washington, DC as a foundational treatment option, recognized for their effectiveness in correcting a wide range of bite and alignment issues. Metal braces remain one of the most commonly used orthodontic appliances, and SmileHQ has made them accessible to patients across age demographics.
+The housing market has shifted since the storm. Active home listings in Buncombe County rose from 886 in August 2024 to 1,799 in August 2026, an increase of 103 percent, compared with 25 percent nationally, according to Realtor.com data published by the Federal Reserve Bank of St. Louis. The median listing spent 78 days on the market, up from 54. Zillow’s typical home value in Buncombe County fell 5.6 percent between September 2024 and July 2026, while the national figure rose 1.1 percent.
 
-For younger patients, early orthodontic assessment plays a significant role in identifying alignment concerns before they become more complex to treat. SmileHQ incorporates pediatric dental care alongside its orthodontic services, allowing families to address both routine dental health and corrective treatment within the same practice.
+The local workforce is also smaller. Buncombe County’s civilian labor force, the number of people working or looking for work, stood at 135,287 in July 2026, 5.8 percent lower than in July 2024, according to preliminary Bureau of Labor Statistics figures. The statewide labor force fell 1.2 percent over the same period. Buncombe’s unemployment rate, which spiked after the storm, was 3.4 percent in July 2026.
 
-Combining General, Pediatric, and Cosmetic Dentistry
+The broader region continued to grow, though more slowly. Across 23 Helene-declared counties in North Carolina’s mountains and foothills, net domestic migration fell 54.5 percent, from 9,183 to 4,180, but remained positive. Henderson County added 1,089 residents.
 
-Beyond orthodontics, SmileHQ offers general and cosmetic dentistry services, positioning the practice as a comprehensive dental care destination for Washington, DC residents. This combination of specialties means patients can receive preventive checkups, restorative procedures, cosmetic treatments, and braces in Washington, DC without navigating referrals to separate offices.
+IRS migration data from tax years 2022 and 2023, the most recent available, shows the pattern the storm interrupted. Florida was the leading out-of-state source of new households for Buncombe, Haywood, Henderson, Madison and Transylvania counties, with 1,315 households moving in. South Carolina, led by Greenville and Spartanburg counties, was the leading destination for households leaving the area, with 1,111.
 
-The integration of pediatric and general dental services is a notable feature of the practice's care model. Parents can schedule appointments for children receiving orthodontic evaluations alongside their own general or cosmetic dental visits, reducing the logistical demands that often accompany family dental care.
+The study notes that Census estimates are revised each year and may not fully capture temporary displacement, and that 2026 county labor force figures are preliminary. The next county population estimates, expected in spring 2027, will show whether the migration reversal continued. The full study, including methodology, charts and downloadable county data, is available on the Dry Ridge Moving website, and its charts may be republished with credit.
 
-Addressing a Range of Orthodontic Needs
+About Dry Ridge Moving
 
-SmileHQ's orthodontic offerings are designed to accommodate varying clinical needs. Metal braces, in particular, are suited for patients with more significant alignment corrections required, and they remain a durable and effective option when compared to alternative appliance types. The practice's capacity to treat patients from childhood through adulthood reflects a continuity-of-care approach, where patients can remain with the same provider as their dental needs evolve over time.
+Dry Ridge Moving is a moving company based in Asheville, North Carolina, providing local and long-distance residential and commercial moves across Buncombe County and surrounding Western North Carolina communities. The company is registered with the U.S. Department of Transportation under USDOT number 1803573.
 
-Cosmetic dentistry services at SmileHQ complement the orthodontic offerings by addressing the aesthetic dimension of dental care. Patients who complete orthodontic treatment may also pursue cosmetic procedures, allowing for a coordinated approach to both functional correction and appearance.
+Media Contact:
 
-About SmileHQ
+info@proechosolutions.com
 
-SmileHQ is a dental practice located in Washington, DC, providing orthodontic treatment, metal braces, pediatric dentistry, general dentistry, and cosmetic dental services to children, teens, and adults. The practice is structured to serve families seeking comprehensive dental care from a single provider in the Washington, DC area.
+828-457-7461
 
-Learn more at SmileHQ
+https://dryridgemoving.com/wnc-migration-study/
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PTCi68pFoIDkhWJYovGVq9lr6zqpJBe7jkaQwCDi.jpg) [](https://smile-hq.com) Contact Information:
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ANxU9MLxE3aB5FbN7ji8Rctrw55B33eQ8YXb55bk.png) [](https://dryridgemoving.com/) Contact Information:
 
- SmileHQ
+ Dry Ridge Moving
 
  
 
-12150 Annapolis Rd Unit 301  Bowie, MD 20720United States
+3 Creek View Drive  Asheville, NC 28801United States
 
- Jim Oguntimein +1-202-829-3100 https://smile-hq.com 
+ Jed Willis https://dryridgemoving.com/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/smilehq-offers-braces-and-orthodontic-care-in-washington-dc-449057)
+[Original/Source Press Release](https://mediawiretoday.com/two-years-after-helene-whos-moving-to-and-from-western-north-carolina-448720)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/smilehq-expands-orthodontic-services-for-all-ages-in-washington-dc/7ec428fcdd400d6a1e6fe8b40bd2d6c1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/buncombe-county-sees-steepest-migration-reversal-of-any-large-u-s-county/5dc56326b5374f062d7a0b8776a327f5) 
 
  
 
@@ -53,4 +53,4 @@ Learn more at SmileHQ
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/20/noonwELX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/20/xenodRYR.webp)

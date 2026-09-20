@@ -1,0 +1,18 @@
+# Churches of Scientology Disaster Response Delivers Help to Families Affected by Eastern Washington Wildfires
+
+SEATTLE, WA, September 20, 2026 /24-7PressRelease/ -- More than 10,300 diapers donated by Seattle-area Scientologists and community members have been delivered to Spokane to help families recovering from the devastating wildfires that swept through Eastern Washington last month.  The relief effort was organized through Churches of Scientology Disaster Response (CSDR) and the Church of Scientology in Seattle after Washington Gov. Bob Ferguson called on businesses and nonprofit organizations to provide donations of essential supplies for wildfire-affected communities. Diapers were among the items specifically requested by the state, along with blankets, sheets, towels, baby formula, hygiene supplies, food and other basic necessities.  Members of the Seattle Church of Scientology congregation and others in the community responded by contributing funds to purchase more than 10,300 diapers. Scientology Volunteer Ministers then transported the donation to the Wildfire Relief Donation & Distribution Center in Spokane, where the supplies could be directed to families in need.  "When families have been forced from their homes, something as basic as having enough diapers for their children can become an immediate and very real concern," said Rev. Ann Pearce. "When the call went out for help, our parishioners and members of the community responded immediately. We wanted the families affected by these fires to know that people hundreds of miles away were thinking about them and were ready to help." The Church is continuing to work on further assistance for families in Spokane.  The donation comes in the aftermath of a wildfire emergency that affected communities across eastern Washington and prompted an extensive state and federal response. Ferguson declared a statewide wildfire emergency Aug. 1 amid extreme fire conditions and imposed a statewide prohibition on most outdoor and agricultural burning. The state also activated Washington National Guard personnel to assist firefighting operations.  On Aug. 27, Ferguson and the Washington State Department of Commerce announced a coordinated effort to collect large-scale donations from businesses and nonprofit organizations for affected communities.  For Churches of Scientology Disaster Response, mobilizing volunteers to assist communities in crisis is part of an international humanitarian effort spanning more than 25 years.  CSDR staff and Scientology Volunteer Ministers have provided assistance in the aftermath of earthquakes, hurricanes, tornadoes, floods, wildfires and other natural and man-made disasters. Volunteer Ministers work alongside community leaders, government officials, first responders, nonprofit and relief organizations, faith-based groups and other volunteers. Depending on the needs of a disaster, they may help organize and distribute emergency supplies, assist with logistics and cleanup, support relief centers and provide other practical assistance.  MEDIA CONTACT: Ann Pearce annpearce@scientology.net 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/538825/churches-of-scientology-disaster-response-delivers-help-to-families-affected-by-eastern-washington-wildfires)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scientologists-donate-10300-diapers-to-wildfire-victims/7e8d99c326579ec7c24ca09a84ee425f) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/269/20/poemA2FP.webp)
