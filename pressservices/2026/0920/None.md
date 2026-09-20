@@ -1,51 +1,47 @@
-# Two Years After Helene: Who's Moving To-and-From Western North Carolina
+# Wine Calorie Counts by Type and Serving Size Explained
 
-Buncombe County Sees Steepest Migration Reversal of Any Large U.S. County
+How Many Calories Are in a Glass of Wine? A Full Seasonal Breakdown
 
- Asheville, United States - September 18, 2026 / Dry Ridge Moving /
+ Miami, United States - September 20, 2026 / 10Musica /
 
- ASHEVILLE, N.C. — September 22, 2026 — Buncombe County recorded the sharpest reversal in domestic migration of any large county in the United States in the year after Tropical Storm Helene, and the number of homes for sale in the county has doubled since the storm, according to a new analysis of public data by Asheville-based Dry Ridge Moving. The study, released ahead of the storm’s second anniversary on September 26 and 27, combines Census, IRS, Realtor.com, Zillow and Bureau of Labor Statistics data to show how movement into and out of Western North Carolina has changed since September 2024.
+ FOR IMMEDIATE RELEASE
 
-Among the 620 U.S. counties with at least 100,000 residents, Buncombe’s net domestic migration fell the most relative to its population between the year before the storm and the year after. In the year before Helene, 1,768 more people moved into the county from elsewhere in the United States than moved out. In the year after, 2,056 more people left than arrived. The swing equals 13.7 net movers per 1,000 residents. The next-largest reversal was in Craighead County, Arkansas, at 12.1. Census estimates released in March showed the shift left Buncombe with 1,810 fewer residents in July 2025 than a year earlier, the county’s first annual decline since at least 2000.
+10Musica has published an updated nutrition breakdown answering how many calories are in a glass of wine, releasing the refreshed guide ahead of the fall and holiday season when wine consumption and questions about mindful drinking both increase.
 
-The housing market has shifted since the storm. Active home listings in Buncombe County rose from 886 in August 2024 to 1,799 in August 2026, an increase of 103 percent, compared with 25 percent nationally, according to Realtor.com data published by the Federal Reserve Bank of St. Louis. The median listing spent 78 days on the market, up from 54. Zillow’s typical home value in Buncombe County fell 5.6 percent between September 2024 and July 2026, while the national figure rose 1.1 percent.
+Calorie Differences Across Red, White, and Sparkling WineThe updated breakdown from 10Musica details how calorie counts vary meaningfully depending on the type of wine poured. Red wines generally fall in the range of approximately 120 to 130 calories per standard five-ounce serving, with fuller-bodied varieties tending toward the higher end due to elevated alcohol and residual sugar content. White wines typically register slightly lower, running from roughly 110 to 125 calories per five ounces, though sweet white styles can exceed that range considerably. Sparkling wines, including dry varieties, often come in at approximately 90 to 120 calories per serving, making them among the lower-calorie options in the wine category when poured at a standard measure. Rose wines occupy a middle ground, generally comparable to lighter white wines in caloric content.
 
-The local workforce is also smaller. Buncombe County’s civilian labor force, the number of people working or looking for work, stood at 135,287 in July 2026, 5.8 percent lower than in July 2024, according to preliminary Bureau of Labor Statistics figures. The statewide labor force fell 1.2 percent over the same period. Buncombe’s unemployment rate, which spiked after the storm, was 3.4 percent in July 2026.
+The guide notes that alcohol content is the primary driver of calorie differences across wine types, as alcohol delivers approximately seven calories per gram -- more than carbohydrates, though less than fat. Residual sugar contributes additional calories in sweeter styles, which is why a late-harvest or dessert wine can reach well above 200 calories per serving.
 
-The broader region continued to grow, though more slowly. Across 23 Helene-declared counties in North Carolina’s mountains and foothills, net domestic migration fell 54.5 percent, from 9,183 to 4,180, but remained positive. Henderson County added 1,089 residents.
+How Serving Size Affects the Calorie CountOne of the more practical sections of the 10Musica guide addresses how serving size dramatically changes the calorie picture. A standard pour is defined as five ounces, but research consistently shows that home and restaurant pours frequently exceed that amount, sometimes reaching seven or even nine ounces in a single glass. At those volumes, a wine that delivers 120 calories at a five-ounce pour can approach 170 to 215 calories before a second glass is considered. The guide frames this as one of the most common sources of underestimation when people assess how many calories are in a glass of wine in a real-world setting.
 
-IRS migration data from tax years 2022 and 2023, the most recent available, shows the pattern the storm interrupted. Florida was the leading out-of-state source of new households for Buncombe, Haywood, Henderson, Madison and Transylvania counties, with 1,315 households moving in. South Carolina, led by Greenville and Spartanburg counties, was the leading destination for households leaving the area, with 1,111.
+The breakdown also covers how the shape of a glass can influence how much wine is poured, with wider bowls associated with larger pours in observational data. For consumers tracking intake during the holiday season, the 10Musica resource recommends using a measured pour as the baseline rather than estimating by eye.
 
-The study notes that Census estimates are revised each year and may not fully capture temporary displacement, and that 2026 county labor force figures are preliminary. The next county population estimates, expected in spring 2027, will show whether the migration reversal continued. The full study, including methodology, charts and downloadable county data, is available on the Dry Ridge Moving website, and its charts may be republished with credit.
+How Wine Fits Into a Health-Conscious Diet"With the holidays approaching, a lot of people are looking at their overall calorie picture more carefully, and wine is often a blind spot," said Anas Hameed, editorial lead at 10Musica. "Our goal with this updated guide was to give readers concrete numbers by wine type and pour size so they can make informed decisions without having to guess."
 
-About Dry Ridge Moving
+The 10Musica guide positions wine within the broader context of a calorie-aware diet by comparing a standard pour to other common beverages. A five-ounce glass of dry red wine is broadly comparable in calories to a light beer but lower than most cocktails mixed with sugary additions. The resource also notes that wine contains no fat and minimal protein, meaning nearly all of its calories come from alcohol and, in sweeter styles, sugar -- two macronutrients that some dietary approaches track more closely than others.
 
-Dry Ridge Moving is a moving company based in Asheville, North Carolina, providing local and long-distance residential and commercial moves across Buncombe County and surrounding Western North Carolina communities. The company is registered with the U.S. Department of Transportation under USDOT number 1803573.
+For individuals following specific calorie targets, the guide suggests that a single five-ounce pour of a dry wine style can fit within most moderate-intake frameworks, while multiple pours or sweeter varieties require more deliberate accounting. The seasonal timing of the publication reflects the practical reality that per-capita wine consumption tends to rise during the October-through-December period, making the information particularly relevant for consumers navigating holiday gatherings and festive meals.
 
-Media Contact:
+About 10Musica10Musica is a digital content publisher producing guides and reference material across health, nutrition, and lifestyle topics. The publication focuses on delivering factual, accessible breakdowns that help readers make informed everyday decisions.
 
-info@proechosolutions.com
+Learn more at 10Musica
 
-828-457-7461
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/eTQBPKp4lHRHTajkqUWWlagrQqB9uIBMJx1OmlfI.jpg) [](https://www.10musica.com) Contact Information:
 
-https://dryridgemoving.com/wnc-migration-study/
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ANxU9MLxE3aB5FbN7ji8Rctrw55B33eQ8YXb55bk.png) [](https://dryridgemoving.com/) Contact Information:
-
- Dry Ridge Moving
+ 10Musica
 
  
 
-3 Creek View Drive  Asheville, NC 28801United States
+1 Media Row  Miami, Florida 33101United States
 
- Jed Willis https://dryridgemoving.com/ 
+ Anas Hameed (929) 377-1035 https://www.10musica.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/two-years-after-helene-whos-moving-to-and-from-western-north-carolina-448720)
+[Original/Source Press Release](https://mediawiretoday.com/wine-calorie-counts-by-type-and-serving-size-explained-449069)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/buncombe-county-sees-steepest-migration-reversal-of-any-large-u-s-county/5dc56326b5374f062d7a0b8776a327f5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/10musica-uncorks-calorie-counts-for-wine-lovers-this-holiday-season/f8f2fdeaf889d1646594a3c023b73f7c) 
 
  
 
@@ -53,4 +49,4 @@ https://dryridgemoving.com/wnc-migration-study/
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/20/xenodRYR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/20/odorjCyd.webp)
