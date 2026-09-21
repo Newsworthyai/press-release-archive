@@ -1,32 +1,65 @@
-# Curry and Rob Dew Call AI Doom Panic a Rerun of the COVID Playbook
+# San Marcos Buys 200 Acres to Extend Runway, Eyes Aerospace Future
 
-Episode 1904 of the No Agenda Show, titled 'Junkie Communism,' published September 17, 2026, brings hosts Adam Curry and returning guest co-host Rob Dew (Sir Deucifer) into a full media deconstruction of the escalating artificial intelligence panic. Broadcasting from the Hill Country of Texas, Curry frames the current AI doom cycle as a near-perfect rerun of the COVID-19 playbook, complete with expert priesthood, division, government regulation, and a push toward global governance. The pair combed through roughly 170 clips to trace how the narrative is being manufactured.
+Helen Ramirez, economic development director for the City of San Marcos, walks host Justin McKenzie through the city's biggest active projects on this week's episode of The Building Texas Show, “San Marcos Spaceport? Here's What's Coming”: the purchase of nearly 200 acres from the U.S. Department of Labor to extend the San Marcos Regional Airport runway, the 2,000-acre TriTexas mega site next door, and the aerospace, defense and manufacturing companies moving into the college town between Austin and San Antonio.
 
- The episode digs into several interlocking threads pulled straight from the week's news cycle:
+ Four threads from the episode:
 
- * Congresswoman Maxine Waters grilling Treasury officials on AI safety, alongside Senator Bernie Sanders equating AI risk with nuclear weapons.
-* Former presidential candidate Andrew Yang's CNBC appearance claiming self-replicating bot swarms have polluted the internet, requiring 'synthetic internets' and a kill switch.
-* President Trump's proposed $5,000 tariff dividend to every adult American citizen, and the possible stablecoin mechanism behind it.
-* Canadian PM Mark Carney's Strasbourg speech proposing Canada become the EU's first associate member.
-* Houthi advances near the Bab-el-Mandeb Strait and the new Mecca Accords defense pact.
+ * TriTexas. A 2,000-acre, rail-served site next to the regional airport. Regional detention and utilities are already built, before a single tenant has signed.
+* The airport. FAA and Texas Aviation grants are funding a runway extension. The airport already has 18-plus tenants, including Berry Aviation, now owned by publicly traded Bristow Group (NYSE: VTOL).
+* Star Park. Texas State's incubator is home to the Innovation Corridor Defense Accelerator, run with Starburst Aerospace and the Hays Caldwell Economic Development Partnership.
+* The Midway Hotel. A 130-key boutique hotel is coming downtown on land Texas State donated to the project, with a minimum-wage requirement tied to inflation written into the incentive deal.
 
- Curry's media deconstruction approach is on full display as he maps the AI hoax structure. 'The reason why I can easily explain this being a hoax, because you've got the models, the large language model, and that thing by itself... turns out wasn't very useful unless you give it access to tools... Then you have the harness. Oh, I love these terms,' Curry explains, before walking through how guardrails on ChatGPT, Claude, and Gemini prove companies can throttle output at will. Dew adds context from a friend's Hegelian dialectic analysis mapping eight cultural inhale-exhale cycles from 1945 to present, from the Cold War through COVID to today's AI narrative.
+ Ramirez turns the spaceport question back on itself. San Marcos isn't chasing a launch pad. “We are looking at that future of space. It is not necessarily launching rockets,” she tells McKenzie. “You can have it in Starbase, SpaceX, but that's not what we're looking for. But we can be part of the intelligence of creating that ecosystem.” Her reference point is Hawthorne, California: home to Raytheon, Boeing and Northrop Grumman. That's the side of aerospace she thinks Central Texas can build.
 
- The conversation ranges into the effective altruism movement (with Sam Bankman-Fried as its poster child), Anthropic CEO Dario Amodei's warnings, Jensen Huang's semiconductor push, and a Purdue University report on the 157,000-worker shortfall facing US chip fabs. Dew, who once worked at Tokyo Electron America servicing Micron and other clients, pushes back on the mystique around semiconductor manufacturing. The hosts also cover Ilhan Omar's alleged marriage fraud investigation under Tom Homan, EU Commission President Ursula von der Leyen's Kids Act targeting social media for under-13s, Canadian MAID euthanasia expansion, the Yalta European Strategy conference attended by Boris Johnson and David Petraeus, and the mysterious glitter industry centered in New Jersey.
+ The numbers back up the pitch. A survey Ramirez's office ran itself, sent to 98 companies, came back with more than 90% reporting they were stable or growing and about 40% actively expanding. Epic Piping is adding 100 employees. Amazon keeps growing its footprint. Collins Aerospace, which also operates in California, told Ramirez business is better here. Nabaco, a company that came out of Texas State and went through a Rice University accelerator, now operates in Spain and still hires Texas State grad students. US Aviation trains active-duty Air Force cadets at the airport. Texas State is adding a hospitality program tied to the downtown hotel deal.
 
- About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for its sharp commentary, humor, and 'media deconstruction' approach, the show offers listeners an irreverent alternative to conventional news analysis. Episode 1904 is available now wherever podcasts are heard. 
+ The clearest example of how the city operates: Ramirez's staff has direct access to the city's own permitting software. Texas Building Supply, on track for roughly $40 million a year in sales tax once it's fully ramped, with no incentive package attached, gets its permit questions answered in real time because her downtown manager can just look it up.
+
+ About The Building Texas Show
+
+ Justin McKenzie hosts The Building Texas Show. Each episode is one conversation with a developer, manufacturer, city official or university partner building something exciting in Texas.
+
+ Watch the full episode with Helen Ramirez now on YouTube: youtube.com/@thebuildingtexasshow
+
+ Media contact: Justin McKenzie, Email Contact 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609212953/curry-and-rob-dew-call-ai-doom-panic-a-rerun-of-the-covid-playbook)
+[Original/Source Press Release](https://newsworthy.ai/news/202609212735/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1904-junkie-communism-exposes-ai-panic-as-covid-2-0/01ac363c1cc46955c9bc5db4781b53f1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/san-marcos-eyes-aerospace-ecosystem-not-spaceport-with-tritexas-and-airport-expansion/3c9e2839cfb3b2d4f5acac6b7eee4b8c) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/cornR08y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/heal4gUT.webp)
