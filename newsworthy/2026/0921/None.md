@@ -1,65 +1,98 @@
-# San Marcos Buys 200 Acres to Extend Runway, Eyes Aerospace Future
+# Jason Calacanis Joins Adam Curry to Deconstruct AI Panic, Anthropic 'Cult' and Data Center Backlash
 
-Helen Ramirez, economic development director for the City of San Marcos, walks host Justin McKenzie through the city's biggest active projects on this week's episode of The Building Texas Show, “San Marcos Spaceport? Here's What's Coming”: the purchase of nearly 200 acres from the U.S. Department of Labor to extend the San Marcos Regional Airport runway, the 2,000-acre TriTexas mega site next door, and the aerospace, defense and manufacturing companies moving into the college town between Austin and San Antonio.
+Episode 1905 of the No Agenda Show, titled 'Nerdballs,' published September 20, 2026, features host Adam Curry welcoming venture capitalist and All In Podcast co-host Jason Calacanis for a wide-ranging deconstruction of the AI hype cycle, Silicon Valley's power politics, and the media narratives shaping the 2026 midterms. Broadcasting from the Texas Hill Country, Curry frames Calacanis as 'the get of the week,' fresh off an All In Summit at the Shrine Auditorium that drew 3,000 attendees and surprise call-ins from President Trump, Vice President JD Vance, Elon Musk, and Nvidia CEO Jensen Huang.
 
- Four threads from the episode:
+ The conversation moves quickly across the week's most-discussed stories. Curry and Calacanis unpack:
 
- * TriTexas. A 2,000-acre, rail-served site next to the regional airport. Regional detention and utilities are already built, before a single tenant has signed.
-* The airport. FAA and Texas Aviation grants are funding a runway extension. The airport already has 18-plus tenants, including Berry Aviation, now owned by publicly traded Bristow Group (NYSE: VTOL).
-* Star Park. Texas State's incubator is home to the Innovation Corridor Defense Accelerator, run with Starburst Aerospace and the Hays Caldwell Economic Development Partnership.
-* The Midway Hotel. A 130-key boutique hotel is coming downtown on land Texas State donated to the project, with a minimum-wage requirement tied to inflation written into the incentive deal.
+ * Microsoft AI CEO Mustafa Suleyman's new code of conduct and his public criticism of Anthropic's 'model welfare' doctrine
+* The reported Hugging Face security incident and calls for an AI 'kill switch'
+* The political weaponization of data centers by candidates like Texas Democrat James Talarico
+* Trump's revocation of press credentials for CNN, MSNOW, and Politico
+* Rising diesel prices tied to Ukrainian strikes on Russian refineries
 
- Ramirez turns the spaceport question back on itself. San Marcos isn't chasing a launch pad. “We are looking at that future of space. It is not necessarily launching rockets,” she tells McKenzie. “You can have it in Starbase, SpaceX, but that's not what we're looking for. But we can be part of the intelligence of creating that ecosystem.” Her reference point is Hawthorne, California: home to Raytheon, Boeing and Northrop Grumman. That's the side of aerospace she thinks Central Texas can build.
+ Calacanis pulls no punches on the AI safety debate, arguing that Anthropic's leadership has convinced itself it is birthing a deity. 'They actually think that they are creating a god. They're not. They're creating software,' he tells Curry, comparing the company's effective-altruism roots to the doomed engineers in the film Prometheus. Curry plays clips of University of Washington professor Pedro Domingos describing a reported Anthropic 'funeral' for a retired Claude model, while Calacanis insists the real story is regulatory capture: frontier labs lobbying Washington to gate open-source competitors like DeepSeek, GLM, and NeMoTron.
 
- The numbers back up the pitch. A survey Ramirez's office ran itself, sent to 98 companies, came back with more than 90% reporting they were stable or growing and about 40% actively expanding. Epic Piping is adding 100 employees. Amazon keeps growing its footprint. Collins Aerospace, which also operates in California, told Ramirez business is better here. Nabaco, a company that came out of Texas State and went through a Rice University accelerator, now operates in Spain and still hires Texas State grad students. US Aviation trains active-duty Air Force cadets at the airport. Texas State is adding a hospitality program tied to the downtown hotel deal.
+ The episode also delivers rare backstage detail from the All In Summit. Calacanis recounts Jensen Huang fumbling the speakerphone button when President Trump called mid-panel, and describes pressing Meta's Dina about the company's record $17 billion settlement during a data-center segment. He shares the origin story of All In as a pandemic-era poker group with David Sacks, Chamath Palihapitiya, and David Friedberg, and reveals that This Week in Startups sells out its ad inventory a year in advance at $3,000 per spot. Curry pivots to Bitcoin, predicting a $430,000 peak, while Calacanis discusses parenting in the smartphone era and the pair reflect on the late John C. Dvorak, whose memory drives the show's ongoing Order of the Ant tribute campaign.
 
- The clearest example of how the city operates: Ramirez's staff has direct access to the city's own permitting software. Texas Building Supply, on track for roughly $40 million a year in sales tax once it's fully ramped, with no incentive package attached, gets its permit questions answered in real time because her downtown manager can just look it up.
-
- About The Building Texas Show
-
- Justin McKenzie hosts The Building Texas Show. Each episode is one conversation with a developer, manufacturer, city official or university partner building something exciting in Texas.
-
- Watch the full episode with Helen Ramirez now on YouTube: youtube.com/@thebuildingtexasshow
-
- Media contact: Justin McKenzie, Email Contact 
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and the late John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, and technology. Known for its 'media deconstruction' approach, sharp humor, and value-for-value funding model, the show offers an irreverent alternative to conventional news analysis. Episode 1905 is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609212735/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+[Original/Source Press Release](https://newsworthy.ai/news/202609212955/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/san-marcos-eyes-aerospace-ecosystem-not-spaceport-with-tritexas-and-airport-expansion/3c9e2839cfb3b2d4f5acac6b7eee4b8c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1905-calacanis-on-ai-hype-trump-calls-and-silicon-valley-secrets/25c8bee3b34882ddc26e5b35d728784c) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://advos.io/en](https://advos.io/en/jason-calacanis-calls-anthropic-a-cult-on-no-agenda-show-warns-of-ai-regulatory-capture)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/san-marcos-buys-200-acres-to-extend-runway-eyes-aerospace-future)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/jason-calacanis-challenges-ai-panic-and-anthropic-cult-on-no-agenda-show)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/calacanis-and-curry-deconstruct-ai-panic-anthropic-cult-on-no-agenda-show)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/calacanis-on-no-agenda-ai-safety-debate-is-regulatory-capture-data-centers-become-midterm-weapon)
+
+Pickup - [https://burstable.news](https://burstable.news/news/jason-calacanis-challenges-ai-cult-and-data-center-backlash-on-no-agenda-show)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/calacanis-and-curry-expose-ai-panic-anthropic-cult-and-regulatory-capture-on-no-agenda-show)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/calacanis-on-no-agenda-show-ai-safety-debate-is-regulatory-capture-by-frontier-labs)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/news/calacanis-and-curry-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/calacanis-decries-ai-cult-mentality-warns-of-regulatory-capture-on-no-agenda)
+
+Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/calacanis-anthropic-creating-a-god-not-software-as-ai-panic-and-data-center-politics-dominate-debate)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/calacanis-anthropic-believes-it-is-creating-a-god-not-software)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/calacanis-and-curry-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash-on-no-agenda)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/calacanis-and-curry-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash-on-no-agenda)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/jason-calacanis-on-no-agenda-ais-god-complex-silicon-valley-power-plays-and-the-2026-midterms)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/news/calacanis-and-curry-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/calacanis-calls-anthropic-a-cult-warns-ai-safety-debate-is-really-about-regulatory-capture)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/calacanis-calls-ai-a-god-complex-warns-of-regulatory-capture-on-no-agenda)
+
+Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/calacanis-anthropic-believes-its-creating-a-god-not-software/202639043)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/jason-calacanis-joins-adam-curry-to-deconstruct-ai-panic-anthropic-cult-and-data-center-backlash)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/21/calacanis-blasts-anthropic-cult-ai-panic-on-no-agenda-episode-1905/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/heal4gUT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/barn3gVx.webp)
