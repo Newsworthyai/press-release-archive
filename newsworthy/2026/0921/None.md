@@ -1,73 +1,27 @@
-# Why San Antonio Pool Buyers Are Ditching Concrete for Fiberglass
+# Curry and Rob Dew Call AI Doom Panic a Rerun of the COVID Playbook
 
-The latest episode of The Building Texas Show, hosted by Justin McKenzie, was recorded live at the San Antonio Home and Garden Show and released September 14, 2026. Titled San Antonio Homeowners Are Choosing Fiberglass, Here's Why, the episode features Jeff and Kelley Turner, owners of Staycation Fiberglass Pools, in the second installment of the show's San Antonio Home and Garden Series.
+Episode 1904 of the No Agenda Show, titled 'Junkie Communism,' published September 17, 2026, brings hosts Adam Curry and returning guest co-host Rob Dew (Sir Deucifer) into a full media deconstruction of the escalating artificial intelligence panic. Broadcasting from the Hill Country of Texas, Curry frames the current AI doom cycle as a near-perfect rerun of the COVID-19 playbook, complete with expert priesthood, division, government regulation, and a push toward global governance. The pair combed through roughly 170 clips to trace how the narrative is being manufactured.
 
- Watch the full episode on YouTube
+ The episode digs into several interlocking threads pulled straight from the week's news cycle:
 
- A wave of concrete pools built during the COVID-era construction boom are now failing. Repair bills are landing in the hundreds of thousands of dollars, and the Turners spend a good chunk of the episode explaining why.
+ * Congresswoman Maxine Waters grilling Treasury officials on AI safety, alongside Senator Bernie Sanders equating AI risk with nuclear weapons.
+* Former presidential candidate Andrew Yang's CNBC appearance claiming self-replicating bot swarms have polluted the internet, requiring 'synthetic internets' and a kill switch.
+* President Trump's proposed $5,000 tariff dividend to every adult American citizen, and the possible stablecoin mechanism behind it.
+* Canadian PM Mark Carney's Strasbourg speech proposing Canada become the EU's first associate member.
+* Houthi advances near the Bab-el-Mandeb Strait and the new Mecca Accords defense pact.
 
- Jeff and Kelley walk McKenzie through the questions every homeowner should ask before signing a pool contract:
+ Curry's media deconstruction approach is on full display as he maps the AI hoax structure. 'The reason why I can easily explain this being a hoax, because you've got the models, the large language model, and that thing by itself... turns out wasn't very useful unless you give it access to tools... Then you have the harness. Oh, I love these terms,' Curry explains, before walking through how guardrails on ChatGPT, Claude, and Gemini prove companies can throttle output at will. Dew adds context from a friend's Hegelian dialectic analysis mapping eight cultural inhale-exhale cycles from 1945 to present, from the Cold War through COVID to today's AI narrative.
 
- * The rise of ASR - “concrete cancer” - in pools built during and after COVID
-* Why Texas requires no certification to build a pool, and what PHTA (Pool and Hot Tub Association) certification actually covers
-* The true cost of a low bid, and what a genuine turnkey fiberglass price should include
-* Why manufacturer warranties from builders like San Juan and Aqua Technics matter
-* Renovation options, including EcoFinish flame-applied polymer resurfacing
+ The conversation ranges into the effective altruism movement (with Sam Bankman-Fried as its poster child), Anthropic CEO Dario Amodei's warnings, Jensen Huang's semiconductor push, and a Purdue University report on the 157,000-worker shortfall facing US chip fabs. Dew, who once worked at Tokyo Electron America servicing Micron and other clients, pushes back on the mystique around semiconductor manufacturing. The hosts also cover Ilhan Omar's alleged marriage fraud investigation under Tom Homan, EU Commission President Ursula von der Leyen's Kids Act targeting social media for under-13s, Canadian MAID euthanasia expansion, the Yalta European Strategy conference attended by Boris Johnson and David Petraeus, and the mysterious glitter industry centered in New Jersey.
 
- Jeff doesn't soften the point about who's regulating this industry:
-
- “In Texas, you need more certifications to do hair than you do to build a pool. It's wild. And you need to be a chemist to be a hairdresser, and you don't need to be a chemist to build a pool.”
-
- He described fielding calls from homeowners whose concrete shells are disintegrating - forcing $200,000 to $400,000 tear-outs that most builders carry no insurance to cover. Kelley has her own way of framing the manufacturer relationship:
-
- “You're dating us as a builder...”
-
- She finishes the thought in the episode - it's one of the more useful ways we've heard a builder explain what a warranty is actually worth.
-
- The Turners also break down a hybrid negative-edge rebuild they recently completed in Dripping Springs - a rescue job for a client whose original fiberglass installer left them with a one-year-old pool that looked thirty. The full build sequence, from shell to a 30-foot infinity edge over the Hill Country, is in the video.
-
- See how they rebuilt it - watch on YouTube
-
- They credit training from Jason Hughes and River Pools, out of Virginia and Illinois, for shaping how they educate clients before they ever sign a contract. San Juan (more than 70 years in the business) and Australia-based Aqua Technics are the two manufacturers they point to as warranty benchmarks - and bonding, pump sizing, and deck scope are where they say cut-rate contracts quietly fail.
-
- Homeowners can see the Turners' completed projects at staycationfiberglasspools.com.
-
- FAQ: Concrete vs. Fiberglass Pools in Texas
-
- Why are so many Texas concrete pools failing right now?
-
- Many were built during the COVID-era construction rush, when demand outpaced skilled labor and oversight. The Turners say a large share of those pools are now showing ASR, or “concrete cancer,” and repairs can run $200,000 to $400,000.
-
- Does Texas require a license to build a pool?
-
- No. Texas has no state certification requirement for pool builders. PHTA certification exists, but it's voluntary - homeowners have to ask for it. Jeff explains exactly what that gap means for a homeowner signing a contract in the full episode.
-
- What separates a real turnkey fiberglass quote from a low bid?
-
- Engineering plans, proper bonding, correctly sized pump equipment, and full deck scope - the Turners walk through where cut-rate contracts quietly cut corners, and what to ask a builder before you sign.
-
- Watch More From The Building Texas Show
-
- This episode is part of an ongoing series profiling the builders, tradespeople, and entrepreneurs shaping the Texas economy - recorded live at events like the San Antonio Home and Garden Show. New episodes post 2-3 times a week.
-
- Subscribe to The Building Texas Show on YouTube
-
- About The Building Texas Show
-
- The Building Texas Show, hosted by Justin McKenzie, profiles the entrepreneurs, tradespeople, and innovators shaping the Texas economy. Through on-location conversations at events like the San Antonio Home and Garden Show, the podcast delivers practical, consumer-facing insight from the operators actually doing the work. This episode is available now wherever podcasts are heard.
-
- Media Contact:
-
- Justin McKenzie
-
- Email Contact 
+ About No Agenda Show No Agenda is a long-running, listener-supported podcast hosted by Adam Curry and John C. Dvorak that takes a skeptical, independent look at mainstream media, politics, culture, and the forces shaping the daily news cycle. Known for its sharp commentary, humor, and 'media deconstruction' approach, the show offers listeners an irreverent alternative to conventional news analysis. Episode 1904 is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609212928/why-san-antonio-pool-buyers-are-ditching-concrete-for-fiberglass)
+[Original/Source Press Release](https://newsworthy.ai/news/202609212953/curry-and-rob-dew-call-ai-doom-panic-a-rerun-of-the-covid-playbook)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fiberglass-pools-vs-concrete-texas-homeowners-guide/02d45e789816422f0a4a65fd8cbf84b9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-1904-junkie-communism-exposes-ai-panic-as-covid-2-0/01ac363c1cc46955c9bc5db4781b53f1) 
 
  
 
@@ -75,4 +29,4 @@ The latest episode of The Building Texas Show, hosted by Justin McKenzie, was re
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/lossPlJN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/21/cornR08y.webp)
