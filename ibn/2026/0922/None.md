@@ -1,10 +1,19 @@
-# Clarity Act Stumble Highlights Limitations of Crypto Lobbying
+# Beeline Holdings Inc. (NASDAQ: BLNE) Partners with Loft 100 Studios to Examine the Mortgage Market and New Approaches to Homeownership
 
-The crypto industry has suffered a major setback after the U.S. Senate rejected a procedural motion to advance the Clarity Act, exposing the political obstacles facing an industry that has spent heavily to gain influence in the capital.
+* The partnership will focus on the production of a 45-minute “Bizumentary” examining current challenges and changes in the mortgage and housing markets.
+* The production is scheduled to begin distribution the week of Sept. 21 through BizTV, American Life Network and American Forces Network.
+* The three networks have a combined potential audience of approximately 90 million viewers, according to Beeline.
+* The program examines mortgage affordability, interest rates, housing inventory, alternative underwriting, automation and access to home equity.
+* Beeline operates a digital mortgage and financial technology platform serving both homebuyers and real estate investors.
+* The company’s strategy includes mortgage products for younger borrowers, including consumers seeking investment properties, as well as equity-focused products for homeowners with substantial accumulated home equity.
 
- Industry firms like BitFuFu Inc. (NASDAQ: FUFU) will be watching what happens next on Capitol Hill in efforts geared at passing enabling laws to guide the digital assets industry as it seeks to deepen its penetration of the…
+ Beeline Holdings (NASDAQ: BLNE), a digital mortgage platform offering a more efficient path to homeownership, has partnered with Emmy Award-winning Loft 100 Studios on a new documentary-style production examining developments in the mortgage industry and changing approaches to homeownership (https://ibn.fm/RZsjX).
+
+ The 45-minute production, described as a “Bizumentary,” is scheduled to begin distribution during the week of September 21 through BizTV, American Life Network and American Forces Network. According to Beeline, the networks have a combined potential reach of approximately 90 million viewers. The company said the production could subsequently be considered for…
 
  Read More>>
+
+ NOTE TO INVESTORS: The latest news and updates relating to BLNE are available in the company’s newsroom at https://ibn.fm/BLNE
 
  About CryptoCurrencyWire
 
@@ -22,19 +31,15 @@ The crypto industry has suffered a major setback after the U.S. Senate rejected 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/clarity-act-stumble-highlights-limitations-of-crypto-lobbying/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/beeline-holdings-inc-nasdaq-blne-partners-with-loft-100-studios-to-examine-the-mortgage-market-and-new-approaches-to-homeownership/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-lobbying-falls-short-as-senate-blocks-clarity-act/787fd30d0e5d4cc63d43d91d23b65104) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-partners-with-loft-100-studios-for-mortgage-market-bizumentary/8639b6c030f309c45813a98cebd56324) 
 
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/crypto-lobbying-push-stalls-as-senate-blocks-clarity-act)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-impulso-del-lobby-cripto-se-estanca-mientras-el-senado-bloquea-la-ley-de-claridad)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/22/isle8kWZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/22/airyT4Rk.webp)

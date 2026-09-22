@@ -1,192 +1,98 @@
-# Does AI Know Your Town? Why Local Information Matters in the Age of Artificial Intelligence
+# Unwrapping Holiday Shopping: What 44 Billion Emails Reveal About When Consumers Really Buy
 
-(NewsUSA) - Ask an artificial intelligence platform for the best-known restaurants in Paris or the largest technology companies in America, and chances are it will have plenty to say.
+(NewsUSA) - Analysis of more than 44 billion emails and 83 million text messages uncovers surprising patterns in when holiday shoppers buy, and what brings them back
 
-Ask it about the family-owned manufacturer 10 miles away, a respected local accountant, a nonprofit doing remarkable work in your community or the business that has served your town for three generations, and the answer may be very different.
+Black Friday and Cyber Monday (BFCM) may be among the biggest shopping days of the holiday season, but new research suggests consumer activity continues well beyond those major promotional events.
 
-Sometimes artificial intelligence simply doesn't know.
+During the 2025 peak shopping season, weekend order rates were twice weekday rates, even as brands sent significantly fewer marketing messages. The research also found that customers making their first purchase from a brand during BFCM spent more per order, on average, than repeat customers.
 
-That raises an increasingly important question as millions of Americans begin using AI to decide what to buy, where to go and whom to trust:
+The findings come from Intuit Mailchimp’s Breaking Through Peak Season Noise report, developed with Datalily. The research analyzed more than 44 billion emails and 83 million text messages sent globally through Mailchimp from Halloween through New Year’s Eve 2025, providing insight into consumer behavior during the busiest shopping period of the year.
 
-Will local businesses and communities be adequately represented in the AI age?
+Here are several key findings from the research.
 
-AI Has a Local Information Problem
+1. Quieter marketing days can still be strong shopping days
 
-Artificial intelligence systems don't experience communities the way people do.
+Some of the season’s strongest shopping activity occurred when brands were sending fewer messages.
 
-They don't drive down Main Street. They don't attend the Rotary Club luncheon, watch the high school football game or hear a neighbor recommend a local contractor.
+Weekend order rates were twice weekday rates, while message volume fell by roughly 60% on weekends. On the Sunday between Black Friday and Cyber Monday, brands sent 59% fewer emails and 82% fewer text messages than they did on Black Friday.
 
-They depend heavily on information that is available to them digitally.
+The findings suggest that holiday shopping activity can continue even when promotional messaging becomes less frequent.
 
-And that can create an imbalance.
+2. Text messages captured shoppers’ attention
 
-Large national companies generate enormous amounts of online information. They are covered by national media, discussed on thousands of websites and mentioned constantly across the internet.
+Email remained the larger revenue driver overall, but text messaging generated strong engagement during periods of high shopping activity.
 
-A highly respected local business may have a website, a Facebook page and a handful of reviews.
+During BFCM weekend, SMS averaged a 15.7% click rate per message delivered, compared with 1.4% for email. At peak points during the season, SMS generated up to six times higher order rates than email and three times higher revenue per message.
 
-That difference could become increasingly important.
+The results highlight differences in how consumers respond to marketing channels during the holiday shopping season.
 
-The New Word of Mouth
+3. First-time customers spent more per order
 
-For decades, local businesses grew largely through reputation and word of mouth.
+The holiday season also brought new customers to brands. During BFCM weekend, shoppers making their first purchase from a brand accounted for 59% of email-attributed orders and nearly 70% of SMS-attributed orders.
 
-Those recommendations aren't going away. But consumers now have another place to ask for advice.
+First-time customers also had higher average order values. Through email, average order values for first-time buyers were 21% higher than those of repeat buyers. Through SMS, they were 39% higher.
 
-Artificial intelligence.
+For businesses, the findings suggest that holiday promotions can provide an opportunity not only to drive purchases but also to reach consumers who are shopping with a brand for the first time.
 
-Someone moving to a new community might ask an AI assistant:
+4. Some shoppers returned after the holidays
 
-“Who are the most respected financial advisers near me?”
+For some first-time customers, a holiday purchase was followed by another purchase in the new year.
 
-A homeowner might ask:
+Among shoppers who made their first purchase during peak season, 16.6% purchased again during the first quarter of 2026. Those who returned made their next purchase after a median of 26 days.
 
-“What local companies can replace my roof?”
+The findings point to the potential importance of the weeks following the holiday season as businesses continue communicating with newly acquired customers.
 
-A parent could ask:
+Looking Beyond the Holiday Rush
 
-“What organizations in my area provide tutoring for teenagers?”
+Taken together, the research offers a broader look at how consumers shop during the holidays. Shopping activity can remain strong beyond the biggest promotional days, consumers may respond differently across communication channels, and first-time customers can continue engaging with brands after their initial holiday purchase.
 
-And a business owner might ask:
+For businesses, understanding these patterns can help inform how and when they communicate with customers throughout the holiday season and into the new year.
 
-“Who are the leading accountants for small businesses in this region?”
-
-The answers AI provides depend, in part, on the information available for it to discover and understand.
-
-Local News May Become More Important, Not Less
-
-That creates an interesting new role for local journalism.
-
-Local newspapers have always documented the life of their communities: new businesses, civic organizations, local experts, elections, charitable activities, economic development and the people doing noteworthy things.
-
-Those stories aren't simply today's news.
-
-They also become part of a community's digital history.
-
-“Local newspapers document things that frequently aren't documented anywhere else,” said Rick Smith, founder and CEO of News USA, which has distributed editorial content to news organizations across the country for nearly four decades.
-
-“As people increasingly ask AI systems questions rather than simply searching Google, credible local information may become even more valuable. If information about a community doesn't exist online, an AI system has very little to work with.”
-
-Being Good Isn't the Same as Being Discoverable
-
-Consider two local businesses.
-
-One has operated successfully for 25 years, supports community organizations and has hundreds of loyal customers—but has generated very little independent information online.
-
-The other is relatively new but has been interviewed by local media, publishes useful information about its industry and has developed a substantial digital presence.
-
-A longtime resident may know immediately which business has the stronger reputation.
-
-An AI system doesn't have that life experience.
-
-It has information.
-
-That doesn't mean businesses should manufacture publicity simply to influence artificial intelligence. Nor does appearing in an article guarantee that ChatGPT, Gemini, Claude, Perplexity or another AI system will mention or recommend a company.
-
-It does suggest that accurate, credible information about local organizations needs to exist in places where people—and potentially machines—can find it.
-
-A New Question for Small Businesses
-
-For years, business owners were told to ask:
-
-“Can people find us on Google?”
-
-Now there may be a second question:
-
-“What happens when people ask AI about us?”
-
-News USA has begun examining that question through what it calls AI Authority—looking at how companies appear across major AI platforms, how their competitors appear and what credible information about the company exists online.
-
-The answers can sometimes be surprising.
-
-A company may have a beautiful website and excellent search-engine rankings but barely appear when consumers ask AI systems questions about its industry.
-
-Another company may repeatedly appear because there is a larger body of independent information supporting its expertise and reputation.
-
-Put Your Town to the Test
-
-There's a remarkably simple experiment anyone can conduct.
-
-Open your favorite AI platform and ask it five questions about your community:
-
-What businesses is this town known for?
-
-Who are some respected local entrepreneurs?
-
-What are the best locally owned businesses?
-
-What organizations are making a difference here?
-
-What should someone moving here know about the community?
-
-Then look at what's missing.
-
-Long-established businesses may be absent. Important nonprofit organizations may not appear. Community leaders everyone in town knows may be invisible.
-
-There may even be outdated or incorrect information.
-
-That gap between what a community actually knows about itself and what artificial intelligence knows about it could become one of the more interesting challenges of the AI era.
-
-America's Communities Need a Digital Record
-
-Artificial intelligence is often discussed as though its future will be determined entirely in Silicon Valley.
-
-But its usefulness will also depend upon the quality of information coming from thousands of communities across America.
-
-That's where local journalism has something technology cannot easily manufacture: firsthand knowledge of a community.
-
-The restaurant opening downtown. The third-generation manufacturer adding 40 jobs. The teacher receiving a statewide award. The entrepreneur building an unusual company. The nonprofit quietly helping hundreds of families.
-
-Individually, they are local stories.
-
-Collectively, they are the record of a community.
-
-And in an era when machines increasingly help people discover information, preserving that record may matter more than anyone expected.
-
-To learn more about how organizations can evaluate what leading AI platforms know about them, visit NewsUSA.ai. 
+To explore the full findings and interactive charts, visit Mailchimp’s Breaking Through Peak Season Noise report. 
 
 ---
 
-[Original/Source Press Release](https://about.newsusa.com/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+[Original/Source Press Release](https://about.newsusa.com/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-s-blind-spot-why-local-businesses-may-be-invisible-in-the-ai-age/07417bbbf4c4f80ec287daea08d64b33) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/holiday-shopping-spikes-beyond-black-friday-mailchimp-study-finds/0754ecb5dc5f72c7a5e447dd83cbcc83) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/44-billion-emails-reveal-holiday-shopping-extends-beyond-bfcm-with-weekends-twice-as-strong)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/44-mil-millones-de-correos-electronicos-revelan-que-las-compras-navidenas-se-extienden-mas-alla-del-bfcm-con-fines-de-semana-dos-veces-mas-fuertes)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsusa/does-ai-know-your-town-why-local-information-matters-in-the-age-of-artificial-intelligence)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/ais-blind-spot-why-local-texas-businesses-risk-being-invisible-in-the-age-of-artificial-intelligence)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-punto-ciego-de-la-ia-por-que-las-empresas-locales-de-texas-corren-el-riesgo-de-ser-invisibles-en-la-era-de-la-inteligencia-artificial)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsusa/unwrapping-holiday-shopping-what-44-billion-emails-reveal-about-when-consumers-really-buy)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ais-blind-spot-why-local-businesses-and-communities-risk-being-overlooked-in-the-ai-age)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/holiday-shopping-data-reveals-when-consumers-really-buy-and-why-it-matters-for-long-beach-businesses)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/269/22/sagebbeg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsusa/qrcode/269/22/openCH1B.webp)
