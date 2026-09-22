@@ -1,33 +1,41 @@
-# Greenland Mines (GRML) Highlights Critical Minerals Role Following U.S.-Denmark-Greenland Security Agreement
+# Circus SE: CEO Nikolas Bullwinkel to Speak at Goldman Sachs and Bank of America Stages - Keynotes at Further Investor Conferences
 
-LOS ANGELES, CA - September 21, 2026 (NEWMEDIAWIRE) - Greenland Mines (NASDAQ: GRML) applauded the announced security agreement among the United States, Denmark and Greenland, which provides for an expanded and enduring U.S. security presence in Greenland and limits the ability of U.S. adversaries to establish military positions or make sensitive investments there. The company said the agreement reinforces Greenland’s growing strategic importance, including its role in supplying critical minerals required for defense, advanced technology and energy security.
+MUNICH, GERMANY - September 21, 2026 (NEWMEDIAWIRE) - Circus SE (GSIN: A2YN35 / ISIN: DE000A2YN355 / XETRA: CA1) today shares its autumn conference programme. Founder and CEO Nikolas Bullwinkel will join the stages as a speaker on dual-use robotics and Physical AI at the Bank of America Transforming World Conference and the Goldman Sachs AI Symposium in London - at the AI Symposium for the third consecutive year as an industry voice on autonomous robotics. Alongside this, the Company will hold presentations at multiple capital markets conferences.
 
- ![](http://newmediawire.s3.amazonaws.com/6ab16661da846f543cccc47e_1)
+ Bank of America: Transforming World ConferenceNovember 10, 2026 | London (Speaker)
 
- Greenland Mines highlighted its Sarfartoq and Skaergaard mineral assets, noting that Sarfartoq’s Initial Assessment includes a high-case pre-tax NPV of approximately $2.05 billion. Planned annual neodymium-praseodymium (“NdPr”) oxide production would represent approximately 34% of all NdPr oxide currently refined outside China at 2025 consumption levels. The company believes the projects could contribute to a secure allied critical-minerals supply chain and its broader North Atlantic Critical Metals Corridor vision.
+ Goldman Sachs: AI SymposiumNovember 25, 2026 | London (Speaker)
 
- To view the full press release, visit: https://ibn.fm/1xXaQ
+ Deutsche Borse: German Equity Forum 2026 November 23, 2026 | Frankfurt am Main
 
- About Greenland Mines
+ Additional appearancesMKK - Munich Capital Markets Conference | November 11, 2026 | Munich15. Baader Investment Conference | September 21, 2026 | Munich
 
- Greenland Mines Ltd. is a Western-aligned critical-minerals developer advancing the Sarfartoq neodymium-praseodymium rare earth project in southwest Greenland and the Skaergaard palladium-platinum-gold project in southeast Greenland. The Company’s strategy is focused on advancing high-quality Greenlandic mineral assets capable of supporting diversified and secure Western critical-minerals supply chains.
+ Across the European events, Bullwinkel will share insights and updates on how Circus is industrialising physical AI - scaling its autonomous AI robotics in production while expanding its global supply chain and software layer. Topics include the recent expansion into the UK and the UAE, the growth of the Circus ecosystem beyond robotics, and the Company's rapid adoption in the defence sector.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ Management will hold selected one-on-one meetings around each event. Investors and analysts are invited to contact Investor Relations at ir@circus-group.com for remaining slots.
 
- The latest news and updates relating to GRML are available in the company’s newsroom at https://ibn.fm/GRML
+ ABOUT CIRCUS SE
 
- Forward Looking Statements
+ Circus SE (XETRA: CA1) is a German dual-use technology company developing proprietary AI models, autonomous robotic sustainment systems, and a central operating platform for civilian and defence applications. With a globally active portfolio of autonomous meal supply robotics and high-volume serial production live, Circus is building the infrastructure for autonomous food supply - on a mission to fuel humanity.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ IR CONTACT
+
+ Elena ColesHead of Investor RelationsCircus SEEmail: ir@circus-group.comWebsite: www.circus-group.com
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/greenland-mines-grml-highlights-critical-minerals-role-following-u-s-denmark-greenland-security-agreement-7089847)
+[Original/Source Press Release](https://www.newmediawire.com/news/circus-se-ceo-nikolas-bullwinkel-to-speak-at-goldman-sachs-and-bank-of-america-stages-keynotes-at-further-investor-conferences-7089863)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/greenland-mines-backs-u-s-denmark-security-pact-touts-critical-minerals/d489c2d16827aaf2bbab44c6d087b953) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/circus-se-ceo-to-speak-at-goldman-sachs-and-bank-of-america-ai-events/e409229d046391b89325028c6692b31b) 
 
  
 
@@ -35,4 +43,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/21/fern92Np.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/21/joltjg6G.webp)

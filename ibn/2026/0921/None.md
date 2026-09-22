@@ -1,42 +1,62 @@
-# NetworkNewsBreaks – FingerMotion Inc. (NASDAQ: FNGR) Secures Second Alberta Campus Site for 99 MW AI and HPC Program
+# Injectable Nanodevices Exhibit Potency Against Brain Tumors
 
-FingerMotion (NASDAQ: FNGR) announced that its wholly owned subsidiary, Hanna Campus #1 Inc., entered into a binding letter of intent to acquire approximately 20.2 acres of industrial land in Hanna, Alberta, for development of a planned 9.9 MW artificial intelligence (“AI”) and high-performance computing (“HPC”) site. Hanna Campus #1 is the second campus under FingerMotion’s previously announced Alberta program targeting approximately 99 MW across its Brooks, Coronation, Fox Creek and Vulcan Zones.
+A new nano-sized injectable technology developed at the MIT Media Lab has shown striking results against one of medicine’s toughest cancers. In lab tests, it wiped out just over half of the malignant cells in samples from patients whose tumors had stopped responding to standard drugs, a kill rate roughly five times higher than a common chemotherapy agent.
 
- The site has 3 MW of grid power available through an agreement with the Town of Hanna and a natural gas interconnection through ATCO Energy to support behind-the-meter generation. FingerMotion intends to contract capacity to AI and HPC clients under long-term agreements before committing construction capital, with BlueFlare Group Holdings Inc. serving as development partner across the 99 MW program. The company expects permitting, power and design for each campus to take approximately 120 to 180 days.
+ With entities like CNS Pharmaceuticals Inc. (NASDAQ: CNSP) also working to bring additional drug candidates…
 
- To view the full press release, visit https://nnw.fm/qU9Z4
+ Read More>>
 
- About FingerMotion, Inc.
+ About TinyGems
 
- FingerMotion is an evolving technology company with a core competency in mobile payment and recharge platform solutions in China. As the user base of its primary business continues to grow, the Company is developing additional value-added technologies to market to its users. The vision of the Company is to rapidly grow the user base through organic means and have this growth develop into an ecosystem of users with high engagement rates utilizing its innovative applications. Developing a highly engaged ecosystem of users would strategically position the Company to onboard larger customer bases. FingerMotion eventually hopes to serve over 1 billion users in the China market and eventually expand the model to other regional markets.
+ TinyGems is a specialized communications platform with a focus on innovative small-cap and mid-cap companies with bright futures and huge potential. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TinyGems is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, TinyGems brings its clients unparalleled recognition and brand awareness. TinyGems is where breaking news, insightful content and actionable information converge.
 
- NOTE TO INVESTORS: The latest news and updates relating to FNGR are available in the company’s newsroom at https://nnw.fm/FNGR
+ To receive SMS alerts from TinyGems, text “Gems” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About NetworkNewsWire
+ For more information, please visit https://www.TinyGems.com
 
- NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the TinyGems website applicable to all content provided by TinyGems, wherever published or re-published: https://www.TinyGems.com/Disclaimer
 
- To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
+ TinyGemsAustin, Texaswww.TinyGems.com512.354.7000 OfficeEditor@TinyGems.com
 
- For more information, please visit https://www.NetworkNewsWire.com
-
- Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
-
- NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
-
- NetworkNewsWire is powered by IBN 
+ TinyGems is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-fingermotion-inc-nasdaq-fngr-secures-second-alberta-campus-site-for-99-mw-ai-and-hpc-program/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/injectable-nanodevices-exhibit-potency-against-brain-tumors/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fingermotion-expands-alberta-ai-hpc-footprint-with-20-2-acre-land-deal/ae8908cf2152bf825dd7182bbba2c9c0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mit-s-injectable-nanodevices-show-promise-against-deadly-brain-cancer/b91a619ebb54951e46a142aa1f2e078f) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/injectable-nanodevices-exhibit-potency-against-brain-tumors)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/21/takeW4Dn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/21/quip7uvG.webp)

@@ -1,90 +1,52 @@
-# The Oral and Cardiovascular Health Connection: 4 Tips to Protect Your Teeth, Gums and Heart
+# Great American Media Expands Partnership with Minivela to Develop New Latino Family Streamer Pure Flix Familia
 
-NEW YORK, NY — September 21, 2026 — (NOTICIAS NEWSWIRE) — People often think of dentists and doctors as totally separate healthcare professionals: one cares for your teeth and mouth while the other handles the rest of the body. In reality, the different systems in the human body are closely interconnected and oral health is no exception, making dentists a vital part of your healthcare team.
+NEW YORK, NY — September 21, 2026 — (NOTICIAS NEWSWIRE) — Great American Media today announced it has tapped Minivela, the Latino media entertainment and production company co-founded by media entrepreneur Manny Ruiz and actor-producer Carlos Ponce, to support the creation and production of Pure Flix Familia, Great American Media’s new streaming destination created for Latino families.
 
- Oral health and heart health have a particularly close connection, with inflammation at the core of it. When your gums are inflamed, the resulting bacteria can make their way from your mouth through your bloodstream, potentially contributing to your blood vessels constricting or becoming blocked. This, in turn, may force your heart to work harder and raise your blood pressure, putting you at risk of heart disease and stroke. More than 46% of adults in the U.S. have high blood pressure, and more than 40% of adults age 30 and older are affected by periodontal (gum) disease.
+ Minivela will serve as Pure Flix Familia’s programming, content and creative partner, working closely with Great American Media and Pure Flix leadership on original programming, content development, creator relationships, licensing, cultural strategy and audience engagement.
 
- To help address these issues, the American Heart Association’s Healthy Smiles, Healthy Hearts initiative, in collaboration with Delta Dental of California, is encouraging dental teams to take a total-body perspective with their patients. Simple steps like blood pressure screenings during checkups can give a more complete picture of a person’s overall health. If a member of your dental care team pulls out a blood pressure cuff at your next appointment, it’s a good sign.
+ Ruiz and Ponce bring decades of experience working within the Latino community at the grassroots level, with deep track records across Hispanic media, entertainment, cultural marketing and storytelling that have connected them directly with Latino audiences, creators and communities.
 
- “The mouth is a gateway to the body and can often reveal more about your total body health than you may think,” said Daniel Croley, D.M.D., chief dental officer at Delta Dental of California and Affiliates. “Oral health professionals have a powerful opportunity to integrate more into their patients’ collective health care team beyond protecting their patients’ teeth. By connecting oral health and heart health, this initiative helps dentists identify risks early and guide patients toward care that can improve and even save lives.”
+ “Pure Flix Familia represents an important expansion of Great American Media’s mission to serve families with trusted entertainment grounded in faith and shared values,” said Bill Abbott, President and CEO of Great American Media. “Manny, Carlos and the Minivela team bring a strong creative instinct and a deep understanding of Latino audiences and a commitment to faith and family entertainment. They know this community because they are part of it. Their perspective will be invaluable as we build a distinctive programming strategy and develop authentic stories that resonate across generations.”
 
- Care for your teeth, gums and heart all at once using these tips from experts at the American Heart Association.
+ Manny Ruiz, CEO and co-founder of Minivela, will lead Minivela’s work as programming, creative and content strategy partner. In this role, he will collaborate with Great American Media and Pure Flix executives to help identify original programming opportunities, cultivate relationships with Latino creators and producers, and advise on the platform’s cultural and audience strategy.
 
- Follow a Brushing and Flossing Schedule
+ “This is an opportunity to work alongside Great American Media to build a streaming destination that understands Latino families and reflects their faith, values, experiences and aspirations,” Ruiz said. “Our focus will be on helping Pure Flix Familia develop authentic programming, meaningful creator relationships and a consistent content pipeline that can earn a lasting place in people’s homes.”
 
- Good dental health starts with a daily routine. If you don’t want to sheepishly cringe next time the dentist inquires about yours, brush at least twice a day and floss at least once a day to disrupt plaque-forming bacteria. Dentists recommend using toothpaste with fluoride and brushing your teeth and gums thoroughly yet gently, as applying too much pressure can wear away enamel and cause gum recession.
+ Carlos Ponce, who co-founded Minivela with Ruiz, will play a key creative and audience-facing role in the partnership. Ponce will support the development of Pure Flix Familia’s creative identity, help establish relationships with actors, writers, filmmakers and other creators, and contribute to audience-engagement initiatives. He is also expected to participate as on-screen talent in future Pure Flix Familia projects.
 
- Eat a Healthy Diet and Limit Sugar
+ “Authenticity begins by ensuring that the people and communities we hope to serve have a meaningful voice in the creative process,” Ponce said. “We will work directly with writers, actors, filmmakers and producers who know these families because they come from these families. That is how we can help create stories audiences recognize, trust and want to share.”
 
- Most kids are used to hearing sugar will rot their teeth – and that’s not just a parental scare tactic to get their little hands out of the candy jar. Sugar feeds harmful bacteria in your mouth, producing acid that can cause cavities and gum disease. For a diet your heart and teeth will both appreciate, prioritize vegetables, lean proteins, complex carbohydrates and healthy fats, while limiting added sugars and refined carbohydrates.
+ Minivela will help develop original movies, series and mobile-first microdramas; identify potential content and acquisition opportunities; cultivate emerging and established Latino talent; and advise on programming, social media, community partnerships and audience-growth initiatives. The expanded relationship gives Minivela a broader leadership role in the development and operation of Pure Flix Familia.
 
- Avoid Smoking and Tobacco Products
+ Great American Media will retain responsibility for Pure Flix Familia’s business operations and final approval over its brand, budget, programming, acquisitions and distribution.
 
- The connection between smoking and oral disease is well established: smokers face significantly higher risks of developing periodontal disease, losing teeth or being diagnosed with oral cancer. Cigarettes aren’t the only form of tobacco to worry about, either. Vaping, dipping and chewing tobacco can also harm your dental health by drying out your mouth and restricting blood flow to the gums. Since these products are also harmful to heart health, quitting or avoiding them offers plenty of worthwhile benefits. Seek support if you need help to kick the habit.
+ The expanded partnership builds upon Great American Media and Minivela’s previously announced development, distribution and marketing relationship that was initially only focused on producing mobile-first microdramas for U.S. Hispanic and Latin American audiences.
 
- Communicate with Your Healthcare Team
+ Pure Flix Familia is scheduled to launch in early October with Spanish-language entertainment and will expand over time to include bilingual and English-language programming created and curated for Latino audiences. The service is part of Great American Media’s broader strategy to grow its faith-and-family entertainment ecosystem and reach new audiences with programming families can confidently enjoy together.
 
- Since your body’s systems are connected to each other, it’s helpful to talk to your dentist about your blood pressure and to your doctor about your oral health. Start thinking of your dentist as a key member of your integrated healthcare team. Don’t be afraid to share your medical history, discuss the side effects of any medications you’re taking and ask for personalized recommendations on caring for your teeth, gums and overall health.
+ Additional details about Pure Flix Familia’s launch programming, subscription options, supported devices and availability will be announced separately.
 
- To learn more about how to improve your oral and cardiovascular health, visit Heart.org/OralHealth.
+ About Great American Media Great American Media is a leader in faith-and-family entertainment and one of the fastest-growing entertainment networks on television. Great American Media is home to a portfolio of brands that celebrate faith, family and country, including Great American Family, the flagship linear network featuring original Christmas movies, romantic comedies and beloved series; Great American Pure Flix, a leading faith-and-family streaming service; Great American Faith & Living, the company’s unscripted companion network; and GFam+, an app that allows viewers to watch Great American Media programming anytime and anywhere.
 
- Photos courtesy of Shutterstock Feature Impact Source: American Heart Association
+ Established in June 2021 by Bill Abbott and a group of U.S.-based family offices, Great American Media programming is available through cable and satellite providers, Great American Pure Flix, YouTube TV and the GFam+ app.
 
- CONTACT:
+ About Pure Flix Familia Pure Flix Familia is an operating entity within Great American Pure Flix and Great American Media dedicated to culturally relevant entertainment centered on faith and family. The streaming destination is being developed to serve Spanish-dominant, bilingual and English-dominant Latino audiences through original movies, series, mobile-first microdramas and thoughtfully curated programming that families can confidently enjoy together.
 
- Sarah Fowler 913-647-0938 sarah.fowler@featureimpact.com 
+ About Minivela Minivela is a Latino-focused entertainment and production company co-founded by media entrepreneur Manny Ruiz and actor-producer Carlos Ponce. The company develops culturally relevant programming for U.S. Hispanic and Latin American audiences, with an emphasis on mobile-first storytelling, emerging creative formats and authentic relationships with Latino creators and communities.
+
+ CONTACT: Victoria Quevedo 512.537.1414 media@crosswindpr.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/cardiovascular-health-connection/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/great-american-media-expands-partnership-with-minivela/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dentists-join-heart-health-fight-new-initiative-links-oral-care-to-cardiovascular-wellness/1099b338bca4acee914b0a348ef67ee3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/great-american-media-taps-minivela-to-launch-pure-flix-familia/4a6f4de73c486f0279d9bf804c6d7f3e) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-and-delta-dental-of-california-launch-initiative-linking-oral-health-to-heart-health)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/the-hidden-link-between-oral-health-and-heart-health-what-you-need-to-know)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/the-oral-and-cardiovascular-health-connection-why-your-dentist-may-check-your-blood-pressure)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/texas-dental-teams-take-on-heart-health-as-american-heart-association-links-oral-care-to-cardiovascular-risk)
-
-Pickup - [https://burstable.news](https://burstable.news/news/american-heart-association-and-delta-dental-of-california-launch-initiative-linking-oral-and-heart-health)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/the-oral-and-cardiovascular-health-connection-why-your-dentist-may-check-your-blood-pressure)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/the-mouth-heart-connection-why-dental-checkups-now-include-blood-pressure-screenings)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/the-surprising-link-between-oral-health-and-heart-disease)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/american-heart-association-initiative-links-oral-health-to-heart-health-urges-dental-screenings)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/the-vital-link-between-oral-health-and-heart-health)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/news/the-vital-link-between-oral-health-and-heart-health-a-call-for-integrated-care)
-
-Pickup - [https://news.newswriter.ai/curated-news](https://news.newswriter.ai/curated-news/american-heart-association-and-delta-dental-of-california-launch-initiative-linking-oral-health-to-heart-health)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/news/the-oral-and-cardiovascular-health-connection-4-tips-to-protect-your-teeth-gums-and-heart)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/news/integrating-oral-and-heart-health-a-new-approach-to-preventive-care)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/news/the-hidden-link-between-oral-health-and-heart-disease-4-essential-tips)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/news/new-initiative-highlights-the-critical-link-between-oral-health-and-heart-health)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/news/the-vital-link-between-oral-health-and-heart-health-what-you-need-to-know)
-
-Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/american-heart-association-and-delta-dental-urge-integrating-blood-pressure-screenings-into-dental-checkups)
-
-Pickup - [https://www.newsworthy.ai/curated](https://www.newsworthy.ai/curated/the-surprising-link-between-oral-health-and-heart-disease/202639042)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/21/american-heart-association-and-delta-dental-of-california-launch-initiative-linking-oral-and-cardiovascular-health/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/21/filo63gK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/21/pintiUcR.webp)
