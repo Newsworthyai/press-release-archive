@@ -1,58 +1,53 @@
-# From Jobsite to Pitmaster: Sloan Rinaldi's 1909 Texas BBQ Legacy
+# Fredericksburg High Students Raise $21K Launching Six Startups in INCubatoredu Debut
 
-The latest episode of The Building Texas Show, hosted by Justin McKenzie and recorded live at the San Antonio Home & Garden Show, features Sloan Rinaldi. She's the founder of Texas Q, a barbecue brand built on sauces, rubs, and a media business she's building around it. She's also a fourth-generation pitmaster: her family has been in barbecue since 1909, when they opened a shop in Crockett, Texas.
+The latest episode of The Building Texas Show, published September 14, 2026, features host Justin McKenzie in conversation with Jason Roemer, a 27-year business educator at Fredericksburg High School. Roemer built Fredericksburg ISD's INCubatoredu program, a national curriculum, developed by Uncharted Learning, in which high school students spend a full school year building and pitching a real business from nothing to a sold-out pitch night in one year.
 
  Watch the full conversation on YouTube
 
- Texas Q is based in Houston, where Rinaldi hosts private barbecue crawls and is building out the rest of her media ventures.
+ Roemer spent three years in retail management before what he calls “the coaching bug” pulled him into education. Twenty-seven years, 23 of them coaching volleyball, and one incubator program later, he says the classroom feels new again: “My education career has really been rejuvenated by this program, and the way that these kids have responded to it.”
 
- Rinaldi spent years in construction before walking away at 50, right as the industry moved from paper plans and cold calls to phone-based bidding and takeoffs. She'd already sold her business to a team of longtime employees and was still deciding what came next. Then a sliced brisket sandwich at Killen's Barbecue changed her mind about a cuisine she'd never much cared for. She'd never cooked a brisket in her life.
+ In year one, Roemer:
 
- That one sandwich led to:
+ * Recruited more than 30 local business owners, board advisors, and judges into the classroom
+* Guided six student teams through building real businesses, from idea to public pitch
+* Raised $20,000-$25,000 for the program - money Roemer says stays entirely in the classroom, on top of his teacher's salary, inside a Texas school finance system that pulls funding back out of rural districts
+* Closed the year with a sold-out theater pitch night and $21,000 awarded in seed money and scholarships
 
- * Commissioning her own smoker from East Texas Smoker Company and teaching herself fire management from scratch, after noticing only one woman, Melissa Cookston, on the barbecue competition circuit
-* A first competition at Bands, Brews and Barbecue, benefiting the Ronald McDonald House, followed by a 14th-place finish out of 250 teams at a Texas State Championship
-* Landing a statewide deal with H-E-B for her original Texas Q sauce, then pulling it back off shelves to reformulate without high fructose corn syrup
+ One of his mentors has a story he tells the students every year - a Main Street business owner who scaled too fast, nearly went under, and had to sell. It's not the version of him you'd find on LinkedIn.
 
- Rinaldi has a simple explanation for why she thinks barbecue connects people like nothing else:
+ Hear the full mentor stories - watch on YouTube
 
- “You can put the richest guy and the poorest guy at the same table, having the same meal. You can't get that in any other cuisine. So it is the most uniting cuisine or culinary culture on earth.”
+ The volunteer bench reads like a cross-section of the local economy. David Pedragon, who built and later sold Dogology, a Main Street pet store, mentors students on failure and pivoting. Chad Myers, CEO of Core Javelina Holdings, manufactures and distributes rubber components used on an estimated 90% of new-build airbag suspension systems for 18-wheelers - from a facility just outside Fredericksburg. Dan Kemp, CEO of Security State Bank (headquartered in Fredericksburg, with 19 branches and 120 local employees), talked to students about a different kind of ambition: “I'm not an entrepreneur, I'm an intrapreneur. I look to grow my business every day.” Central Texas Electric CEO Mr. Hinojosa taught project management, and rancher Sam Sage of Hillside Beef rounded out the mentor team.
 
- Hear Rinaldi's full story - watch on YouTube
+ Roemer credits the model, not himself, for the results:
 
- That philosophy is the spine of her next project: From Texas With Love: United We BBQ, a nine-episode series filming across eight countries and three continents, including Italy, France, Germany, Spain, Argentina, and Japan. It looks at live-fire cooking traditions from Ibérico hogs to Japanese wagyu to Argentine gaucho asado. Every episode ends with a Texas barbecue collaboration, and the final episode brings every featured cook to Houston for one last cook-off.
+ “The coach is only as good as the players. We've been blessed with a tremendous team of volunteers, starting with David Pedragon and going all the way down.”
 
- Rinaldi's international reach is already further along than a TV pitch. She recently hosted two Taiwan-based venture capitalists on a private Texas Q barbecue crawl in Houston. They flew 15 hours and fasted for a full day beforehand to prepare. The itinerary included one of only three Michelin-starred barbecue restaurants in the world, plus two Top 15 stops, one of them Top 10. By the end of the day, the conversation had moved from barbecue to business. Rinaldi shares which cities are now in play in the full episode.
+ Heading into year two, Roemer says the program has already roughly doubled its volunteer pool - helped along by Caroline, a student from the winning pitch team, who asked to come back as a mentor the day after the contest. He's also in talks with Fredericksburg's Chamber of Commerce about a permanent Main Street presence for the program, and he's shared the model with educators in Hondo, Dripping Springs, and College Station who are considering it for their own districts.
 
- Back home, she's also filming Grillz on Grills, a new Houston culture series with Bun B, Slim Thug, Trae tha Truth, and Paul Wall. It digs into the city's food, music, and custom-grillz scene, which Rinaldi says has gone global. She and her co-host get their own custom grillz built during the series.
+ FAQ: What Is INCubatoredu?
 
- FAQ: Texas Q and Sloan Rinaldi's new projects
+ What is INCubatoredu?
 
- What is Texas Q?
+ It's a national high school curriculum, built by Uncharted Learning, where students spend a school year developing, building, and pitching a real business to a panel of community judges - instead of studying business from a textbook.
 
- Texas Q is Sloan Rinaldi's barbecue brand: sauces, rubs, custom cutting boards, and barbecue crawl experiences, built after she left a career in construction to become a competition pitmaster.
+ How is the program funded?
 
- Where is Texas Q based?
+ Fredericksburg's program raised $20,000-$25,000 in year one through community fundraising. Roemer says every dollar raised stays in the classroom; the only tax dollars involved are his teacher salary.
 
- Texas Q is based in Houston, where Rinaldi hosts the brand's private barbecue crawl experiences.
+ Can other Texas school districts start a program like this?
 
- What is From Texas With Love: United We BBQ?
+ Yes - Roemer has already talked with educators in Hondo, Dripping Springs, and College Station about adopting the model, and points interested districts to Uncharted Learning's curriculum as the starting point.
 
- It's a nine-episode TV series filming in eight countries across three continents. Each episode pairs a Texas barbecue tradition with a different country's live-fire cooking culture, and the series ends with a finale cook-off in Houston.
+ Watch More From The Building Texas Show
 
- Where can I watch Grillz on Grills?
-
- It's expected to launch on YouTube. Rinaldi says she'd like to bring it to Netflix too.
-
- Watch more from The Building Texas Show
-
- This episode is part of an ongoing series spotlighting the entrepreneurs, tradespeople, and creators shaping Texas's economy and culture - from construction and home services to food and media. New episodes post 2-3 times a week.
+ This episode is part of an ongoing series spotlighting the founders, educators, and community champions building Texas's entrepreneurial economy - from rural Hill Country classrooms to fast-growing metros. New episodes post 2-3 times a week.
 
  Subscribe to The Building Texas Show on YouTube
 
  About The Building Texas Show
 
- The Building Texas Show, hosted by Justin McKenzie, profiles the entrepreneurs, tradespeople, and creators shaping the state's economy and culture, from construction and home services to food and media. Recorded on location at industry events like the San Antonio Home & Garden Show, each conversation surfaces practical lessons and Texas-sized stories.
+ The Building Texas Show, hosted by Justin McKenzie, spotlights the founders, educators, civic leaders, and community champions shaping Texas's entrepreneurial economy. Each week the podcast travels from rural Hill Country classrooms to fast-growing metros, telling the stories of the people quietly building what comes next. New episodes are available on YouTube, Facebook, Instagram, LinkedIn, and all major podcast platforms.
 
  Media Contact:
 
@@ -62,15 +57,37 @@ The latest episode of The Building Texas Show, hosted by Justin McKenzie and rec
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609222931/from-jobsite-to-pitmaster-sloan-rinaldis-1909-texas-bbq-legacy)
+[Original/Source Press Release](https://newsworthy.ai/news/202609222930/fredericksburg-high-students-raise-dollar21k-launching-six-startups-in-incubatoredu-debut)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-q-s-sloan-rinaldi-from-construction-to-global-bbq-media-empire/4c62762720f7597c35ae648bd0be5a4a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fredericksburg-students-launch-real-businesses-in-incubatoredu/0ef7aeb875affff09980dc8deae8eef5) 
 
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/fredericksburg-high-students-raise-21k-launching-six-startups-in-incubatoredu-debut)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/fredericksburg-high-students-launch-six-startups-raise-21k-in-incubatoredu-debut)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/estudiantes-de-fredericksburg-high-lanzan-seis-startups-y-recaudan-21k-en-su-debut-en-incubatoredu)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/fredericksburg-high-schools-incubatoredu-program-turns-students-into-entrepreneurs)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/22/openKiKx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/22/filoby7q.webp)
