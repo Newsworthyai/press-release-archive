@@ -1,35 +1,66 @@
-# Bessent's 'Counterfactual' Defense Draws Fire on DH Unplugged
+# Get Referrers Launches to Help Local Service Businesses Build Referral Networks
 
-Episode 819 of DH Unplugged, titled Counterfactualzzzz and released September 23, 2026, finds hosts Andrew Horowitz and John C. Dvorak dissecting Treasury Secretary Scott Bessent's now-viral 'counterfactual' defense of the government's bond-buying program. Recorded on Dvorak's birthday, the episode also tackles fresh NASDAQ 100 highs powered by a narrow band of names, SoftBank's junk-bond borrowing binge to fund AI commitments, and a Goldman Sachs note suggesting American consumers may simply be unhappy. It is a densely reported hour of markets, tech, and policy skepticism.
+Get Referrers, a new referral lead generation platform for local service businesses, has launched with a different approach to customer acquisition: instead of continually paying for ads, clicks and individual leads, the platform helps contractors build relationships with local professionals who can become ongoing sources of referrals.
 
- Listeners can expect a wide-ranging preview of the week's most consequential storylines, presented with the show's trademark irreverence. Highlighted threads include:
+ The concept addresses a basic challenge facing plumbers, HVAC companies, roofers and other local service businesses. Advertising generally requires businesses to keep spending to keep generating opportunities. When the advertising stops, the flow of new leads can stop with it.
 
- * Bessent's exchange with Rep. Jim Himes at the September 15 House Financial Services Committee hearing on the 10-year Treasury hitting 5%.
-* SoftBank and Masayoshi Son borrowing roughly $11 billion at junk-bond rates to fund ChatGPT-related investments.
-* Warren Buffett stepping down as Berkshire Hathaway chair, with Howard Buffett taking the seat and Greg Abel running operations.
-* Meta's Ray-Ban Luxottica smart glasses drawing a Paris prosecutor probe over covert filming.
+ A strong referral relationship can work differently.
 
- Horowitz, a registered investment advisor, zeroes in on the rhetorical sleight of hand behind Bessent's testimony. Quoting the Treasury Secretary's line that 'there's a counterfactual of what it would have done,' Horowitz warns listeners about accepting unfalsifiable claims from officials with a book to talk.
+ A realtor who trusts a plumber may recommend that company to multiple homeowners. A property manager may need HVAC, electrical, plumbing and maintenance services across multiple properties. An HOA may repeatedly need reliable contractors for its community.
 
- 'By him saying it, he created a non-provable element... it dilutes the reality of what's going on so that you don't know what's happening,' Horowitz tells Dvorak, who counters from a causal-analysis background that legitimate counterfactuals require a control group, historical analog, or synthetic comparison, not simply asserting victory.
+ Get Referrers was created to help local service businesses systematically develop those relationships instead of leaving referrals largely to chance.
 
- 
+ "Local service businesses have traditionally had two choices: spend money continuously to generate leads or hope referrals come their way," said Scott Gould, Founder of Get Referrers. "We created Get Referrers to give contractors a more systematic way to build relationships with the people in their communities who are already in a position to recommend local service providers."
 
- The conversation deepens with a technical primer on index construction, contrasting the market-cap-weighted S&P 500 with the equal-weighted RSP ETF and the price-weighted Dow Jones Industrial Average, where a single dollar move in Caterpillar translates to roughly seven Dow points. Horowitz revisits the hosts' long-running Generac (GNRC) seasonality trade, now transformed by data-center power demand, and names Seagate, Western Digital, and Micron among 2026's stealth outperformers. The pair also flag Greenland-linked equities Greenland Minerals (GRML) and Critical Metals (CRML) surging on Trump's expanded Danish security deal, and question Bentley's $300,000 electric SUV as a Porsche-style luxury-to-premium downgrade.
+ Turning Referrals Into a System Get Referrers identifies potential referral sources within a contractor's service area, including realtors, property managers, HOAs, apartment communities, insurance professionals, home inspectors, home warranty companies and commercial property managers.
 
- About DH Unplugged DH Unplugged is a weekly investing and markets podcast hosted by registered investment advisor Andrew Horowitz and veteran tech commentator John C. Dvorak. Blending Fed watching, earnings analysis, commodity trends, and offbeat cultural riffs, the show delivers roughly an hour of skeptical, conversational market intelligence. Now available on Apple Podcasts, Spotify, and Amazon Music, DH Unplugged rewards listeners who want signal over noise. Episode 819 is available now wherever podcasts are heard. 
+ The platform then builds and operates a customized outreach campaign designed to introduce the contractor to those potential referral partners.
+
+ The process includes:
+
+ * Identifying relevant referral sources within the contractor's service area
+* Building dedicated outreach infrastructure
+* Creating personalized email and contact-form outreach sequences
+* Allowing contractors to review and approve messaging before campaigns begin
+* Managing scheduled outreach and responses
+* Using AI to classify replies and identify potential referral opportunities
+* Bringing responses into a unified inbox for the contractor
+
+ Rather than selling shared consumer leads, Get Referrers focuses on connecting businesses with people and organizations that may have an ongoing reason to recommend local service providers.
+
+ One Relationship, Multiple Opportunities The distinction between advertising and referral relationships is central to the Get Referrers model.
+
+ A paid advertisement is designed to generate attention or a lead while the campaign is running. Maintaining that source of customer acquisition generally requires continued spending.
+
+ A referral relationship has the potential to produce opportunities beyond a single transaction. A realtor may work with dozens of buyers and sellers. A property manager may oversee multiple properties. An HOA or apartment community may require local service providers throughout the year.
+
+ For contractors, becoming a trusted resource for those professionals can create a source of future business that does not have to be purchased one lead at a time.
+
+ Get Referrers is designed to make the process of finding, contacting and developing those potential referral relationships more systematic and measurable.
+
+ Built for Local Service Businesses Get Referrers serves a broad range of home and commercial service categories, including plumbing, HVAC, roofing, electrical, landscaping, painting, pest control, flooring, moving, restoration, pool and spa services, general contracting and other trades.
+
+ Contractors select their trade, service areas, preferred types of work and referral audiences. Get Referrers then handles the infrastructure, sourcing and outreach while allowing the business to approve its messaging and manage resulting conversations through the platform.
+
+ The result is a customer acquisition strategy built around a simple idea: advertising typically requires continued spending, while a valuable referral relationship has the potential to create opportunities beyond the initial introduction.
+
+ About [Get Referrers](https://getreferrers.com/) Get Referrers is a referral lead generation platform for local service businesses. The company helps contractors identify and connect with realtors, HOAs, property managers, apartment communities, insurance professionals, home inspectors, home warranty companies, commercial property managers and other professionals who can become sources of referrals. Get Referrers combines referral-source identification, outreach infrastructure, personalized campaigns, response management and qualification in a single platform. Learn more at GetReferrers.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609232963/bessents-counterfactual-defense-draws-fire-on-dh-unplugged)
+[Original/Source Press Release](https://newsworthy.ai/news/202609232960/get-referrers-launches-to-help-local-service-businesses-build-referral-networks)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dh-unplugged-819-bessent-s-counterfactual-softbank-s-junk-bonds-market-highs/94c280229392af6eefe5e22fd56cd5ff) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/get-referrers-launches-referral-lead-generation-platform-for-contractors/a8565681e806a87d86e406ce646ae910) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/get-referrers-launches-to-help-local-service-businesses-build-referral-networks)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/get-referrers-launches-to-help-local-service-businesses-build-referral-networks)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/23/ella4AzK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/23/quit5pB6.webp)
