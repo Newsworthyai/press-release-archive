@@ -1,54 +1,68 @@
-# MissionIRNewsBreaks – Versus Systems Inc. (NASDAQ: VS) Appoints Brian Goldenberg as Chief Financial Officer
+# Why Gold Remains a Good Investment Despite Rising Interest Rates
 
-Versus Systems (NASDAQ: VS) announced the appointment of Brian Goldenberg, CPA, as Chief Financial Officer, effective Sept. 8, 2026. Goldenberg also serves as the company Principal Financial Officer and Principal Accounting Officer and brings more than 25 years of financial and operational leadership experience, including roles in financial planning and reporting, accounting, audits, regulatory compliance, SEC matters and investor relations.
+Under normal circumstances, the recent Fed rate hike would have caused a significant selloff in the gold market. This is because gold is non-yielding and higher interest rates make the opportunity cost of holding gold very high. However, gold barely moved when the Fed and the Bank of Japan both raised lending rates. Why is this happening?
 
- Goldenberg most recently served as Chief Operating Officer, Chief Compliance Officer and Chief Financial Officer of Divisadero Street Capital Management and previously served as Chief Financial Officer of Trend Capital Management.
+ As investors and central banks continue adding gold to their holdings, the long-term outlook of the market remains strongly bullish in a way that interest rate increases cannot easily reverse. In such an environment, firms like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) can expect to continue getting solid revenues from the gold they bring onto the…
 
- To view the full press release, visit https://ibn.fm/N45ZP
+ Read More>>
 
- About Versus Systems
+ About Rocks & Stocks
 
- Versus Systems (Nasdaq: VS) is a leading provider of gamification and audience engagement technology. Its platform enables brands, teams, and entertainment partners to create rewarding interactive experiences that transform how they connect with consumers worldwide.
+ Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
 
- For more information on Versus Systems and its engagement technologies, visit http://www.versussystems.com.
+ R&S is where breaking news, insightful content and actionable information converge.
 
- NOTE TO INVESTORS: The latest news and updates relating to VS are available in the company’s newsroom at https://ibn.fm/VS
+ To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About MissionIR
+ For more information, please visit https://RocksAndStocks.news
 
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
+ Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
 
- MIR is where breaking news, insightful content and actionable information converge.
+ Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
 
- For more information, please visit www.MissionIR.com
-
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
-
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
-
- MissionIR is powered by IBN 
+ Rocks & Stocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-versus-systems-inc-nasdaq-vs-appoints-brian-goldenberg-as-chief-financial-officer/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/why-gold-remains-a-good-investment-despite-rising-interest-rates/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/versus-systems-appoints-brian-goldenberg-as-cfo/c78933e11017619991778d815fc67696) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-holds-firm-despite-rate-hikes-what-it-means-for-investors/28653f206254e9aa36010bb440943985) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/missionirnewsbreaks-versus-systems-inc-nasdaq-vs-appoints-brian-goldenberg-as-chief-financial-officer)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/missionirnewsbreaks-versus-systems-inc-nasdaq-vs-appoints-brian-goldenberg-as-chief-financial-officer)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/golds-resilience-to-rising-rates-signals-durable-long-term-bullish-outlook)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/versus-systems-taps-brian-goldenberg-as-cfo-to-drive-financial-strategy)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/versus-systems-nombra-a-brian-goldenberg-como-cfo-para-impulsar-la-estrategia-financiera)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
 
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/versus-systems-appoints-seasoned-financial-executive-brian-goldenberg-as-cfo)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-resiliencia-del-oro-frente-al-aumento-de-las-tasas-senala-una-perspectiva-alcista-duradera-a-largo-plazo)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/gold-holds-steady-as-interest-rates-rise-signaling-strong-long-term-bullish-sentiment)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/23/yogayEwr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/23/chip2GEK.webp)
