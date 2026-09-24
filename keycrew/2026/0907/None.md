@@ -1,6 +1,6 @@
-# CHORD Real Estate Announces Third Annual Invest Panama Summit, January 14-17, 2027
+# CHORD Real Estate Announces Third Annual Invest Panama Summit, January 21-24, 2027
 
-NASHVILLE, Tennessee, August 31, 2026 – CHORD Real Estate has announced the third annual Invest Panama Summit, scheduled for January 14 through January 17, 2027, in Panama City, Panama. Registration is now open at chordrealestate.com/investpanamasummit.
+NASHVILLE, Tennessee, August 31, 2026 – CHORD Real Estate has announced the third annual Invest Panama Summit, scheduled for January 21 through January 24, 2027, in Panama City, Panama. Registration is now open at chordrealestate.com/investpanamasummit.
 
  The summit is a four-day guided experience that brings prospective buyers and investors directly to Panama’s real estate market. The second annual summit, held in May 2026, drew twelve participants from across North America. The third edition is expected to attract a larger group.
 
@@ -22,17 +22,15 @@ NASHVILLE, Tennessee, August 31, 2026 – CHORD Real Estate has announced the th
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/chord-real-estate-announces-third-annual-invest-panama-summit-january-14-17-2027/)
+[Original/Source Press Release](https://keycrew.co/journal/chord-real-estate-announces-third-annual-invest-panama-summit-january-21-24-2027/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/invest-panama-summit-2027-see-properties-in-person-with-chord-real-estate/651c3d9bb1510f98cdde5fe721e80efd) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/07/chord-real-estate-to-host-third-annual-invest-panama-summit-in-january-2027/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chord-real-estate-opens-registration-for-2027-invest-panama-summit/48396a4b8f5f55197cdaaf0ca3399a59) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/269/7/iconl75k.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/269/24/noonu32S.webp)
