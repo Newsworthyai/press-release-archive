@@ -1,70 +1,54 @@
-# Eric Litvin Targets Calibration as 800G Optical Moat
+# Service Glow Ships GlowIQ to Replace Incomplete Lead Proxies
 
-Eric Litvin Says Calibration Quality, Not Raw Speed, Defines 800G Optical Interconnect Value
+Service Glow Targets Measurement Gaps with GlowIQ Home Services Marketing Attribution Platform
 
- Sebastopol, United States - September 24, 2026 / Luma Optics /
+ Las Vegas, United States - September 24, 2026 / Service Glow /
 
- As AI compute clusters move from 100G and 400G links to 800G, Eric Litvin, Co-Founder and President of Luma Optics, argues that the decisive variable in optical interconnect is no longer raw speed. It is calibration quality and diagnostics.
+ Service Glow has launched GlowIQ™ Marketing Intelligence, a first-party attribution platform built specifically for HVAC, plumbing, electrical, and home service companies. The platform connects website behavior, phone calls, form submissions, chat interactions, CRM records, and advertising data into a single attribution model that traces each lead from initial contact through closed revenue.
 
-Luma Optics, the Sebastopol, California-based optical transceiver company Litvin co-founded in 2004, designs 100G, 400G, and 800G transceivers, including an 800G line engineered for NVIDIA GB200 AI fabric. Under Litvin, the company has invested in a patent-pending robotic calibration platform and ML-driven diagnostics that tune transceivers to the specific thermal and electrical conditions of a customer's fabric.
+Closing the Gap Between Ad Spend and Closed RevenueHome service companies have historically faced a fragmented picture of their marketing performance. Calls arrive from multiple sources, jobs are tracked inside field service software, and advertising data lives across separate platforms - leaving operators without a clear view of which marketing investments are generating actual revenue. GlowIQ™ addresses this directly by unifying those data streams under a single first-party attribution layer.
 
-Calibration as Competitive Differentiator
+Marketing attribution for home service companies has long depended on incomplete proxies such as call counts or form submissions. GlowIQ™ moves beyond those metrics by connecting touchpoints across the full sales pipeline - from the first ad click or organic visit to a qualified lead, an open opportunity, and ultimately a won job with a dollar value attached.
 
-At 800G link rates, small variations in laser bias, temperature sensitivity, or electrical interface alignment can produce link instability that propagates across an AI cluster fabric. Robotic calibration applies repeatable, machine-controlled tuning so that each transceiver matches the environment where it will actually run, rather than a uniform factory default.
+The platform is designed to work alongside existing business infrastructure. It ingests data from advertising platforms, website analytics, call tracking systems, chat tools, and CRM or field service software, then maps that data to a consistent attribution model. The result is a unified view of which channels, campaigns, and keywords are producing measurable returns - not just clicks or inquiries.
 
-Luma Optics reports a field failure rate under 0.01% and approximately 30% lower power per unit. Litvin's position is that reliability-per-watt and calibration quality compound across product generations, which is why the company has prioritized them.
+First-Party Data at the CoreGlowIQ™ is built on a first-party data architecture, meaning attribution data is collected directly through the home service company's own digital properties and business systems rather than relying primarily on third-party aggregators. As browser-level tracking restrictions and privacy changes continue to affect digital advertising measurement, first-party data collection has become a more dependable foundation for marketing analytics.
 
-The ML diagnostics layer is designed to flag deviation patterns in transceiver behavior before they surface as failures at the network layer, shifting maintenance from reactive replacement toward earlier intervention. In AI training environments, a single failed link can stall a multi-node job.
+HVAC marketing attribution presents particular challenges because purchase cycles involve multiple contacts - a homeowner may call once for a quote, receive a follow-up, and convert weeks later. GlowIQ™ is structured to track that full journey, associating revenue with the original source even when the path to conversion spans multiple interactions and channels.
 
-The Failure-Cost Argument
+"Home service companies are spending real money on marketing every month, but most of them have no reliable way to connect that spend to actual revenue," said Dan DiCecca, Co-Founder & CTO of Service Glow. "GlowIQ™ gives home service companies a much clearer view of attribution across the full customer journey - built around how these businesses actually operate, from the first call to the closed job."
 
-Litvin frames the procurement question for AI cluster buyers in direct terms: stop pricing the transceiver and start pricing the failure. The purchase price of a transceiver is small next to the cost of downtime, retraining cycles, and replacement logistics when a link fails inside a dense AI fabric.
+Built for the Operational Reality of Home ServicesThe platform's design reflects the operational structure common to HVAC, plumbing, and electrical businesses, where revenue is confirmed inside a CRM or scheduling system rather than through an e-commerce transaction. Standard web analytics alone generally do not provide the identity resolution and revenue reconciliation needed to connect offline business outcomes back to the full marketing journey. GlowIQ™ is structured to bridge that gap natively.
 
-The argument reflects a structural shift in how optical interconnect is evaluated. At higher link rates, each connection carries more of the cluster's traffic, so the operational cost of a field failure rises with every generation. Eric Litvin Luma Optics investment in calibration and diagnostics is positioned as a response to that changed risk equation.
+Home services marketing attribution through GlowIQ™ covers the full funnel: awareness-stage touchpoints, lead capture events across website forms, call tracking, and chat, pipeline stages within the CRM, and won revenue tied back to the originating source. Operators can evaluate performance at the channel level, the campaign level, or down to individual keywords and ad placements.
 
-Why Speed Alone Is Not the Moat
+The launch positions GlowIQ™ as a dedicated solution for the segment of the market where marketing budgets are meaningful but measurement infrastructure has lagged behind. The platform is available to HVAC, plumbing, electrical, and broader home service companies through Service Glow.
 
-Litvin's view is that vendors relying on generic calibration will be outrun by vendors who can tune transceivers to the specific thermal and electrical fingerprint of a customer's fabric. Throughput specifications remain necessary, but in his assessment they are insufficient as the primary purchasing criterion for AI infrastructure.
+About Service GlowService Glow is a digital marketing and marketing intelligence company built for home service businesses, including HVAC, plumbing, and electrical contractors. The company combines website development, AI-powered SEO and AEO, local search, paid advertising, conversion optimization, automation, and first-party attribution through its GlowIQ™ Marketing Intelligence platform.
 
-Eric Litvin optical transceiver reliability strategy rests on that premise: as link rates climb, calibration quality and diagnostic intelligence become the basis of differentiation.
+Learn more about GlowIQ™ Marketing Intelligence from Service Glow
 
-About Eric Litvin
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/EKD8IU2roToihFce4DtjTwly2WRs245cO3bkp4xo.png) [](https://serviceglow.com) Contact Information:
 
-Eric Litvin is Co-Founder & President of Luma Optics, based in Sebastopol, California. He has spent more than 20 years building optical networking products for hyperscale data centers and AI compute clusters. More information is available at https://ericlitvin.ai/eric-litvin/.
-
-References: AI Optical Interconnect - Eric Litvin
-
-Learn more at Eric Litvin
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/qe5njP0Vz2uwaQ87Wapk5RNHgihfBLLHTSXdRwEo.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/NMhQX4S0dnFuYqDzcgJfpazSHKYG0vq4AttBpR0Q.jpg) [](https://ericlitvin.ai) Contact Information:
-
- Luma Optics
+ Service Glow
 
  
 
-105 Morris St, Suite 160  Sebastopol, California 95472United States
+732 S 6th Street, Suite 8158  Las Vegas, NV 89101United States
 
- Eric Litvin (866) 435-6730 https://ericlitvin.ai 
+ Service Glow +1-888-218-4569 https://serviceglow.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/eric-litvin-targets-calibration-as-800g-optical-moat-449572)
+[Original/Source Press Release](https://mediawiretoday.com/service-glow-ships-glowiq-to-replace-incomplete-lead-proxies-449681)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/eric-litvin-calibration-quality-defines-800g-optical-value/c4f696832b1d4759870a7245f41d16eb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/service-glow-launches-glowiqtm-attribution-platform-for-home-services/e0ee1ab1176e53358a726b4e7e43d1cd) 
 
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/eric-litvin-says-calibration-quality-defines-800g-optical-interconnect-value-for-ai-clusters)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/eric-litvin-afirma-que-la-calidad-de-calibracion-define-el-valor-de-la-interconexion-optica-de-800g-para-los-clusteres-de-ia)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/eric-litvin-redefines-800g-optical-interconnect-value-through-calibration-quality)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/calibration-quality-over-raw-speed-eric-litvin-redefines-800g-optical-interconnect-value)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/24/oval8e15.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/24/poem__HB.webp)

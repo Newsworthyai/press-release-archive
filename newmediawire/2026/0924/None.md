@@ -1,41 +1,29 @@
-# VERAXA Biotech (VRXA) Advances Oncology Pipeline as Xlife Sciences Reports First-Half Progress
+# hep global Successfully Develops Its Largest Solar Project to Date in Germany, With a Capacity of 35.7 MWp
 
-LOS ANGELES, CA - September 24, 2026 (NEWMEDIAWIRE) - VERAXA Biotech (NASDAQ: VRXA) is shifting its focus to advancing its oncology pipeline and implementing industrial partnerships for its technology platforms and products following the completion of its business combination and commencement of Nasdaq trading in June 2026. Xlife Sciences AG said VERAXA secured a financing base to support its next development steps and remains an important part of its portfolio strategy.
+GUGLINGEN, GERMANY - September 24, 2026 (NEWMEDIAWIRE) - The hep global Group (hep global), a specialist in the development of solar projects, has successfully completed the project development phase for its largest solar project to date in Germany. The 35.7 MWp “Buckelacker” solar park in Eppingen, near the company’s headquarters in Guglingen, is moving into the construction phase.
 
- ![](http://newmediawire.s3.amazonaws.com/6ab5729fda846f543cccc4a9_1)
+ Spanning an area of approximately 30 hectares, the “Buckelacker” solar park will be able to generate about 38 million kilowatt-hours of solar power per year. This means the solar park will, in theory, supply the annual energy needs of approximately 10,800 households with renewable energy. The electricity generated will be fed into the regional power grid via the newly constructed substation at Hohenstein. An integrated green energy storage system with a capacity of 20.3 MWh and an output of 10 MW expands the technical applications. It also increases the economic benefits of the electricity generated. The storage system temporarily stores solar power and feeds it into the grid during periods of higher electricity prices.
 
- Xlife Sciences also reported operational and scientific progress across its portfolio during the first half of 2026, including developments at x-kidney diagnostics, saniva diagnostics, Axenoll, FUSE-AI and inflamed pharma. The portfolio comprises 416 patents and patent applications, including 216 granted intellectual property rights. For the second half of 2026, Xlife Sciences said it will continue supporting VERAXA in establishing industry partnerships while pursuing commercialization and further development across its portfolio.
+ With the “Buckelacker” solar park, hep global is bringing its internationally gained experience to its home region. “This project is something special for us. It combines the development of a local solar project with the experience we have gained in various markets around the world,” says Benjamin Brasch, Manager of Project Development for South-West Germany at hep global. “The fact that we have developed our largest German solar project to date in the immediate vicinity of our headquarters also underscores our long-term commitment to the region.”
 
- To view the full report, visit https://ibn.fm/LwLwP
+ With the successful completion of the project development, hep global has reached an important milestone. Construction work, which is now beginning, will be coordinated by ZaberSolar GmbH. The company expects to complete construction in the first half of 2027.About the hep global GroupThe hep global Group is an internationally active specialist in the development of solar projects and battery energy storage systems (BESS). For more than 15 years, the owner-managed company from Baden-Württemberg has been developing and planning renewable energy projects, mainly in Europe, Japan and North America. Its strategic focus is on greenfield developments and the integration of BESS. The hep global Group employs around 120 people worldwide with subsidiaries in Germany, Italy, Poland, the USA, Canada and Japan.Press contact:Evelyn KilincRömerstraBe 3D-74363 GüglingenE-Mail: presse@hep.globalwww.hepsolar.com
 
- About Xlife Sciences AG
+ 
 
- Xlife Sciences is a Swiss company focused as incubator and accelerator on the value development and commercialization of promising research projects from universities and other research institutions in the life sciences sector, with the aim of providing solutions for high unmet medical needs and a better quality of life. The goal is to bridge research and development to healthcare markets. Xlife Sciences takes carefully selected projects in the four areas of technological platforms, biotechnology/ therapies, medical technology, and artificial intelligence/digital health to the next stage of development and participates in their subsequent performance.
+ 
 
- For more information, visit www.xlifesciences.ch
+ 
 
- About VERAXA Biotech AG (NASDAQ: VRXA)
-
- At VERAXA, we are building a premier engine for the discovery and development of next-generation antibody-based therapeutics, including bispecific T cell engagers, bispecific ADCs and other innovative formats. Powered by a suite of transformative technologies and guided by rigorous quality-by-design principles, we are rapidly advancing our pipeline of ADCs and proprietary BiTAC formats into clinical development and beyond. VERAXA was founded on scientific breakthroughs made at the European Molecular Biology Laboratory (EMBL), a world-renowned institution known for pioneering life science research and cutting-edge technology.
-
- BiTAC(R) is a registered trademark of VERAXA Biotech GmbH.
-
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
-
- The latest news and updates relating to VRXA are available in the company’s newsroom at https://ibn.fm/VRXA
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/veraxa-biotech-vrxa-advances-oncology-pipeline-as-xlife-sciences-reports-first-half-progress-7090023)
+[Original/Source Press Release](https://www.newmediawire.com/news/hep-global-successfully-develops-its-largest-solar-project-to-date-in-germany-with-a-capacity-of-35-7-mwp-7090028)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/veraxa-biotech-shifts-focus-to-oncology-pipeline-and-industrial-partnerships/4d532f2c667a910e71d8a9a6ffc86ec7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hep-global-completes-development-of-largest-german-solar-park/d493991050085382b22b3bd6035d9430) 
 
  
 
@@ -43,4 +31,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/24/join9lVJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/24/ferniukH.webp)
