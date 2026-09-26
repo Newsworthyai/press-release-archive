@@ -1,41 +1,45 @@
-# BeeHive Homes of Rowlett Recognized by Living Magazine for Assisted Living
+# Bixby Orthodontist Offers Braces for Kids, Teens and Adults
 
-Living Magazine Readers Pick BeeHive Homes of Rowlett as Best Assisted Living Community
+True Smile Orthodontics Explains Braces Options and Free Consults at Bixby, OK Office
 
- Rowlett, United States - September 26, 2026 / BeeHive Homes of Rowlett /
+ Tulsa, United States - September 26, 2026 / True Smile Orthodontics /
 
- ROWLETT, Texas - BeeHive Homes of Rowlett has received the Best Assisted Living Community designation in Living Magazine's Best of Rockwall and Rowlett Readers' Choice Awards. Because the award is determined by local readers, the recognition reflects the confidence and support of the families, neighbors, and organizations the community serves.
+ True Smile Orthodontics, led by Dr. Christopher Trockel and Dr. Martin Trockel, treats children, teenagers and adults at its Bixby, Oklahoma office at 15000 S. Hudson Ave, Bixby, OK 74008, as well as at its Tulsa office. Here is an overview of the braces options the practice offers and what patients can expect from a complimentary consultation.
 
-"This award means a great deal to us because it comes from the people we serve," said a representative of BeeHive Homes of Rowlett. "Families trust us during an important chapter of their loved one's life. Our goal is to create a place where residents feel known, supported, and at home, and where families feel confident their loved one is receiving compassionate, personal care."
+Braces Options for Kids, Teens, and Adults in BixbyTrue Smile Orthodontics offers a range of orthodontic treatments designed to address different age groups and clinical needs. For younger children, early evaluation allows the doctors to identify developing alignment concerns before they become more complex to treat. For teenagers, the practice provides braces for teens in Bixby, OK as a structured treatment path that accounts for the ongoing development of permanent teeth and jaw growth patterns specific to adolescent patients.
 
-Situated at 8315 Chiesa Road, BeeHive Homes of Rowlett operates as a smaller, residential-style senior living community structured around personalized support, attentive care, and meaningful daily engagement. The community offers both assisted living and specialized memory care services designed to help older adults maintain comfort, dignity, and social connection.
+Adult patients seeking braces in Bixby, OK are also seen at the practice, with treatment plans tailored to fully developed bone structure and any restorative dental considerations that may be present. In addition to traditional braces, True Smile Orthodontics provides Invisalign clear aligners and retainers, giving patients multiple options depending on their clinical situation and personal preferences.
 
-The Readers' Choice recognition reflects the principles that define BeeHive's approach to assisted living in Rowlett: individualized attention, relationship-based care, active family involvement, and a residential atmosphere that differs from larger institutional settings. The community's smaller scale allows staff to deliver consistent, personalized support, while the home-like environment creates more opportunities for genuine connection among residents and caregivers.
+What the Complimentary Consultation IncludesThe complimentary consultation at True Smile Orthodontics is structured to give prospective patients a thorough clinical picture before any treatment decision is made. During the visit, the doctors conduct a full orthodontic assessment that includes an iTero digital scan and X-rays where clinically indicated. The iTero scan creates a precise 3D image of the teeth and bite, which the doctors use to discuss potential treatment approaches with the patient or their family.
 
-BeeHive Homes of Rowlett serves seniors and their families throughout Rowlett and surrounding communities, including Garland, Mesquite, Rockwall, Sachse, Sunnyvale, Wylie, Heath, Royse City, Fate, and Lavon. In addition to daily care, the community participates in local conversations around aging, memory care, and caregiver support, working to help seniors maintain ties to the people and experiences that matter to them.
+The consultation does not obligate patients to begin treatment. Instead, it is designed to present options, explain estimated timelines, and answer questions about the process. Patients considering an orthodontist in Bixby, OK can use the appointment to compare approaches, understand what ongoing visits will involve, and assess whether the practice is the right fit for their needs.
 
-Families evaluating senior living options typically seek a combination of professional care, safety, engagement, and a genuine sense of belonging. BeeHive Homes of Rowlett addresses those priorities through 24-hour support, individualized care plans, private accommodations, structured activities, and a close-knit community environment.
+What to Expect During Treatment VisitsOnce treatment begins, patients at True Smile Orthodontics attend periodic adjustment appointments at the Bixby or Tulsa location, depending on which is more convenient. Adjustment visits for traditional braces involve checking wire tension, replacing elastics, and monitoring tooth movement progress. For Invisalign patients, visits focus on reviewing aligner progression and addressing any fit concerns.
 
-For more information about BeeHive Homes of Rowlett, to inquire about current availability, or to arrange a personal tour, call (469) 562-8611 or visit beehiverowlett.com.
+Dr. Christopher Trockel and Dr. Martin Trockel oversee treatment at both locations. The Bixby office is located at 15000 S. Hudson Ave and can be reached by phone at (918) 872-1188. Patients in the greater Tulsa area can also be seen at the Tulsa office.
 
-About BeeHive Homes of RowlettBeeHive Homes of Rowlett is a senior living community providing personalized assisted living and memory care in a residential, home-like setting. The community is dedicated to helping residents experience comfort, dignity, engagement, and compassionate support while giving families greater peace of mind. BeeHive Homes of Rowlett is located at 8315 Chiesa Road, Rowlett, Texas 75089.
+Retainers are provided following the completion of active treatment to maintain the corrected tooth positions. The doctors discuss retainer wear expectations with patients before treatment concludes, so that post-treatment care is understood as part of the overall plan from the outset.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/6zPKHItfIxB4p9kUZm0zCAnHZthGtqiZdkxjloSB.png) [](https://beehiverowlett.com) Contact Information:
+About True Smile OrthodonticsTrue Smile Orthodontics is an orthodontic practice operated by Dr. Christopher Trockel and Dr. Martin Trockel, with offices in Bixby and Tulsa, Oklahoma. The practice provides braces for children, teens, and adults, as well as Invisalign and retainers. Complimentary consultations are available at the Bixby office located at 15000 S. Hudson Ave, Bixby, OK 74008, and by phone at (918) 872-1188.
 
- BeeHive Homes of Rowlett
+Learn more at True Smile Orthodontics
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zPKBIFR7vPkUsqHUy6tAmKyN84659k9je3lSW3Uz.jpg) [](https://truesmileortho.com) Contact Information:
+
+ True Smile Orthodontics
 
  
 
-8315 Chiesa Rd 75089  Rowlett, Texas 75089United States
+6632 S Memorial Dr  Tulsa, OK 74133United States
 
- Sailu Ganga +1-469-649-1177 https://beehiverowlett.com 
+ Eliana Fox 15126687740 https://truesmileortho.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/beehive-homes-of-rowlett-recognized-by-living-magazine-for-assisted-living-450065)
+[Original/Source Press Release](https://mediawiretoday.com/bixby-orthodontist-offers-braces-for-kids-teens-and-adults-450108)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beehive-homes-of-rowlett-wins-best-assisted-living-award/56d9b6142035cb0c5359310be4854961) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/true-smile-orthodontics-offers-braces-free-consults-in-bixby-ok/1f29ca15ca144cea6a25e481484a5d8b) 
 
  
 
@@ -43,4 +47,4 @@ About BeeHive Homes of RowlettBeeHive Homes of Rowlett is a senior living commun
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/26/tilesUCd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/26/yarn_IQz.webp)
