@@ -1,38 +1,62 @@
-# InvestorNewsBreaks – Market Street Capital Inc. Helps Family-Owned Businesses Prepare for the Next Generation
+# New Promising Shortcut Could Supercharge Quantum Computing Speed
 
-As millions of family-owned businesses approach ownership transitions over the next decade, Market Street Capital is positioning its strategic advisory and investment banking capabilities to help middle-market industrial companies prepare for succession, potential sales and other decisions. A recent article discussing the company emphasizes that many owners lack formal succession plans or professional valuations, while family businesses often face significant challenges transferring ownership successfully across generations. Against an active industrial M&A market, preparation—including quality-of-earnings analysis, stronger management depth, documented institutional knowledge and clearer succession planning—can help owners enter a transaction from a position of greater readiness. Market Street Capital advises founder-led and family-owned businesses on these issues well before a transaction, combining strategic planning and advisory services with M&A, valuation and capital-structure expertise.
+While quantum computers hold the potential to solve complex problems beyond the reach of classical machines, achieving reliable, error-free operation remains a significant difficulty. Now, a theoretical study from researchers at Sweden-based Chalmers University of Technology suggests a new method that has the potential to drastically shorten the time required for specific quantum tasks.
 
- To view the full article, visit https://ibn.fm/20zY9
+ Quantum computing hardware and software developers like D-Wave Quantum Inc. (NYSE: QBTS) are constantly seeking…
 
- About Market Street Capital Inc.
+ Read More>>
 
- Market Street is a boutique capital company with a rich history of creating value for its clients. The firm offers a powerful combination of strategic advisory, capital raising and public domain expertise. For more information about Market Street, visit https://www.marketstreetcp.com.
+ About TechMediaWire
 
- NOTE TO INVESTORS: The latest news and updates relating to Market Street are available in the company’s newsroom at https://ibn.fm/MarketSt
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- About InvestorWire
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ For more information, please visit https://www.TechMediaWire.com
 
- For more information, please visit https://www.InvestorWire.com
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-market-street-capital-inc-helps-family-owned-businesses-prepare-for-the-next-generation/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/new-promising-shortcut-could-supercharge-quantum-computing-speed/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/market-street-capital-helps-family-businesses-prepare-for-ownership-transitions/3d890897a68e1545ea35188756fd7c14) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-computing-bottleneck-broken-new-study-promises-1000x-speedup/f54e8d21888827f68d18eaec991e6605) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/new-promising-shortcut-could-supercharge-quantum-computing-speed)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/25/taro_5Af.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/25/evenBIBy.webp)
