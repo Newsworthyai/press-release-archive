@@ -1,48 +1,50 @@
-# Skin in The Ranch Offers Lymphatic Drainage Alongside Custom Facials
+# Esthetics Center Serves Three California Locations This Fall
 
-Skin in The Ranch Expands Luxury Skincare Services With Lymphatic Drainage Treatments
+Esthetics Center Reaches Sacramento, Rocklin, and El Dorado Hills Ahead of Holiday Season
 
- Rancho Santa Fe, United States - September 27, 2026 / Skin In The Ranch /
+ EL DORADO HILLS, United States - September 27, 2026 / Esthetics Center /
 
- Skin in The Ranch, located in Rancho Santa Fe, offers a focused selection of custom facials and skincare treatments delivered by master esthetician Kristi Martone. The practice centers on individualized assessment and treatment planning, with each session shaped around a client's specific skin type, concerns, and goals.
+ SACRAMENTO, Calif. - With November and December events approaching, Esthetics Center is encouraging patients across Sacramento, Rocklin, and El Dorado Hills to schedule a consultation early this fall, whether they are considering facial plastic surgery or a non-surgical treatment.
 
-Kristi Martone brings extensive professional experience in esthetics to her work at the Rancho Santa Fe spa. Her approach begins with a detailed consultation before each appointment, allowing her to evaluate the client's skin condition and determine which techniques and products are most appropriate. That process informs every step of the treatment that follows.
+Dr. Reginald Rice, double board-certified in facial plastic and reconstructive surgery and otolaryngology (head and neck surgery), leads the practice alongside cosmetic nurse injectors, physician assistants, and aesthetic nurse practitioners. Dr. Rice has treated more than 12,000 patients across more than 25 years of practice and is a Fellow of the American Academy of Cosmetic Surgery.
 
-The custom facials at Skin in The Ranch are designed to address a range of skin concerns, including hydration, anti-aging, acne, and sensitivity. Treatments incorporate products from Biologique Recherche and Valmont, two skincare lines selected for their formulation standards and clinical track records. Biologique Recherche, a French brand known for its concentrated active ingredients and protocol-based approach, allows Martone to build targeted treatments for each client. Valmont, rooted in Swiss skincare research, contributes advanced formulations aimed at improving skin vitality and tone.
+Why Timing Matters Before the HolidaysFacial plastic surgery involves recovery time that varies by procedure and by patient, making an earlier fall start date practical for anyone with a specific event or trip on the calendar. Non-surgical treatments, including injectables and skin rejuvenation procedures, also develop results gradually and may require more than one visit to reach the intended outcome.
 
-The use of both Biologique Recherche and Valmont within the same practice gives Martone flexibility in constructing treatment plans that draw on the distinct strengths of each line. Clients receiving luxury skincare services at the spa have access to both brands as part of their custom facial experience, depending on what their skin assessment indicates.
+A Personalized, Medically Supervised PlanEsthetics Center builds each plan around an individual patient's goals and concerns within a medically supervised setting overseen by Dr. Rice. The practice's approach favors natural-looking improvements over dramatic change, and every recommendation accounts for the patient's own timeline and priorities.
 
-Skin in The Ranch also provides lymphatic drainage services. The technique supports detoxification and circulation, and Martone incorporates it as a complement to other treatments when appropriate. The service is intended to contribute to both visible skin improvement and a sense of physical relaxation.
+A Founder's Perspective"Every fall, patients ask us how soon they need to start to be ready for the holidays," said Dr. Reginald Rice, founder of Esthetics Center. "The honest answer is that it depends on what they're considering, which is exactly why we'd rather have that conversation in September than in November."
 
-The spa is situated in the Rancho Santa Fe area and is designed to provide a calm, focused environment for clients. The physical space is arranged to support the treatment experience, with attention given to atmosphere and comfort throughout each visit.
+About Esthetics CenterEsthetics Center is a medical aesthetics practice offering facial plastic surgery, injectable treatments, skin rejuvenation, and professional skincare, with locations in Sacramento, Rocklin, and El Dorado Hills, California.
 
-Appointments at Skin in The Ranch are structured around one-on-one service. Martone works directly with each client, whether they are scheduling a single treatment or establishing an ongoing skincare routine. The practice does not operate on a high-volume model; the emphasis is on the quality and specificity of each individual session.
+The practice is led by Dr. Reginald Rice, double board-certified in facial plastic and reconstructive surgery and otolaryngology (head and neck surgery), a Fellow of the American Academy of Cosmetic Surgery with more than 25 years of experience and over 12,000 patients treated. The clinical team also includes cosmetic nurse injectors, physician assistants, and aesthetic nurse practitioners, providing care in a medically supervised setting.
 
-Skin in The Ranch continues to draw clients seeking custom facials and professional skincare guidance in the Rancho Santa Fe area. Martone's background in esthetics, combined with the use of established professional skincare lines, defines the character of the services offered at the spa.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ikgK0RxBWZOxnGp9kBF8mBfV7fRNQOMT8o0bXGNg.jpg) [](https://www.estheticscenter.com) Contact Information:
 
-Learn more
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ZedSWQsgpHwOnZmgRpVhVHyoXZdBnX0iZROJOeg1.jpg) [](https://skinintheranch.com) Contact Information:
-
- Skin In The Ranch
+ Esthetics Center
 
  
 
-16912 Via De Santa Fe  Rancho Santa Fe, CA CA 92091United States
+2211 FRANCISCO DR  EL DORADO HILLS, California 95762United States
 
- Kristi Martone 1-858-771-1380 https://skinintheranch.com 
+ Kelly Longhofer +1-916-269-9779 https://www.estheticscenter.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/skin-in-the-ranch-offers-lymphatic-drainage-alongside-custom-facials-450174)
+[Original/Source Press Release](https://mediawiretoday.com/esthetics-center-serves-three-california-locations-this-fall-450275)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/skin-in-the-ranch-adds-lymphatic-drainage-to-luxury-skincare-menu/8112ca04a743e51c8fac7f45805877ec) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esthetics-center-book-holiday-beauty-treatments-early/474cdf322083ce31588d37c4882e24b1) 
 
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/california-aesthetics-practice-urges-early-fall-booking-for-holiday-procedures)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/practica-de-estetica-de-california-insta-a-reservar-con-antelacion-en-otono-para-procedimientos-navidenos)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/esthetics-center-in-sacramento-rocklin-and-el-dorado-hills-urges-early-fall-consultations-for-holiday-procedures)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/27/jazzYNXk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/27/neonstUW.webp)
