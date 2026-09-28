@@ -1,64 +1,102 @@
-# Edgewater Wireless Details PrismIQ Customer Demonstration Program With OVIN and Fidus Support
+# AI &amp; Tech Companies Present Live and Take Investor Meetings at the October 1 Virtual Investor Conference
 
-OTTAWA, ON and SUNNYVALE, CA - September 28, 2026 (NEWMEDIAWIRE) - Edgewater Wireless Systems Inc. (TSXV: YFI) (OTC: KPIFF), a developer of Wi-Fi Spectrum Slicing™ silicon solutions and intellectual property, today detailed the scope of its PrismIQ™ development and customer demonstration program, including planned engineering support from Fidus Systems and the previously announced Ontario Vehicle Innovation Network (OVIN) Semiconductor Voucher Program.
+Live Presentations and Q&A Across Semiconductors, Data Centers, Battery Materials, AI-Driven Fintech, Retail Technology and Online Marketplaces
 
- ![](http://newmediawire.s3.amazonaws.com/6ab9ca06da846f543cccc4bb_1)
+ Investors Can Request One-on-One Meetings With Presenting Management Teams
 
- Specialized engineering resources build on Silicon Catalyst Angels backing as Edgewater prepares its next-generation platform for customer evaluation.
+ NEW YORK, NY - September 28, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. invites investors to the AI & Tech Virtual Investor Conference, a B2i Digital Featured Conference, taking place online on Thursday, October 1, 2026, and hosted by Virtual Investor Conferences. As the Official Marketing Partner, B2i Digital highlights the conference and the presenting companies to a media network with a monthly audience of 330 million and a community of 1.7 million investors.
 
- Edgewater’s patented Spectrum Slicing™ architecture enables multiple concurrent channels within a single Wi-Fi band to increase usable capacity and improve latency and reliability in congested environments. Building on its proven silicon and prior testing with a Tier 1 Service Provider, Edgewater is developing its next-generation PrismIQ™ product family to address the emerging Wi-Fi 8 requirements. A common core architecture supports opportunities across residential, enterprise, industrial and selected mission-critical applications.
+ ![](http://newmediawire.s3.amazonaws.com/6aba796fda846f543cccc4bc_1)
 
- Following the recent direct investment by Silicon Catalyst Angels, OVIN support and Fidus engineering resources add practical support to Edgewater’s commercialization roadmap. The FPGA-based platform will provide a programmable hardware environment for validating selected PrismIQ functions and preparing for customer evaluation ahead of production silicon.
+ Event details and presenting company profiles: https://b2idigital.com/otc-market-oct-1st-ai-and-tech-virtual-investor-conference.
 
- Fidus will augment Edgewater’s engineering program with specialized FPGA implementation and system-validation expertise. The planned work includes:
+ Register at https://www.virtualinvestorconferences.com/wcc/eh/4814904/category/150634/october-1-ai-tech-virtual-investor-conference.
 
- - Implementing and validating selected next-generation PrismIQ functions in programmable hardware;
+ Request a meeting with management at https://app.axleaccess.com/public/events/8f859f16-4064-4e8c-9bac-a8c73063cd37?token=aac5b3cd-90f3-40d6-ae55-ee8f8f2ae37f.
 
- - Integrating Edgewater’s Spectrum Slicing multi-channel software and driver environment; and
+ Any registered investor can request a virtual meeting with the management team of a presenting company through the meeting link above.
 
- - Enabling over-the-air testing and technical demonstrations for customers and strategic partners.
+ Infineon Technologies AG makes semiconductors for power systems and the Internet of Things (IoT), with products aimed at decarbonization and digitalization.
 
- The platform is intended to help prospective customers assess capabilities and integration requirements, supporting potential product design-in and IP licensing decisions. Testing key functionality before production silicon also allows Edgewater to identify and address engineering issues earlier in development.
+ Carrier Connect Data Solutions Inc. is rolling up Tier II and Tier III data centers that provide co-location and data center services to AI companies, service providers, enterprises and small businesses, with current markets in Vancouver, Ottawa and Perth.
 
- “Our focus is on giving customers a practical way to evaluate the next generation of Spectrum Slicing and advance integration discussions,” said Andrew Skafel, President and CEO of Edgewater Wireless. “OVIN and Fidus help us build on our existing technology, validate key PrismIQ capabilities and offset eligible development costs with this non-dilutive program. Alongside the backing of Silicon Catalyst Angels, this strengthens our ability to move customer engagement toward commercial opportunities.”
+ Blockmate Ventures Inc. is a venture builder that builds and supports early-stage businesses in AI, energy and digital infrastructure.
 
- As disclosed on August 28, 2026, Edgewater was approved for a voucher of up to C$20,000 for eligible technical services related to its FPGA-based prototype program, subject to completion and acceptance of defined project milestones. The voucher offsets eligible costs within Edgewater’s broader development program.
+ First Phosphate Corp. is building a vertically integrated, mine-to-market supply chain for lithium iron phosphate (LFP) batteries in North America, serving energy storage, data centers, robotics, mobility and national security.
 
- The FPGA work supports Edgewater’s previously disclosed objective of an initial product release in the first half of 2027. Planned milestones include hardware and software integration, over-the-air validation and customer demonstrations. Edgewater expects to provide updates as these milestones are achieved.
+ Perpetuals.com Ltd. is a fintech company that pairs proprietary AI with regulated market infrastructure, offering a consumer trading and market prediction platform and white label trading services for partners.
 
- The OVIN Semiconductor Voucher Program is delivered through the Ottawa Regional Technology Development Site by the Kanata North Business Association in collaboration with Invest Ottawa and Area X.O. OVIN is an initiative of the Government of Ontario led by the Ontario Centre of Innovation.
+ INEO Tech Corp., headquartered in Surrey, British Columbia, builds connected entrance systems for retailers that combine electronic article surveillance, digital display screens, edge processing and cloud software for loss prevention, retail media and analytics.
 
- About Fidus Systems
+ Articore Group Ltd., founded as Redbubble in 2006, owns and operates the online marketplaces Redbubble, TeePublic and Frankly Wearing and the creator storefront platform Dashery.
 
- Fidus Systems is a custom embedded systems design and services company with design centres in Canada and the United States. Fidus covers the full development cycle under one roof: system architecture, FPGA design, ASIC RTL design and verification, high-speed hardware, embedded software, signal and power integrity, and mechanical and thermal design. Since 2001, Fidus has completed more than 4,000 projects for over 400 clients in advanced-technology markets, with over 95% of its business coming from repeat clients. Visit fidus.com.
+ Each company presents live for 30 minutes with audience Q&A. Replays will be available on the B2i Digital and OTC Markets YouTube channels.
 
- About Edgewater Wireless
+ "Everyone has an opinion on AI. Fewer have heard directly from the companies behind the chips, the data centers, the power and the battery materials that make it run, or the ones putting AI to work in a trading platform, a store or an online marketplace. On October 1 you get a live 30-minute presentation, then Q&A for what's really on your mind. You can follow that up with your own meeting, which I strongly encourage. Yes, the management teams who participate in the VIC genuinely want to talk to their investors and not just institutional. Don't miss this opportunity," said David Shapiro, Chief Executive Officer of B2i Digital, Inc.
 
- We make Wi-Fi. Better.
+ Presenting Companies as of September 27, 2026 (subject to change):
 
- Edgewater’s patented, AI-powered Spectrum Slicing™ platform - delivered through the PrismIQ™ product family - breaks the limits of legacy Wi-Fi by enabling multiple concurrent channels in a single band. Wi-Fi Spectrum Slicing™ delivers a 10x improvement in performance with 50% lower latency, even for legacy devices. With 26 patents granted and 3 AI-related patents pending, Edgewater’s fabless model is transforming the economics of Wi-Fi for service providers, OEMs, and enterprises - powering scalable, standards-leading connectivity across residential, enterprise, and Industrial IoT markets. A Silicon Catalyst Portfolio Company, Edgewater is an industry pioneer in its understanding of the future of Wi-Fi and is building the foundation for the next era of global connectivity which the company defines as intelligent wireless.
+ Thursday, October 1
 
- Edgewater Wireless ContactsAndrew Skafel, President and CEOE: andrews@edgewaterwireless.com
+ 9:30 AM ET: Perpetuals.com Ltd.
 
- Forward Looking Statements
+ 10:00 AM ET: Articore Group Ltd.
 
- This news release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws. The use of any of the words "expect", "anticipate", "continue", "estimate", "objective", "ongoing", "may", "will", "project", "should", "believe", "plans", "intends" and similar expressions are intended to identify forward-looking information or statements. Specific statements respecting moving toward prototype validation and demonstrations, clearing a path toward the next generation of Spectrum Slicing products and moving from validation toward execution and commercialization comprise forward-looking statements and represent milestones which may or may not be achieved. Although Edgewater Wireless believes that the expectations and assumptions on which such forward-looking statements and information are based are reasonable, undue reliance should not be placed on the forward-looking statements and information because Edgewater Wireless can give no assurance that they will prove to be correct. By its nature, such forward-looking information is subject to various risks and uncertainties, which could cause Edgewater Wireless’ actual results and experience to differ materially from the anticipated results or expectations expressed. These risks and uncertainties, include, but are not limited to access to capital markets, market forces, competition from new and existing companies and regulatory conditions. Readers are cautioned not to place undue reliance on this forward-looking information, which is given as of the date it is expressed in this news release or otherwise, and to not use future-oriented information or financial outlooks for anything other than their intended purpose. Edgewater Wireless undertakes no obligation to update publicly or revise any forward-looking information, whether as a result of new information, future events or otherwise, except as required by law.
+ 10:30 AM ET: Infineon Technologies AG
 
- NEITHER THE TSX VENTURE EXCHANGE NOR ITS REGULATION SERVICES PROVIDER (AS THAT TERM IS DEFINED IN THE POLICIES OF THE TSX VENTURE EXCHANGE) ACCEPTS RESPONSIBILITY FOR THE ADEQUACY OR ACCURACY OF THIS RELEASE.
+ 11:00 AM ET: First Phosphate Corp.
+
+ 11:30 AM ET: Blockmate Ventures Inc.
+
+ 1:00 PM ET: Carrier Connect Data Solutions Inc.
+
+ 1:30 PM ET: INEO Tech Corp.
+
+ Throughout the year, Virtual Investor Conferences feature public companies from exchanges worldwide, including NYSE, Nasdaq, TSX, TSXV, CSE, ASX, LSE, and the OTC Markets. Virtual Investor Conferences is an OTC Markets Group Inc. property.
+
+ About B2i Digital, Inc.
+
+ B2i Digital, Inc. partners with conferences, public companies, and capital markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Its media network spans 800+ news, broadcast, and trade outlets with a 330 million+ combined monthly audience, plus 1.7 million+ followers, 70,000 opt-in email subscribers, and a rolodex of 235,000+ capital markets contacts. That reach gets clients seen; its conferences put them in the room with investors. The Capital Markets Matchmaker℠ takes every story From Marketing to Meetings℠. B2i Digital is headquartered in New York City.
+
+ Discover more Featured Companies, Featured Experts, and upcoming Featured Conferences at b2idigital.com.
+
+ B2i Digital Contact Information
+
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.comhttps://www.linkedin.com/in/davidshapironyc
+
+ B2i Digital Social Media
+
+ https://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digitalhttps://www.youtube.com/@b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.pinterest.com/b2idigitalhttps://www.threads.net/@davidshapironyc
+
+ About Virtual Investor Conferences
+
+ Virtual Investor Conferences is the proprietary investor conference series that provides an interactive forum for publicly traded companies to meet directly with investors online. VIC offers companies efficient access to a broad investor audience through live presentations, Q&A sessions, and one-on-one meetings. Investors benefit from direct access to executive management teams and the ability to view presentations live or on demand.
+
+ Virtual Investor Conferences Contact Information
+
+ OTC Markets Group Inc.Virtual Investor Conferenceswww.virtualinvestorconferences.cominfo@virtualinvestorconferences.com
+
+ Disclosure & Disclaimer
+
+ B2i Digital, Inc. is the Official Marketing Partner of the AI & Tech Virtual Investor Conference. B2i Digital, Inc. is not an affiliate of Virtual Investor Conferences and is not authorized to represent or act on behalf of Virtual Investor Conferences, in any capacity. Virtual Investor Conferences has not reviewed and approved the content contained on the b2idigital.com website. Content related to any specific company referenced in this release was provided by that company, approved by that company, or obtained from publicly available sources. B2i Digital, Inc. has not independently verified the accuracy or completeness of such information, and no representation or warranty, express or implied, is made as to its accuracy.
+
+ This content is provided for informational purposes only and does not constitute an offer to sell or a solicitation of an offer to buy any security, nor should it be relied upon as the basis for any investment decision. B2i Digital, Inc. is not a registered broker-dealer, investment adviser, or financial adviser, and nothing herein should be construed as investment, legal, tax, or accounting advice. Readers should consult their own advisers and conduct their own due diligence before making any investment decision.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/edgewater-wireless-details-prismiq-customer-demonstration-program-with-ovin-and-fidus-support-7090098)
+[Original/Source Press Release](https://www.newmediawire.com/news/ai-tech-companies-present-live-and-take-investor-meetings-at-the-october-1-virtual-investor-conference-7090116)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/edgewater-wireless-advances-prismiqtm-program-with-ovin-and-fidus-support/8427bcaa5de797185c456c2a408c982f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2i-digital-hosts-ai-tech-virtual-investor-conference-oct-1/11317825573bc972b1586fd27b4ae24e) 
 
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ai-tech-virtual-investor-conference-to-connect-seven-companies-with-17-million-investors)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/28/mielhn5n.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/28/riceR6pd.webp)
