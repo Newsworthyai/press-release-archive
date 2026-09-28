@@ -1,68 +1,40 @@
-# Why Gold Remains a Good Investment Despite Rising Interest Rates
+# MissionIRNewsBreaks – TruGolf Holdings, Inc. (NASDAQ: TRUG) Names Brenner Adams Interim CEO, Appoints Jay Heller to Board
 
-Under normal circumstances, the recent Fed rate hike would have caused a significant selloff in the gold market. This is because gold is non-yielding and higher interest rates make the opportunity cost of holding gold very high. However, gold barely moved when the Fed and the Bank of Japan both raised lending rates. Why is this happening?
+TruGolf (NASDAQ: TRUG) announced the resignation of founder Chris Jones as CEO and a director, with Chairman Brenner Adams appointed interim CEO while the company conducts a search for a long-term replacement. The board also appointed Jay Heller as a director to replace Jones. Heller is CEO of K Lab and previously spent 18 years at Nasdaq, where he served as vice president and head of capital markets and IPO execution, overseeing more than 3,000 public listings. TruGolf said it is also progressing toward closing its previously announced acquisition of Polymath while continuing efforts to strengthen its core virtual golf business, improve efficiency and develop strategic global partnerships.
 
- As investors and central banks continue adding gold to their holdings, the long-term outlook of the market remains strongly bullish in a way that interest rate increases cannot easily reverse. In such an environment, firms like Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) can expect to continue getting solid revenues from the gold they bring onto the…
+ To view the full article, visit https://ibn.fm/GICnu
 
- Read More>>
+ About TruGolf
 
- About Rocks & Stocks
+ Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
 
- Rocks & Stocks (“R&S”) is a specialized communications platform delivering deep insights into the mining industry. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, R&S is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, R&S brings its clients unparalleled recognition and brand awareness.
+ NOTE TO INVESTORS: The latest news and updates relating to TRUG are available in the company’s newsroom at https://ibn.fm/TRUG
 
- R&S is where breaking news, insightful content and actionable information converge.
+ About MissionIR
 
- To receive SMS alerts from Rocks & Stocks, text “Rocks” to 888-902-4192 (U.S. Mobile Phones Only)
+ MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
 
- For more information, please visit https://RocksAndStocks.news
+ MIR is where breaking news, insightful content and actionable information converge.
 
- Please see full terms of use and disclaimers on the Rocks & Stocks website applicable to all content provided by R&S, wherever published or re-published: https://RocksAndStocks.news/Disclaimer
+ For more information, please visit www.MissionIR.com
 
- Rocks & StocksAustin, TexasRocksAndStocks.news512.354.7000 OfficeEditor@RocksAndStocks.news
+ Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
 
- Rocks & Stocks is powered by IBN 
+ MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
+
+ MissionIR is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/why-gold-remains-a-good-investment-despite-rising-interest-rates/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-trugolf-holdings-inc-nasdaq-trug-names-brenner-adams-interim-ceo-appoints-jay-heller-to-board/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-holds-firm-despite-rate-hikes-what-it-means-for-investors/28653f206254e9aa36010bb440943985) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-ceo-resigns-interim-ceo-named-amid-acquisition-push/6eebf5e8ac658a5ccb77ba3e655862fa) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/golds-resilience-to-rising-rates-signals-durable-long-term-bullish-outlook)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-resiliencia-del-oro-frente-al-aumento-de-las-tasas-senala-una-perspectiva-alcista-duradera-a-largo-plazo)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/gold-holds-steady-as-interest-rates-rise-signaling-strong-long-term-bullish-sentiment)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/why-gold-remains-a-good-investment-despite-rising-interest-rates)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/23/chip2GEK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/28/xenoeNlp.webp)
