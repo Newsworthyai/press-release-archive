@@ -1,50 +1,58 @@
-# Esthetics Center Serves Three California Locations This Fall
+# NikLovin Appears on Love Stories Podcast to Discuss Relationship Coaching
 
-Esthetics Center Reaches Sacramento, Rocklin, and El Dorado Hills Ahead of Holiday Season
+NikLovin's Nicole Messick Connects Intimacy Products and Coaching on Love Stories Podcast
 
- EL DORADO HILLS, United States - September 27, 2026 / Esthetics Center /
+ Rogers, United States - September 27, 2026 / Intimacy Wellness by NikLovin /
 
- SACRAMENTO, Calif. - With November and December events approaching, Esthetics Center is encouraging patients across Sacramento, Rocklin, and El Dorado Hills to schedule a consultation early this fall, whether they are considering facial plastic surgery or a non-surgical treatment.
+ Nicole Messick, founder of Intimacy Wellness by NikLovin, appeared as a featured guest on the Love Stories podcast, engaging in a direct, educational discussion about intimacy wellness, intimacy coaching, and the stigmas that continue to affect how couples and individuals navigate their relationships. The episode brought to the surface topics that mainstream wellness conversations frequently leave unaddressed, with Messick and the show's relationship coach working through them in a candid format.
 
-Dr. Reginald Rice, double board-certified in facial plastic and reconstructive surgery and otolaryngology (head and neck surgery), leads the practice alongside cosmetic nurse injectors, physician assistants, and aesthetic nurse practitioners. Dr. Rice has treated more than 12,000 patients across more than 25 years of practice and is a Fellow of the American Academy of Cosmetic Surgery.
+A Direct Conversation About Intimacy Wellness
 
-Why Timing Matters Before the HolidaysFacial plastic surgery involves recovery time that varies by procedure and by patient, making an earlier fall start date practical for anyone with a specific event or trip on the calendar. Non-surgical treatments, including injectables and skin rejuvenation procedures, also develop results gradually and may require more than one visit to reach the intended outcome.
+During the episode, Messick and the Love Stories podcast host examined how couples can move past shame and silence to build more connected relationships. The conversation spanned the full range of intimacy wellness - from the practical role of intimacy furniture in improving physical comfort and accessibility to the deeper emotional dimensions of intimacy coaching. Drawing on her work with NikLovin, Messick explained how curated product guidance and open education can function together to help people become more at ease with their own desires and with their partners.
 
-A Personalized, Medically Supervised PlanEsthetics Center builds each plan around an individual patient's goals and concerns within a medically supervised setting overseen by Dr. Rice. The practice's approach favors natural-looking improvements over dramatic change, and every recommendation accounts for the patient's own timeline and priorities.
+A recurring theme throughout the discussion was the use of humor as a bridge. Rather than treating intimacy as a clinical or overly serious subject, Messick described how laughter and lightheartedness can lower barriers, making it easier for couples to communicate about what they want and need. This reflects a broader approach at NikLovin, where education and humor are treated as equally useful tools for reducing stigma.
 
-A Founder's Perspective"Every fall, patients ask us how soon they need to start to be ready for the holidays," said Dr. Reginald Rice, founder of Esthetics Center. "The honest answer is that it depends on what they're considering, which is exactly why we'd rather have that conversation in September than in November."
+Intimacy Coaching and the Case for Open Education
 
-About Esthetics CenterEsthetics Center is a medical aesthetics practice offering facial plastic surgery, injectable treatments, skin rejuvenation, and professional skincare, with locations in Sacramento, Rocklin, and El Dorado Hills, California.
+Messick addressed the value of intimacy coaching as a resource distinct from traditional couples therapy. Where therapy often centers on conflict resolution or trauma, intimacy coaching as discussed on the Love Stories podcast focuses on expanding knowledge, developing communication skills, and encouraging exploration within a relationship. Messick described how NikLovin incorporates this perspective into its offerings, framing intimacy wellness not as a correction for something broken, but as an ongoing practice that any individual or couple can engage with over time.
 
-The practice is led by Dr. Reginald Rice, double board-certified in facial plastic and reconstructive surgery and otolaryngology (head and neck surgery), a Fellow of the American Academy of Cosmetic Surgery with more than 25 years of experience and over 12,000 patients treated. The clinical team also includes cosmetic nurse injectors, physician assistants, and aesthetic nurse practitioners, providing care in a medically supervised setting.
+The episode also examined how intimacy furniture - a category that still carries unnecessary stigma for many consumers - serves as an accessibility and comfort tool. Messick placed these products within a wellness framework, making the case that anything supporting physical comfort and connection belongs in a broader conversation about health and relationships.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ikgK0RxBWZOxnGp9kBF8mBfV7fRNQOMT8o0bXGNg.jpg) [](https://www.estheticscenter.com) Contact Information:
+Where Relationship Coaching and Modern Intimacy Products Meet
 
- Esthetics Center
+The Love Stories podcast episode featuring Nicole Messick addresses an intersection the wellness industry has been slow to engage with directly: the overlap between relationship coaching, intimacy health, and tangible intimacy products. Messick's appearance contributed to a growing body of public dialogue that normalizes seeking guidance and using supportive tools without stigma or shame.
+
+"Intimacy wellness is not a niche - it is something that touches every relationship, and the more openly we talk about it, the more empowered people become," said Nicole Messick, founder of Intimacy Wellness by NikLovin.
+
+The episode is available on Apple Podcasts, giving listeners access to the kind of open, informed dialogue that NikLovin promotes across its platform.
+
+About Intimacy Wellness by NikLovin
+
+Intimacy Wellness by NikLovin is a platform founded by Nicole Messick that supports couples and individuals through curated intimacy wellness solutions, intimacy coaching resources, and education aimed at reducing stigma and encouraging open communication in relationships. The brand combines practical product guidance with a humor-forward, intimacy-focused approach to help people build more connected intimate lives.
+
+Learn more at Intimacy Wellness by NikLovin
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Ze0N5Mv7AHoE3RJyQswzFVskTervJofW3EFQ0hPN.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/i8kYoyAzgMKhjs9yb7GcVdE3Un9EtJaFjqZ1aUyl.png) [](https://niklovin.com) Contact Information:
+
+ Intimacy Wellness by NikLovin
 
  
 
-2211 FRANCISCO DR  EL DORADO HILLS, California 95762United States
+600 South 1st Street Suite E02  Rogers, AR 72756United States
 
- Kelly Longhofer +1-916-269-9779 https://www.estheticscenter.com 
+ Nicole Messick +1 (479) 578-4669 https://niklovin.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/esthetics-center-serves-three-california-locations-this-fall-450275)
+[Original/Source Press Release](https://mediawiretoday.com/niklovin-appears-on-love-stories-podcast-to-discuss-relationship-coaching-450326)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esthetics-center-book-holiday-beauty-treatments-early/474cdf322083ce31588d37c4882e24b1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/niklovin-s-nicole-messick-talks-intimacy-wellness-on-love-stories-podcast/daa36db88a177ed71f82b1aedfde7d21) 
 
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/california-aesthetics-practice-urges-early-fall-booking-for-holiday-procedures)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/practica-de-estetica-de-california-insta-a-reservar-con-antelacion-en-otono-para-procedimientos-navidenos)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/esthetics-center-in-sacramento-rocklin-and-el-dorado-hills-urges-early-fall-consultations-for-holiday-procedures)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/27/neonstUW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/27/zestdpt8.webp)
