@@ -1,94 +1,36 @@
-# Pride Holdings Group Establishes Advisory Board to Strengthen Corporate Governance, Acquisition Oversight and NYSE/NASDAQ Strategy
+# TruGolf Holdings (TRUG) to Present at ThinkEquity Conference
 
-Richard Hawkins, George Wallace and Darren Donnelly Appointed to Newly Created Advisory Board as Company Builds Infrastructure for Its Next Phase of Growth
+LOS ANGELES, CA - September 29, 2026 (NEWMEDIAWIRE) - TruGolf (NASDAQ: TRUG) announced that Chairman and Interim CEO Brenner Adams and Polymath Research Interim CEO and CFO Natalie Hirsch will present at The ThinkEquity Conference on Oct. 15, 2026, at the Mandarin Oriental in New York. Management will discuss TruGolf golf technology business, including the TruGolf Links franchise model, and the company expansion into tokenized financial infrastructure through its acquisition of Polymath. Adams and Hirsch will also hold one-on-one meetings with investors throughout the day.
 
- ORLANDO, FL - September 29, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE) today announced the formation of a new Advisory Board and the appointment of Richard Hawkins, George Wallace and Darren Donnelly as its initial members.
+ ![](http://newmediawire.s3.amazonaws.com/6abbfec7da846f543cccc4da_1)
 
- The establishment of the Advisory Board represents another step in Pride Holdings Group’s continued development of its corporate governance and strategic infrastructure as the Company expands its operating portfolio, evaluates additional acquisition opportunities and works toward its long-term objective of pursuing an uplisting to the New York Stock Exchange (NYSE) or NASDAQ.
+ To view the full press release, visit https://ibn.fm/hHdn2
 
- The Advisory Board will work alongside the Company’s leadership, providing additional perspective and strategic guidance in several key areas, including acquisitions, corporate governance, operational growth and the Company’s longer-term capital markets strategy.
+ About TruGolf
 
- Advisory Board Members
+ Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
 
- Richard Hawkins - Capital Markets, Corporate Finance & Strategic Growth
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- Richard Hawkins is a seasoned capital markets executive and strategic advisor with more than two decades of experience in public company leadership, corporate finance, restructurings, mergers and acquisitions, and strategic growth initiatives.
+ The latest news and updates relating to TRUG are available in the company’s newsroom at https://ibn.fm/TRUG
 
- His experience spans capital formation and financing strategies, corporate governance, regulatory compliance, transactional structuring, and the rehabilitation and development of emerging public companies.
+ Forward Looking Statements
 
- Hawkins has held and continues to serve in executive leadership and board roles across multiple public companies, while also serving as managing partner of a multi-strategy investment fund focused on public company investments and special situations.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- He brings extensive experience advising boards and management teams through complex transactions, corporate transformations and long-term strategic development. Pride Holdings Group believes Hawkins’ capital markets and public company experience will provide valuable perspective as the Company strengthens its corporate infrastructure, evaluates strategic transactions and works toward its longer-term capital markets objectives.
-
- George Wallace is a member of the Orlando LGBTQ+ community and brings a community-focused perspective to the Advisory Board. His appointment reinforces Pride Holdings Group’s commitment to maintaining a strong connection between the Company’s growth strategy and the LGBTQ+ communities it serves.
-
- Darren Donnelly, MBA, brings both business education and direct operating experience to the Advisory Board. Donnelly previously served as Manager of Trevi Lounge in Connecticut and has since joined the Pride Holdings Group team. His experience at the venue level provides the Advisory Board with an operational perspective as the Company continues evaluating acquisitions and expanding its portfolio of hospitality and nightlife businesses.
-
- “Establishing our Advisory Board is another important step in building the corporate infrastructure for the future of Pride Holdings Group,” said Tim Majors, CEO of Pride Holdings Group. “Richard, George and Darren each bring a different perspective to the table - from corporate strategy and community engagement to direct operational experience. That diversity of experience will be valuable as we continue evaluating acquisitions, strengthening our governance and positioning the Company for its next stage of growth.”
-
- Majors continued, “As Pride Holdings Group grows, we want to surround the Company with individuals who understand business, understand our operations and understand the community we serve. Our objective is to build a stronger organization with the governance, accountability and strategic discipline necessary to operate at a significantly larger scale.”
-
- The Company expects the Advisory Board to play an active role in reviewing acquisition opportunities and providing management with additional perspective on strategic fit, operational integration, potential financial contribution and long-term shareholder value.
-
- The Advisory Board will also advise management as Pride Holdings Group continues evaluating the steps necessary to pursue a future NYSE/NASDAQ uplisting. Any potential uplisting would be subject to the Company satisfying applicable listing standards, regulatory requirements and other conditions, and there can be no assurance that an uplisting will occur within any particular timeframe.
-
- Pride Holdings Group anticipates adding additional members to the Advisory Board in 2027 as the Company continues to expand its operations and corporate infrastructure.
-
- About Pride Holdings Group
-
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
-
- Contact: Media Relations [press@prideholdingsgroup.com](mailto:press@prideholdingsgroup.com) 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-establishes-advisory-board-to-strengthen-corporate-governance-acquisition-oversight-and-nyse-nasdaq-strategy-7090147)
+[Original/Source Press Release](https://www.newmediawire.com/news/trugolf-holdings-trug-to-present-at-thinkequity-conference-7090160)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-holdings-group-forms-advisory-board-to-fuel-growth/441b77807ddbb7458fdd929522ec8c34) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-to-present-at-thinkequity-conference-showcasing-golf-tech-and-polymath-acquisition/f9479361055219b1722d8183376c784b) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/29/pride-holdings-group-forms-advisory-board-to-bolster-governance-and-nysenasdaq-ambitions/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-forms-advisory-board-to-bolster-governance-and-nysenasdaq-ambitions)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pride-holdings-group-forms-advisory-board-to-guide-governance-and-nysenasdaq-ambitions)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pride-holdings-group-forms-advisory-board-to-strengthen-governance-and-nysenasdaq-ambitions)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/pride-holdings-group-forms-advisory-board-to-strengthen-governance-and-acquisition-oversight)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/pride-holdings-group-forma-un-consejo-asesor-para-fortalecer-la-gobernanza-y-la-supervision-de-adquisiciones)
-
-Pickup - [https://burstable.news](https://burstable.news/news/pride-holdings-group-forms-advisory-board-to-guide-governance-acquisitions-and-potential-nysenasdaq-uplisting)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/pride-holdings-group-bildet-beirat-zur-steuerung-von-governance-ubernahmen-und-moglichem-nysenasdaq-uplisting)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/pride-holdings-group-forma-un-consejo-asesor-para-guiar-la-gobernanza-las-adquisiciones-y-una-posible-cotizacion-en-nysenasdaq)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pride-holdings-group-constitue-un-conseil-consultatif-pour-guider-la-gouvernance-les-acquisitions-et-une-eventuelle-cotation-au-nysenasdaq)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pride-holdings-group-forma-conselho-consultivo-para-orientar-governanca-aquisicoes-e-potencial-listagem-na-nysenasdaq)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pride-holdings-group-forms-advisory-board-to-guide-acquisitions-and-nysenasdaq-ambitions)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/pride-holdings-group-forms-advisory-board-to-strengthen-governance-and-nysenasdaq-strategy)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/pride-holdings-group-forms-advisory-board-to-guide-acquisitions-and-nysenasdaq-ambitions)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/pride-holdings-group-forms-advisory-board-to-strengthen-governance-and-acquisition-oversight)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/pride-holdings-group-forms-advisory-board-to-strengthen-governance-acquisition-oversight-and-nysenasdaq-strategy)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/pride-holdings-group-forms-advisory-board-to-strengthen-governance-and-growth-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/29/archyZlr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/29/poemEulx.webp)

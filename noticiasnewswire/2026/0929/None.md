@@ -1,94 +1,42 @@
-# Legalízate Ya, PLLC Joins Hispanic Heritage Month Celebration, Honoring the Stories, Sacrifices and Dreams of Latinos in the United States
+# Great American Media Launches National Search to Help Small-Town Churches This Christmas
 
-LAREDO, Texas — September 29, 2026 /Noticias Newswire/ — In celebration of Hispanic Heritage Month, Legalízate Ya, PLLC joins communities across the country in recognizing the millions of Latinos whose work, culture, entrepreneurship, traditions and determination continue to enrich the United States.
+NEW YORK, NY — September 29, 2026 — (NOTICIAS NEWSWIRE) — With the arrival of the Christmas season, Great American Media is launching a new national initiative that celebrates the important role local churches play in caring for their communities and keeping faith at the center of Christmas. Great American Christmas: Small-Town Churches invites people across the country to nominate a small-town church they love and share how that church serves its community during Christmas, as well as how additional support from Great American Media could help achieve an even greater impact.
 
- For Legalízate Ya, Hispanic Heritage Month carries a particularly meaningful message. As an immigration law firm serving individuals and families, the firm sees firsthand that behind every immigration case there is a human story.
+ Churches often meet some of the most immediate needs of their communities, providing food, coats, gifts, Bibles, and support to families who need a helping hand. But their impact goes far beyond material needs. They offer a place where people can find faith, encouragement, belonging, and hope, and reconnect with the true meaning of Christmas.
 
- There are parents working toward a more secure future for their children. Husbands and wives hoping to keep their families together. Young people pursuing opportunities their parents once dreamed about. Workers, professionals, entrepreneurs and business owners building new lives while contributing to the communities they now call home.
+ “Churches are the heart of so many communities, and that takes on special meaning at Christmas,” said Kaitlyn Haubrich, Chief Brand Officer and Chief of Staff of Great American Media. “They care for families, support their neighbors, and help people stay connected to their faith and to the true meaning of Christmas. Christmas As It’s Meant To Be has always been about faith, family, and caring for those around us.”
 
- These stories are part of the broader story of the Latino community in America.
+ The support will be tailored to the needs of each selected church and the community it serves. This could include help with Christmas community outreach activities, food or gift ministries, children’s and family programs, worship or music programs, transportation, decorations, or another need identified by the church. Great American Media asks church members, pastors, ministry leaders, neighbors, and viewers to help identify churches that are caring for those around them and making Christmas especially meaningful in their communities.
 
- More Than an Immigration Case Immigration law is often discussed through applications, petitions, visas, deadlines and legal proceedings. But for the person going through the process, immigration can represent something much bigger: family, stability, opportunity and the possibility of building a future.
+ Do you know a church that deserves to be recognized this Christmas?
 
- At Legalízate Ya, PLLC, that human perspective is an important part of serving the immigrant community.
+ Nominate it.
 
- For some families, those journeys began generations ago. For others, they are happening today.
+ Tell us its story.
 
- “Behind every immigration matter is a person and often an entire family whose future may depend on what happens next,” said the [Legalízate Ya team](https://legalizateya.com/en/about-us/). “During Hispanic Heritage Month, we want to recognize not only the accomplishments of the Latino community, but also the sacrifices and journeys that made many of those accomplishments possible.”![Marc Gonzalez - Laredo Immigration Lawyer](https://www.noticiasnewswire.com/wp-content/uploads/2026/09/marc.gonzales-legalizate-ya-img.jpg)
+ Tell us how we can help.
 
- [Marc Gonzalez](https://legalizateya.com/en/marc-a-gonzalez/) Laredo Immigration Lawyer
+ Nominations will be accepted through October 15 at Great American Christmas: Small-Town Churches. The selected churches will be announced on October 27 and will be celebrated on Great American Media’s social and digital platforms.
 
-Honoring Those Who Came Before—and Those Building Their Future Today Observed annually from September 15 through October 15, Hispanic Heritage Month celebrates the histories, cultures and contributions of Americans whose heritage is connected to Spain, Mexico, the Caribbean, Central America and South America.
+ For families looking to continue celebrating the season together, Great American Pure Flix offers a collection of faith- and family-centered Christmas movies and stories throughout the holiday season. Explore Great American Pure Flix.
 
- It is also an opportunity to recognize the many different paths that have brought Latino families to the United States.
+ We look forward to learning the story of your small-town church and discovering how we can help make this Christmas a little brighter.
 
- Some came searching for economic opportunity. Others came to reunite with family, pursue an education, build a business or seek safety. Many arrived with little more than determination and the hope that their children could have opportunities they themselves never had.
+ For more details on how to nominate, visit https://greatamericanchristmaschurch.com.
 
- Across generations, Latinos have become an integral part of communities throughout Texas and the United States—as parents and neighbors, employees and employers, entrepreneurs and professionals, students, educators and community leaders.
-
- Celebrating Heritage While Building a Future For many immigrants, embracing life in the United States does not mean leaving their heritage behind.
-
- Spanish spoken around the dinner table, recipes passed from one generation to another, music, faith, family traditions and stories about grandparents and great-grandparents all help preserve connections to where a family came from.
-
- At the same time, new traditions and new chapters are being written in communities across America.
-
- That ability to honor where you come from while working toward where you want to go is at the heart of many immigrant experiences.
-
- During Hispanic Heritage Month, Legalízate Ya celebrates that connection between heritage and possibility, roots and opportunity, sacrifice and achievement.
-
- To Our Latino Community: Your Story Matters Legalízate Ya, PLLC recognizes that no two immigration journeys are exactly alike. Every individual arrives with different circumstances, different challenges and different dreams.
-
- What they share is their humanity.
-
- This Hispanic Heritage Month, Legalízate Ya honors the families who have made difficult sacrifices, the parents working toward a better future for their children, the entrepreneurs creating opportunities, the workers strengthening their communities, and the generations of Latinos who continue helping shape the United States.
-
- To every Latino family building a life in this country: your heritage matters, your contributions matter, and your story is part of the American story.
-
- About Legalízate Ya, PLLC: Legalízate Ya, PLLC is an immigration law firm serving individuals and families navigating the U.S. immigration system. The firm assists clients with a range of immigration matters, including visas, U.S. residency and Green Cards, citizenship and naturalization, asylum, waivers and other immigration-related matters.
-
- With a commitment to accessible, compassionate legal representation, Legalízate Ya strives to help clients understand their options and move forward with greater clarity and confidence.
-
- This Hispanic Heritage Month, Legalízate Ya proudly celebrates the heritage, resilience and contributions of Latinos across the United States.
-
- Contact Legalízate Ya today to schedule a confidential consultation and learn how our experienced Laredo immigration attorneys can assist you and your loved one.
-
- Call (956) 725-9714 today Visit www.legalizateya.com/en 
+ CONTACT: Victoria Quevedo Crosswind PR vquevedo@crosswindpr.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/legalizate-ya-pllc-joins-hispanic-heritage-month-celebration/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/great-american-media-lanza-busqueda/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/legalizate-ya-honors-latino-stories-during-hispanic-heritage-month/a495d2f5d2101421c5869f2b512ca201) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/great-american-media-launches-small-town-churches-christmas-initiative/885218ad520e4b1f52bce65fb18c373e) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/29/legalizate-ya-marks-hispanic-heritage-month-by-highlighting-the-human-stories-behind-immigration-cases/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/legalizate-ya-marks-hispanic-heritage-month-by-highlighting-the-human-stories-behind-immigration-cases)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/legalizate-ya-marks-hispanic-heritage-month-by-spotlighting-the-human-stories-behind-immigration-cases)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/legalizate-ya-marks-hispanic-heritage-month-by-highlighting-the-human-stories-behind-immigration-cases)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/laredo-immigration-firm-legalizate-ya-honors-hispanic-heritage-month-highlights-economic-and-cultural-contributions-of-latino-families)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/firma-de-inmigracion-de-laredo-legalizate-ya-honra-el-mes-de-la-herencia-hispana-y-destaca-las-contribuciones-economicas-y-culturales-de-las-familias-latinas)
-
-Pickup - [https://burstable.news](https://burstable.news/news/legalizate-ya-pllc-honors-hispanic-heritage-month-highlighting-human-stories-behind-immigration-cases)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/legalizate-ya-pllc-wurdigt-den-hispanic-heritage-month-und-hebt-die-menschlichen-geschichten-hinter-einwanderungsfallen-hervor)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/legalizate-ya-pllc-honra-el-mes-de-la-herencia-hispana-destacando-las-historias-humanas-detras-de-los-casos-de-inmigracion)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/legalizate-ya-pllc-honore-le-mois-du-patrimoine-hispanique-en-mettant-en-lumiere-les-histoires-humaines-derriere-les-dossiers-dimmigration)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/legalizate-ya-pllc-homenageia-o-mes-da-heranca-hispanica-destacando-historias-humanas-por-tras-dos-casos-de-imigracao)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/legalizate-ya-highlights-the-human-stories-behind-immigration-during-hispanic-heritage-month)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/29/yarnt1GU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/29/nuke6YKH.webp)

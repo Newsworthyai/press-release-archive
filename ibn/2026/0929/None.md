@@ -1,16 +1,12 @@
-# InvestorNewsBreaks – Nutriband Inc. (NASDAQ: NTRB) CEO Featured in Documentary Examining U.S. Opioid Crisis
+# InvestorNewsBreaks – BOXABL Inc. (NASDAQ: BXBL) Brings Tech-Driven Housing Strategy to Public Markets
 
-Nutriband (NASDAQ: NTRB) announced that CEO Gareth Sheridan is featured in a new documentary by independent journalist and filmmaker Nick Shirley examining the opioid crisis in the United States. Sheridan discusses pharmaceutical innovation and technologies including Nutriband AVERSA (TM) abuse-deterrent platform, which is designed to reduce the risk of abuse, misuse, diversion and accidental exposure associated with high-risk medications while preserving access for patients with legitimate medical needs.
+BOXABL (NASDAQ: BXBL) recently commenced trading on the Nasdaq following approval of its SPAC merger, marking its transition to the public markets at an implied valuation of approximately $3.5 billion. The company has raised more than $230 million from over 50,000 investors and has produced more than 800 modular homes as it develops a technology-driven, factory-based approach to residential construction. BOXABL manufactures standardized housing units at its Las Vegas facility, emphasizing automation, standardized production and AI-enabled manufacturing to improve efficiency and reduce costs. Its flagship 361-square-foot Casita is complemented by the smaller Baby Box, while larger modular formats are being developed for residential, multifamily, hospitality and commercial applications. The company’s manufacturing campus spans roughly 400,000 square feet, and production costs have declined 43% since 2022 through expanded automation and purchasing efficiencies.
 
- To view the full press release, visit https://ibn.fm/usSNL
+ To view the full article, visit https://ibn.fm/QHBou
 
- About Nutriband Inc.
+ About BOXABL Inc.BOXABL is transforming the housing market with its modular building systems designed to deliver affordable, high-quality homes at unprecedented speed. Founded in 2017, BOXABL’s innovative approach has attracted worldwide attention as it aims to solve housing challenges for individuals and communities alike. BOXABL’s flagship product, the Casita, is a 361 square foot studio unit with a full kitchen, bathroom, and utilities. The Casita unfolds on-site in less than an hour and is manufactured inside BOXABL’s facilities. BOXABL also has announced the Baby Box, a smaller 120 square foot unit built to RV code, intended for simpler, no foundation setups. BOXABL is also developing stackable and connectable box models that can be combined to form townhomes, multifamily units, or larger single-family homes. For more information, visit the company’s website at www.BOXABL.com/ir.
 
- We are primarily engaged in the development of a portfolio of transdermal pharmaceutical products. Our lead product under development is an abuse-deterrent fentanyl patch incorporating our AVERSA(TM) abuse-deterrent technology. AVERSA(TM) technology can be incorporated into any transdermal patch to prevent the abuse, misuse, diversion, and accidental exposure of drugs with abuse potential.
-
- The Company’s website is www.nutriband.com . Any material contained in or derived from the Company’s websites or any other website is not part of this press release.
-
- NOTE TO INVESTORS: The latest news and updates relating to NTRB are available in the company’s newsroom at https://ibn.fm/NTRB
+ NOTE TO INVESTORS: The latest news and updates relating to BXBL are available in the company’s newsroom at https://ibn.fm/BXBL
 
  About InvestorWire
 
@@ -26,35 +22,15 @@ Nutriband (NASDAQ: NTRB) announced that CEO Gareth Sheridan is featured in a new
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nutriband-inc-nasdaq-ntrb-ceo-featured-in-documentary-examining-u-s-opioid-crisis/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-boxabl-inc-nasdaq-bxbl-brings-tech-driven-housing-strategy-to-public-markets/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-ceo-featured-in-opioid-crisis-documentary/e7fbfe83354c6bf0be41b522e273c78d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boxabl-debuts-on-nasdaq-with-3-5b-valuation-revolutionizing-housing/280ce1ea775c4b470c4c16ef1f18c39d) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/nutriband-ceo-gareth-sheridan-featured-in-new-documentary-on-us-opioid-crisis)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/nutriband-ceo-gareth-sheridan-featured-in-documentary-on-us-opioid-crisis-highlighting-aversa-abuse-deterrent-technology)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/nutribands-ceo-featured-in-opioid-crisis-documentary-highlights-aversa-abuse-deterrent-technology)
-
-Pickup - [https://burstable.news](https://burstable.news/news/nutriband-ceo-gareth-sheridan-featured-in-documentary-on-us-opioid-crisis)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/nutriband-ceo-gareth-sheridan-in-dokumentation-uber-die-us-opioidkrise-zu-sehen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-ceo-de-nutriband-gareth-sheridan-aparece-en-un-documental-sobre-la-crisis-de-opioides-en-estados-unidos)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-pdg-de-nutriband-gareth-sheridan-apparait-dans-un-documentaire-sur-la-crise-des-opioides-aux-etats-unis)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ceo-da-nutriband-gareth-sheridan-e-destaque-em-documentario-sobre-a-crise-de-opioides-nos-eua)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/nutriband-ceo-gareth-sheridan-featured-in-opioid-crisis-documentary-showcasing-aversa-abuse-deterrent-technology)
-
-Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/nutriband-ceo-gareth-sheridan-appears-in-opioid-crisis-documentary-highlights-aversa-abuse-deterrent-technology)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/29/kiwiqmOs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/29/mildLW_p.webp)
