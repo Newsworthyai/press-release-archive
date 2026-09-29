@@ -1,42 +1,80 @@
-# Farmer Brown Insurance Celebrates Hispanic Heritage Month by Honoring Latinos Who Build, Start Businesses, and Help America Grow
+# Tax Law Offices Joins Hispanic Heritage Month Celebration, Honoring the Contributions of Latinos Across the United States
 
-SAN ANTONIO, Texas — September 28, 2026 — In recognition of Hispanic Heritage Month, celebrated in the United States from September 15 through October 15, Farmer Brown Insurance (in Spanish “la agencia de seguros Farmer Brown Insurance“) joins in honoring generations of Latinos whose hard work, entrepreneurship, and commitment to their families and communities contribute every day to the growth of the country.
+September 28, 2026 /Noticias Newswire/ — In recognition of Hispanic Heritage Month, Tax Law Offices joins communities across the country in celebrating the history, culture, accomplishments, and contributions of Latinos in the United States.
 
- For Farmer Brown Insurance, this celebration is also an opportunity to recognize Hispanic contractors, small business owners, entrepreneurs, and workers who have transformed their skills, trades, knowledge, and aspirations into businesses that create jobs and strengthen the communities where they live and work.
+ Observed each year from September 15 through October 15, Hispanic Heritage Month provides an opportunity to recognize the generations of Hispanic and Latino Americans who have contributed to the economic, cultural, and social fabric of the nation.
 
- Throughout its 30-year history, Farmer Brown Insurance has helped more than 21,683 contractors and business owners with a wide range of insurance needs. The agency provides coverage across all 50 states and offers access to a variety of commercial and personal insurance options.
+ For Tax Law Offices, the celebration also carries special meaning because of the firm’s work with Spanish-speaking individuals, families, entrepreneurs, and business owners who need help navigating the U.S. tax system.
 
- Celebrating the Entrepreneurial Spirit of the Latino Community – Leer en español
+ “Hispanic Heritage Month is an opportunity to recognize not only the achievements of the Latino community, but also the stories of hard work, sacrifice, and perseverance behind them. At Tax Abogados, we are proud to serve Hispanic families and entrepreneurs and to help them protect what they have worked so hard to build.”![J. Anton Collins - Tax Law Offices/ Tax Abogados](https://www.noticiasnewswire.com/wp-content/uploads/2026/09/j-anton-collins-perfil-new.jpg)
 
- About  Farmer Brown Insurance Agency: Farmer Brown Insurance is an insurance agency with 30 years of experience serving the needs of contractors, business owners, and consumers. More than 21,683 contractors and business owners have trusted the agency with their insurance needs.
+ [J. Anton Collins](https://taxabogados.com/nuestro-equipo/j-anton-collins/) Tax attorney (former IRS)
 
- Farmer Brown offers coverage options in all 50 states and works with multiple insurance carriers to help clients compare options based on their specific needs. Its primary insurance products include general liability, property insurance, Builder’s Risk, workers’ compensation, bonds and surety bonds, as well as other commercial and personal insurance coverage.
+Recognizing the Latino Entrepreneurial Spirit Across the United States, Latino entrepreneurs are creating businesses, generating jobs, supporting their families, and contributing to their local economies.
 
-Farmer Brown Insurance Agency 21750 Hardy Oak Blvd. San Antonio, TX 78258 Teléfono: (888) 973-0016 Sitio web: FarmerBrown.com
+ Building a business can bring tremendous opportunity, but it can also create complex financial and tax responsibilities. When tax problems arise—particularly those involving business taxes, payroll taxes, IRS collection actions, audits, liens, or levies—the consequences can extend far beyond a tax bill.
 
- Información para medios
+ Tax Law Offices believes that language should not become an additional barrier for taxpayers trying to understand their rights, responsibilities, and available options.
 
- Farmer Brown Insurance Agency San Antonio, Texas (888) 973-0016 FarmerBrown.com
+ That is one reason the firm serves the Hispanic community in Spanish through Tax Abogados, the name used to connect its Spanish-language tax law services with Latino consumers.
 
- Mes de la Herencia Hispana 2026 | 15 de septiembre – 15 de octubre 
+ Tax Help With a Human Connection Tax problems are about more than numbers.
+
+ Behind a tax notice may be a family concerned about its financial future, an entrepreneur trying to protect a business built over many years, or an employer worried about employees and payroll.
+
+ Tax Law Offices approaches these matters with an understanding that every tax case has a person, family, or business behind it.
+
+ The firm’s team brings decades of combined experience addressing serious federal and state tax matters, including complex IRS problems affecting businesses and individuals.
+
+ Through Tax Abogados, Spanish-speaking taxpayers can communicate about their situation in their preferred language and better understand the tax issues they face and the potential paths available to address them.
+
+ “Latino entrepreneurs are an increasingly important part of America’s economic growth. They build businesses, create jobs, and create opportunities for their families and communities. During Hispanic Heritage Month, we celebrate that entrepreneurial spirit and reaffirm our commitment to helping them navigate the tax challenges they may encounter along the way.”![J. Anton Collins - Tax Law Offices/ Tax Abogados](https://www.noticiasnewswire.com/wp-content/uploads/2026/09/j-anton-collins-perfil-new.jpg)
+
+ [J. Anton Collins](https://taxabogados.com/nuestro-equipo/j-anton-collins/) Tax attorney (former IRS)
+
+Celebrating the People Behind the Progress During Hispanic Heritage Month, Tax Law Offices recognizes not only Latino achievements, but also the determination and hard work behind them.
+
+ From entrepreneurs launching their first businesses to established business owners creating jobs for the next generation, Hispanic Americans continue to play an important role in communities throughout the United States.
+
+ Tax Law Offices is proud to join this national celebration and to recognize the millions of Latinos whose work, entrepreneurship, families, and traditions contribute every day to the strength and diversity of the United States.
+
+About [Tax Law Offices / Tax Abogados](https://taxabogados.com/nuestro-equipo/): Tax Law Offices provides legal representation for individuals and businesses facing federal and state tax matters. The firm’s team has experience handling serious and complex tax problems, including IRS collections, tax liens and levies, audits, business and payroll tax matters, and other tax controversies. For Spanish-speaking consumers, the firm provides Spanish-language information and assistance under the name Tax Abogados, helping make complex tax matters easier to understand and navigate. 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/farmer-brown-insurance-celebrates-hispanic-heritage-month/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/tax-law-offices-joins-hispanic-heritage-month-celebration/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/farmer-brown-insurance-honors-latino-entrepreneurs-during-hispanic-heritage-month/6e0af51365390f89dd1b266b5349f951) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tax-law-offices-celebrates-hispanic-heritage-month-pledges-support-for-latino-entrepreneurs/6d77596c0b2ca5de7a5ab51a56bcaec6) 
 
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/farmer-brown-insurance-honors-latino-entrepreneurs-during-hispanic-heritage-month)
+Pickup - [https://advos.io/en](https://advos.io/en/tax-law-offices-marks-hispanic-heritage-month-highlighting-latino-entrepreneurs-and-spanish-language-tax-support)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/farmer-brown-insurance-honra-a-los-empresarios-latinos-durante-el-mes-de-la-herencia-hispana)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/tax-law-offices-marks-hispanic-heritage-month-by-championing-spanish-speaking-taxpayers)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/farmer-brown-insurance-honors-latino-entrepreneurs-during-hispanic-heritage-month)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/tax-law-offices-celebrates-hispanic-heritage-month-highlights-commitment-to-spanish-speaking-taxpayers)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/tax-law-offices-marks-hispanic-heritage-month-highlighting-latino-entrepreneurs-economic-role)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/tax-law-offices-conmemora-el-mes-de-la-herencia-hispana-y-destaca-el-papel-economico-de-los-empresarios-latinos)
+
+Pickup - [https://burstable.news](https://burstable.news/news/tax-law-offices-highlights-latino-entrepreneurial-contributions-during-hispanic-heritage-month)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/steuerrechtskanzleien-wurdigen-den-beitrag-lateinamerikanischer-unternehmer-wahrend-des-hispanic-heritage-month)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/tax-law-offices-destaca-las-contribuciones-empresariales-latinas-durante-el-mes-de-la-herencia-hispana)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/tax-law-offices-met-en-lumiere-les-contributions-entrepreneuriales-latinos-pendant-le-mois-du-patrimoine-hispanique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/escritorios-de-direito-tributario-destacam-contribuicoes-empresariais-latinas-durante-o-mes-da-heranca-hispanica)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/tax-law-offices-marks-hispanic-heritage-month-by-championing-spanish-speaking-taxpayers)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/28/tax-law-offices-marks-hispanic-heritage-month-by-highlighting-service-to-latino-entrepreneurs/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/28/icyXJ46.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/28/plumbqsm.webp)
