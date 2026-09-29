@@ -1,66 +1,90 @@
-# NWB Finland Oy Introduces a New Premium Water Format to U.S. Retail Buyers at ECRM
+# Denver-Based Marketing Firm Paige Black Rebrands as Ignition Canvas
 
+Paige Black, a Denver-based strategic marketing firm founded in 2013, today announced the agency has officially rebranded as Ignition Canvas, representative of the firm’s unbiased approach to solving complex marketing issues from a sharply analytical perspective. Founded in 2013 by principal Mike Black, the agency has established a solid track record of success over the past decade, serving B2B clients from a wide range of industries and business sectors - everything from manufacturing and commercial construction to energy and financial services.
 
-NWB Finland Oy has completed its participation in the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida, where the Finnish company introduced U.S. retail buyers to AINA Natural Water and a different approach to the premium water category.
+ “After a decade of success helping middle market companies achieve their strategic marketing goals, the timing was right to redefine who we are and what we do best,” stated Mike Black, CEO of Ignition Canvas. “Though our name has changed, what hasn’t changed is a deep and abiding commitment to apply our collective experience and expertise in solving the most complex marketing issues of our time. What’s different about Ignition Canvas begins with how we approach new business opportunities - from a strictly unbiased perspective that addresses the unique, complicated issues that hinder real growth and prevent companies from reaching their full potential.”
 
- Rather than competing for space as another individually bottled premium water, AINA enters the U.S. market in larger 5-liter and 10-liter bag-in-box formats. NWB Finland Oy used its ECRM participation to highlight how that format can give retailers a distinctive product for their water assortment while addressing growing consumer interest in packaging waste and sustainability.
+ Ignition Canvas offers clientele a full suite of turnkey marketing solutions, arrayed in three distinct disciplines:
 
- "ECRM gave us an opportunity to introduce retailers to both AINA Natural Water and the thinking behind the product," said Marita Weiman, Quality Assurance Manager at NWB Finland Oy. "We believe there is an opportunity to approach premium water differently, with a format that stands apart at retail and gives consumers an alternative to purchasing water in individual plastic bottles."
+ ● Plan: specializing in marketing strategy and branding
 
- A Retail Proposition Built Around Differentiation AINA Natural Water combines two elements NWB Finland Oy believes can help differentiate the brand in the U.S. market:
+ ● Execute: featuring design, website creation and development, SEO/AEO, social media, content marketing, paid media, and public relations/earned media
 
- * naturally filtered groundwater from Northern Finland and
-* sustainability-focused packaging designed for everyday use.
+ ● Measure: analytical evaluation via marketing dashboards
 
- For retailers, the bag-in-box format offers a visually different presentation from conventional bottled water while providing a straightforward sustainability story that can be communicated to shoppers.
+ Wholly committed to providing scalable marketing solutions, Ignition Canvas brings a highly principled approach to protecting a client’s scope and spend, where feedback and recommendations are always honest, open, and transparent. To that end, the agency is proud to feature several successful case studies in which Ignition Canvas applied its diverse expertise and business acumen and to solve complex marketing issues for clients.
 
- The larger format is designed for use in homes, offices, hospitality settings and other environments where consumers want convenient access to premium drinking water. By packaging multiple liters in a single bag-in-box, AINA also uses substantially less plastic than comparable volumes packaged in individual plastic bottles.
-
- "Retail buyers see a tremendous number of new products, so differentiation matters," Weiman said. "Our conversations at ECRM gave us the opportunity to explain why the AINA format is an important part of the brand, not simply the container the water comes in."
-
- Northern Finland Inside the Box AINA Natural Water originates in the Pudasjärvi region of Northern Finland, where groundwater is naturally filtered through layers of soil, sand and rock before being mechanically filtered and packaged.
-
- The water contains approximately 32 mg/L of Total Dissolved Solids (TDS). Its naturally low mineral content contributes to AINA's soft, neutral taste and clean finish.
-
- NWB Finland Oy's ECRM participation comes as the company moves from introducing AINA to the U.S. market to making the product available to American consumers. AINA Natural Water is coming to OneLavi.com, representing the brand's first U.S. consumer availability.
-
- The company is also preparing inventory for shipment from Finland to the United States as it moves forward with its U.S. launch.
-
- "For us, ECRM was another step in building AINA's presence in the United States," Weiman said. "We came to show retailers that premium water can offer something different through its source, its format and the story retailers can share with their customers."
-
- For more information about AINA Natural Water, visit AINA Natural Water. To learn more about NWB Finland Oy, visit NWB Finland Oy.
-
- About [NWB Finland Oy](https://nwb.fi/about-us/) NWB Finland Oy is a Finland-based company focused on sustainable beverage packaging and natural water solutions. Headquartered in Pudasjärvi, Finland, the company was founded with a mission to develop environmentally responsible alternatives to traditional beverage packaging while delivering premium-quality products to consumers around the world.
-
- Its flagship brand, AINA Natural Water, features naturally filtered groundwater sourced from Northern Finland, a region known for its pristine natural environment and abundant groundwater resources. The water is packaged in innovative bag-in-box formats designed to reduce plastic consumption while providing a convenient solution for households, businesses, hospitality venues, and events.
-
- NWB Finland Oy's long-term vision is to make Northern Finland's natural groundwater available to consumers globally while continuing to invest in sustainable packaging solutions that support both consumer needs and environmental responsibility. 
+ About Ignition CanvasIgnition Canvas is a Denver-based marketing agency that works with middle-market companies to build the strategies, systems, and teams businesses need to foster effective growth. The agency was founded in 2013 to offer breakthrough solutions for companies struggling with the same repetitive marketing shortfalls: investing hard-earned capital without a well-defined plan, an absence of clear-cut goals, and no real way to assess measurable progress. Under the leadership of veteran marketer Mike Black, who brings an unbiased approach to analytical problem-solving, the diverse and uniquely talented team at Ignition Canvas is committed to solving complex marketing issues. For more information, please visit https://ignitioncanvas.com/about. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609292989/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+[Original/Source Press Release](https://newsworthy.ai/news/202609292987/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nwb-finland-oy-brings-aina-natural-water-to-u-s-retailers-at-ecrm-2026/8a28a676c561a87f9a02baebead4ec74) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paige-black-rebrands-as-ignition-canvas-unveils-unbiased-marketing-approach/828c599d78bd32231974e05eb4df9c96) 
 
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/29/paige-black-rebrands-as-ignition-canvas-to-emphasize-unbiased-analytical-marketing/)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/nwb-finland-oy-introduces-a-new-premium-water-format-to-us-retail-buyers-at-ecrm)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/denver-based-marketing-firm-paige-black-rebrands-as-ignition-canvas)
+
+Pickup - [https://advos.io/en](https://advos.io/en/paige-black-rebrands-as-ignition-canvas-signaling-a-shift-in-strategic-marketing)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/paige-black-rebrands-as-ignition-canvas-signaling-a-shift-toward-unbiased-analytical-marketing)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/paige-black-rebrands-as-ignition-canvas-to-emphasize-unbiased-analytical-marketing)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/denver-marketing-firm-paige-black-rebrands-as-ignition-canvas-signals-unbiased-approach-to-complex-marketing-challenges)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-empresa-de-marketing-de-denver-paige-black-se-renombra-como-ignition-canvas-y-senala-un-enfoque-imparcial-para-los-complejos-desafios-del-marketing)
+
+Pickup - [https://burstable.news](https://burstable.news/news/denver-marketing-firm-paige-black-rebrands-as-ignition-canvas-to-emphasize-unbiased-analytical-approach)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/denver-marketingfirma-paige-black-wird-zu-ignition-canvas-um-unvoreingenommenen-analytischen-ansatz-zu-betonen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-empresa-de-marketing-de-denver-paige-black-se-rebautiza-como-ignition-canvas-para-enfatizar-un-enfoque-analitico-imparcial)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lagence-de-marketing-de-denver-paige-black-devient-ignition-canvas-pour-mettre-laccent-sur-une-approche-analytique-impartiale)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/empresa-de-marketing-de-denver-paige-black-passa-por-rebranding-e-adota-o-nome-ignition-canvas-para-enfatizar-abordagem-analitica-imparcial)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/paige-black-rebrands-as-ignition-canvas-signaling-a-sharper-focus-on-unbiased-marketing-strategy)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/paige-black-rebrands-as-ignition-canvas-sharpening-focus-on-unbiased-marketing-solutions)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/paige-black-rebrands-as-ignition-canvas-signals-unbiased-approach-to-marketing)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/paige-black-rebrands-as-ignition-canvas-emphasizing-unbiased-analytical-marketing)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/denver-marketing-firm-paige-black-rebrands-as-ignition-canvas-to-double-down-on-unbiased-strategy)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/29/hintUIKo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/29/xeno4iKJ.webp)

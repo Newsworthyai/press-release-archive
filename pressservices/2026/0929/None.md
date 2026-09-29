@@ -1,45 +1,87 @@
-# Anne Therese Medically Supervised Practice Adds Body Contouring to Skin
+# Rte. 125 RV & Marine Adds 2026 and 2027 RV Models in Rochester
 
-Anne Therese Aesthetic Medicine Offers Individualized Plans Covering Both Skin and Body Contouring
+RV Sales in NH Features New and Used Travel Trailers in Rochester
 
- Cape Coral, United States - September 27, 2026 / Anne Therese Aesthetic Medicine /
+ Rochester, United States - September 29, 2026 / Rte. 125 RV & Marine, Inc. /
 
- CAPE CORAL - Anne Therese Aesthetic Medicine is drawing attention to two non-surgical treatment options available to Cape Coral patients dealing with the visible effects of sun exposure and localized areas of stubborn fat. The practice provides IPL/BBL Photofacial for addressing sun-related skin concerns and CoolSculpting Elite for targeted body contouring at its Cape Coral location.
+ ROCHESTER, NEW HAMPSHIRE, September 29, 2026 — Rte. 125 RV & Marine, Inc. has updated its inventory with new and used recreational vehicles, including travel trailers, fifth wheels, destination trailers and motorhomes. The inventory includes 2026 and 2027 models as well as pre-owned RVs in several sizes and floor plans, giving shoppers more options when comparing RVs in New Hampshire.
 
-The two treatments serve distinct aesthetic purposes. IPL/BBL Photofacial applies intense pulsed light to reduce redness, discoloration, uneven skin tone, and other visible signs of sun damage. CoolSculpting Elite uses controlled cooling technology to reduce fat in specific treatment areas without surgery.
+![2027 KZ Sportsmen Classic 130BH-interior](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Y0L7KJjuTsE16u7Iraj5q7z17DQFeK7slUgU8pap.jpg)
 
-Treatment recommendations at Anne Therese Aesthetic Medicine are shaped by each patient's skin condition, medical history, individual concerns, and aesthetic goals. Licensed professionals at the practice assess these factors before developing a personalized treatment plan. Results differ from patient to patient, and neither treatment is designed to produce identical outcomes across all individuals.
+New RV Inventory Includes 2026 and 2027 ModelsThe updated selection includes towable RVs in different sizes, layouts, and configurations for a range of camping plans.
 
-IPL/BBL Photofacial for visible sun damageIPL/BBL Photofacial is a light-based procedure used to address sun damage, redness, discoloration, and uneven skin tone. During the consultation process, licensed professionals evaluate whether the treatment is appropriate based on the patient's skin type and prior treatment history.
+Travel Trailers For Different Camping PlansThe dealership's new RV inventory includes travel trailers from manufacturers such as KZ and Forest River. Among the listed models is the 2026 KZ Sportsmen Classic 130RD, a 17-foot travel trailer with a listed dry weight of about 2,630 pounds and sleeping capacity for three.
 
-More information about BBL Photofacial in Cape Coral, FL is available on the practice's website.
+The inventory also includes 2027 KZ Sportsmen Classic models and Forest River Avenger LT travel trailers. These smaller towable RVs provide options for buyers who want compact layouts for camping trips.
 
-CoolSculpting Elite for targeted body contouringCoolSculpting Elite is a non-surgical body contouring procedure that applies controlled cooling to reduce fat in selected areas of the body. The treatment is intended for localized fat reduction and is not classified as a weight-loss procedure.
+Fifth Wheels and Destination TrailersFor shoppers interested in larger RVs, the inventory includes Coachmen Chaparral fifth wheels. The 2026 Coachmen RV Chaparral 336TSIK features 37 feet, with three slides, a rear living area, a kitchen island, and sleeping capacity for four. The Chaparral 360IBL measures 40 feet and sleeps up to eight.
 
-Patients researching CoolSculpting in Cape Coral can schedule a consultation to discuss candidacy and identify appropriate treatment areas.
+Destination trailers from Recreation By Design and CrossRoads are also featured in the company’s inventory.
 
-Anne Therese Aesthetic Medicine also provides additional non-surgical aesthetic services, including dermal fillers, injectables, facials, and professional skincare. Availability and specific recommendations are confirmed through the consultation process.
+Used RVs Span Multiple CategoriesThe pre-owned inventory gives shoppers several RV types, model years, and floor plans to compare in one location.
 
-Cape Coral patients can schedule a consultation with Anne Therese Aesthetic Medicine.
+Pre-Owned Travel TrailersThe company also maintains a selection of used RVs in New Hampshire, with inventory covering several model years, lengths, and layouts. The current selection includes a 2019 Keystone RV Hideout 179LHS, a 2016 Forest River RV Vibe 268RKS, and a 2020 Heartland Trail Runner 293 BHS.
 
-About Anne Therese Aesthetic MedicineAnne Therese Aesthetic Medicine is a medically supervised aesthetics practice offering injectables, laser treatments, facials, professional skincare, and body contouring. The practice operates locations in Lewis Center and Gahanna, Ohio, and Cape Coral and Bonita Springs, Florida. Treatments are selected through clinically guided protocols and individualized treatment planning.
+The dealership's used inventory also includes newer pre-owned models, such as 2024 and 2025 travel trailers. This allows shoppers to compare different model years and floor plans within the same dealership.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/3hGM4WMR0aLAFqtN6twtE2xPvhHDNa5jtr3LqgS7.jpg) [](https://www.annetherese.com) Contact Information:
+Motorhomes and Larger Used RVsThe pre-owned selection extends beyond travel trailers. The motorhome inventory includes the 2017 Forest River RV FR3 29DS, a Class A motorhome, and the 2021 Thor Motor Coach Magnitude SV34, a Class C diesel motorhome.
 
- Anne Therese Aesthetic Medicine
+These options give buyers looking beyond towable RVs additional vehicle types to consider.
+
+Parts, Service and FinancingThe dealership supports its RV sales operation with services that cover ownership needs beyond the vehicle purchase.
+
+Full-Service Dealership OperationsIn addition to RV sales in NH, the company provides financing, parts, service and consignment. Its service department handles maintenance and repair work for travel trailers, fifth wheels, and motorhomes.
+
+The parts department carries products for exterior components, plumbing, lighting and electrical systems, maintenance and towing.
+
+Rochester Location Offers a Broad RV SelectionThe dealership’s Rochester facility gives customers access to an inventory that covers different RV categories, sizes, and floor plans.
+
+A Range of RV CategoriesThe inventory includes travel trailers, fifth wheels, destination trailers, and motorhomes, with models from manufacturers such as Coachmen, KZ, Forest River, CrossRoads, Dutchmen, and Recreation By Design.
+
+The selection ranges from compact travel trailers designed for smaller towing needs to larger fifth wheels and destination trailers with multiple slides and expanded living areas. Used inventory adds additional model years and floor plans for shoppers comparing pre-owned options. For shoppers researching RV dealers in Kingston, NH, the Rochester location offers another option.
+
+“Rte. 125 RV & Marine has served customers from the same Rochester location since 1990. The company remains focused on providing new and used RVs and boats, along with sales, financing, parts and service support,” said Mike Lamoureux, Director, Retail, at Rte 125 RV & Marine, Inc.
+
+![2027 KZ Sportsmen Classic 130BH-exterior](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/4IQL0iynB30hZ7KFYPgGxdKrmd08dzboSAtG848e.jpg)
+
+About Rte. 125 RV & Marine, Inc.Rte. 125 RV & Marine, Inc. is a full-service RV and marine dealership located in Rochester, New Hampshire.
+
+Established at its current location in 1990, the company sells new and used RVs and boats and provides financing, parts, service, and consignment. It is a member of the Greater Rochester Chamber of Commerce.
+
+Media ContactPublic Relations
+
+Rte. 125 RV & Marine, Inc.
+
+343 Gonic Rd.
+
+Rochester, NH 03839
+
+Phone: (800) 266-7446
+
+Email: 125rv@theroadiscalling.com
+
+Website:https://www.theroadiscalling.com
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PDJPOYYr31vEX5xl2niom2hBnjkjN46jvWoGsK2j.jpg) [](https://www.theroadiscalling.com/) Contact Information:
+
+ Rte. 125 RV & Marine, Inc.
 
  
 
-831 Cape Coral Pkwy E.  Cape Coral, Florida 33904United States
+343 Gonic Rd  Rochester, NH 03839United States
 
- Hannah Thompson +1-239-212-1072 https://www.annetherese.com 
+ Public Relations (800) 266-7446 https://www.theroadiscalling.com/
+
+ 
+
+ Original Source:  https://rte125rvmarine.media-room.app/ 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/anne-therese-medically-supervised-practice-adds-body-contouring-to-skin-450285)
+[Original/Source Press Release](https://mediawiretoday.com/rte-125-rv-marine-adds-2026-and-2027-rv-models-in-rochester-449965)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/anne-therese-aesthetic-medicine-offers-non-surgical-skin-and-body-treatments-in-cape-coral/fa12f5ea9db2edc751e812038288cb03) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rte-125-rv-marine-updates-inventory-with-2026-2027-rvs/482b762f53aedf7504c74925f923af37) 
 
  
 
@@ -47,4 +89,4 @@ About Anne Therese Aesthetic MedicineAnne Therese Aesthetic Medicine is a medica
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/29/loftAjg1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/269/29/kitezceM.webp)
