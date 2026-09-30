@@ -1,30 +1,86 @@
-# Stonegate Capital Partners Updates Coverage on OS Therapies Inc. (NYSE: OSTX) 3Q25
+# Fundamental, Breakthrough Paper Building an Integrated Theory of Plasma Confinement
 
-DALLAS, TX -- November 21st, 2025 -- OS Therapies Inc. (NYSE: OSTX): Stonegate Capital Partners updates their coverage on OS Therapies Inc. (NYSE: OSTX). OS Therapies advanced key clinical, regulatory, and commercial milestones in 3Q25 as it moves closer to bringing OST-HER2 to patients with recurrent, fully resected, pulmonary metastatic osteosarcoma. Final 2-year OS data from the 41-patient Phase 2b trial showed a 2-year OS rate of 75% for OST-HER2 vs 40% in historical controls, with 100% 2-year survival among patients event-free at 12 months, reinforcing durable benefit. Building on a successful End-of-Phase 2 interaction, management is preparing harmonized U.S./ex-U.S. filings with UK MHRA and FDA submissions expected around year-end, supported by its Eversana partnership and a launch plan that anticipates initial PRV monetization in 2026 and commercial OST-HER2 revenues beginning in early 2027. Subsequent to quarter-end, the Company also announced its intent to spin off OS Animal Health (OSAH) into a separately financed, standalone public company in 1H26, with OSTX shareholders expected to receive direct equity participation in the new listing.
+BELLEVUE, WA, AUSTIN, TX AND TOKYO, JAPAN, SEPT 30, 2026
 
-Company Updates:
+Plasma Physicists from the Institute for Fusion Studies (IFS) at the University of Texas, The Graduate School of Mathematical Sciences at the University of Tokyo, and private fusion leader ExoFusion have developed a unified theory of transport barriers in magnetically confined systems, published in Nuclear Fusion, Sept 17th. The paper can be found here.
 
-Pipeline Overview: OST-HER2 remains the lead asset, supported by Phase 2b data showing statistically significant improvements in 12-month event-free survival and 2-year overall survival in recurrent, fully resected pulmonary metastatic osteosarcoma. OSTX continues to leverage the acquired Ayala/Advaxis listeria platform, with the OST-504 Phase 1b trial in biochemically recurrent prostate cancer completing last patient visit and an initial data readout expected in 4Q25. OS Animal Health is now expected to be housed within OSAH as a standalone public company in 1H26, targeting a substantial U.S. canine OS opportunity
+To view the full announcement, including downloadable images, bios, and more, click here.
 
-Regulatory Advancements: In 3Q25, OSTX further clarified the global registration path for OST-HER2, with FDA alignment on safety, non-clinical, and CMC requirements and ongoing discussion around applying updated OS-focused oncology guidance to the existing efficacy package. In parallel, UK MHRA has accepted the use of historical controls and real-world comparators for a conditional MAA, while EMA feedback supports the use of 2-year OS from the Phase 2b trial as the primary efficacy endpoint for conditional approval. The Company has secured a UK MHRA pre-MAA meeting and a FDA Type C meeting, both in 4Q25, providing plans for a UK MAA submission and a U.S. BLA filing in January 2026 under Project Orbis.
+Key Takeaways:* Fundamental Paper Offering a Unified Theory of Transport Barriers.
+* Powerful collaboration between IFS (UT Austin), ExoFusion, and The University of Tokyo.
+* Confinement remains the core issue for Commercially Viable Fusion (CVF)
 
-Financial Performance: For 3Q25, OS Therapies reported a net loss of $6.9M versus $2.9M in 3Q24, driven primarily by higher regulatory and pre-commercial spending ahead of OST-HER2 filings. Cash and equivalents were ~$1.9M at quarter end, supplemented by post-quarter proceeds tied to a previously announced ~$7.8M warrant exercise and inducement exchange, extending runway into late 2026. During the quarter, OSTX terminated an ELOC and established an at-the-market program, adding flexibility as it positions the balance sheet for potential OST-HER2 approval and PRV monetization ahead of the September 30, 2026 sunset date.
+[Click image above to view full announcement.](https://exofusion.reportablenews.com/pr/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
 
-Valuation: We use a probability-adjusted Discounted Cash Flow Model when valuing OSTX. Our valuation model returns a valuation range of $5.59 to $7.58 with a midpoint of $6.44. We note that this model is highly levered to the out years due to the long term nature of OSTX's industry, leading to the potential for dramatic re-ratings as new information becomes available.
+ExoFusion is an innovative company focused on accelerating the path to Commercially Viable Fusion (CVF). ExoFusion is a leader in the physics and technologies of confinement of novel materials for the first wall. ExoFusion focuses on design, simulation, IP, and scientific innovation for growing Fusion industry. ExoFusion is a recipient of ARPA-E, SCIDAC, FIRE, INFUSE and other grants. The company works across device types and fuel cycles.
 
- About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies. 
+Contacts:Romi Mahajan, CEO ExoFusionromi@thekkmgroup.com
+
+Source: ExoFusion
+
+Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-os-therapies-inc-nyse-ostx-3q25)
+[Original/Source Press Release](https://exofusion.reportablenews.com/pr/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/os-therapies-advances-breakthrough-osteosarcoma-treatment-toward-approval/f627c3162b5028f57669b13aeae04d2c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fusion-breakthrough-unified-theory-of-transport-barriers-published/af4f00ca48321fb026865c5a1772dafd) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/fundamental-breakthrough-paper-building-an-integrated-theory-of-plasma-confinement)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/new-unified-theory-of-plasma-confinement-could-accelerate-fusion-energy-development/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/unified-theory-of-plasma-confinement-published-by-fusion-researchers)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/unified-theory-of-plasma-confinement-could-speed-fusion-development)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/unified-theory-of-plasma-confinement-could-accelerate-fusion-energy-development)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/texas-led-fusion-breakthrough-unified-theory-of-plasma-confinement-could-accelerate-commercial-fusion)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/avance-en-fusion-liderado-por-texas-una-teoria-unificada-del-confinamiento-del-plasma-podria-acelerar-la-fusion-comercial)
+
+Pickup - [https://burstable.news](https://burstable.news/news/unified-theory-of-plasma-confinement-could-accelerate-fusion-energy-development)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/vereinheitlichte-theorie-des-plasmaeinschlusses-konnte-die-entwicklung-der-fusionsenergie-beschleunigen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/una-teoria-unificada-del-confinamiento-del-plasma-podria-acelerar-el-desarrollo-de-la-energia-de-fusion)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/une-theorie-unifiee-du-confinement-du-plasma-pourrait-accelerer-le-developpement-de-lenergie-de-fusion)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/teoria-unificada-de-confinamento-de-plasma-pode-acelerar-o-desenvolvimento-da-energia-de-fusao)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/unified-theory-of-plasma-confinement-could-accelerate-fusion-energy-development)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2511/24/palen5Ft.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/269/30/dashD3ZF.webp)
