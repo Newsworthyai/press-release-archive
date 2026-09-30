@@ -1,31 +1,35 @@
-# TruGolf Holdings (TRUG) to Present at ThinkEquity Conference
+# Schweizer Electronic AG Transitions to the Scale Segment of the Frankfurt Stock Exchange
 
-LOS ANGELES, CA - September 29, 2026 (NEWMEDIAWIRE) - TruGolf (NASDAQ: TRUG) announced that Chairman and Interim CEO Brenner Adams and Polymath Research Interim CEO and CFO Natalie Hirsch will present at The ThinkEquity Conference on Oct. 15, 2026, at the Mandarin Oriental in New York. Management will discuss TruGolf golf technology business, including the TruGolf Links franchise model, and the company expansion into tokenized financial infrastructure through its acquisition of Polymath. Adams and Hirsch will also hold one-on-one meetings with investors throughout the day.
+SCHRAMBERG, GERMANY - September 29, 2026 (NEWMEDIAWIRE) - Shares in Schweizer Electronic AG (ISIN: DE0005156236, WKN: 515623) will be traded on the Scale segment of the Frankfurt Stock Exchange from 30 September 2026. The company is thus completing the transition from the regulated market to the Scale segment of the open market, as announced on 13 August 2026.
 
- ![](http://newmediawire.s3.amazonaws.com/6abbfec7da846f543cccc4da_1)
+ The steps required for the segment change have been completed as planned. The last trading day for the shares of Schweizer Electronic AG on the regulated market of the Frankfurt Stock Exchange (General Standard) and on the regulated market of the Stuttgart Stock Exchange is 29 September 2026. From 30 September 2026, the shares will be listed on the Scale segment of the Frankfurt Stock Exchange.
 
- To view the full press release, visit https://ibn.fm/hHdn2
+ The tradability of SCHWEIZER shares will remain fully guaranteed throughout the segment change. The shares will continue to be tradable via Xetra and other trading venues.
 
- About TruGolf
+ By moving to Scale, Schweizer Electronic AG is aligning its stock market listing with the company’s size and capital market orientation. Scale is a segment of the Open Market (Freiverkehr) of the Frankfurt Stock Exchange with additional transparency requirements and is aimed in particular at small and medium-sized enterprises.
 
- Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
+ As previously announced in an ad hoc announcement dated 13 August 2026, Schweizer Electronic AG’s aim in changing segments is to reduce the regulatory and administrative burden associated with listing on the regulated market, including the associated costs, whilst maintaining its presence on the capital market.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ The company will continue to provide shareholders, investors and other capital market participants with regular and transparent updates on the company’s performance.
 
- The latest news and updates relating to TRUG are available in the company’s newsroom at https://ibn.fm/TRUG
+ About SCHWEIZERSchweizer Electronic AG is synonymous with cutting-edge technology and expert consultancy in the printed circuit board industry. With its state-of-the-art production facility in Schramberg and through close partnerships with other technology leaders, SCHWEIZER offers bespoke printed circuit board and embedding solutions. The company’s innovative printed circuit board technologies are used in demanding applications across the automotive, aviation & defence, industry & medical, and communications & computing sectors. They are characterised by high quality and energy- and resource-efficient properties.Founded in 1849 by Christoph Schweizer, the company is listed on the Stuttgart and Frankfurt stock exchanges (ticker symbol: SCE; ISIN: DE0005156236).
 
- Forward Looking Statements
+ For further information, please contact:Elisabeth TrikSchweizer Electronic AGEinsteinstraBe 1078713 SchrambergTelephone: +49 7422 / 512-302Email:elisabeth.trik@schweizer.agVisit our website: www.schweizer.agPhotos: Schweizer Electronic AG | Flickr
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/trugolf-holdings-trug-to-present-at-thinkequity-conference-7090160)
+[Original/Source Press Release](https://www.newmediawire.com/news/schweizer-electronic-ag-transitions-to-the-scale-segment-of-the-frankfurt-stock-exchange-7090172)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-to-present-at-thinkequity-conference-showcasing-golf-tech-and-polymath-acquisition/f9479361055219b1722d8183376c784b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/schweizer-electronic-moves-to-frankfurt-s-scale-segment/b8d1511b622e212148e644c5c6f118c6) 
 
  
 
@@ -33,4 +37,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/29/poemEulx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/29/rubywoC2.webp)
