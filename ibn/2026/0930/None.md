@@ -1,16 +1,18 @@
-# Stocktoberfest 2026 Set to Offer Entertaining Multi-Setting Financial and Investment Conference with ‘Full Experience + Golf’ Package
+# American Fusion(TM) Inc. (AMFN) Executive Chairman Discusses Texatron(TM) Testing, Race to Power AI
 
-Date: October 5-7, 2026
+* In a new AGORACOM interview, Executive Chairman Brent Nelson outlined the next stages of the company’s Texatron(TM) development and potential commercialization strategy.
+* The company has a 5 MW pre-production Texatron(TM) and is working with its Texas fabricator on planned 10 MW and 20 MW configurations.
+* Texas authorization covers 12 planned Texatron(TM) model classes ranging from approximately 500 kW to 1 GW.
+* Management is targeting documented test results showing whether the Texatron(TM) can generate and capture sufficient energy for conversion into usable electricity, with a goal of reaching unity or beyond unity by the end of 2026.
+* If testing and subsequent validation are successful, American Fusion(TM) is targeting a potential test-unit deployment and possible commercial electricity production and sales in 2027.
 
- Venue: New York City
+ American Fusion(TM) (OTCBQ: AMFN), a developer of next-generation fusion energy technologies, is putting the testing of its Texatron(TM) Fusion Engine(TM) at the center of a potential strategy to supply electricity to artificial-intelligence infrastructure and other power-intensive customers, according to Executive Chairman Brent Nelson in a new AGORACOM interview (https://ibn.fm/GZmxG).
 
- Stocktoberfest 2026 by Stocktwits goes beyond the traditional investor conference, offering a Full Experience + Golf package as one of the available options. The package combines a complete two-and-a-half-day event with an 18-hole round at the famed Century Country Club in Purchase, New York, along with the core investor event and variety of additional perks.
-
- Taking place October 5–7, Stocktoberfest event brings together traders, investors, public company executives, financial analysts, content creators and other members of the investing community for a mix of marketing and networking. The core event will host…
+ The interview, released September 9, comes as the company moves through an experimental program involving both of its 500 kW and 5.0 MW pre-production Texatron(TM) and considers larger configurations. Nelson discussed planned 10 MW and 20 MW systems with American Fusion’s(TM) Texas fabricator and the company’s longer-term objective of developing…
 
  Read More>>
 
- To learn more, please visit https://ibn.fm/2SeZF.
+ NOTE TO INVESTORS: The latest news and updates relating to AMFN are available in the company’s newsroom at https://ibn.fm/AMFN
 
  About InvestorWire
 
@@ -26,15 +28,69 @@ Date: October 5-7, 2026
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/stocktoberfest-2026-set-to-offer-entertaining-multi-setting-financial-and-investment-conference-with-full-experience-golf-package/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/stocktoberfest-2026-offers-unique-investor-conference-with-golf-package/42a5870cdcd58eed4bc0eeb4fbffd65b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-fusion-tm-advances-texatron-tm-testing-in-race-to-power-ai/1295a7c535e2567ed274bb37f7090936) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://advos.io/en](https://advos.io/en/american-fusions-texatron-testing-aims-to-power-ai-data-centers-by-2027)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/american-fusions-texatron-testing-pivots-toward-powering-ai-infrastructure)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/american-fusions-texatron-testing-could-power-ai-data-centers-by-2027)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-fusions-texatron-testing-targets-ai-power-demand-texas-manufacturing)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/las-pruebas-del-texatron-de-american-fusion-apuntan-a-la-demanda-energetica-de-la-ia-y-la-manufactura-en-texas)
+
+Pickup - [https://burstable.news](https://burstable.news/news/american-fusions-texatron-testing-targets-ai-power-market-with-2027-commercial-goal)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/american-fusions-texatron-tests-zielen-mit-kommerziellem-ziel-2027-auf-den-ki-energiemarkt)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/las-pruebas-del-texatron-de-american-fusion-apuntan-al-mercado-energetico-de-la-ia-con-un-objetivo-comercial-para-2027)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/american-fusion-teste-son-texatron-en-visant-le-marche-de-lenergie-pour-lia-avec-un-objectif-commercial-en-2027)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/testes-do-texatron-da-american-fusion-visam-o-mercado-de-energia-para-ia-com-meta-comercial-para-2027)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/american-fusions-texatron-testing-could-power-ai-data-centers-by-2027)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/american-fusions-texatron-testing-puts-ai-power-race-in-focus)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/american-fusion-targets-2027-commercial-electricity-production-as-texatron-testing-advances)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/american-fusiontm-inc-amfn-executive-chairman-discusses-texatrontm-testing-race-to-power-ai)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/american-fusions-texatron-testing-targets-ai-power-demand-with-2026-unity-goal/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/30/mildvX6l.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/269/30/joltRPfH.webp)

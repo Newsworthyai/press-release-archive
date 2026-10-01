@@ -1,79 +1,54 @@
-# Hispanic Public Relations Association Announces Record-Setting 2026 Scholarship Class
+# EB5 Capital Reaches 80th Investor Country Milestone with Cuba
 
-![](https://www.noticiasnewswire.com/wp-content/uploads/2026/09/logo1.jpg)
+WASHINGTON, D.C. — September 30, 2026 — (NOTICIAS NEWSWIRE) — EB5 Capital announced today that it has officially welcomed its first investor from Cuba, marking its 80th investor country. The milestone represents a significant achievement in the firm’s Latin America expansion, connecting Cuban families with a proven pathway toward permanent U.S. residency and capital growth through EB-5 investment. With nearly $2 billion in successful investments across 50 projects since 2008, EB5 Capital brings deep expertise and multilingual support to Cuban investors entering the program.
 
- MIAMI, FL — September 30, 2026 — (NOTICIAS NEWSWIRE) — The Hispanic Public Relations Association (HPRA) today announced the recipients of its 2026 scholarship program, marking a record-setting year for the organization with the largest number of scholars awarded in one year. Since its launch in 2022, the program has awarded 20 students with $50,000 in scholarships.
+ “We’re genuinely excited to include Cuba in our investor portfolio,” said Brian Ostar, President of EB5 Capital. “Every new country we reach represents real families and real opportunities. We’re thrilled to be able to welcome Cuban investors and support their goals for building a stronger future.”
 
- The 2026 HPRA scholarship recipients are:
+ Andrea Devis Focke, Investor Relations Senior Director for the Latin America market at EB5 Capital, added: “We’re honored to welcome our first Cuban investor into the EB5 Capital investor family. While most of our Latin American investors come from Brazil, Mexico, and Argentina, connecting with families from countries such as Cuba, Ecuador, and Peru has shown me just how far this program reaches. Each new country reinforces the meaningful impact EB-5 has on families around the world. Welcoming investors from 80 countries is a testament to the program’s appeal across borders and the shared desire to build a stronger future.”
 
- * Camila Garcia Chirino — University of Florida
-* Isabelle Flores — The University of Texas at Austin
-* Luis David Latozefsky — Stetson University
-* Melanie Herrera — Florida International University
-* Nasaiah Algarin — American University
-* Xavier Ramirez — University of Southern California
+ Since 2008, EB5 Capital has raised nearly $2 billion across 50 projects for investors from 81 countries, maintaining a diverse portfolio spanning multifamily residential, office, and hospitality developments. With each new country, the firm deepens its commitment to making a measurable difference in the lives of immigrant investors and their families.
 
- This year also marks a new milestone for the program with HPRA’s first high school senior recipient, extending that support to emerging talent even earlier in their academic journey. Together, the expansion reflects HPRA’s continued commitment to creating greater access to opportunity and growing the scholarship program’s impact nationwide.
+ About EB5 Capital EB5 Capital provides qualified foreign investors with opportunities to invest in job-creating commercial real estate projects under the United States Immigrant Investor Program (EB-5 Visa Program). Headquartered in Washington, D.C., EB5 Capital’s distinguished track record and leadership in the industry has attracted investors from 81 countries. As one of the oldest and most active Regional Center operators in the country, the firm has raised nearly $2 billion of foreign capital across 50 EB-5 projects. 100% of our investors’ funds are protected by the Federal Deposit Insurance Corporation (FDIC) insurance prior to their deployment into our projects. Please visit www.eb5capital.com for more information.
 
- Selected for their academic achievement, leadership, community involvement and commitment to communications, this year’s recipients represent a range of interests spanning public relations, strategic communications, public affairs, entertainment and media, civic engagement and social impact.
-
- “The growth of this program is something our leadership is deeply proud of because it reflects what is possible when our industry invests intentionally in the next generation,” said HPRA National President Sonia V. Diaz. “With the support of partners like Aflac and H+M Communications, as well as individual donors, we have been able to expand our reach, open more doors, increase mentorship opportunities, and continue building a program that can make a meaningful impact in communities across the country.”
-
- HPRA’s scholarship program is designed to create greater access to education, professional development and industry opportunities for students pursuing careers in public relations, communications, marketing and related fields. Beyond financial support, recipients are connected to HPRA’s national network through mentorship, professional development, networking opportunities and exposure to industry leaders.
-
- As the program continues to grow, HPRA remains focused on reaching students at different stages of their academic journeys and strengthening the pipeline of diverse talent entering the profession.
-
- “Our scholarship winners inspire us every year with their stories,” said Natalie Asorey, Scholarship Committee Co-Chair. “We’re proud to support and champion them as they chart their paths in this industry.”
-
- Among this year’s recipients, Melanie Herrera of Florida International University has been selected to receive the Roshana Gossoff Memorial Scholarship, a $1,500 scholarship awarded to an FIU undergraduate student who demonstrates a strong interest in pursuing a career in public relations and communications. The scholarship honors the life and legacy of Roshana Gossoff, a beloved communicator, FIU alumna and former HPRA Miami officer whose passion, warmth and dedication left a lasting mark on the South Florida community and those she inspired.
-
- In addition to the scholarship award, students will receive free access to HPRA National webinars and events, a mentorship and shadowing opportunity with a board member, and be recognized at HPRA’s annual ¡BRAVO! Awards gala taking place on Nov. 19, 2026, at the LA River Center and Gardens in Los Angeles.
-
- This year’s program theme, “Legacy in Motion,” honors the organization’s history and the leaders who continue to shape each generation of communicators. The scholarship program represents one expression of that legacy: investing in emerging talent, creating greater access to opportunity and helping ensure that the progress built over more than four decades continues forward.
-
- About the HPRA ¡BRAVO! Awards  Since 2014, the HPRA ¡BRAVO! Awards have recognized excellence in multicultural communications. The annual program celebrates campaigns, organizations and leaders demonstrating the creativity, discipline and cultural fluency that move the communications industry forward.
-
- About HPRA  The Hispanic Public Relations Association (HPRA), founded in 1984, is the premier organization for Hispanic public relations professionals in the United States. HPRA advances the profession through professional development, national scholarships, chapter programming and industry recognition while supporting professionals working across culture, storytelling and strategy.
-
- CONTACT:  Elena Ruiz elena@zaidpr.com 
+ CONTACT: Kyra Barackman Manager, Marketing & Creative Design marcomm@eb5capital.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/hispanic-public-relations-association-announces/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/eb5-capital-reaches-80th-investor-country/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hpra-awards-record-number-of-2026-scholarships-to-diverse-communications-students/252b9bc0aba396a2395c83fe82b710a4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eb5-capital-welcomes-first-cuban-investor-reaches-80-countries/1d99c7199892d574e03d4da1e4a4f1ba) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/hpra-awards-record-2026-scholarship-class-expands-support-to-high-school-senior)
+Pickup - [https://advos.io/en](https://advos.io/en/eb5-capital-welcomes-first-cuban-investor-reaches-80th-country-milestone)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hpra-awards-record-six-scholarships-for-2026-expands-to-high-school-seniors)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/eb5-capital-welcomes-first-cuban-investor-reaching-80th-investor-country)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hpra-awards-record-six-scholarships-for-2026-including-first-high-school-recipient)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/eb5-capital-expands-to-80-investor-countries-with-first-cuban-investor)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/hpra-awards-record-2026-scholarship-class-including-first-texas-recipient-from-ut-austin)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/eb5-capital-welcomes-first-cuban-investor-hits-80-country-milestone)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/hpra-otorga-su-clase-de-becarios-2026-mas-numerosa-incluyendo-al-primer-receptor-de-texas-de-ut-austin)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/eb5-capital-da-la-bienvenida-a-su-primer-inversor-cubano-y-alcanza-el-hito-de-80-paises)
 
-Pickup - [https://burstable.news](https://burstable.news/news/hispanic-public-relations-association-awards-record-breaking-2026-scholarship-class)
+Pickup - [https://burstable.news](https://burstable.news/news/eb5-capital-welcomes-first-cuban-investor-reaching-80th-country-milestone)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hispanic-public-relations-association-zeichnet-rekordverdachtigen-jahrgang-2026-mit-stipendien-aus)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/eb5-capital-begrusst-ersten-kubanischen-investor-und-erreicht-meilenstein-von-80-landern)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-asociacion-de-relaciones-publicas-hispanas-otorga-una-generacion-record-de-becas-2026)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/eb5-capital-da-la-bienvenida-a-su-primer-inversionista-cubano-y-alcanza-el-hito-de-80-paises)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lassociation-de-relations-publiques-hispaniques-decerne-une-promotion-2026-record-de-bourses)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/eb5-capital-accueille-son-premier-investisseur-cubain-et-atteint-le-cap-du-80e-pays)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/associacao-de-relacoes-publicas-hispanicas-premia-turma-de-bolsistas-de-2026-que-bate-recorde)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/eb5-capital-da-as-boas-vindas-ao-primeiro-investidor-cubano-e-atinge-marco-de-80-paises)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hpra-awards-record-breaking-2026-scholarship-class-expands-to-high-school-seniors)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/eb5-capital-welcomes-first-cuban-investor-reaching-80th-investor-country-milestone)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/hpra-awards-record-six-scholarships-expands-pipeline-for-hispanic-communicators)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/eb5-capital-expands-to-80th-investor-country-with-first-cuban-investor)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/hpra-awards-record-six-scholarships-for-2026-including-first-high-school-senior/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/eb5-capital-reaches-80th-investor-country-with-first-cuban-investor/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/30/eachvJOo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/269/30/urge8Vrc.webp)

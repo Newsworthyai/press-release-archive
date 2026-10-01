@@ -1,82 +1,146 @@
-# RChilli to Show HR Leaders the Cost of Unreliable Candidate Data at SAP SuccessConnect Las Vegas
+# Soda Horse Peak Launches New Supplement Focused on Everyday Nutrition
 
-RChilli, a global AI recruitment data company built into SAP SuccessFactors and SmartRecruiters, today announced its participation in SAP SuccessConnect, taking place October 5 to 7, 2026, in Las Vegas. At Booth 6207, RChilli will meet with HR technology leaders, recruiters, and SAP partners to show how candidate data quality shapes hiring outcomes and AI performance across the platform.
+Soda Horse Peak has announced the launch of its dietary supplement, introducing a product formulated for adults who are interested in incorporating nutritional supplementation into an everyday wellness routine. The launch reflects the brand’s focus on providing a convenient supplement format that can be used alongside balanced nutrition, regular physical activity, adequate rest, and other established elements of a healthy lifestyle. Official Website at ​​https://sodahorsepeak.shop/
 
- RChilli is the clean data layer for SAP SuccessFactors solutions and SmartRecruiters: the infrastructure that ensures candidate data arrives structured, complete, and standardized before it reaches the system, the recruiter, or AI like Joule. Unreliable data quietly inflates time to hire and corrupts AI outputs. RChilli addresses the root cause, not just the symptoms.
+ The product is positioned as a dietary supplement rather than a prescription medicine or treatment. Soda Horse Peak is intended for adults seeking an additional nutritional option as part of their personal wellness routines. The company emphasizes that dietary supplements are designed to complement, rather than replace, a varied diet and healthy lifestyle.
 
- What attendees will see at Booth 6207 * Data visibility. A look at the actual quality of candidate profile data already sitting inside a company's own SuccessFactors instance, not an estimate.
-* Migration readiness. How to surface data problems before a platform transition, so issues are caught ahead of go live instead of after.
-* Ongoing data hygiene. Moving recruiting teams off an annual cleanup cycle and onto daily hygiene operations: duplicate detection, gap identification, and standardization of candidate records as they enter the system.
+ Soda Horse Peak Introduces a Convenient Supplement Format The introduction of Soda Horse Peak provides consumers with another option within the expanding dietary supplement market. The product has been developed in a format intended to fit into everyday routines without requiring extensive preparation.
 
- Visitors who bring one open job requisition to the booth will receive a solution identifying candidate data problems in their own records, built during a 15-minute conversation with an RChilli specialist. HR teams not attending the conference in person can request the same 15-minute session online.
+ For many consumers, convenience is an important consideration when selecting a dietary supplement. Products that can be incorporated into an established daily schedule may provide a straightforward way for individuals to maintain consistency with their personal nutrition habits.
 
- RChilli is trusted by more than 1,600 organizations across 50-plus countries. The company is SOC 2 Type II certified, ISO 27001:2022 certified, GDPR compliant, and HIPAA ready.
+ Soda Horse Peak is presented with this practical approach in mind. Rather than positioning supplementation as a replacement for healthy lifestyle practices, the product is intended to be considered as one component of an individual's broader wellness routine.
 
- "Recruiters don't trust a system because it's fast. They trust it because the data behind it is right," said Vinay Johar, CEO of RChilli. "SAP Joule and every AI layer on top of SuccessFactors is only as good as the candidate data feeding it. Our job at SAP SuccessConnect is to show teams what their own data actually looks like today, and what it takes to keep it clean going forward, not just once, but every day."
+ The company encourages consumers to review the product label and serving information before use and to consider their individual dietary needs when deciding whether a supplement is appropriate for them.
 
- HR and recruiting leaders attending SAP SuccessConnect are invited to talk to an expert at Booth 6207, October 5 to 7, 2026, 9 a.m. to 5 p.m., Monday through Wednesday.
+ Designed for Everyday Wellness Routines Soda Horse Peak enters the market at a time when consumers continue to show interest in nutritional products that can complement everyday routines. Dietary supplements are commonly used by adults for a variety of personal nutrition goals, although individual needs and responses can differ.
 
- About [RChilli](https://www.rchilli.com/) RChilli is a global AI recruitment data company that extracts structured data from resumes and job descriptions, performs semantic search and match, and enriches recruitment data with a skills and job taxonomy. RChilli's AI plug-ins embed inside customers' existing ATS, HCM, and ERP platforms rather than replacing them. RChilli is available on the Oracle Cloud Marketplace and Salesforce AppExchange. 
+ The product is therefore presented around the concept of routine and consistency rather than quick results or promises of specific outcomes.
+
+ A balanced approach to wellness can include a nutritious diet, regular movement, sufficient sleep, hydration, stress-management practices, and other healthy habits. Supplements may be used alongside these practices when they fit an individual's nutritional preferences and circumstances.
+
+ Soda Horse Peak's launch communication focuses on this broader context. The product is not presented as a substitute for professional medical care, a balanced diet, or an active lifestyle.
+
+ A Product for Adult Consumers Soda Horse Peak is intended for adult consumers. As with other dietary supplements, users are encouraged to read the complete product label, including serving instructions, ingredient information, warnings, and other applicable labeling information before use.
+
+ Individuals who are pregnant or nursing, taking medication, managing a medical condition, or otherwise uncertain about whether a dietary supplement is suitable for them should consult an appropriately qualified healthcare professional before beginning supplementation.
+
+ These considerations are particularly relevant because dietary supplements can contain concentrated amounts of nutrients, botanical ingredients, or other substances that may not be appropriate for every individual.
+
+ The company's launch materials therefore emphasize responsible use and attention to product labeling.
+
+ Supplementation as Part of a Broader Lifestyle The launch of Soda Horse Peak does not attempt to replace the fundamental components of everyday wellness. Nutrition remains an important part of maintaining a healthy lifestyle, while physical activity, rest, hydration, and other personal habits can also contribute to overall wellbeing.
+
+ Dietary supplements are generally used as additions to an individual's nutritional routine. Their role can vary considerably depending on dietary patterns, age, lifestyle, and other individual circumstances.
+
+ For this reason, Soda Horse Peak is presented as an optional supplement rather than a universal solution.
+
+ Consumers considering the product can evaluate its formulation, serving information, ingredients, and labeling to determine whether it aligns with their personal preferences and nutritional routine.
+
+ Focus on Product Information and Label Transparency Clear product information is an important consideration for consumers purchasing dietary supplements. Ingredient lists and serving information allow individuals to understand what a product contains and make more informed decisions.
+
+ Soda Horse Peak's product information is intended to provide consumers with details relevant to its use. Consumers should always refer to the current product label for the most accurate information regarding ingredients, serving size, directions, storage recommendations, and warnings.
+
+ Because formulations and labeling can change, the product packaging should be treated as the primary source of current product information.
+
+ The company also encourages consumers to consider the complete context of supplementation rather than focusing on individual ingredients in isolation.
+
+ Responsible Communication Around Dietary Supplements Soda Horse Peak's launch is being communicated as a product announcement rather than as a medical treatment or clinical intervention.
+
+ Dietary supplements should not automatically be interpreted as products capable of diagnosing, treating, curing, or preventing diseases. Consumers should distinguish general nutritional support from medical claims and should seek professional guidance when they have questions about a health condition or treatment.
+
+ The distinction is important because individual health circumstances can vary significantly. A product that is appropriate for one adult may not necessarily be appropriate for another.
+
+ For consumers interested in Soda Horse Peak, reviewing the product label and consulting a qualified healthcare professional when appropriate can help support responsible use.
+
+ Incorporating a Supplement Into a Daily Routine Consistency is often an important practical consideration for people who choose to use dietary supplements. A product that fits naturally into an existing routine may be easier for consumers to manage than a product requiring complicated preparation or scheduling.
+
+ Soda Horse Peak is designed to be considered within an individual's existing daily routine. Consumers should follow the serving instructions provided on the current product label and should not exceed the recommended serving unless directed otherwise by an appropriately qualified professional.
+
+ The company does not position supplementation as a replacement for regular meals, exercise, sleep, or other foundational lifestyle practices.
+
+ Instead, the product is introduced as an additional option for adults who choose to include dietary supplementation within their broader approach to personal wellness.
+
+ Consumer Considerations Before Use Before purchasing or using Soda Horse Peak, consumers can consider several factors.
+
+ First, they can review the complete ingredient list and serving information. This may be particularly important for individuals who already use other supplements, as combining products can result in overlapping ingredients.
+
+ Second, consumers can consider their existing diet and lifestyle. Supplements are intended to complement nutritional habits rather than compensate for an otherwise unbalanced routine.
+
+ Third, consumers should review any warnings or precautions listed on the product packaging.
+
+ Finally, individuals with questions concerning medication interactions, medical conditions, allergies, pregnancy, nursing, or other personal circumstances should consult a healthcare professional before using the product.
+
+ These steps can help consumers approach dietary supplementation with appropriate care and awareness.
+
+ Part of a Growing Supplement Category The dietary supplement sector includes a wide range of products designed around different consumer preferences. Capsules, powders, gummies, tablets, liquids, and other formats are available across the market.
+
+ Within this environment, brands increasingly emphasize convenience, straightforward product information, and compatibility with established routines.
+
+ Soda Horse Peak joins this broader category with a product intended for adult consumers who are interested in adding a dietary supplement to their everyday wellness practices.
+
+ The company’s launch highlights the importance of understanding what a supplement contains and how it is intended to be used rather than relying solely on promotional descriptions.
+
+ No Substitute for Professional Medical Advice Soda Horse Peak is not introduced as a replacement for medical diagnosis or treatment.
+
+ Consumers experiencing persistent symptoms or concerns about their health should consult an appropriate healthcare professional. Dietary supplements should not be used to delay seeking medical advice or to replace prescribed treatments.
+
+ This distinction is particularly important for individuals with existing health conditions or those taking prescription or over-the-counter medications.
+
+ Consumers should also follow all instructions and warnings supplied with the product and discontinue use and seek appropriate advice if they experience an unexpected reaction.
+
+ Looking Ahead With the launch of Soda Horse Peak, the company is adding another product to the dietary supplement marketplace and making the formulation available to adult consumers interested in incorporating supplementation into their routines.
+
+ The product's introduction centers on convenience and everyday use while maintaining the distinction between dietary supplementation and medical treatment.
+
+ As consumers continue to evaluate nutritional products, access to clear labeling and responsible product information remains an important part of the purchasing process. Soda Horse Peak's launch provides consumers with an additional product to consider when evaluating their personal supplementation preferences.
+
+ The company expects the product to appeal to adults who value a straightforward approach to incorporating dietary supplementation into an established wellness routine.
+
+ Ultimately, individual nutritional needs differ. Consumers can determine whether Soda Horse Peak fits their preferences by reviewing the current product label, considering their overall diet and lifestyle, and seeking professional advice when appropriate.
+
+ About Soda Horse Peak Soda Horse Peak is a dietary supplement brand focused on providing products intended for adult consumers interested in incorporating supplementation into their everyday wellness routines. The brand's approach centers on convenient use and integration with broader healthy-lifestyle practices, including balanced nutrition, physical activity, adequate rest, and responsible personal wellness habits.
+
+ Soda Horse Peak products are dietary supplements and are not intended to diagnose, treat, cure, or prevent any disease. Consumers should review product labeling for current ingredient, serving, warning, and usage information. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202609303004/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+[Original/Source Press Release](https://newsworthy.ai/news/202609302999/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-to-showcase-clean-data-solutions-at-sap-successconnect-2026/c0d43bd9fac2d17bc217f386390dfaf0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soda-horse-peak-launches-new-dietary-supplement-for-adults/fe10ffc21b21911c5ff5cace6cd1d9a7) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://advos.io/en](https://advos.io/en/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/soda-horse-peak-launches-new-supplement-focused-on-everyday-nutrition)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
-
-Pickup - [https://burstable.news](https://burstable.news/news/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/rchilli-zeigt-hr-verantwortlichen-auf-der-sap-successconnect-in-las-vegas-die-kosten-unzuverlassiger-kandidatendaten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/rchilli-mostrara-a-los-lideres-de-rr-hh-el-costo-de-los-datos-de-candidatos-poco-confiables-en-sap-successconnect-las-vegas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/rchilli-devoile-aux-dirigeants-rh-le-cout-des-donnees-candidats-non-fiables-a-sap-successconnect-las-vegas)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/rchilli-mostrara-aos-lideres-de-rh-o-custo-de-dados-de-candidatos-nao-confiaveis-no-sap-successconnect-las-vegas)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas)
-
-Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/rchilli-to-showcase-candidate-data-quality-solutions-at-sap-successconnect-2026)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/data-quality-emerges-as-the-hidden-driver-of-ai-hiring-success-at-sap-successconnect)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/rchilli-to-show-hr-leaders-the-cost-of-unreliable-candidate-data-at-sap-successconnect-las-vegas/)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/soda-horse-peak-launches-dietary-supplement-for-everyday-nutrition/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/30/deepeZTt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/269/30/bean6N4e.webp)

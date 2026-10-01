@@ -1,40 +1,70 @@
-# Training Decay and the Need for Continuous, Scenario-Based Readiness
+# Readcrest Capital AG Increases Consolidated Revenue and Earnings in the First Half of 2026 - Sale of Care Home Business Significantly Strengthens Balance Sheet - Home Care Business Further Expanded
 
-* Training decay can create challenges for public safety agencies as important skills and knowledge fade when they are not regularly reinforced. Continuous training can help personnel maintain proficiency and readiness between formal certification or qualification periods.
-* Wrap Technologies(R) is positioning its training platform as a scalable way for agencies to incorporate recurring, scenario-based learning into their readiness programs.
-* Through WRAP Reality(TM) and WRAP Tactics(TM), the company provides short-burst, scenario-based training designed to reinforce decision-making, policy knowledge, and practical skills while creating recurring value for agencies.
+HAMBURG, GERMANY - September 30, 2026 (NEWMEDIAWIRE) - Readcrest Capital AG (“the Company”; ISIN DE000A0LE3J1, WKN A0LE3J) increased its consolidated revenue by 1.6% to EUR 65.3 million in the first half of 2026 (same period last year: EUR 64.3 million). Including the gain on the sale of the U.K. care home business of EUR 29.4 million, net income for the period rose to EUR 24.9 million (same period last year: EUR 0.4 million). This results in earnings per share of EUR 0.71 (same period last year: EUR 0.01).
 
- LOS ANGELES, CA - September 30, 2026 (NEWMEDIAWIRE) - Law enforcement and public safety personnel rely on a wide range of skills to perform their jobs safely and effectively. Communication, de-escalation, conflict resolution, critical thinking, situational awareness, and medical response are among the capabilities that can become critical in high-pressure situations.
+ Revenue was attributable almost entirely to home care services in the U.K., which benefited from increases in local authority hourly rates effective as of April 1, 2026, as well as from acquisitions made since November 2025.
 
- ![](http://newmediawire.s3.amazonaws.com/6abd487cda846f543cccc4ed_1)
+ The sale of the U.K. care home business was completed on April 17, 2026, resulting in a net cash inflow of GBP 38.5 million (EUR 44.3 million). Bank loans of GBP 30.0 million (EUR 34.4 million) were repaid using the proceeds. Together with the conversion of a portion of the mandatory convertible bond in the amount of EUR 16.4 million, net financial liabilities(1) thereby decreased from EUR 180.1 million to EUR 123.5 million. Cash and cash equivalents doubled to EUR 20.3 million.
 
- Turning Training into an Ongoing Readiness Strategy
+ After the balance sheet date, the Group expanded its home care business through three additional acquisitions in England and Scotland. In addition, the Company established a third business division for light industrial real estate in Germany by acquiring a majority stake in RC Industrie Immobilien SE. Neither of these transactions has yet been reflected in the half-year financial statements.
 
- This is where Wrap Technologies Inc. (NASDAQ: WRAP) is positioning its technology. The public safety technology company has developed a Non-Lethal Response(TM) platform that combines tools, devices, policy support, and training for…
+ In the real estate project development segment, which has not yet generated any significant revenue, construction on the projects in Schwerin and Halle is scheduled to begin in 2027.
 
- Read More
+ Further details regarding the first half of 2026 can be found in the 2026 Half-Year Financial Report, which is available for download on the Company's website at https://www.readcrest.com/en/investor-relations?nachrichten_art=finanzberichte
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ (1) Net financial liabilities = non-current and current liabilities to lenders, excluding lease liabilities, less cash and cash equivalents; cash classified as held for sale under IFRS 5 is not included. As of June 30, 2026: EUR 143.8 million minus EUR 20.3 million = EUR 123.5 million; as of December 31, 2025: EUR 190.3 million minus EUR 10.2 million = EUR 180.1 million. Alternative performance measure, not defined under IFRS.
 
- The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
+ Contact Readcrest Capital AG Rolf Elgeti, Dr. Marcus Kiefer - Management Board membersHermannstraße 40, D-20095 Hamburg T: +49 40 679 580-22 E: info@readcrest.com W: www.readcrest.com
 
- Forward Looking Statements
+ About Readcrest Capital AG
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ Readcrest Capital AG is a listed company focused on real estate and special-situations investments. The company relies on stable cash flows from systemically important healthcare services in the United Kingdom - particularly through its stake in Grosvenor Health and Social Care - on the development of promising residential construction projects in high-growth regions of Germany, and on the establishment of a publicly traded platform for commercial real estate (light industrial) through its stake in RC Industrie Immobilien SE.
+
+ Financial Calendar 2026November 11 - Munich Capital Market Conference 2026November 23 - German Equity Forum, Frankfurt am Main
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/training-decay-and-the-need-for-continuous-scenario-based-readiness-7090218)
+[Original/Source Press Release](https://www.newmediawire.com/news/readcrest-capital-ag-increases-consolidated-revenue-and-earnings-in-the-first-half-of-2026-sale-of-care-home-business-significantly-strengthens-balance-sheet-home-care-business-further-expanded-7090220)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-tackles-training-decay-with-continuous-scenario-based-readiness/a8abe2054cef01f7d8b5d10289ea83bb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readcrest-capital-h1-revenue-up-net-income-soars-on-care-home-sale/5d483d6e18521b4dcd47075d689a6d28) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/readcrest-capital-ag-reports-higher-revenue-and-earnings-in-h1-2026-strengthens-balance-sheet-with-care-home-sale)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/readcrest-capital-ag-reports-higher-revenue-and-earnings-divests-care-homes-to-strengthen-balance-sheet)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/readcrest-capital-ag-reports-strong-h1-2026-results-and-strategic-expansion)
+
+Pickup - [https://burstable.news](https://burstable.news/news/readcrest-capital-ag-doubles-cash-and-cuts-debt-after-care-home-sale-expands-home-care)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/readcrest-capital-ag-verdoppelt-barmittel-und-reduziert-schulden-nach-verkauf-von-pflegeheim-und-baut-hausliche-pflege-aus)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/readcrest-capital-ag-duplica-su-efectivo-y-reduce-su-deuda-tras-la-venta-de-residencias-de-ancianos-y-amplia-la-atencion-domiciliaria)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/readcrest-capital-ag-double-sa-tresorerie-et-reduit-sa-dette-apres-la-vente-de-maisons-de-retraite-developpe-les-soins-a-domicile)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/readcrest-capital-ag-duplica-caixa-e-reduz-divida-apos-venda-de-lar-de-idosos-e-expande-cuidados-domiciliares)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/readcrest-capital-ag-reports-higher-revenue-and-earnings-in-h1-2026-after-care-home-sale)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/readcrest-capital-ag-reports-higher-revenue-and-earnings-in-h1-2026-following-care-home-sale)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/readcrest-capital-ag-reports-strong-first-half-2026-results-and-expands-home-care-business)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/09/30/readcrest-capital-ag-reports-higher-revenue-and-earnings-in-first-half-of-2026-care-home-sale-bolsters-balance-sheet/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/30/palek6Ok.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/269/30/beaniKE2.webp)
