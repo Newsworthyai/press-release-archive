@@ -1,43 +1,31 @@
-# Avatar Medical Brings Interactive 3D of a Patient's Own Anatomy to the Clinic Even Faster with New Epic Integration
+# Stonegate Capital Partners Updates Coverage on Cassiar Gold Corp. (TSXV: GLDC) 26Q2
 
-PARIS AND MOUNTAIN VIEW, CALIF. — 1 OCTOBER, 2026
+DALLAS, TX - OCTOBER 1, 2026
 
-Avatar Medical, an award-winning pioneer in transforming the clinical consultation experience through real-time, patient-specific 3D medical imaging, today announced that Avatar Medical Vision can now be launched directly from within the patient's Epic Systems electronic health record (EHR), giving clinicians seamless access to interactive, patient-specific 3D anatomy during consultations and surgical planning.
+Dallas, TX - October 1, 2026 - Cassiar Gold Corp. (TSXV: GLDC): Stonegate Capital Partners updates their coverage on Cassiar Gold Corp. (TSXV: GLDC). Cassiar continues to advance Taurus toward its first formal economic evaluation while maintaining a district-scale exploration program across the broader Cassiar Gold Property. The Company engaged Ausenco to complete a PEA, launched a fully funded 10,000 m 2026 drill program, extended its exploration permit through March 2031, and entered into an Exploration Agreement with the Dease River First Nation. In our view, these developments improve visibility into the path toward project definition while preserving the core thesis around a 2.34 Moz near-surface Taurus resource and broader exploration upside. The strategy balances technical de-risking at Taurus with continued resource growth and higher-grade opportunities across Cassiar South and regional targets.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Patient-specific 3D is now accessible directly through Epic, one of the most widely used electronic health record (EHR) systems. Avatar Medical Vision can be launched from within the patient’s electronic health record, giving clinicians access to interactive 3D anatomy in just a few clicks.
-* The integration brings patient-specific 3D closer to the clinical conversation. Avatar Medical Vision transforms standard CT and MRI scans into interactive 3D representations that can help clinicians communicate complex anatomy and treatment options with patients.
-* This is another step toward Avatar Medical’s broader vision for Visual Intelligence for Surgery. With the first implementation underway at UHealth - University of Miami Health System, Avatar Medical is working to make visual intelligence accessible throughout the surgical care journey, from consultation and preoperative planning through the operating room.
+Key Takeaways:* The Taurus PEA remains Cassiar's most important near-term milestone and is expected in 2H26, building on the current 410 koz Indicated and 1.93 Moz Inferred resource. We believe the study should provide the first meaningful framework for evaluating potential processing, mine scale, capital requirements, operating costs, and project economics.
+* Cassiar's 10,000 m 2026 drill program continues to provide additional resource-expansion potential, with approximately 7,400 m across 31 holes completed at Cassiar North as of September 17. The current MRE also excludes the 7,308 m drilled during 2025 and the ongoing 2026 campaign, suggesting pending assays and future resource updates remain important catalysts.
+* The balance sheet and broader project framework improved through warrant exercises, the C$5.53M May financing, the exploration-permit extension through March 2031, and the Dease River First Nation agreement. These developments support the current exploration and PEA program, while future development capital requirements remain an important longer-term consideration.
 
-[Click image above to view full announcement.](https://avatarmedical.reportablenews.com/pr/avatar-medical-brings-interactive-3d-of-a-patient-s-own-anatomy-to-the-clinic-even-faster-with-new-epic-integration)
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-cassiar-gold-corp-tsxv-gldc-26q2)
 
-About Avatar Medical
+About Stonegate: Stonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-Founded in 2020, Avatar Medical is pioneering Visual Intelligence for Surgery, building a scalable solution that transforms medical imaging into actionable visual information throughout the surgical care journey. Its flagship solution, Avatar Medical Vision, converts CT and MRI scans into interactive, lifelike 3D visualizations instantly and without segmentation, giving clinicians a more intuitive way to understand patient-specific anatomy, plan procedures, collaborate and communicate with patients. From consultation and preoperative planning through the operating room, the company is working to make visual intelligence accessible wherever critical surgical decisions are made. Originating from research conducted at Institut Curie and Institut Pasteur, Avatar Medical has FDA-cleared and CE-marked technology products. It works with more than 20 hospitals across the U.S. and Europe. Learn more at avatarmedical.ai.
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-MEDIA CONTACTS:
-
-AVATAR MEDICAL
-
-David Templeton, ANW Networks, +1 203.530.0458, dtempleton@anwnetworks.com
-
-Visit Avatar Medical’s press kit
-
-Epic is a registered trademark of Epic Systems Corporation
-
-Contacts:David Templeton / ANW Networks for Avatar Medical+1 203.530.0458dtempleton@anwnetworks.com
-
-Source: Avatar Medical
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://avatarmedical.reportablenews.com/pr/avatar-medical-brings-interactive-3d-of-a-patient-s-own-anatomy-to-the-clinic-even-faster-with-new-epic-integration)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-updates-coverage-on-cassiar-gold-corp-tsxv-gldc-26q2)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/avatar-medical-brings-3d-patient-anatomy-to-epic-ehr/5e98d23afe19a774d1b2dcbefd5103eb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stonegate-updates-coverage-on-cassiar-gold-as-taurus-pea-nears/ad185a320a9c8af2e25d53ef7cbacd4f) 
 
  
 
@@ -45,4 +33,4 @@ Distributed by: Reportable, Inc.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/1/boldqU0y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/1/kite6q76.webp)

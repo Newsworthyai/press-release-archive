@@ -1,39 +1,43 @@
-# Lotto.com® Celebrates Record-Breaking $800,020 Ohio Keno Win by Local Nurse
+# reVolver Podcasts’ Erazno y La Chokolata and Código Vital Named Among 2026’s Best Podcasts
 
-JERSEY CITY, NJ — October 1, 2026 — (NOTICIAS NEWSWIRE) — Lotto.com, the nation’s first online lottery platform to digitally deliver draw games and scratch tickets, is celebrating an $800,020 Ohio Keno win by a Clermont County resident whose combination of a Quick Pick ticket and two lucky numbers resulted in the largest lottery prize of her life. This win marks the biggest Keno prize won through Lotto.com since the game was introduced to the platform earlier this year. This ticket also represents one of the largest lottery Keno wins ever in the United States.
+DALLAS, TX — October 1, 2026 — (NOTICIAS NEWSWIRE) — reVolver Podcasts, a leading multicultural podcast network, is celebrating two of its Spanish-language programs being recognized among the best podcasts of 2026. Erazno y La Chokolata and Código Vital have been named finalists in the 5th Annual Signal Awards, which recognize excellence and innovation across the podcast industry.
 
- The record-breaking prize was claimed by Courtney S. following an Ohio Keno drawing in August 2026. Courtney used Lotto.com’s “Quick Pick” feature to generate her numbers before replacing two of them with her lucky numbers, 14 and 26, a decision that ultimately helped secure the historic win.
+ Erazno y La Chokolata was selected as a finalist in the Genre – Comedy category, while Código Vital earned recognition in the Genre – Health & Wellness category. The Signal Awards Judging Academy selected both programs from this year’s entries, placing them in contention for Bronze, Silver or Gold honors.
 
- A nurse by profession, Courtney discovered she had won before the start of her work shift and spent nearly an hour in disbelief before sharing the news with her mother. Courtney’s husband later had difficulty believing the win until he saw the winning ticket himself.
+ As finalists, both reVolver Podcasts programs are also eligible for the 2026 Signal Listener’s Choice Award, an international competition decided by podcast audiences. Fans around the world can vote for their favorite programs now through Thursday, October 15, 2026.
 
- Originally a Lotto.com customer for Powerball® and Mega Millions®, Courtney later discovered Keno after noticing it was available through the platform. The $800,020 Ohio Keno prize is now her largest win to date. She plans to use her winnings to become debt-free and then purchase a convertible.
+ “This recognition reflects the quality, range and cultural relevance of the programming we are building at reVolver Podcasts,” said Jack Hobbs, president of reVolver Podcasts. “Erazno y La Chokolata brings audiences together through comedy and unforgettable characters, while Código Vital provides Spanish-speaking listeners with credible and accessible information to help them make better decisions about their health. We are extremely proud of both teams and encourage their audiences to support them with their votes.”
 
- “Stories like Courtney’s highlight what makes the lottery experience so engaging,” said Thomas Metzger, CEO of Lotto.com. “Whether customers come to Lotto.com for Powerball and Mega Millions, order scratch tickets, or discover games like Keno for the first time, our goal is to make it easy and convenient to explore new ways to play. We’re proud to connect new players to these games and generate incremental profits for education in the Buckeye State.”
+ Created and hosted by Oswaldo Díaz, Erazno y La Chokolata has entertained Spanish-speaking audiences for more than two decades through comedy, original characters, celebrity interviews, parodies, sports and pop-culture commentary. Díaz’s vocal versatility and ability to transform everyday experiences into comedy have made the program one of the most recognizable Spanish-language entertainment shows in the United States.
 
- Ohio Keno is a draw-style game that gives players multiple opportunities to win throughout the day. Available through Lotto.com in Ohio, the game offers players a convenient way to participate in lottery offerings. The Ohio Lottery has generated over $35 billion since 1974 to help fund K-12 education and benefits students, teachers, and schools across the state.
+ Hosted by veteran journalist and communicator Daniela Ganoza, Código Vital makes complex health information easier for Spanish-speaking audiences to understand. Through conversations with physicians, researchers and specialists, the program explores functional medicine, prevention, longevity, metabolism, inflammation, hormones, cardiovascular health, biomarkers and responsible biohacking through a science-based and accessible approach.
 
- In addition to Ohio, Keno is available through Lotto.com and the Lotto.com app in Massachusetts, Oregon, and Puerto Rico. Customers 18 years of age and older in these jurisdictions can conveniently order Keno tickets and manage their lottery play from their mobile devices or computers.
+ The two finalist selections demonstrate reVolver Podcasts’ commitment to developing programming that represents the range of interests within Latino communities—from comedy that reflects shared cultural experiences to health content that empowers audiences with practical and credible information.
 
- Lotto.com currently operates in 12 jurisdictions including Arizona, Arkansas, Colorado, Maine, Massachusetts, Minnesota, Nebraska, New Jersey, New York, Ohio, Oregon, and Puerto Rico with expansion plans on the horizon.
+ Fans can support the programs using the following voting links:
 
- For more information on Lotto.com, or to begin ordering official state lottery tickets “Winever,” visit www.lotto.com.
+ Vote for Erazno y La Chokolata – Comedy: https://vote.signalaward.com/PublicVoting#/2026/shows/genre/comedy
 
- You must be 18 or older in Ohio to play the lottery. If you or someone you know has a gambling problem, help is available. Call the Ohio Problem Gambling Helpline 24/7 at 1-800-589-9966.
+ Vote for Código Vital – Health & Wellness: https://vote.signalaward.com/PublicVoting#/2026/shows/genre/health-wellness
 
- About Lotto.com Inc. Headquartered in Jersey City, New Jersey, Lotto.com is the first digital platform for ordering official state lottery draw and scratch games on both mobile and web-based platforms. As a lottery courier enabling player participation in the U.S. State Lotteries, Lotto.com helps lotteries across the country contribute incremental funds to state-run programs across education, parks, emergency responders, veterans’ health, and other important services.
+ Voting for the Signal Listener’s Choice Award closes on October 15, 2026. Winners of the Listener’s Choice Award, along with the Bronze, Silver and Gold Signal Award recipients, will be announced on October 20, 2026.
 
- Lotto.com is the only Better Business Bureau Accredited lottery courier service and is certified by Gaming Laboratories International (GLI) and the National Council on Problem Gambling (NCPG), underscoring its commitment to security, compliance, and responsible gaming.
+ About Erazno y La Chokolata Erazno y La Chokolata is a nationally recognized Spanish-language comedy and entertainment program created and hosted by Oswaldo Díaz. The show connects with audiences through an original cast of characters, comedy, celebrity interviews, parodies, sports, pop culture and listener-driven segments.
 
- Lotto.com has over 4.5 million customers and has created 12 millionaires via state-run games, including the largest Lotto.com Scratch Tickets ticket win in history — $3 million to a customer in Colorado. In June 2023, Lotto.com introduced the Lotto.com Scratch Tickets, which are currently available in Arizona, Colorado, Massachusetts, Nebraska, Ohio, and Oregon. Lotto.com is currently available in Arizona, Arkansas, Colorado, Maine, Massachusetts, Minnesota, Nebraska, New Jersey, New York, Ohio, Oregon, and Puerto Rico with plans to expand to additional states in the near future.
+ About Código Vital Código Vital is a Spanish-language health and wellness podcast hosted by Daniela Ganoza. The program explores functional medicine, longevity and science-based prevention through conversations with physicians, researchers and specialists, empowering listeners to understand their bodies and participate more actively in decisions affecting their health.
 
- CONTACT: Havas Formula lotto@havasformula.com 
+ As audiences continue to embrace on-demand audio, reVolver Podcasts has established itself as one of the leading destinations for multicultural podcast content, offering a broad mix of entertainment, news, sports, business, lifestyle, health, and culture programming. The company recently expanded its distribution through a partnership with Claro USA, bringing its podcast catalog to Claro Música Pulso, the newly enhanced entertainment platform that serves more than 500,000 subscribers with music, podcasts, radio, video, and other multimedia experiences. reVolver content is available free to listeners across major platforms, including Apple Podcasts, Spotify, Pandora, Deezer, the iHeartRadio app, Amazon Music, the reVolver Podcasts App via the Samsung Galaxy Store, Roku streaming devices, and at www.revolverpodcasts.com.
+
+ About reVolver Podcasts reVolver Podcasts is the leading multicultural, audio-on-demand content creator and distributor in the U.S. Home to Erazno y La Chokolata, El Show de Piolín, Panda Show – Picante, and Don Cheto Al Aire, plus more than 70 additional programs spanning sports, music, finance, entertainment, lifestyle, health and wellness, inspiration, news, branded content, and live events, distributed across Apple Podcasts, Spotify, Deezer, Pandora, iHeartRadio app, Amazon Music, also available for download on the reVolver Podcasts App through the Samsung Galaxy Store and on Roku streaming devices and at reVolverPodcasts.com. Through a strategic partnership with Claro USA, reVolver Podcasts also delivers premium podcast content to Claro Música Pulso, expanding its reach to more than 500,000 subscribers across a growing global entertainment ecosystem. For more information about the company, visit www.revolverpodcasts.com.
+
+ CONTACT: revolverpodcast@gmail.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/lotto-com-celebrates-record-breaking/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/revolver-podcast-named-best-podcast/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nurse-wins-800020-ohio-keno-jackpot-via-lotto-com/12aebda5b8e5456eafd847d5dcf59b88) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolver-podcasts-earns-two-signal-awards-finalist-nods/7f181cabca1d1be4ee063d82fbca5e31) 
 
  
 
@@ -41,4 +45,4 @@ JERSEY CITY, NJ — October 1, 2026 — (NOTICIAS NEWSWIRE) — Lotto.com, the n
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/1/roamTQEN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/1/glowtP4g.webp)
