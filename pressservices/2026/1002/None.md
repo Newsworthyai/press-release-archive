@@ -1,66 +1,94 @@
-# BounceBack Homes Adds Ohio as Its 12th State for Foreclosure Services
+# Cashback Loans: 17% of Emergency Savers Hold Less Than $1,000
 
-BounceBack Homes Targets Ohio Judicial Foreclosure Process With Equity-Protection Program
+Among Americans Who Do Save for Emergencies, 17% Have Less Than $1,000 Set Aside
 
- Jersey City, United States - October 2, 2026 / BounceBack Homes /
+ Rancho Cucamonga, United States - October 2, 2026 / Cashback Loans /
 
- JERSEY CITY, NJ (September 30, 2026) - BounceBack Homes has officially launched its homeowner advocacy services in Ohio, bringing attorney-reviewed Ohio foreclosure prevention pathways to homeowners across the state who are struggling to keep pace with mortgage payments.
+ Rancho Cucamonga, California - September 29th, 2026 - Nearly half of U.S. adults report having no emergency savings, according to America's Emergency Savings Report 2026. The national survey of 3,000 U.S. adults was conducted by 3 Gem Research & Insights and commissioned by Cashback Loans.
 
-These services are designed to address the legal, financial and emotional pressures Ohio homeowners face when confronting foreclosure. The company already operates in 11 other states, including Arizona, California, Connecticut, Florida, Georgia, North Carolina, Pennsylvania, South Carolina, Tennessee, Texas and Virginia.
+The report examines how prepared Americans are for unexpected expenses such as medical bills, car repairs, delayed paychecks, and broken appliances. It also explores how households are responding to rising living costs.
 
-Helping Ohio Homeowners Protect Their Equity"Our expansion into Ohio is about reaching homeowners before a difficult situation takes away more of their choices," says Don Gross, President of BounceBack Homes. "Receiving foreclosure papers does not mean a family should give up hope. We want Ohio homeowners to understand their options, have an independent attorney review the plan and gain the time they need to protect their equity and move forward."
+Key findings* 44% report having no emergency savings. Among respondents who do have emergency savings, 17% reported having less than $1,000 saved.
+* 37% borrowed money to cover essential living expenses during the previous 12 months.
+* 69% say achieving financial security is harder today than it was five years ago.
+* 42% reduced grocery spending because of inflation.
+* 22% do not expect to feel financially secure.
 
-BounceBack Homes helps qualifying homeowners explore an alternative path. The company can:
+Where Americans turn when they need moneyAmong respondents who borrowed for essential expenses, no single source was used by a majority. Relatives were the most common source at 42%, followed by credit cards at 35%, friends at 34%, and payday loans or cash advance services at 23%. Respondents could report more than one source.
 
-* Pay off the existing mortgage
-* Provide a defined period for the homeowner to remain in the home
-* Create time to prepare for refinancing or selling on their terms
+What income feels "financially secure"?Respondents selected the annual household income range they believe would allow them to feel financially secure. The calculated average of those responses was $300,009. Answers varied widely, ranging from $20,000-$50,000 to $900,001-$1,000,000. Thirty-five percent chose an income below $100,000, and 51% chose $200,000 or less.
 
-Depending on the approved plan and available net equity, homeowners may also receive cash upfront for repairs, to pay off other debts or expenses.
+"These findings show that many households are working hard to stay on track while having very little cushion for the unexpected. We hope this research gives consumers, journalists and policymakers a clearer picture of the pressure families are facing," said Eric Otten, Personal Finance Expert at Cashback Loans.
 
-"Our advocates work with homeowners to discuss all of their options, including the BounceBack Homes solution," Gross says. "If another option is a better fit or an available solution, we encourage homeowners to explore it."
+Practical takeaways for consumersThe report is descriptive rather than prescriptive. It highlights general practices consistent with its findings:
 
-The BounceBack Homes solution does not require a credit check or income verification, which means it can serve as an option for homeowners who are behind on mortgage Ohio lenders have already moved to collect on. It presents an opportunity for homeowners to have their equity work for them and regain control of their financial situation.
+* Build savings gradually, starting with a realistic amount.
+* Know your essential monthly expenses.
+* Plan ahead for emergencies.
+* Compare borrowing options on total cost, fees, repayment timing, and the consequences of missed payments.
+* Revisit your budget when costs change.
 
-The BounceBack Homes solution has been discussed and written about in the Harvard Business Review. The company holds an A+ rating from the Better Business Bureau (BBB) and a 4.7 rating on Google Reviews from homeowners and professionals who have referred homeowners for assistance.
+The report is intended to serve as an annual benchmark for tracking changes in emergency savings, borrowing, and financial confidence over time.
 
-Attorney-Reviewed Options and Up to 24 Months of StabilizationThe framework BounceBack Homes brings to Ohio centers on transparency and informed decision-making rather than a standardized product or high-pressure sales process. The company covers the cost of an independent attorney who represents the homeowner and reviews the agreement before anything is finalized.
+MethodologyCashback Loans commissioned 3 Gem Research & Insights to survey 3,000 U.S. adults between July 6, 2026 and August 10, 2026. Borrowing-source percentages refer only to respondents who reported borrowing for essential living expenses. The $300,009 figure is a calculated mean of the income ranges respondents selected, not a median.
 
-Qualifying homeowners may receive up to 24 months of financial stabilization as they prepare for their next step. The organization also offers and encourages enrollment in a credit recovery program to better position the homeowner going forward - whether that means staying in the home, selling and purchasing a new one, or selling and renting elsewhere. That window can be critical for families recovering from job loss, medical expenses, divorce or other financial hardships.
+About Cashback LoansFounded in 2003, Cashback Loans is a California direct lender providing short-term financial solutions to consumers throughout the state. With more than 20 years of experience and more than 4 million loans funded in California, the company provides online and retail access to financial services. Cashback Loans conducts and supports consumer research to better understand the financial challenges, behaviors, and needs of the communities it serves.
 
-Ohio Foreclosure Happens Through the Court SystemUnlike states that allow lenders to foreclose without filing a lawsuit, the Ohio judicial foreclosure process requires a lender to file a complaint in court and obtain a judgment before a homeowner's property can be sold.
+About 3 Gem Research & Insights3 Gem Research & Insights is a market research and insights firm specializing in custom B2B and B2C surveys and research. The company combines research expertise, technology, and data analysis to help organizations better understand their audiences and turn research findings into actionable insights. 3 Gem provides research services including thought leadership surveys, PR surveys, market understanding, segmentation, brand testing, and customer research.
 
-A homeowner served with a foreclosure complaint will generally have 28 days to file an answer with the court. Failing to respond can allow the lender to seek a default judgment and advance the case toward a sheriff's sale.
+Media ContactCallum Taylor
 
-Although the Ohio judicial foreclosure process may span anywhere from six months to two years, critical deadlines arrive much earlier. Homeowners who understand their situation and explore options early may retain more flexibility than those who wait until a sale is approaching.
+Callumtaylor.pr@gmail.com | +447769289206
 
-An Ohio home may be appraised after a foreclosure judgment and offered through a public sheriff's sale. Mortgage balances, liens, fees, court costs and other expenses can reduce the equity homeowners have spent years building.
+Learn more at Cashback Loans
 
-About BounceBack HomesBounceBack Homes is a homeowner advocacy organization that connects distressed homeowners with attorney-reviewed Ohio foreclosure prevention pathways and tailored financial stabilization options. The company is not a lender, bank, or traditional foreclosure consultant. Its services focus on helping homeowners facing mortgage delinquency make informed decisions, protect their home equity and navigate their options with the support of independent legal representation.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Pjc0Ebnkxnl2HnyHh4J5kMn70XdKy6IcuMpAkekE.jpg) [](https://cashbackloans.com) Contact Information:
 
-Learn more at BounceBack Homes
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/117OQmlvCD21vsQsq2eopddtlVDZ7OdaieGjRDb5.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Xbr5FhhRCFk4YMVpZxcQcvLTRb5kJ7RyOJ4ICkr4.jpg) [](https://bouncebackhomes.com) Contact Information:
-
- BounceBack Homes
+ Cashback Loans
 
  
 
-111 Town Square Place, Suite 136  Jersey City, New Jersey 07310United States
+10532 Acacia St  Rancho Cucamonga, CA 91730United States
 
- Don Gross +1-800-539-1293 https://bouncebackhomes.com 
+ Eric Otten +1-909-483-0474 https://cashbackloans.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/bounceback-homes-adds-ohio-as-its-12th-state-for-foreclosure-services-450822)
+[Original/Source Press Release](https://mediawiretoday.com/cashback-loans-17-of-emergency-savers-hold-less-than-1000-450844)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bounceback-homes-launches-ohio-foreclosure-prevention-program/0c770064658eee3f9f8f43d7ec6324d3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/44-of-americans-have-no-emergency-savings-new-report-finds/ffc895f446a47114f4e4df9d20e21f7a) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/02/cashback-loans-survey-finds-44-of-americans-have-no-emergency-savings-and-17-of-savers-hold-less-than-1000/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/44-of-us-adults-have-no-emergency-savings-new-survey-finds)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/cashback-loans-survey-finds-44-of-americans-have-no-emergency-savings-as-financial-security-feels-out-of-reach)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/cashback-loans-survey-reveals-44-of-americans-have-no-emergency-savings)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/cashback-loans-survey-finds-44-of-americans-have-no-emergency-savings)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/encuesta-de-cashback-loans-revela-que-el-44-de-los-estadounidenses-no-tiene-ahorros-de-emergencia)
+
+Pickup - [https://burstable.news](https://burstable.news/news/cashback-loans-survey-finds-44-of-americans-have-no-emergency-savings)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/cashback-loans-umfrage-zeigt-44-der-amerikaner-haben-keine-notfallersparnisse)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/encuesta-de-cashback-loans-revela-que-el-44-de-los-estadounidenses-no-tiene-ahorros-de-emergencia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/une-enquete-de-cashback-loans-revele-que-44-des-americains-nont-pas-depargne-durgence)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pesquisa-da-cashback-loans-revela-que-44-dos-americanos-nao-tem-poupanca-de-emergencia)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/cashback-loans-survey-finds-44-of-americans-have-no-emergency-savings)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/cashback-loans-survey-reveals-44-of-americans-have-no-emergency-savings)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/2/nukeisE2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/2/moonmklh.webp)
