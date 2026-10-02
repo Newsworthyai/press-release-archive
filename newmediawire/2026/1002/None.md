@@ -1,78 +1,40 @@
-# Metavesco's Epic Labor Surpasses $2 Million in 2026 Revenue; September Up 166% Year-Over-Year
+# Beeline Holdings (BLNE) Offers $3,000 Credit to Expand Bank Statement Mortgage Business
 
-CUMMING, GA - October 2, 2026 (NEWMEDIAWIRE) - Metavesco, Inc. (OTCID: MVCO), a diversified holding company, announced preliminary, unaudited September 2026 results for its on-demand staffing subsidiary, Epic Labor, Inc.
+* Beeline Holdings has launched a Rate Optimization Program, offering a $3,000 lender credit on qualifying Bank Statement mortgages.
+* The offer applies to purchase and refinance loans of at least $250,000 locked by October 31, 2026.
+* The program targets self-employed borrowers and people with non-traditional income who may not fit conventional mortgage underwriting.
+* Beeline’s strategic shift toward Non-Qualified Mortgage products has helped improve loan economics, according to the company.
+* Beeline reported Q2 2026 revenue of $2.6 million, up 57% year over year, and says Q3 is shaping up to be among its strongest quarters.
 
- Epic Labor generated revenue of $356,927 in September 2026, compared to $134,332 in September 2025, representing approximately 166% growth. Both periods were four-week fiscal months. On an average weekly basis, revenue was approximately $89,200 per week, compared to $33,583 per week in the prior-year period.
+ LOS ANGELES, CA - October 2, 2026 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE), an expanding digital mortgage platform offering a quicker and easier path to homeownership, has now introduced a $3,000 lender credit for qualifying Bank Statement mortgages, seeking to expand a business line aimed at self-employed borrowers as the company reports continued momentum in its shift toward higher-margin Non-Qualified Mortgage products.
 
- With September results, Epic Labor's revenue for calendar year 2026 reached $2,069,988.
+ ![](http://newmediawire.s3.amazonaws.com/6abfee9bda846f543cccc508_1)
 
- Epic Labor operates two branch locations, in Nashville, Tennessee, and Baltimore, Maryland, after consolidating from four locations in 2025 to concentrate on its strongest markets.
+ Announced September 22, the Rate Optimization Program applies to purchase and refinance mortgages of at least $250,000 that are locked by October 31, 2026. Eligible borrowers may use the credit toward qualifying closing costs, an…
 
- CEO Statement: "Crossing $2 million with a full quarter still to go tells you where this business is headed," said Ryan Schadel, President and CEO of Metavesco, Inc. "About a year ago we made the hard call to cut back to our two best markets. The team has since grown revenue by roughly 166% year over year, and we're encouraged by client demand in upcoming quarters."
+ Read More
 
- Results are preliminary and unaudited and reflect revenue only. Complete results will be reported in the Company's periodic filings on otcmarkets.com.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- About Epic Labor, Inc.
+ The latest news and updates relating to BLNE are available in the company’s newsroom at https://ibn.fm/BLNE
 
- Epic Labor delivers fast, reliable, on-demand labor to small and mid-sized businesses. Services span construction, warehousing, hospitality, manufacturing, and event staffing, available 24/7 and backed by Epic Labor's 2-Hour Guarantee. Learn more at epiclabor.com.
+ Forward Looking Statements
 
- About Metavesco, Inc.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Metavesco, Inc. is a publicly traded holding company focused on building infrastructure and opportunity for the OTC market. Metavesco operates with a long-term, co-owner-aligned philosophy and is committed to supporting the strength, transparency, and integrity of the OTC market. The Company operates Epic Labor and other wholly owned subsidiaries. Learn more at metavesco.com.
-
- MEDIA CONTACT:
-
- Ryan Schadel678-341-5898info@metavesco.com
-
- Safe Harbor Statement
-
- This press release contains statements that constitute forward-looking statements. These statements appear in a number of places in this press release and include all statements that are not statements of historical fact regarding the intent, belief or current expectations of the Company, its directors or its officers with respect to, among other things: (i) financing plans; (ii) trends affecting its financial condition or results of operations; and (iii) growth strategy and operating strategy. The words "may", "would", "will", "expect", "estimate", "can", "believe", "potential", and similar expressions and variations thereof are intended to identify forward-looking statements. Investors are cautioned that any such forward-looking statements are not guarantees of future performance and involve risks and uncertainties, many of which are beyond the Company's ability to control, and that actual results may differ materially from those projected in the forward-looking statements as a result of various factors. More information about the potential factors that could affect the business and financial results is included in the Company's filings on otcmarkets.com. 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-s-epic-labor-surpasses-2-million-in-2026-revenue-september-up-166-year-over-year-7090282)
+[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-offers-3-000-credit-to-expand-bank-statement-mortgage-business-7090299)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-s-epic-labor-hits-2m-in-2026-revenue-up-166-yoy/b59e9b394ae9c16c2273cf0b4d8b004c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-offers-3k-credit-for-bank-statement-mortgages/7eb4e9a702f783eceb95fd003e96379f) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/02/metavescos-epic-labor-tops-2-million-in-2026-revenue-as-september-sales-jump-166/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/metavescos-epic-labor-surpasses-2-million-in-2026-revenue-september-sales-jump-166)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/metavescos-epic-labor-tops-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://news.baltimorenewsdaily.com/curated](https://news.baltimorenewsdaily.com/curated/metavescos-epic-labor-tops-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/metavescos-epic-labor-tops-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/metavescos-epic-labor-hits-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-epico-trabajo-de-metavesco-alcanza-los-2-millones-de-dolares-en-ingresos-para-2026-mientras-las-ventas-de-septiembre-aumentan-un-166)
-
-Pickup - [https://burstable.news](https://burstable.news/news/metavescos-epic-labor-surpasses-2-million-in-2026-revenue-september-up-166-year-over-year)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/metavescos-epic-labor-ubertrifft-2-millionen-us-dollar-umsatz-im-jahr-2026-september-steigt-um-166-im-jahresvergleich)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-epica-labor-de-metavesco-supera-los-2-millones-en-ingresos-de-2026-septiembre-aumenta-un-166-interanual)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/leffort-epique-de-metavesco-depasse-les-2-millions-de-dollars-de-revenus-en-2026-septembre-en-hausse-de-166-sur-un-an)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/trabalho-epico-da-metavesco-ultrapassa-us-2-milhoes-em-receita-em-2026-setembro-sobe-166-ano-a-ano)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/metavescos-epic-labor-hits-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://news.districtofcolumbia.com/curated](https://news.districtofcolumbia.com/curated/metavescos-epic-labor-tops-2-million-in-2026-revenue-as-september-sales-jump-166)
-
-Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/metavescos-epic-labor-revenue-jumps-166-after-branch-consolidation)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/metavescos-epic-labor-tops-2-million-in-2026-revenue-september-sales-up-166)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/metavescos-epic-labor-hits-2-million-in-2026-revenue-as-september-sales-surge-166)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/2/ellaN1HR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/2/neonCTpu.webp)
