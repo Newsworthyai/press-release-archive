@@ -1,78 +1,78 @@
-# Healthspan Action Coalition and Leading Italian Organizations Announce Global Collaboration
+# Partner Eric Smith Named 2027 “Lawyer of the Year” by Best Lawyers in America® for Employment Law
 
-The Healthspan Action Coalition (HSAC) today announced a strategic international collaboration with a coalition of prominent Italian organizations, including Fondazione Bicocca, Italian Sources for Healthspan and Saturnia Healthy Longevity, Palazzo Fiuggi, Columbus Clinic Center, Tennis & Friends, Women Economic Forum Italy, BrainCircle Italy, AEON Foundation, and The Cure Alliance (Italy Healthspan Initiative), to advance scientific innovation, public understanding, policy engagement, and practical action aimed at extending healthy human life.
+Siro Smith Dickson PC is proud to announce that partner Eric Smith has been named the 2027 “Lawyer of the Year” by The Best Lawyers in America® for his outstanding work in Employment Law - Individuals in Kansas City, Missouri.
 
- Through the new collaboration, HSAC and its Italian partners are creating a platform for cooperation across longevity and aging science, regenerative medicine, preventive health, education, convening, and public-policy dialogue. The alliance will connect investigators, clinicians, entrepreneurs, patient advocates, universities, foundations, women’s leadership networks, and public institutions in both countries and internationally.
+ The “Lawyer of the Year” designation is awarded to a single attorney in each practice area and geographic region per award cycle. Based entirely on exhaustive peer-review evaluations, the distinction reflects the highest level of respect an attorney can earn from fellow legal professionals in their market.
 
- Spearheaded by Camillo Ricordi, M.D., HSAC Chief Scientific Officer, the initiative connects scientific, civic, philanthropic, and institutional leaders around a shared global healthspan agenda. The collaboration reflects HSAC’s mission to deliver extended healthspan across the world.
+ In addition to his individual "Lawyer of the Year" honor, Eric Smith was selected by his peers for inclusion in the 33rd edition of The Best Lawyers in America® across three core practice areas:
 
- “The science is moving rapidly toward a new paradigm: intervening earlier to identify invisible risk factors years before they progress toward disease, preserving function and preventing chronic illness by fully integrating predictive and preventive strategies. This will reduce the overburdening of a reactive health system already straining in the face of worldwide aging populations,” said Ricordi.
+ * Employment Law - Individuals
+* Litigation - Labor and Employment
+* Personal Injury Litigation - Plaintiffs
 
- “This collaboration couldn’t come at a more urgent time,” said Bernard Siegel, JD, co-founder and executive director of HSAC. “It dovetails with our goal of improving the healthspan for all people, regardless of race, gender, geography or socioeconomic level. Nations across the globe need unprecedented measures to circumvent the potential social, humanitarian and economic problems of the coming aging tsunami by ensuring that health and vitality are achievable well into the older years.”
+ “This milestone reflects our firm's long-standing dedication to providing premier advocacy for individuals navigating complex legal challenges,” said Eric Smith.
 
- Marco Peronaci, the Italian Ambassador to the United States, said, “I am particularly pleased to see Italian scientific and civil-society organizations joining forces with their American partners in an initiative that places prevention, scientific evidence and international cooperation at its core.”
+ This accolade highlights a broader tradition of excellence at Siro Smith Dickson PC. Partners Rik N. Siro and Athena M. Dickson have also received prestigious individual peer recognitions from Best Lawyers. Partner Rik Siro, who specializes in serious personal injury, wrongful death, and employment discrimination, was previously named Kansas City’s “Lawyer of the Year” in Employment Law - Individuals in 2020. Partner Athena Dickson continues to earn acclaim as a top personal injury and employment litigator and leader within state and local bar associations.
 
- The initiative will be formally announced during the opening program of the Translational Longevity Summit in Boston, where Giovanna Iannantuoni, President of Fondazione Bicocca and a leader in academic, cultural, and international engagement, will deliver opening remarks recognizing the importance of an expanded Italy-United States partnership for healthspan. The upcoming Summit will take place October 7 - 11 at Harvard University’s new Enterprise Research Center in Boston, MA.
+ For nearly 50 years, Siro Smith Dickson PC has remained steadfastly dedicated to seeking justice for clients, protecting workplace civil rights, and advocating for personal injury victims across the Kansas City metropolitan area.
 
- “Our overarching mission requires collaboration across disciplines, institutions, and national borders. This Italy-HSAC initiative is designed to bring scientific excellence together with public leadership, education, and implementation, so that advances in regenerative medicine, prevention, and longevity science can benefit people around the world,” said Iannantuoni.
-
- A cross-border platform for healthspan The partners will explore joint activities that may include:
-
- * International forums, conference programming, and expert exchanges on healthy aging, longevity science, regenerative medicine, and prevention.
-* Public education initiatives that communicate evidence-based approaches to healthspan in accessible language.
-* Connections among researchers, clinicians, academic institutions, foundations, policymakers, patient advocates, and responsible innovators.
-* Dialogue on policy, investment, and health-system strategies that support disease prevention, functional independence, and equitable access to emerging healthspan advances.
-* Opportunities to elevate women’s leadership, intergenerational engagement, and cross-sector participation in shaping the future of health and longevity.
-
- “This is a historic moment in the field of healthspan,” said Siegel. “We’re deeply honored to be working with some of Italy’s most prominent health and longevity organizations on our shared goals for the good of people everywhere.”
-
- An official part of Boston Longevity Week, the Translational Longevity Summit is produced under the Boston BioLife umbrella in collaboration with the Healthspan Action Coalition, World Stem Cell Summit and Regenerative Medicine Foundation.
-
- About The Healthspan Action Coalition The Healthspan Action Coalition is a nonprofit, cross-sector coalition advancing “Healthspan for All”: More years of health, independence and dignity for all people through science, policy, patient advocacy and collaboration. Visit healtspanaction.org and translationallongevity.com to learn more about the Translational Longevity Summit 2026.
-
- MEDIA CONTACT
-
- Joseph Dawson
-
- Director of Communications, HSAC
-
- Email Contact
-
- Tel. +1 561-906-4755
-
- 
-
- Bernard Siegel, JD
-
- Executive Director, HSAC
-
- Email Contact
-
- Tel. +1 305 801 4928
-
- 
-
- Scientific inquiries
-
- Camillo Ricordi, MD
-
- Chief Scientific Officer, HSAC
-
- Email Contact
-
- Tel. +1 305 582 7151 
+ See our recognition on our website page HERE. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610023025/healthspan-action-coalition-and-leading-italian-organizations-announce-global-collaboration)
+[Original/Source Press Release](https://newsworthy.ai/news/202610022670/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hsac-launches-italy-us-healthspan-alliance/069e332fc9740d7a5c0b79667114975b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers/f779c7c54a4ccf0d062a6d9a116bd9aa) 
 
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://advos.io/en](https://advos.io/en/eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-america-for-employment-law)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/eric-smith-named-2027-lawyer-of-the-year-for-employment-law-by-best-lawyers-in-america)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/eric-smith-named-2027-lawyer-of-the-year-for-employment-law-by-best-lawyers-in-america)
+
+Pickup - [https://burstable.news](https://burstable.news/news/eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-america-for-employment-law)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/eric-smith-von-best-lawyers-in-america-als-lawyer-of-the-year-2027-im-arbeitsrecht-ausgezeichnet)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/eric-smith-nombrado-abogado-del-ano-2027-por-best-lawyers-in-america-en-derecho-laboral)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/eric-smith-nomme-avocat-de-lannee-2027-par-best-lawyers-in-america-pour-le-droit-du-travail)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/eric-smith-e-nomeado-advogado-do-ano-de-2027-pela-best-lawyers-in-america-na-area-de-direito-trabalhista)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-america-for-employment-law)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/partner-eric-smith-named-2027-lawyer-of-the-year-by-best-lawyers-in-americar-for-employment-law)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/02/eric-smith-of-siro-smith-dickson-named-2027-lawyer-of-the-year-for-employment-law-by-best-lawyers-in-america/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/2/loft0c8r.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/2/wolfyiYk.webp)
