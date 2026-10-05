@@ -1,47 +1,31 @@
-# Wellness Index Report: The Rise of 360-Degree Wellness
+# Stonegate Capital Partners Initiates Coverage on Fitzroy Minerals Corp. (TSXV: FTZ)
 
-NEW YORK, NY OCTOBER 5, 2026
+DALLAS, TX -- OCTOBER 5, 2026
 
-The latest Wellness Index Report, published by Wellness Eternal, finds a clear turn toward whole-person care. For decades, health was split into separate rooms: one for the mind, one for hormones, one for the heart. A new generation of practitioners is knocking down those walls and looking at the whole person at once.
+DALLAS, TX -- October 5, 2026 -- Valor Gold Corp. (TSX: VGC): Stonegate Capital Partners initiates coverage on Fitzroy Minerals Corp. (TSXV: FTZ). Fitzroy’s 3Q26 update and drilling support the initiation thesis, with Buen Retiro progressing from exploration toward a more defined development pathway while Caballos remains the higher-variance discovery option. The key changes since quarter-end are continued expansion and continuity of shallow mineralization at Buen Retiro and management’s first quantitative framework for a potential mine. Tenorita extended from a 1.7 km trend in July to 1.9 km in August, while BRT DDH094 returned 105.0 m at 0.74% Cu and BRT-DDH095 intersected 8.8 m at 3.70% Cu, including 1.0 m at 21.84% Cu. Management has also outlined a conceptual heap-leach/SX-EW operation producing approximately 20,000 30,000 tonnes of copper annually, with estimated initial capital of roughly $120 150M and all-in costs below $2.00/lb. These figures remain management targets ahead of formal economic studies but provide the first quantitative framework for the potential scale and capital intensity of Buen Retiro. Management continues to target a possible production decision around mid-2027 and production in 2028.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* The latest Wellness Index Report from Wellness Eternal finds a decisive shift toward integrated, whole-person care that connects mental health, hormones, and circulation into one coordinated approach.
-* Consumers increasingly seek care that unifies thoughts, hormones, and blood flow, with mental health moving to the center, midlife women demanding root-cause functional care that listens, and growing interest in hormone-free support for age-related nitric oxide decline.
-* The report spotlights Madison Park Psychological Services, SerenityNP Integrative Health, and N1O1 as leaders advancing whole-person care through emotion-decoding psychology, comprehensive women's hormone care, and nitric oxide solutions that support circulation.
+Key Takeaways:* Buen Retiro is progressing from exploration toward a potential development case, with management outlining a conceptual 20,000–30,000 tpa copper operation requiring approximately US$120–150M of initial capital and targeting all-in costs below US$2.00/lb. Recent metallurgical results showing 59.9%–82.6% copper recovery across the principal material types provide initial technical support for the heap-leach concept, although the production and cost framework remains subject to formal economic studies.
+* Resource definition remains the clearest near-term driver at Buen Retiro, where the 2026 drilling program has expanded to roughly 22,000 m and recent results extended the main mineralized trend to 1.9 km. We believe continued drilling, the maiden MRE and subsequent PFS should provide the key tests of whether the current exploration footprint can support the scale contemplated in management’s development framework.
+* Caballos provides additional discovery leverage, with MobileMT and deep IP identifying large conductive and chargeability anomalies and a roughly 5,500 m Phase 2 program planned across five holes. While Caballos remains substantially earlier-stage than Buen Retiro, successful drilling could establish a second material source of value without being required for the Buen Retiro development case.
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/wellness-index-report-the-rise-of-360-degree-wellness)
+[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-fitzroy-minerals-corp-tsxv-ftz)
 
-About the Wellness Index Report
+About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
 
-The Wellness Index Report is a practitioner-led evaluation platform that assesses wellness providers and technologies through a four-step process:
+Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
 
-1) Expert nomination (via interview on the Wellness Index Report Podcast)
-
-2) Customer & expert feedback/reviews
-
-3) Clinical and scientific research (efficacy)
-
-4) and ongoing rating analysis via survey
-
-Verified expert feedback is gathered through a proprietary survey delivered monthly to more than 300,000 doctors, clinic and wellness-center owners, and wellness experts, through partnerships with medical-education leader Boston BioLife, TopDoctor Magazine and the long-running naturopathic research journal NDNR.com. The Report is an independent research platform designed to provide transparent, third-party validation in the rapidly growing wellness and biohacking industry.
-
-About Wellness Eternal
-
-Wellness Eternal is the parent company of the Wellness Index Report, the "Better Business Bureau of the health, wellness, longevity, and biohacking industry". Each company in the index is hand-selected by a member expert or physician, screened through a rigorous review process, and given the opportunity to climb the rankings through a verified, SEO- and AEO-optimized profile.
-
-Contacts:Wellness Eternal — PR Team914-846-9444we@wellnesseternal.com
-
-Source: Newsworthy.ai
+Source: Stonegate, Inc.
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/wellness-index-report-the-rise-of-360-degree-wellness)
+[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-fitzroy-minerals-corp-tsxv-ftz)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-index-report-rise-of-360-degree-whole-person-care/1fb333bc34b8d1f1d1d434f90869367a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stonegate-initiates-coverage-on-fitzroy-minerals/21e60123a3a0df92f391f66b1e51903a) 
 
  
 
@@ -49,4 +33,4 @@ Distributed by: Reportable, Inc.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/5/oxenIGgr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/5/urgemae1.webp)
