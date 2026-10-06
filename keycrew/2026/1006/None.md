@@ -1,46 +1,70 @@
-# Washington Is Starting to Name the Middle-Income Renter, Without Yet Funding the Fix
+# FIABCI Joins Global Data Exchange Ahead of 4th International MLS Forum in Istanbul, November 16-17
 
-A new federal housing effort has directed the Government Accountability Office to study a formal income definition for the middle class, roughly 80 to 120 percent of area median income, and to recommend where that band fits in national housing policy. For the households in it, the recognition is overdue. For years, the renter earning around 90 percent of AMI has fallen through the middle of the system: too well paid to qualify for subsidized affordable housing, not well paid enough for new Class A apartments.
+The forum, organized by RESO, ADRES and RealtyFeed, will center on cross-border data sharing through the Global Data Exchange (GDX).
 
- Ron Kutas, Chief Executive Officer of OneWall Communities, has built a workforce-housing portfolio around that renter for 15 years. His reading of the new measure is that it matters more as a signal than as a solution, and that the way it is being described is already wrong.
+ October 2026, Istanbul, Türkiye: FIABCI, the International Real Estate Federation, has joined the Global Data Exchange (GDX), the strategic initiative for standardized, cross-border sharing of listing data that anchors this year’s 4th International MLS Forum (IMLSF). The forum takes place November 16-17, 2026, at Raffles Istanbul. FIABCI’s participation extends GDX’s reach to real estate businesses, associations and professionals across global markets.
 
- A Study, Not A Definition The first correction Kutas offers is technical but important. The measure does not define workforce housing, he says. It orders the GAO to study the question and recommend a middle-class income band. “Washington hasn’t specifically named it,” he says, but the request itself is an admission that something in the framework has been missing.
+ Now in its fourth consecutive year, the forum connects MLS leaders, regulators, real estate associations, brokerage executives, proptech companies and standards organizations to share the standards, technology and business practices that support more transparent, cooperative and efficient property marketplaces for the communities they serve. Attendees will take part in the conversations shaping how property information is shared, accessed and trusted across borders.
 
- The practical value, in his view, is future leverage. Once a federal standard exists, a lender, an investment committee, or a city council can point to it rather than argue over what the words mean. That clarity, he notes, is still some way off.
+ The forum is organized by the Real Estate Standards Organization (RESO), Advanced Real Estate Services (ADRES) and RealtyFeed. Universal Consulting Opportunities (UCO) serves as Title Partner, and TÜGEM Türkiye, a national real estate organization with more than 2,000 members, serves as local host.
 
- The New Middle Class Kutas frames the gap in terms of who the renter has become. Earning 80 percent of AMI, he argues, is now what counts as middle class, where it once took 60 percent to live comfortably. Inflation, the cost of goods, and the economics of running older apartments have moved the line. The people in that band, in his description, are teachers, nurses, police officers, and warehouse supervisors: households that do not need a subsidy, but that do need a policy keeping the housing they rely on from disappearing.
+ Confirmed speakers include Lily Chang, World President of FIABCI; Merri Jo Cowen, Inaugural President of GDX, Executive Vice President of UCO and Chief Vision Officer of Stellar MLS; Sam DeBord, CEO of RESO; and Jeremy Crawford, President and CEO of First Multiple Listing Service (FMLS), among others.
 
- Named But Not Funded For all the labeling in the measure, Kutas points out that most of it carries no appropriation, which limits how much it can change in the near term. Provisions were named without funding attached. The change he thinks could matter is the higher FHA multifamily loan limits, which he calls the best provision in the package, finally catching up to what buildings actually cost. A restriction on large institutional investors buying single-family homes, by contrast, he reads as mostly presentational, since the build-to-rent product where most of that capital concentrates is carved out of the limit.
+ Last year’s edition welcomed more than 200 industry professionals from 51 countries. Istanbul, which links Europe and Asia, offers convenient access for delegates from Europe, Asia, Africa and the Middle East.
 
- The Real Need Is Preservation Where Kutas would like to see policy focus is preservation. The country has an aging stock of workforce apartments, and the economics of maintaining them are getting harder: higher taxes, insurance, labor, and interest costs set against rent regulation in many states that caps the income side. Squeezed on both ends, he argues, an owner starts cutting, less qualified maintenance staff, deferred landscaping, an HVAC unit repaired long past the point of replacement, and the building slides toward the bottom of the market and, eventually, out of the usable stock. Grants or incentives to reinvest in these assets, in his view, would do more than another label.
+ “We’re delighted to reconvene some of the industry’s leading experts from across the real estate marketplace, at the intersection of technology, real estate data, governmental bodies and more,” said Merri Jo Cowen, Inaugural President of GDX. “We have some great speakers, and I look forward to paving the way for the future of real estate data with such a dynamic and empowered group of professionals.”
 
- What Would Make It Real Asked what he would need to see before trusting new federal guidance on a real deal, Kutas named three things. Speed, because HUD financing can take up to nine months to close, which makes it a strong refinancing product but unworkable for an acquisition on a normal timeline. Compliance, because a workforce-eligibility regime that mirrored the complexity of affordable-housing rules would put the product out of reach for most operators. And certainty, because no one will underwrite a ten-year hold on rules a new administration can rewrite in two.
+ Special hotel rates at Raffles Istanbul are available for registered attendees, with booking details provided in the registration confirmation email. Registration is open at mlsforum.org.
 
- Even naming the gap, Kutas allows, is a win. Whether the measure becomes more than a name will depend on funding, and on guidance that has not yet been written. For now, the middle-income renter has been noticed, which is not the same as being helped.
+ About the International MLS Forum: The International MLS Forum is an annual gathering of organized real estate marketplaces, standards bodies and technology leaders working to improve how property information is structured, shared and trusted worldwide. Held in Paris (2023), Milan (2024), and Toronto (2025), the forum brings together participants from more than 50 countries. Learn more at mlsforum.org.
 
- About OneWall Communities: OneWall Communities is a vertically integrated property management and investment firm specializing in workforce housing. With 15 years of owner-operator experience, OneWall has evolved to offer institutional-level 3rd party management services that combine operational excellence with a community-first approach. For more information, visit onewallcommunities.com.
-
- This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions.
+ Media Contact:Janine RodriguesKeyCrewjanine@keycrew.co
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/washington-is-starting-to-name-the-middle-income-renter-without-yet-funding-the-fix/)
+[Original/Source Press Release](https://keycrew.co/journal/fiabci-joins-global-data-exchange-ahead-of-4th-international-mls-forum-in-istanbul-november-16-17/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/middle-class-renters-finally-noticed-in-new-federal-housing-measure/88073bacbf1cb441c5d1819949e9fe19) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fiabci-joins-global-data-exchange-ahead-of-2026-mls-forum/a38972f0221f3df554ff127ecb99f6ae) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/federal-housing-measure-names-middle-income-renters-but-leaves-funding-gap-says-onewall-ceo)
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/a38972f0221f3df554ff127ecb99f6ae)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/federal-study-on-middle-income-renters-signals-shift-but-lacks-funding-says-workforce-housing-ceo)
+Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/a38972f0221f3df554ff127ecb99f6ae)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/federal-study-on-middle-class-renters-signals-shift-but-lacks-funding-onewall-ceo-says)
+Pickup - [https://advos.io/en](https://advos.io/en/fiabci-joins-global-data-exchange-expanding-cross-border-real-estate-data-sharing-ahead-of-istanbul-forum)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fiabci-joins-global-data-exchange-ahead-of-4th-international-mls-forum-in-istanbul)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fiabci-joins-global-data-exchange-as-international-mls-forum-returns-to-istanbul)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/fiabci-joins-global-data-exchange-as-international-mls-forum-heads-to-istanbul)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/fiabci-se-une-al-intercambio-global-de-datos-mientras-el-foro-internacional-mls-se-dirige-a-estambul)
+
+Pickup - [https://burstable.news](https://burstable.news/news/fiabci-joins-global-data-exchange-as-4th-international-mls-forum-heads-to-istanbul)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fiabci-tritt-der-global-data-exchange-bei-wahrend-das-4-internationale-mls-forum-in-istanbul-stattfindet)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fiabci-se-une-al-intercambio-global-de-datos-mientras-el-4o-foro-internacional-mls-se-dirige-a-estambul)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-fiabci-rejoint-le-global-data-exchange-alors-que-le-4e-forum-mls-international-se-dirige-vers-istanbul)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fiabci-junta-se-ao-global-data-exchange-enquanto-o-4o-forum-internacional-mls-vai-a-istambul)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fiabci-joins-global-data-exchange-expanding-cross-border-real-estate-data-sharing-ahead-of-istanbul-mls-forum)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fiabci-joins-global-data-exchange-as-4th-international-mls-forum-returns-to-istanbul)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/fiabci-joins-global-data-exchange-as-international-mls-forum-returns-to-istanbul)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/06/fiabci-joins-global-data-exchange-expanding-cross-border-real-estate-data-sharing/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/6/linef8rI.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/6/silk4_RJ.webp)
