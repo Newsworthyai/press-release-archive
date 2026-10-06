@@ -1,37 +1,31 @@
-# D-Wave Launches Gate-Model Simulator Beta Program, Advancing Error-Aware Programming Capabilities
+# q.beyond Successfully Completes Public Share Buyback Offer
 
-LOS ANGELES, CA - October 5, 2026 (NEWMEDIAWIRE) - D-Wave Quantum Inc. (NASDAQ: QBTS) (“D-Wave” or the “Company”), the only dual-platform quantum computing company providing both annealing and gate-model systems, software and services, recently launched its gate-model quantum computing simulator beta program, marking an important milestone in D-Wave’s gate-model development roadmap.
+* q.beyond purchases 2,490,905 treasury shares, equivalent to around 10% of all shares in company
+* Share buyback offer with announced volume of around EUR 9.42 million fully exhausted
+* Buyback reinforces accelerated AI transformation
 
- ![](http://newmediawire.s3.amazonaws.com/6ac3c766da846f543accc306_1)
+ COLOGNE, GERMANY - October 5, 2026 (NEWMEDIAWIRE) - q.beyond AG has successfully completed the public share buyback offer published on 28 August 2026, with a total of 4,878,907 shares having been validly tendered to the company by the expiry of the acceptance period. The offer, which involved repurchasing a total of up to 2,491,589 company shares, met with strong demand. Ultimately, the share buyback offer was significantly oversubscribed, as a result of which the declarations of acceptance were accounted for on a prorated basis in accordance with the provisions of the offer document. The allocation ratio amounts to 51.07%.
 
- The beta program offers select customers early access to the simulator in advance of its general availability to experiment with error-aware programming and develop quantum applications in preparation for D-Wave’s forthcoming gate-model systems. The simulator is built around D-Wave’s dual-rail superconducting gate-model technology, which is designed to harness error detection to deliver efficient quantum error correction with significantly lower hardware overhead as systems scale. Participants in the simulator beta program include commercial and research organizations: BBVA, FirstQFM, Florida Atlantic University (FAU) and the Julich Supercomputing Centre (JSC).
+ q.beyond is repurchasing a total of 2,490,905 treasury shares, corresponding to around 10% of all shares in the company. Based on the offer price of EUR 3.78 per share, the total purchase price for the shares repurchased stands at around EUR 9.42 million.
 
- To view the full press release, visit https://ibn.fm/Dy07z
+ Thies Rixen, q.beyond’s CEO, explains: “In light of our current valuation, purchasing treasury shares represented the best option for deploying our high volume of net liquidity. Our accelerated AI transformation is currently creating an ever-stronger basis for growing our profitability and opening up new prospects for our shares. I am therefore convinced that this investment will pay off for q.beyond and our shareholders.”
 
- About D-Wave Quantum Inc.
+ Settlement, and thus payment of the purchase price to custodian banks, is expected to take place on 7 October 2026. Any shares that could not be accounted for in the allocation process will be transferred back to the original ISIN DE000A41YDG0.About q.beyond AG:q.beyond is the leading IT partner for SMEs. We solve the technological challenges our European customers face and make their business models fit for the future. This way, we enhance our customers’ business value. We do so by implementing sovereign IT solutions and drawing on our proprietary, certified AI data centres. Our strong team of more than 1,000 specialists combines sector expertise with technical excellence. Core focuses of our activities include public and private clouds, operating business-critical applications based on Microsoft and SAP technologies, artificial intelligence, and IT security. Publicly listed, q.beyond is present across Germany and has locations in Latvia, Spain, Romania, India, and the USA.Contactq.beyond AGArne ThullHead of Investor Relations/Mergers & AcquisitionsT +49 221 669-8724invest@qbeyond.dewww.qbeyond.de
 
- D-Wave is a leader in the development and delivery of quantum computing systems, software, and services. It is the world’s first commercial supplier of quantum computers, and the first and only to offer dual-platform quantum computing products and services, spanning both annealing and gate-model quantum computing technologies. D-Wave’s mission is to help customers realize the value of quantum today through enterprise-grade systems available on-premises and via its LeapTM quantum cloud service, which offers 99.9% availability and uptime. More than 100 organizations across commercial, government and research sectors trust D-Wave to address complex computational challenges using quantum computing. Learn more about realizing the value of quantum computing today and how D-Wave is shaping the quantum-driven industrial and societal advancements of tomorrow: https://www.dwavequantum.com.
+ 
 
- Forward-Looking Statements
+ 
 
- Certain statements in this press release are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. In some cases, you can identify forward-looking statements by the following words: “believe,” “may,” “will,” “could,” “would,” “should,” “expect,” “intend,” “plan,” “anticipate,” “trend,” “estimate,” “predict,” “project,” “potential,” “seem,” “seek,” “future,” “outlook,” “forecast,” “projection,” “continue,” “ongoing,” or the negative of these terms or other comparable terminology, although not all forward-looking statements contain these words. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management’s control, including the risks discussed under the caption “Item 1A. Risk Factors” in Part I of our most recent Annual Report on Form 10-K or any updates discussed under the caption “Item 1A. Risk Factors” in Part II of our Quarterly Reports on Form 10-Q and in our other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this press release in making an investment decision, which are based on information available to us on the date hereof. We undertake no duty to update this information unless required by law.
-
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
-
- The latest news and updates relating to QBTS are available in the company’s newsroom at https://ibn.fm/QBTS
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/d-wave-launches-gate-model-simulator-beta-program-advancing-error-aware-programming-capabilities-7090336)
+[Original/Source Press Release](https://www.newmediawire.com/news/q-beyond-successfully-completes-public-share-buyback-offer-7090343)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-launches-gate-model-quantum-simulator-beta-program/9f8e50a080599d44e157847ecdf87325) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/q-beyond-completes-eur-9-42-million-share-buyback-reinforces-ai-transformation/d258241f207855f941528507d7a1a23a) 
 
  
 
@@ -39,4 +33,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/5/blurexiZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/5/goldOZQO.webp)

@@ -1,36 +1,56 @@
-# Stonegate Capital Partners Initiates Coverage on Fitzroy Minerals Corp. (TSXV: FTZ)
+# eSummit Goes Year-Round, and Registration Opens for eSummit27 in Tempe
 
-DALLAS, TX -- OCTOBER 5, 2026
+WASHINGTON, D.C. — OCTOBER 5, 2026
 
-DALLAS, TX -- October 5, 2026 -- Valor Gold Corp. (TSX: VGC): Stonegate Capital Partners initiates coverage on Fitzroy Minerals Corp. (TSXV: FTZ). Fitzroy’s 3Q26 update and drilling support the initiation thesis, with Buen Retiro progressing from exploration toward a more defined development pathway while Caballos remains the higher-variance discovery option. The key changes since quarter-end are continued expansion and continuity of shallow mineralization at Buen Retiro and management’s first quantitative framework for a potential mine. Tenorita extended from a 1.7 km trend in July to 1.9 km in August, while BRT DDH094 returned 105.0 m at 0.74% Cu and BRT-DDH095 intersected 8.8 m at 3.70% Cu, including 1.0 m at 21.84% Cu. Management has also outlined a conceptual heap-leach/SX-EW operation producing approximately 20,000 30,000 tonnes of copper annually, with estimated initial capital of roughly $120 150M and all-in costs below $2.00/lb. These figures remain management targets ahead of formal economic studies but provide the first quantitative framework for the potential scale and capital intensity of Buen Retiro. Management continues to target a possible production decision around mid-2027 and production in 2028.
+WASHINGTON, D.C. — October 5, 2026 — The conversations that move electronics sustainability forward don't stop, and now neither does the eSummit. Through eSummit360, the gathering for leaders across the electronics value chain now runs all year, giving them an ongoing place to connect, collaborate, and work on real challenges as active participants, not just an audience.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Buen Retiro is progressing from exploration toward a potential development case, with management outlining a conceptual 20,000–30,000 tpa copper operation requiring approximately US$120–150M of initial capital and targeting all-in costs below US$2.00/lb. Recent metallurgical results showing 59.9%–82.6% copper recovery across the principal material types provide initial technical support for the heap-leach concept, although the production and cost framework remains subject to formal economic studies.
-* Resource definition remains the clearest near-term driver at Buen Retiro, where the 2026 drilling program has expanded to roughly 22,000 m and recent results extended the main mineralized trend to 1.9 km. We believe continued drilling, the maiden MRE and subsequent PFS should provide the key tests of whether the current exploration footprint can support the scale contemplated in management’s development framework.
-* Caballos provides additional discovery leverage, with MobileMT and deep IP identifying large conductive and chargeability anomalies and a roughly 5,500 m Phase 2 program planned across five holes. While Caballos remains substantially earlier-stage than Buen Retiro, successful drilling could establish a second material source of value without being required for the Buen Retiro development case.
+Key Takeaways:* SERI expands the eSummit into eSummit360, a year-round program that blends virtual content with the annual in-person event, and opens registration for eSummit27 on March 8-10, 2027 at the Omni Tempe at ASU in Tempe, Arizona.
+* SERI recognizes Blackbelt360, eBay, Lenovo, re:Cycle Reverse Logistics (an Amazon company), and Sims Lifecycle Services as eSummit360 Champions who support the year-round programming, including the in-person eSummit.
+* SERI offers launch pricing of $799 through November 2 before raising the rate to $1,299, with registration including all sessions, meals, and receptions.
 
-[Click image above to view full announcement.](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-fitzroy-minerals-corp-tsxv-ftz)
+[Click image above to view full announcement.](https://sustainableelectronics.reportablenews.com/pr/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
 
-About StonegateStonegate Capital Partners is a leading capital markets advisory firm providing investor relations, equity research, and institutional investor outreach services for public companies. Our affiliate, Stonegate Capital Markets (member FINRA) provides a full spectrum of investment banking services for public and private companies.
+SERI is a global non-profit 501(c)(3) organization based in the United States with a mission to champion and drive the sustainable use, reuse, and recycling of electronics globally. SERI's numerous programs work to drive its 10/35 vision: that by 2035, 10-year lifespans will be common among electronics, and all materials will be reused at end-of-life. SERI programs include the R2 Standard for responsible electronics reuse and recycling, the eSummit, ei (electronics impact) Reporting Program, SERI's Champions Program, ReThink Awards, and IEMN (International E-Waste Management Network), among others. Learn more at sustainableelectronics.org
 
-Contacts:Stonegate Capital Partners(214) 987-4121 info@stonegateinc.com
+Contacts:Katey Marquettekatey@sustainableelectronics.org
 
-Source: Stonegate, Inc.
+Source: SERI
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://stonegateinc.reportablenews.com/pr/stonegate-capital-partners-initiates-coverage-on-fitzroy-minerals-corp-tsxv-ftz)
+[Original/Source Press Release](https://sustainableelectronics.reportablenews.com/pr/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/stonegate-initiates-coverage-on-fitzroy-minerals/21e60123a3a0df92f391f66b1e51903a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seri-launches-year-round-esummit360-opens-esummit27-registration/06a9d51e04213572ef0720dd27a84792) 
 
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/esummit-goes-year-round-and-registration-opens-for-esummit27-in-tempe)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/5/urgemae1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/5/milkTJr6.webp)
