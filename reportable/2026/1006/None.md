@@ -1,90 +1,44 @@
-# Okogen Receives CDSCO Authorization to Advance the EMERALD Phase 1/2 Study of Treyegen™ (OKG-0303) for Acute Infectious Conjunctivitis
+# Churches Can Now Turn a Sunday Sermon Into a Cinematic Film by Monday: PRAY.COM Opens the AI Studio Behind AI Bible to Every Ministry
 
-PLANO, TEXAS, OCTOBER 6, 2026
+LOS ANGELES, CA - OCTOBER 6, 2026
 
-Okogen, Inc., a clinical-stage biotechnology company focused on developing innovative therapies for infectious diseases, today announced that the Central Drugs Standard Control Organisation (CDSCO), India's national drug regulatory authority, has authorized the EMERALD study, the Company's Phase 1/2 clinical trial evaluating Treyegen™ (OKG-0303) for the treatment of acute infectious conjunctivitis.
+PRAY.COM today announced the launch of Pray Production Studio (PPS), an AI-powered production platform that enables churches, ministries, faith content creators, educators, book authors and filmmakers to generate original cinematic video from a sermon, Bible story, lesson, or idea. Built by the team behind the AI Bible, the platform transforms what once required a Hollywood-sized production into a workflow that can be completed by a small team in a single afternoon.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* CDSCO has authorized the EMERALD Phase 1/2 study of Treyegen™ (OKG-0303) in India, advancing the program into clinical evaluation for acute infectious conjunctivitis.
-* The EMERALD study will enroll more than 300 patients and evaluate safety, pharmacokinetics, virologic and microbiologic activity, and clinical efficacy, with data expected later this year.
-* Treyegen™ (OKG-0303) is designed as a single investigational therapy addressing both viral and bacterial forms of acute infectious conjunctivitis, while also evaluating the broader potential of Okogen’s host-directed antiviral platform.
+Key Takeaways:* PRAY.COM launches Pray Production Studio, an AI-powered platform that enables churches and faith creators to turn sermons and ideas into complete, visually consistent cinematic videos in as little as one day without cameras, actors, or full crews.
+* Built by the team behind the AI Bible, which has over 250 million views and produces about 150 videos per month, PPS uses reusable character libraries, project-level memory, automated prompting, and combined AI models to maintain continuity across entire productions.
+* PPS is available today with subscription plans starting at $19 per month, and PRAY.COM will host live demo workshops at SALT 2026 in Dallas from October 14 to 16, 2026.
 
-[Click image above to view full announcement.](https://okogen.reportablenews.com/pr/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-1-2-study-of-treyegen-okg-0303-for-acute-infectious-conjunctivitis)
+[Click image above to view full announcement.](https://pray.reportablenews.com/pr/churches-can-now-turn-a-sunday-sermon-into-a-cinematic-film-by-monday-pray-com-opens-the-ai-studio-behind-ai-bible-to-every-ministry)
 
-About Treyegen™ (OKG-0303)Treyegen™ (OKG-0303) is an investigational ophthalmic therapy being developed for the treatment of acute infectious conjunctivitis. The proprietary formulation combines ranpirnase, a host-directed antiviral, tobramycin, a broad-spectrum antibacterial agent, and oxymetazoline, which reduces ocular redness, into a single investigational therapy designed to address the broad clinical presentation of acute infectious conjunctivitis. Okogen believes this differentiated approach has the potential to simplify treatment decisions while providing physicians with a comprehensive therapeutic option for patients presenting with acute infectious conjunctivitis.
+About Pray Production Studio
 
-About OkogenOkogen, Inc. is a clinical-stage biotechnology company developing a broad-spectrum, host-directed antiviral platform built around ranpirnase. The Company is advancing ranpirnase-based therapies across four therapeutic pillars: ophthalmology, medical countermeasures, systemic antivirals and dermatology. Its development strategy positions ophthalmology as the lead clinical proving ground for the platform, with the goal of applying clinical insights, formulation expertise and manufacturing capabilities across a broader portfolio of antiviral therapies. For more information, visit www.okogen.com.
+Pray Production Studio (PPS) is an AI-powered video production platform that makes cinematic storytelling more accessible to churches, ministries, faith content creators, educators, book authors and filmmakers. Developed by the team behind PRAY.COM’s AI Bible, PPS enables creators to turn sermons, Bible stories, lessons and original ideas into original cinematic video through a streamlined production workflow. With the combination of AI-based generation capabilities and specialized tools to preserve visual and character consistency across projects, PPS allows small teams and individual creators to have the same advantages that are usually available only to big production houses, experts and a big ‍‍‍budget. Pray Production Studio includes AI-powered scene generation, reusable character libraries, cinematic Bible-story creation, kids' ministry animation, voice generation, podcast production, music and sound design, sermon-to-video workflows, editor-ready exports for Adobe Premiere Pro and Final Cut Pro, stock media, and access to premium models including Google Veo, Kling, and Seedance.
 
-Forward-Looking StatementsThis press release contains forward-looking statements within the meaning of the Private Securities Litigation Reform Act of 1995, including statements regarding the development, clinical evaluation, regulatory progress, potential benefits and commercialization of Treyegen™ (OKG-0303). These statements are based on current expectations and are subject to risks and uncertainties that could cause actual results to differ materially from those expressed or implied by such forward-looking statements. Okogen undertakes no obligation to update any forward-looking statements except as required by applicable law.
+Contacts:Jason Rosoffpress@pray.com
 
-Contacts:Joshua Moriarty jmoriarty@okogen.com
-
-Source: Okogen
+Source: PRAY.COM
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://okogen.reportablenews.com/pr/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-1-2-study-of-treyegen-okg-0303-for-acute-infectious-conjunctivitis)
+[Original/Source Press Release](https://pray.reportablenews.com/pr/churches-can-now-turn-a-sunday-sermon-into-a-cinematic-film-by-monday-pray-com-opens-the-ai-studio-behind-ai-bible-to-every-ministry)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/okogen-gets-cdsco-nod-for-treyegentm-phase-1-2-conjunctivitis-study/a6292668b36ef412fa3c4102d1311a62) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pray-com-launches-ai-studio-for-cinematic-sermon-videos/a322852ce0df73e204b7e67cbbef0d0a) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/churches-can-now-turn-a-sunday-sermon-into-a-cinematic-film-by-monday-praycom-opens-the-ai-studio-behind-ai-bible-to-every-ministry)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/churches-can-now-turn-a-sunday-sermon-into-a-cinematic-film-by-monday-praycom-opens-the-ai-studio-behind-ai-bible-to-every-ministry)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/okogen-receives-cdsco-authorization-to-advance-the-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/06/okogen-secures-cdsco-authorization-for-emerald-phase-12-study-of-treyegentm-okg-0303-for-acute-infectious-conjunctivitis/)
-
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/okogens-treyegen-wins-cdsco-authorization-for-phase-12-emerald-study-in-acute-infectious-conjunctivitis)
-
-Pickup - [https://advos.io/en](https://advos.io/en/okogen-secures-cdsco-authorization-for-emerald-phase-12-study-of-treyegen-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/okogen-gains-cdsco-authorization-for-emerald-phase-12-study-of-treyegentm-okg-0303-in-acute-infectious-conjunctivitis)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/okogens-treyegen-okg-0303-wins-cdsco-authorization-to-launch-emerald-phase-12-study-in-india-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://burstable.news](https://burstable.news/news/okogen-gains-cdsco-authorization-to-launch-emerald-phase-12-trial-of-treyegen-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/okogen-erhalt-cdsco-genehmigung-fur-den-start-der-emerald-phase-12-studie-von-treyegen-bei-akuter-infektioser-bindehautentzundung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/okogen-obtiene-autorizacion-de-la-cdsco-para-iniciar-el-ensayo-de-fase-12-emerald-de-treyegen-para-la-conjuntivitis-infecciosa-aguda)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/okogen-obtient-lautorisation-de-la-cdsco-pour-lancer-lessai-de-phase-12-emerald-du-treyegene-dans-la-conjonctivite-infectieuse-aigue)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/okogen-obtem-autorizacao-da-cdsco-para-iniciar-o-estudo-emerald-de-fase-12-do-treyegen-para-conjuntivite-infecciosa-aguda)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/okogen-wins-cdsco-authorization-for-emerald-phase-12-study-of-treyegen-for-acute-infectious-conjunctivitis)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/okogens-treyegentm-okg-0303-gains-cdsco-authorization-for-emerald-phase-12-study-in-acute-infectious-conjunctivitis)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/06/praycom-launches-ai-studio-to-turn-sermons-into-cinematic-films-overnight/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/6/ellePRCX.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/6/goldFuVV.webp)

@@ -1,38 +1,36 @@
-# Quantum BioPharma (QNTM) Enters Study Start-Up Agreement for Lucid-MS Phase 2 Trial
+# The Platform Group Sells Stake in Platform for Beverage Machinery
 
-LOS ANGELES, CA - October 6, 2026 (NEWMEDIAWIRE) - Quantum BioPharma (NASDAQ: QNTM) entered into a Study Start-Up Agreement (“SUA”) with the clinical research business of Thermo Fisher Scientific to implement its Phase 2 clinical trial of Lucid-21-302 (“Lucid-MS”) for multiple sclerosis (“MS”). The agreement initiates formal study start-up activities following FDA clearance to proceed with the trial. Thermo Fisher will support study start-up and related clinical research services through its PPD(TM) Clinical Research Business.
+DUSSELDORF, GERMANY - October 6, 2026 (NEWMEDIAWIRE) - The Management Board of The Platform Group SE & Co. KGaA (ISIN DE000A40ZW88, WKN A40ZW8, “TPG”) signed an agreement on 5 October 2026 to sell its majority stake in BEVMAQ GmbH, headquartered in Menslage, Germany. Closing of the transaction is expected in Q4 2026. BEVMAQ GmbH operates a platform for beverage machinery, connecting buyers and sellers worldwide.
 
- ![](http://newmediawire.s3.amazonaws.com/6ac53429da846f543accc30b_1)
+ TPG invested in BEVMAQ in 2022. Since then, the company has delivered significant growth in revenue, EBITDA and earnings. The number of machines available on the platform has increased more than eightfold since TPG’s investment. The majority stake is being acquired by a group of German investors. The parties have agreed not to disclose the purchase price.
 
- Quantum BioPharma said the randomized, double-blind, placebo-controlled Phase 2 trial will evaluate the efficacy, safety and tolerability of Lucid-MS in people with progressive forms of MS using clinical and radiological endpoints. Lucid-MS is an investigational, first-in-class New Chemical Entity designed to provide neuroprotection by inhibiting demyelination through targeting protein arginine deiminase 2 (“PAD2”), an enzyme implicated in myelin degradation.
+ The Platform Group SE & Co. KGaA:
 
- To view the full press release, visit https://ibn.fm/CZH9U
+ The Platform Group SE & Co. KGaA is a Europe-wide operating software company active in 26 industries through its proprietary platform solutions. The Group’s partner network comprises more than 17,600 partners who use the platform solutions to address both B2B and B2C customers. Industries served include, among others, the luxury portfolio, optics & hearing, furniture retail, machinery trading, dental technology, and electronics. The Group has 19 locations across Europe and is headquartered in Dusseldorf. For the financial year 2025, the Company reported revenue of EUR 728 million and adjusted EBITDA of EUR 55 million.
 
- About Quantum BioPharma Ltd.
+ Contact:Investor RelationsNathalie Richert, Head of Investor Relations & HRir@the-platform-group.comSchloss Elbroich | Am Falder 4 | 40589 Dusseldorf | Germanycorporate.the-platform-group.com
 
- Quantum is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum invented UNBUZZD(TM) and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“Unbuzzd”) (formerly, Celly Nutrition Corp.), led by industry veterans. Quantum retains ownership of 19.84% (as of March 31, 2026) of Unbuzzd at www.unbuzzd.com. The agreement with Unbuzzd also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum retains 100% of the rights to develop similar products or alternative formulations specifically for pharmaceutical and medical uses.
+ 
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ 
 
- The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
-
- Forward Looking Statements
-
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-enters-study-start-up-agreement-for-lucid-ms-phase-2-trial-7090370)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-platform-group-sells-stake-in-platform-for-beverage-machinery-7090378)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-partners-with-thermo-fisher-for-lucid-ms-phase-2-trial/70a48187e6c68642b610029eb7c9351e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tpg-sells-majority-stake-in-bevmaq-to-german-investors/89967203659e5b1377690ac791b5b274) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/06/the-platform-group-sells-majority-stake-in-bevmaq-gmbh/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/6/elleKQFr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/6/veileGMf.webp)
