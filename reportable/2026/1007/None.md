@@ -1,38 +1,60 @@
-# C60 Power Celebrates National C60 Day on October 9
+# Advaiya Solutions Inc. named featured sponsor of Chicago Build 2026
 
-Boulder, Colorado, October 7, 2026
+CHICAGO, IL AND BELLEVUE, WA, OCT 7, 2026
 
-C60 Power, a woman owned wellness company specializing in Carbon 60 products for people and animals, celebrates National C60 Day every October 9. Created by C60 Power, the observance falls on the anniversary of October 9, 1996, the day the Royal Swedish Academy of Sciences announced the Nobel Prize in Chemistry for the discovery of fullerenes. This year, consumers can enjoy educational events, community stories, and a 20% storewide sale at ShopC60.com.
+Advaiya Solutions Inc. will participate as a featured sponsor at Chicago Build 2026, the Midwest’s leading and largest construction show for the AEC industry. The event will take place on October 28 and 29, 2026, at McCormick Place in Chicago.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* C60 Power created National C60 Day and celebrates it every October 9 to honor the 1996 Nobel Prize announcement recognizing the discovery of fullerenes.
-* This year consumers can enjoy educational events, community stories, and a 20% storewide sale at ShopC60.com using code CELEBRATE20 valid through October 9, 2026.
-* C60 research spans chemistry, materials science, nanotechnology, energy, skincare, and wellness, with ongoing antioxidant and healthy aging studies that gained attention after a 2012 rat study reported lifespan extension with C60 in olive oil.
+Key Takeaways:* Advaiya Solutions Inc. will participate as a featured sponsor at Chicago Build 2026, taking place October 28–29, 2026 at McCormick Place in Chicago.
+* Advaiya will host a panel on how data, AI, and Peripheral Automation unite to improve the bottom line, scheduled for October 29, 2026 from 1:00 PM to 1:50 PM on the AI & Digital Construction Stage and moderated by President and CTO Dharmesh Godha with panelists from Advaiya, Graycor, Microsoft, and CNH Industrial.
+* At Booth 750, Advaiya will showcase practical technology solutions for construction and built-environment businesses, including project and portfolio management, applied AI for estimates, contracts, change orders, forecasting and reporting, field service and construction work management, and connected data and job-cost intelligence across commitments, work in progress, billing, retainage, cash forecasts, actual costs, and margins.
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/c60-power-celebrates-national-c60-day-on-october-9)
+[Click image above to view full announcement.](https://knee-deep-marketing.reportablenews.com/pr/advaiya-solutions-inc-named-featured-sponsor-of-chicago-build-2026)
 
-About C60 Power
+About Advaiya Solutions Inc
 
-C60 Power is an American woman owned wellness company,originally founded in 2016 as C60 Purple Power. The company specializes in the manufacturing of health and wellness products containing Carbon 60 including C60 oils, gummies, skincare, and specialty formulations for pets; , all made with 99.99 percent pure, sublimated C60, and certified organic carrier oils. All C60 Power products are third-party tested for safety, quality, purity, and bioavailability.
+Advaiya is a technology consulting and implementation company with over 21 years of cross-industry experience, including work with mid-sized and enterprise construction companies in the US. The company helps these businesses optimize field service operations, bring fragmented data onto unified platforms, embed AI into existing systems, and manage multiple projects more effectively.
 
-Contacts:Lindsay O'Neill-O'Keefe914-846-9444
+This experience gives Advaiya a practical understanding of how construction and built-environment businesses operate across people, processes, and technology.
 
-Source: Newsworthy.ai
+Advaiya’s Microsoft Adoption and Change Management specialization reflects its focus on what happens beyond implementation. The company supports organizations in preparing employees for change, improving technology adoption, and connecting technology usage with operational and financial priorities. This approach helps businesses reduce operational friction, improve project and field visibility, strengthen decision-making, and pursue measurable improvements in efficiency, effectiveness, and bottom-line performance.
+
+Contacts:Khushal Chauhan khushal.chauhan@advaiya.com
+
+Source: Knee Deep Marketing
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/c60-power-celebrates-national-c60-day-on-october-9)
+[Original/Source Press Release](https://knee-deep-marketing.reportablenews.com/pr/advaiya-solutions-inc-named-featured-sponsor-of-chicago-build-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/c60-power-marks-national-c60-day-with-20-off-sale/5faf461eff3099671ad63c6f3f094f7f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/advaiya-named-featured-sponsor-of-chicago-build-2026/da87cbc1b5b8501acf3b49eec1cc52c3) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/advaiya-solutions-inc-named-featured-sponsor-of-chicago-build-2026)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/advaiya-solutions-inc-to-showcase-ai-driven-construction-solutions-as-featured-sponsor-of-chicago-build-2026)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/advaiya-solutions-inc-named-featured-sponsor-of-chicago-build-2026-bringing-ai-and-data-expertise-to-construction)
+
+Pickup - [https://burstable.news](https://burstable.news/news/advaiya-solutions-to-showcase-ai-driven-construction-tech-as-featured-sponsor-at-chicago-build-2026)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/advaiya-solutions-prasentiert-ki-gesteuerte-bautechnologie-als-featured-sponsor-auf-der-chicago-build-2026)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/advaiya-solutions-presentara-tecnologia-de-construccion-impulsada-por-ia-como-patrocinador-destacado-en-chicago-build-2026)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/advaiya-solutions-presentera-ses-technologies-de-construction-pilotees-par-lia-en-tant-que-sponsor-principal-a-chicago-build-2026)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/advaiya-solutions-apresentara-tecnologia-de-construcao-impulsionada-por-ia-como-patrocinadora-destaque-na-chicago-build-2026)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/advaiya-solutions-inc-to-showcase-ai-driven-construction-tech-as-featured-sponsor-at-chicago-build-2026)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/7/cakeyGuU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/7/chefF8Mg.webp)
