@@ -1,31 +1,31 @@
-# BridgeCore Capital Finances Multifamily Complex In Oklahoma City, Oklahoma
+# Quantum BioPharma (QNTM) Enlists Thermo Fisher's Clinical Research Business to Launch Phase 2 Lucid-MS Trial
 
-BEVERLY HILLS, CA - October 7, 2026 (NEWMEDIAWIRE) - BridgeCore Capital, Inc. today announced it has closed a $1,300,000 refinance of a multifamily complex in Oklahoma City, Oklahoma.
+* New agreement moves innovative Lucid-MS treatment from planning into execution.
+* Proprietary platform is designed around a novel neuroprotective approach that targets demyelination rather than solely modulating the immune system.
+* Thermo Fisher’s clinical research business is a leading global contract research organization, with impressive expertise in central nervous system and MS studies.
 
- The borrower needed cash-out proceeds to fund improvements to the subject property and another multifamily property in the same market, establish a 9-month interest reserve, and provide additional working capital. The borrower’s business plan is to complete the improvements to the subject property and sell it within the 18-month loan term.
+ LOS ANGELES, CA - October 7, 2026 (NEWMEDIAWIRE) - Most multiple sclerosis (“MS”) drugs work by quieting the immune system. A new partnership shines the spotlight on a different approach - protecting the nerve’s own insulation - and sets up that treatment for a rigorous clinical test. Quantum BioPharma (NASDAQ: QNTM), a biopharmaceutical company developing therapies for neurodegenerative and metabolic disorders, has signed a Study Start-Up Agreement with the clinical research business of Thermo Fisher Scientific. The contract covers implementation of the phase 2 trial of Lucid-MS, Quantum’s lead drug candidate for MS.
 
- BridgeCore structured a future-funding reserve for the property improvements, with documentation of the use of funds required only for the initial advance. This structure provided the borrower with greater flexibility and efficiency in accessing the remaining improvement funds. BridgeCore also worked with the borrower to structure the loan with recourse limited to its fund entity.
+ ![](http://newmediawire.s3.amazonaws.com/6ac6967eda846f543eccc336_1)
 
- BridgeCore worked closely with the trusted mortgage advisory team, sponsor, and title company to coordinate an efficient closing process and ensure the transaction closed on schedule.
+ Read More
 
- By leveraging its extensive experience, in-house capabilities, and flexible capital base, BridgeCore addressed a number of unique structural requirements while delivering highly competitive financing terms.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- About BridgeCore Capital
+ The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
 
- BridgeCore provides bridge loans on commercial and non-owner occupied residential real estate in the U.S., including origination of senior, junior and mezzanine debt and preferred equity. Additionally, borrowers throughout the nation can take advantage of BridgeCore’s “Bridge Loan Program,” which provides flexible pre-pay, interest only, non-recourse, and floating-rate financing with one- to three-year terms for loan sizes ranging from $15M to $50M+.
+ Forward Looking Statements
 
- For more information, visit www.bridgecorecapital.com.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
- Company Contact:Elliot Shirwo, BridgeCore Capital424-285-6365, elliot@bridgecorecapital.com
-
- Media Contact:Roger Pondel, PondelWilkinson Inc.310-279-5965, rpondel@pondel.com 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bridgecore-capital-finances-multifamily-complex-in-oklahoma-city-oklahoma-7090410)
+[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-enlists-thermo-fisher-s-clinical-research-business-to-launch-phase-2-lucid-ms-trial-7090420)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgecore-closes-1-3m-multifamily-refinance-in-oklahoma-city/5593ca70f11316e28955b41a44ab8f09) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-taps-thermo-fisher-for-phase-2-lucid-ms-trial/21ff513f7b7aedb71a5ca56604b02c41) 
 
  
 
@@ -33,4 +33,4 @@ BEVERLY HILLS, CA - October 7, 2026 (NEWMEDIAWIRE) - BridgeCore Capital, Inc. to
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/7/fastIHdQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/7/bluroZXK.webp)
