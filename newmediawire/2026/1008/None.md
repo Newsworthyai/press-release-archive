@@ -1,78 +1,60 @@
-# Ares Strategic Mining to Host Official Ribbon-Cutting Ceremony for New U.S. Fluorspar Processing Plant in Delta, Utah
+# 45Drives Unveils Full 2026 Creator Summit Program, Bringing AI, Open Infrastructure and Creator-Tech Leaders to Wilmington
 
-Federal, State and Industry Leaders to Join Ares on October 9 as the Company Celebrates a Major Milestone in Rebuilding Domestic Fluorspar Supply
+Tom Lawrence, Wendell Wilson, Jeff Geerling, Unraid, LINBIT, Niche VFX, JR Automation, a Hitachi Company, and Arista Networks Join Leading Academics, Researchers and Media Figures for Three Days of Technical Sessions, Live Demonstrations, Enterprise AI and Creative AI Workflow Discussions, Livestreams and Community Events
 
- DELTA, UTAH - October 8, 2026 (NEWMEDIAWIRE) - Ares Strategic Mining Inc. (CSE: ARS) (OTCQX: ARSMF) (FRA: N8I1) ("Ares" or the "Company") is pleased to announce that it will host an official ribbon-cutting ceremony at 11:00 a.m. on Friday, October 9, 2026, at the ARES Processing Facility in Delta, Utah, formally marking the opening of the Company’s new Lumps Plant and a major milestone in the return of domestic fluorspar processing to the United States.
+ SYDNEY, NOVA SCOTIA and WILMINGTON, NC - October 8, 2026 (NEWMEDIAWIRE) - 45Drives, the leader in big, strong, fast, open-source data storage and compute, today unveiled the complete program for its fourth annual Creator Summit, taking place October 20-22 across downtown Wilmington, North Carolina. The three-day gathering will bring influential independent technology creators together with enterprise infrastructure leaders, customers, open-source experts, AI researchers, academics, media figures and film and VFX professionals to examine where artificial intelligence, data ownership and modern computing infrastructure are heading next.
 
- The new facility processes raw fluorspar from Ares’ fully permitted Lost Sheep Mine into industry-ready metallurgical-grade fluorspar ("metspar"). The ceremony comes as Ares has begun transporting mined ore to Delta and introducing live material into the processing circuit, with the operations team now optimizing the plant around the characteristics of Lost Sheep ore as production ramps up.A Milestone Years in the Making
+ The 2026 Creator Summit is organized around dedicated Enterprise and Creative tracks. Enterprise programming will focus on private and on-premises AI, high-performance data systems, data sovereignty, cybersecurity, open-source infrastructure and the decisions organizations face as AI workloads scale. The Creative Track will examine how AI is changing production, editing, design, storytelling and other real-world creative workflows.
 
- The ribbon cutting will bring together federal and state officials, strategic partners, industry leaders and local stakeholders to recognize the completion of infrastructure that connects Ares’ Utah mine directly with a purpose-built U.S. processing operation.
+ The speaker lineup includes creators Tom Lawrence of Lawrence Systems, Wendell Wilson of Level1Techs and Jeff Geerling; Ed Rawlings of Unraid; 45Drives Technical Director and Ceph Foundation board member Brett Kelly; Bob Henderson of Cass County; Ryan Walker of JR Automation; Dane Adams of Arista Networks; Allan Jude of Klara; Nicholas Wiczynski of NGW Post; Severine Erickson and Fenner Rockliffe of Niche VFX; Tyler Zibaie of Lighthouse Films; Christos Makridis of Arizona State University; and a remote session from Musora Media. Harvard educator and United Nations Senior Expert Alexander Puutio and PhillComm Global Founder and CEO Jon Lindsay Phillips will also join the program for a cross-disciplinary discussion of how enterprise AI is being adopted, measured, communicated and understood.
 
- “We have reached the moment when years of permitting, mine development, engineering, construction and financing have become a working U.S. mine-to-plant operation. Ore is being mined, trucked to our facility and run through the plant. Friday gives us the opportunity to recognize the team, shareholders, public-sector partners and local community who helped turn that plan into physical infrastructure. For Ares, this is the beginning of an entirely new chapter." - James Walker, President and CEO, Ares Strategic Mining
+ “This is the strongest program we’ve assembled because it reflects how technology is actually moving,” said Dr. Doug Milburn, President of 45Drives. “Enterprise teams are bringing AI closer to their data, creators are building more of their workflows on infrastructure they control, and open-source communities are influencing both. Creator Summit puts those groups in the same room to work through the same questions and gives people something they can take back and use.”
 
- Federal, State and Industry Leaders to AttendConfirmed attendees for Friday’s ceremony include:
+ Full 2026 Creator Summit Program
 
- -Mike Kennedy - U.S. Representative, Utah-Carson Brown - Office of U.S. Senator John Curtis-David P. Hinkins - Utah State Senator-Emy Lesofski - Director, Utah Office of Energy Development-Dana Dean - Acting Director, Utah Division of Oil, Gas and Mining-James Walker - President and CEO, Ares Strategic Mining-Peter Godart - President and CEO, Found Industries
+ Tuesday, October 20 - The Skyline Center, 929 N. Front St. The Summit opens at 9:00 a.m., followed by an introduction to the Enterprise and Creative tracks. Parallel programming begins at 10:30 a.m. with Brett Kelly of 45Drives on the Enterprise side and Ed Rawlings of Unraid on the Creative side. Following lunch, Tom Lawrence of Lawrence Systems and a remote Musora Media session run from 1:00-2:15 p.m., followed by Wendell Wilson of Level1Techs and Jeff Geerling from 2:15-3:30 p.m. After the day's wrap, an invite-only Unraid event at Jengo’s Playhouse begins at 6:00 p.m. with a livestream, food and drink, and demonstrations of the 45HomeLab x Unraid Signature Series.
 
- Scheduled speakers include Peter Godart, U.S. Representative Mike Kennedy, James Walker and a federal government representative. Ares is also coordinating attendance from representatives of the U.S. Department of Defense, U.S. Department of Energy and Defense Logistics Agency, with final names to be announced.A Major Step for U.S. Critical-Mineral Infrastructure
+ Wednesday, October 21 - The Skyline Center. Enterprise programming begins at 9:00 a.m. with Bob Henderson of Cass County, alongside Nicholas Wiczynski of NGW Post on the Creative Track. At 10:15 a.m., Allan Jude of Klara and Severine Erickson of Niche VFX take their respective stages. Afternoon programming features Ryan Walker of JR Automation, Dane Adams of Arista Networks, Tyler Zibaie of Lighthouse Films and Christos Makridis of Arizona State University. Makridis will connect AI research with creative production and education, including lessons from the creator-driven work of Living Opera. At 3:15 p.m., the tracks converge for the live 45Flow Stunt.
 
- The Delta Lumps Plant is designed to convert run-of-mine fluorspar into metallurgical-grade product for industrial customers. Metspar is used principally in steel and aluminum production, where fluorspar acts as an important fluxing material. The facility represents a significant step toward rebuilding a domestic supply capability for a mineral that has long been strategically important to U.S. manufacturing.
+ Thursday, October 22 - Union Station Auditorium, 502 N. Front St. The final day begins at 10:00 a.m. with the AI High Speed Stunt, followed at 11:30 a.m. by Enterprise AI Pulse, a cross-disciplinary look at how enterprise AI is being adopted, measured, covered and understood. Featuring Christos Makridis, Alexander Puutio and Jon Lindsay Phillips, the session will examine private and on-prem AI, data sovereignty, open source, workforce impact, business returns and the changing relationship between traditional technology media and independent creators. A Panelist Livestream runs from 2:00-3:30 p.m., followed by closing remarks and the official Creator Summit afterparty.
 
- The plant’s opening is especially significant because Ares is developing the supply chain from the ground up: mining ore at Lost Sheep, transporting it to Delta, processing it through Company-built infrastructure, and preparing finished product for commercial markets. Ares has previously announced a Memorandum of Understanding with global commodities trader Cremer Erzkontor Inc. relating to distribution of its metspar product across North America.
+ Sponsors and partners supporting this year’s event include Seagate, Unraid, Michael Best and Cintas, with Seagate maintaining a presence throughout the Summit. The event will also spotlight customers and ecosystem partners including Cass County and JR Automation, alongside creators whose audiences have become increasingly influential in enterprise technology.
 
- Utah Support Helped Make the Facility Possible
+ Now in its fourth year, Creator Summit brings together communities that increasingly shape one another: enterprise IT teams deploying AI and managing critical data, open-source engineers building the infrastructure, creators and filmmakers pushing new digital workflows, academics and researchers studying the implications, and technology media interpreting those changes for broader audiences.
 
- The ceremony will also recognize the State of Utah’s support for the development of domestic critical-mineral infrastructure. During the 2025 General Session of the Utah State Legislature, legislation broadened the legal definition of a “throughput infrastructure project” to include infrastructure required for extracting and processing critical minerals. The Company subsequently received an $11 million state-supported loan through the Utah Community Impact Board to advance its Utah operations.
+ Creator Summit can be attended in person or virtually, with key talks and sessions available through the event’s livestream experience. In-person seating is limited and registration and additional information are available on the 45Drives Creator Summit page.
 
- “The support we have received in Utah has allowed Ares to move from plans and engineering drawings to mine development, processing infrastructure and physical production. We are proud to celebrate this milestone in Delta with many of the people and organizations that have supported the project, and we look forward to showing what has been built." - James Walker
+ About 45Drives
 
- From the Lumps Plant to the Next Stage of Growth
+ 45Drives designs and manufactures open-source enterprise storage, virtualization and AI infrastructure built to give organizations control of their data and technology stack. Its North American-made hardware and integrated software solutions serve businesses, government agencies, research institutions and creators, while its 45HomeLab, 45Studio and 45Professional divisions extend that approach to self-hosters, creative professionals and MSPs.
 
- The Lumps Plant is the first major processing component of Ares’ broader Utah strategy. The Company is also advancing construction of its complementary Acidspar Flotation Plant, which is intended to produce higher-purity acid-grade fluorspar for chemical, technology, energy and strategic-material applications.
-
- With mining underway, ore moving to the processing site and the Lumps Plant entering live-material operations, Friday’s ribbon cutting will provide a formal public marker of the Company’s transition into an operating mine-and-processing business. Ares expects to provide a further update following the ceremony.
-
- About Ares Strategic Mining
-
- Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure. Lost Sheep Fluorspar Project – Delta, Utah
-
- - 100% owned - 5,982 acres - 353 Claims
-
- - Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
-
- - Fully Permitted - including mining permits.
-
- - NI 43-101 Technical Report identified extensive high-grade fluorspar with low levels of impurities.
-
- - Mining plan approved by BLM
-
- First approved by Rex Rowley - Area Manager, Bureau of Land Management - 24th August 1992.
-
- Renewed by Paul B. Baker - Minerals Program Manager, Bureau of Land Management - 12th December 2016.
-
- ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING INC.
-
- James WalkerChief Executive Officer and President
-
- For further information, please contact James Walker by email at info@aresmining.comDISCLOSURE AND FORWARD-LOOKING STATEMENTS:
-
- Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
-
- Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law.
+ Contact: Jon Phillips45Drives@PhillComm.Global
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-to-host-official-ribbon-cutting-ceremony-for-new-u-s-fluorspar-processing-plant-in-delta-utah-7090439)
+[Original/Source Press Release](https://www.newmediawire.com/news/45drives-unveils-full-2026-creator-summit-program-bringing-ai-open-infrastructure-and-creator-tech-leaders-to-wilmington-7090452)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-strategic-mining-to-open-u-s-fluorspar-plant-in-delta-utah/87d368f3ba49b0db67c45b8422197866) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/45drives-unveils-2026-creator-summit-program-with-ai-and-open-source-leaders/1edb163d68e8891c279451a081410a5b) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/45drives-unveils-2026-creator-summit-program-merging-ai-open-infrastructure-and-creator-tech-leadership-in-wilmington)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/45drives-creator-summit-2026-program-spotlights-ai-and-open-infrastructure-convergence)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/45drives-creator-summit-2026-to-bridge-ai-open-infrastructure-and-creative-workflows)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/45drives-creator-summit-2026-in-wilmington-to-spotlight-ai-open-infrastructure-and-creator-tech-convergence)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-creator-summit-2026-de-45drives-en-wilmington-destacara-la-ia-la-infraestructura-abierta-y-la-convergencia-entre-creadores-y-tecnologia)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/45drives-creator-summit-2026-program-unveiled-ai-open-infrastructure-and-creator-tech-leaders-converge-in-wilmington)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/tall5J9g.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/filopL3g.webp)
