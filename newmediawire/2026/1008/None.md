@@ -1,59 +1,73 @@
-# From Hong Kong, For Hong Kong: HKTDC Marks 60 Years of Enterprise With Exhibition and Community Art
+# Ares Strategic Mining to Host Official Ribbon-Cutting Ceremony for New U.S. Fluorspar Processing Plant in Delta, Utah
 
-HONG KONG - October 8, 2026 (NEWMEDIAWIRE) - Marking the significant milestone of its 60th anniversary, the Hong Kong Trade Development Council (HKTDC) is embracing the future with a renewed vision. The HKTDC 60th Anniversary Exhibition is now on show at the Ground Floor Covered Piazza at Times Square in Causeway Bay, while a 60th Anniversary Artwork is on display at the eastbound tram stop on O'Brien Road in Wan Chai. Through the two displays, the HKTDC sets out its vision for the future, continuing to serve as a bridge while exploring new markets, services and opportunities in response to evolving economic and trade developments.
+Federal, State and Industry Leaders to Join Ares on October 9 as the Company Celebrates a Major Milestone in Rebuilding Domestic Fluorspar Supply
 
- ![](http://newmediawire.s3.amazonaws.com/6ac7275cda846f543cccc552_1)
+ DELTA, UTAH - October 8, 2026 (NEWMEDIAWIRE) - Ares Strategic Mining Inc. (CSE: ARS) (OTCQX: ARSMF) (FRA: N8I1) ("Ares" or the "Company") is pleased to announce that it will host an official ribbon-cutting ceremony at 11:00 a.m. on Friday, October 9, 2026, at the ARES Processing Facility in Delta, Utah, formally marking the opening of the Company’s new Lumps Plant and a major milestone in the return of domestic fluorspar processing to the United States.
 
- Exhibition reviews 60 years of achievements, looks to new opportunities
+ The new facility processes raw fluorspar from Ares’ fully permitted Lost Sheep Mine into industry-ready metallurgical-grade fluorspar ("metspar"). The ceremony comes as Ares has begun transporting mined ore to Delta and introducing live material into the processing circuit, with the operations team now optimizing the plant around the characteristics of Lost Sheep ore as production ramps up.A Milestone Years in the Making
 
- The Anniversary Exhibition showcases the HKTDC's major achievements over the past 60 years in helping enterprises expand into global markets and outlines its future development strategies. These include upgrading and optimising its operations and services, and strengthening its presence in high-growth markets such as Central Asia, the Middle East, North Africa and the Global South.
+ The ribbon cutting will bring together federal and state officials, strategic partners, industry leaders and local stakeholders to recognize the completion of infrastructure that connects Ares’ Utah mine directly with a purpose-built U.S. processing operation.
 
- A large screen at the exhibition shows highlights from anniversary events, including the Design Gallery on the Move mobile display, the Next 60 Forum, the 60th Anniversary Cocktail Reception, and a 60th Anniversary-themed Tram. A dedicated zone also features historical photos and video footage. The exhibition layout reflects the HKTDC's four major roles: Supertrader, Superconnector, Super Value-adder and Superpartner.
+ “We have reached the moment when years of permitting, mine development, engineering, construction and financing have become a working U.S. mine-to-plant operation. Ore is being mined, trucked to our facility and run through the plant. Friday gives us the opportunity to recognize the team, shareholders, public-sector partners and local community who helped turn that plan into physical infrastructure. For Ares, this is the beginning of an entirely new chapter." - James Walker, President and CEO, Ares Strategic Mining
 
- Art connects community and commerce
+ Federal, State and Industry Leaders to AttendConfirmed attendees for Friday’s ceremony include:
 
- The HKTDC recently organised the Wan Chai Community Art Creation Workshop, where local artist Jane Lee (also known as Messy Desk) exchanged creative ideas with students and drew inspiration for a large-scale artwork commemorating the HKTDC's 60th anniversary. The students were joined by HKTDC Chairman Prof Frederick Ma and Executive Director Sophia Chong in painting scenes of Hong Kong's economic and urban landscape. The resulting works have now been brought together in an illustrated panel installation themed Hong Kong Trade · Connecting the World, which is on show at the O’Brien Road Tram Stop.
+ -Mike Kennedy - U.S. Representative, Utah-Carson Brown - Office of U.S. Senator John Curtis-David P. Hinkins - Utah State Senator-Emy Lesofski - Director, Utah Office of Energy Development-Dana Dean - Acting Director, Utah Division of Oil, Gas and Mining-James Walker - President and CEO, Ares Strategic Mining-Peter Godart - President and CEO, Found Industries
 
- ![](http://newmediawire.s3.amazonaws.com/6ac7275cda846f543cccc552_2)
+ Scheduled speakers include Peter Godart, U.S. Representative Mike Kennedy, James Walker and a federal government representative. Ares is also coordinating attendance from representatives of the U.S. Department of Defense, U.S. Department of Energy and Defense Logistics Agency, with final names to be announced.A Major Step for U.S. Critical-Mineral Infrastructure
 
- The Anniversary Exhibition runs until 14 October, daily from 10am to 10pm. During the exhibition period, visitors who check in at the venue and complete designated tasks will receive a 60th-anniversary souvenir. Souvenirs are limited and available on a first-come, first-served basis. The Anniversary Artwork is on display at the O'Brien Road (Eastbound) Tram Stop in Wan Chai until 29 October. All are welcome to visit.
+ The Delta Lumps Plant is designed to convert run-of-mine fluorspar into metallurgical-grade product for industrial customers. Metspar is used principally in steel and aluminum production, where fluorspar acts as an important fluxing material. The facility represents a significant step toward rebuilding a domestic supply capability for a mineral that has long been strategically important to U.S. manufacturing.
 
- Event Highlights
+ The plant’s opening is especially significant because Ares is developing the supply chain from the ground up: mining ore at Lost Sheep, transporting it to Delta, processing it through Company-built infrastructure, and preparing finished product for commercial markets. Ares has previously announced a Memorandum of Understanding with global commodities trader Cremer Erzkontor Inc. relating to distribution of its metspar product across North America.
 
- 60th Anniversary Exhibition: https://youtu.be/1ATbkgwchj8
+ Utah Support Helped Make the Facility Possible
 
- 60th Anniversary Artwork: https://youtu.be/m3aW7yMDNbI
+ The ceremony will also recognize the State of Utah’s support for the development of domestic critical-mineral infrastructure. During the 2025 General Session of the Utah State Legislature, legislation broadened the legal definition of a “throughput infrastructure project” to include infrastructure required for extracting and processing critical minerals. The Company subsequently received an $11 million state-supported loan through the Utah Community Impact Board to advance its Utah operations.
 
- Photo download: https://bit.ly/4hsFfuX
+ “The support we have received in Utah has allowed Ares to move from plans and engineering drawings to mine development, processing infrastructure and physical production. We are proud to celebrate this milestone in Delta with many of the people and organizations that have supported the project, and we look forward to showing what has been built." - James Walker
 
- Websites
+ From the Lumps Plant to the Next Stage of Growth
 
- ![](http://newmediawire.s3.amazonaws.com/6ac7275cda846f543cccc552_3)
+ The Lumps Plant is the first major processing component of Ares’ broader Utah strategy. The Company is also advancing construction of its complementary Acidspar Flotation Plant, which is intended to produce higher-purity acid-grade fluorspar for chemical, technology, energy and strategic-material applications.
 
- HKTDC's 60th Anniversary Celebration Activities: https://60.hktdc.com/en
+ With mining underway, ore moving to the processing site and the Lumps Plant entering live-material operations, Friday’s ribbon cutting will provide a formal public marker of the Company’s transition into an operating mine-and-processing business. Ares expects to provide a further update following the ceremony.
 
- HKTDC Media Room: https://mediaroom.hktdc.com/en
+ About Ares Strategic Mining
 
- Media enquiries
+ Ares Strategic Mining Inc. is a mining company focused on the development of its fluorspar projects in the U.S. The Company aims to become a significant supplier of high-grade fluorspar to North American markets, supporting industries vital to modern technology and infrastructure. Lost Sheep Fluorspar Project – Delta, Utah
 
- HKTDC's Communications & Public Affairs Department:
+ - 100% owned - 5,982 acres - 353 Claims
 
- Navin LawTel: (852) 2584 4525Email: navin.cm.law@hktdc.org
+ - Located in the Spor Mountain area, Juab County, Utah, approximately 214 km south-west of Salt Lake City.
 
- Winnie KanTel: (852) 2584 4055Email: winnie.wy.kan@hktdc.org
+ - Fully Permitted - including mining permits.
 
- About HKTDC
+ - NI 43-101 Technical Report identified extensive high-grade fluorspar with low levels of impurities.
 
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels.
+ - Mining plan approved by BLM
+
+ First approved by Rex Rowley - Area Manager, Bureau of Land Management - 24th August 1992.
+
+ Renewed by Paul B. Baker - Minerals Program Manager, Bureau of Land Management - 12th December 2016.
+
+ ON BEHALF OF THE BOARD OF DIRECTORS OF ARES STRATEGIC MINING INC.
+
+ James WalkerChief Executive Officer and President
+
+ For further information, please contact James Walker by email at info@aresmining.comDISCLOSURE AND FORWARD-LOOKING STATEMENTS:
+
+ Companies typically rely on comprehensive feasibility reports on mineral reserve estimates to reduce the risks and uncertainties associated with a production decision. Historically, situations where the issuer decides to put a mineral project into production without first establishing mineral reserves supported by a technical report and completing a feasibility study have a higher risk of economic or technical failure, though some industrial mineral ventures are relatively simple operations with low levels of investment and risk, where the operating entity has determined that a formal prefeasibility or feasibility study in conformance with NI 43-101 and 43-101 CP is not required for a production decision. Based on historical engineering work, geological reports, historical production data and current engineering work completed or in the process by Ares, the Company intends to move forward with the development of its Utah asset.
+
+ Certain information in this news release may contain forward-looking statements that involve substantial known and unknown risks and uncertainties. Forward-looking statements are often identified by terms such as “will”, “may”, “should”, “anticipate”, “expects” and similar expressions. All statements other than statements of historical fact included in this news release are forward-looking statements that involve risks and uncertainties. There can be no assurance that such statements will prove to be accurate and actual results and future events could differ materially from those anticipated in such statements. Important factors that could cause actual results to differ materially from the Company’s expectations include the failure to satisfy the conditions of the relevant securities exchange(s) and other risks detailed from time to time in the filings made by the Company with securities regulations. The reader is cautioned that assumptions used in the preparation of any forward-looking information may prove to be incorrect. Events or circumstances may cause actual results to differ materially from those predicted, as a result of numerous known and unknown risks, uncertainties, and other factors, many of which are beyond the control of the Company. The reader is cautioned not to place undue reliance on any forward-looking information. Such information, although considered reasonable by management at the time of preparation, may prove to be incorrect and actual results may differ materially from those anticipated. Forward-looking statements contained in this news release are expressly qualified by this cautionary statement. The forward-looking statements contained in this news release are made as of the date of this news release and the Company disclaims any intention or obligation to update or revise such information, except as required by applicable law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/from-hong-kong-for-hong-kong-hktdc-marks-60-years-of-enterprise-with-exhibition-and-community-art-7090436)
+[Original/Source Press Release](https://www.newmediawire.com/news/ares-strategic-mining-to-host-official-ribbon-cutting-ceremony-for-new-u-s-fluorspar-processing-plant-in-delta-utah-7090439)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hktdc-marks-60-years-with-exhibition-and-community-art/1e8f755d1420b9a7f0d9a4d59699598d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ares-strategic-mining-to-open-u-s-fluorspar-plant-in-delta-utah/87d368f3ba49b0db67c45b8422197866) 
 
  
 
@@ -61,4 +75,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/iconqWCT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/tall5J9g.webp)
