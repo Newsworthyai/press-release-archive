@@ -1,45 +1,47 @@
-# City of Doral Honors Dr. Elena Ortega-Tauler for Her Tireless Work on The Special Needs Advisory Board and Exceptional Community Contributions
+# Debt.com to Recognize the Best Spanish-Language Financial Content Creator at the 2026 FinTalk Awards
 
-DORAL, FL — October 7, 2026 — (NOTICIAS NEWSWIRE) — In a meaningful official ceremony, distinguished attorney Dr. Elena Ortega-Tauler, Esq., was recognized by City of Doral leadership for her appointment and outstanding contributions to the City of Doral Special Needs Advisory Board. The recognition highlights her relentless dedication, impeccable track record, and professional commitment to families navigating the complex journey of caring for a loved one with special needs or dependency.
+FORT LAUDERDALE, Fla., Oct. 7, 2026 /Noticias Newswire/ — Debt.com will soon announce the winner of the Best Spanish-Language Financial Content Creator category at the 2026 FinTalk Awards, an honor recognizing creators who use digital platforms to make financial education more accessible to the Hispanic community in the United States.
 
- A graduate of the prestigious University of Miami with over 35 years of legal experience specializing in Elder Law, trusts, estate planning, and special needs planning, Dr. Ortega-Tauler has devoted her career to providing legal security and peace of mind to the South Florida community.
+ The category recognizes the creator who, through educational, practical, and accessible content, has made an outstanding contribution over the past year to helping Hispanics better understand topics such as saving, investing, debt management, and financial planning.
 
- Her dedication extends far beyond courtrooms and law offices. Throughout her career, Dr. Ortega-Tauler has established herself as a trusted, relatable voice for the Hispanic community, regularly appearing as an expert legal contributor on major U.S. television networks, including Telemundo and Univision. Through media appearances and community workshops, she continuously educates thousands of families on the critical importance of proactive planning and asset protection.
+ Public voting remains open through October 9, and participants may cast up to three votes per day to support their favorite creators.
 
- A Compassionate approach to life’s unforeseen circumstances
+ Five Voices Making Personal Finance More Accessible to the Hispanic Community
 
- Dr. Ortega-Tauler’s personal commitment stems from a deep understanding of the anxiety and uncertainty felt by parents and guardians of individuals with special needs. To address these complex challenges, she developed a comprehensive, human-centered framework designed to empower households to protect their loved ones against any eventuality.
+ The five nominees for Best Spanish-Language Financial Content Creator 2026 are:
 
- Her legal practice answers the essential questions every family must address early on:
+ * María Mercedes Velasquez (@soymmvelasquez) A certified public accountant with a master’s degree in finance who focuses on helping women over 40 take control of their money, invest, and work toward financial freedom.
+* Daniela Salazar (@neurodany) Known on social media as NeuroDany, she is the author of two books about money and personal growth and provides education on investing, trading, and personal finance through digital platforms and workshops.
+* Alex / MoneyAcción (@moneyaccion) Creator of the financial education platform MoneyAcción, he uses a simple and humorous approach to explain topics such as saving, investing, and debt management.
+* Elizabeth Inciarte (@mamaperonoaburrida) A mother and content creator who aims to demonstrate that you don’t need to be a millionaire to start investing and building a stronger financial future.
+* Xavier Serbia (@xavierserbia) A communicator with more than two decades of experience covering economic and financial topics, recognized for explaining complex concepts in a clear, practical, and accessible way for Hispanic audiences.
 
- * What will happen to a dependent family member when primary caregivers or parents are no longer around?
-* Who will step in to manage daily care and custody to ensure their quality of life remains uncompromised?
-* Who will ethically oversee assets and finances to prevent mismanagement or the loss of essential government benefits?
+ [2026 FinTalk Awards Spanish-Language Voting](https://www.debt.com/es/premios-fintalk/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) Spanish-Language Financial Education That Makes an Impact
 
- By structuring advanced legal instruments—such as Special Needs Trusts, wills, and customized succession plans—Dr. Ortega-Tauler guides families step-by-step toward lasting peace of mind, ensuring their loved ones receive continuous medical, social, and financial support regardless of unexpected life changes.
+ Debt.com created the FinTalk Awards to recognize creators and institutions that are transforming the way people learn about and manage their finances.
 
- “Planning for the future of a family member with special needs is not merely a financial or legal procedure; it is a profound act of love, foresight, and social responsibility. My daily goal is to turn uncertainty into peace of mind for every parent and caregiver,” stated Dr. Elena Ortega-Tauler, Founder and Managing Attorney of Legacy Trust Counsel, P.A.
+ The Spanish-language category focuses specifically on a community for which access to clear, relevant, and culturally accessible financial information can play an important role in making better financial decisions.
 
- Institutional support and municipal leadership
+ “For millions of Hispanics in the United States, having access to clear and trustworthy financial education in Spanish can make a real difference in how they manage their money and build their financial future. We are excited to see a new generation of creators using digital platforms to break down barriers, simplify complex topics, and empower our community to make better financial decisions,” said [Don Silvestri](https://www.debt.com/author/dsilvestri/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral), President of Debt.com.![Personal Finance Expert, Consumer Advocate – Don Silvestri](https://www.noticiasnewswire.com/wp-content/uploads/2023/09/Don-150x150.png)
 
- Dr. Ortega-Tauler’s appointment to the Special Needs Advisory Board marks a key milestone in advancing inclusive, community-focused initiatives in Doral. Her strategic insights will guide policy recommendations focused on improving accessibility, inclusion, and overall well-being for residents with special needs and their families.
+ [Don Silvestri](https://www.debt.com/author/dsilvestri/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) President of Debt.com
 
- During the official presentation, Doral City Councilmember Maureen Porras, who officially nominated Dr. Ortega-Tauler to the board, emphasized the value of her background and dedication:
+The FinTalk Awards have previously recognized prominent Hispanic financial educators. Rey Martínez was named Best Hispanic Creator in 2025, while Juan Sánchez received the honor in 2024.
 
- “It is a true honor to welcome Dr. Elena Ortega-Tauler to our Special Needs Advisory Board. Her immense professional expertise, empathy, and deep legal experience represent an invaluable asset to our residents and their families. We are confident her leadership will strengthen our vision of a more inclusive, safe, and supportive Doral for every resident,” said Councilwoman Maureen Porras.
+ Winner to Be Announced October 9
 
- This recognition solidifies Dr. Elena Ortega-Tauler’s position as a leading authority in family protection and estate planning in Florida, reinforcing her pledge to educate and support the community through seminars, publications, and strategic public-private partnerships.
+ Voting closes on October 9, 2026, when Debt.com will announce the winner of the category.
 
- About Dr. Elena Ortega-Tauler, Esq.: Dr. Elena Ortega-Tauler, Esq., is the Founder and Managing Attorney of Legacy Trust Counsel, P.A. A graduate of the University of Miami with over 35 years of legal experience, she specializes in estate planning, elder law, asset protection, and special needs planning. She serves on the City of Doral Special Needs Advisory Board and is a featured legal commentator across national and international media outlets.
+ Consumers can still learn more about the five nominees and cast their votes by visiting the official Spanish-language 2026 FinTalk Awards page.
 
- CONTACT: Press & Public Relations Legacy Trust Counsel, P.A. 8400 NW 36th Street, Suite 450, Doral, FL 33166 305-514-0608 LegacyTrustCounsel.com  Elena@LegacyTrustCounsel.com 
+About [Debt.com](https://www.debt.com/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral): Debt.com is the website where people can find help with credit card debt, student loans, tax debt, credit repair, bankruptcy, and more. [Debt.com](https://www.debt.com/?pid=102918&aff_id=1242&s2=english&s3=content&s4=HMAReferral) works with certified providers that offer trusted advice and solutions to help consumers be prepared “when life happens.” 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/dr-elena-ortega-tauler/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/fintalk-awards-spanish-creator-2026/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/doral-attorney-dr-elena-ortega-tauler-appointed-to-special-needs-board/f767869b817a95479410830c5b6fcd1d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debt-com-unveils-2026-fintalk-awards-nominees-for-best-spanish-language-financial-creator/724aed514e84970d135cdef057c6fce9) 
 
  
 
@@ -47,4 +49,4 @@ DORAL, FL — October 7, 2026 — (NOTICIAS NEWSWIRE) — In a meaningful offici
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/7/bosshDNr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/7/jolt82dm.webp)
