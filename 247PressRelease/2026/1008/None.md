@@ -1,0 +1,18 @@
+# Consultwebs Partners With Davis, Saperstein Salomon to Think Pink for Breast Cancer Awareness Month
+
+RALEIGH, NC, October 08, 2026 /24-7PressRelease/ -- Consultwebs is once again partnering with longtime client and friend Davis, Saperstein & Salomon, P.C., to support #EmployersThinkPink during Breast Cancer Awareness Month. As part of the initiative, Consultwebs is offering all U.S.-based employees who receive a mammogram in 2026 a $50 stipend and a half day of paid time off to encourage them to prioritize this important health screening.  The initiative reflects Consultwebs' commitment to supporting employees' health and well-being while raising awareness about the importance of breast cancer screening and early detection.  "Taking care of our employees means giving them time to take care of themselves," says Magnus Simonarson, president of Consultwebs. "Our goal with this initiative is to prioritize their breast health and raise awareness about the importance of routine screenings for early detection."   The Importance of Early Detection   Breast cancer is one of the most commonly diagnosed cancers in the United States, affecting both women and men. According to Susan G. Komen, an estimated 321,910 women and 2,670 men in the United States will be diagnosed with invasive breast cancer in 2026. According to the American Cancer Society, 1 in 8 women will be diagnosed with breast cancer during their lifetimes.   The good news is that breast cancer mortality has declined substantially. Susan G. Komen reports that the breast cancer mortality rate among U.S. women decreased by 44 percent from 1989 to 2024, with the decline attributed to improvements in treatment and early detection.  Although breast cancer is more common among women, men can also develop the disease and are sometimes diagnosed at a later stage. Raising awareness and encouraging people to discuss appropriate screening with their health care providers can help support early detection.  Inspiring Employers to Think Pink  Consultwebs joined the Think Pink initiative after learning that its law firm client, Davis, Saperstein & Salomon, P.C., created the campaign to support one of its case managers who was diagnosed with breast cancer. Early detection saved her life, and the firm started offering time off for mammograms as a company benefit.   For Consultwebs, following in their footsteps felt like the right thing to do.  "Our relationship with Davis, Saperstein & Salomon has always been about more than marketing," says Simonarson. "We learn from each other — not only about how we serve our clients, but also about how we operate our companies and support our teams. Their Think Pink initiative is a great example of how our partnership continues to inspire us in ways that go well beyond the work we do together."  Consultwebs is a digital marketing agency that focuses exclusively on helping law firms across the country to get more cases using data-driven strategies built around measurable growth. Founded in 1999 and based in Raleigh, N.C., the agency provides SEO for law firms, AI SEO, paid advertising, social media, video marketing, web design, content development, outreach, and other marketing services. Connect with Consultwebs online or by calling (877) 278-5677. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/539387/consultwebs-partners-with-davis-saperstein-salomon-to-think-pink-for-breast-cancer-awareness-month)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consultwebs-offers-50-stipend-paid-time-off-for-mammograms/d3d360f03a1670841258fcf7b78bb8e6) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2610/8/fileTYrf.webp)
