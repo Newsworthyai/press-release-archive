@@ -1,137 +1,46 @@
-# HARO Happy Hour Returns to Scottsdale, and Brands Can Enter the HARO Gift Bag for Free
+# ORGANA Highlights Simple Wellness Habits as Fall Routines Return
 
+As summer gives way to fall and daily schedules become more structured, ORGANA is encouraging consumers to use the change of seasons as an opportunity to return to simple, consistent wellness habits.
 
-HARO (Help a Reporter Out), the journalist request platform owned by Featured.com, will host HARO Happy Hour on Thursday, Nov. 19, 2026, from 5:30 to 7:00 p.m. MST at Industrious in Scottsdale Fashion Square, 7014 E Camelback Rd Suite B100A, Scottsdale, Arizona. Admission is free with RSVP. Sixty people attended the first HARO Happy Hour at the same location on April 16, 2026.
+ Fall often brings a shift in routines. Vacations wind down, school and work schedules settle in, temperatures cool and the busy holiday season begins to approach. For ORGANA, the transition is a reminder that wellness routines don't need to be complicated to become part of everyday life.
 
- RSVP at https://luma.com/glcd3i3y.
+ One area that can receive less attention as temperatures fall is hydration. While people often think about water, electrolytes and minerals during hot summer months and outdoor activities, ORGANA believes attention to hydration and minerals can be part of a year-round wellness routine.
 
- HARO Happy Hour is an in-person gathering for the people who use HARO on both sides of a query: the journalists who post requests and the PR professionals, founders, and experts who answer them. The April event filled the room, so HARO is hosting a second one before the end of the year.
+ "Fall is a great time to look at the little things you do every day and get back into a routine," said Larry Mills, CEO of ORGANA. "Our philosophy has always been to make wellness simple. You don't need to completely change your life when the seasons change. Consistency with a few everyday habits can go a long way."
 
- "Our first HARO Happy Hour showed us how much the people who use HARO want to meet each other in person. Journalists and the sources who answer them work together every day through HARO queries, and this is a chance to put faces to names," said Brett Farmiloe, founder and CEO of Featured.com, which owns HARO.
+ That philosophy is reflected across ORGANA's product portfolio, including its Pomegranate Mineral Drink.
 
- What happens at HARO Happy Hour? There is no program and no agenda. Drinks are provided by HARO. Attendees can expect:
+ ORGANA Plant-Derived Trace Minerals are sourced from an ancient mineral deposit in Utah and provide a concentrated blend of naturally occurring trace minerals. The liquid format is designed to make the product easy to incorporate into an existing daily routine.
 
- * Conversations with PR, communications, and media professionals from across Arizona
-* Optional short breakouts on how HARO works and what the HARO team is building next
+ ORGANA's Pomegranate Mineral Drink combines its plant-derived mineral complex with pomegranate flavor in a ready-to-use liquid format, providing another option for consumers looking to make minerals part of their everyday routine.
 
- Who should attend HARO Happy Hour? Anyone who has used HARO, pitched through HARO, responded to a HARO query, or wondered how the platform operates. That includes:
+ The company's broader wellness portfolio also includes Liquid Oxygen 125 PPM and Essiac Tea, reflecting ORGANA's focus on straightforward products that can fit into different lifestyles and routines.
 
- * PR and communications professionals
-* Journalists and media creators
-* Founders, marketers, and operators
-* Anyone with a good HARO story
+ As consumers transition into fall, ORGANA recommends focusing on habits that are realistic enough to maintain throughout the season. Drinking water regularly, paying attention to hydration even when temperatures are cooler, maintaining a consistent sleep schedule, staying active and establishing simple daily routines can provide a more practical approach than trying to overhaul everything at once.
 
- Brands can apply for the HARO Gift Bag Every guest leaves with a HARO Gift Bag. Brands can apply to include a physical product. There is no fee to be in the HARO Gift Bag. Brands supply the product and cover shipping to Scottsdale. Products are selected on fit for a PR and media audience, and the minimum is 35 units, with 70 or more preferred. Selected brands are named, with a link, in the HARO Happy Hour recap article and mentioned in the recap post on LinkedIn, and each may include a branded gift tag or sticker with its product that tells guests about the brand. Products must arrive by Thursday, Nov. 12, 2026. Full requirements and application details are at https://blog.helpareporter.com/haro-happy-hour-in-scottsdale-on-nov-19-rsvp-and-haro-gift-bag-details/.
+ For ORGANA, the seasonal message is also a reminder that wellness isn't limited to a particular time of year. The habits that receive attention during summer can remain part of everyday routines throughout fall and into winter.
 
- Where is HARO Happy Hour?Detail
+ "Summer makes people naturally think about hydration," Mills said. "When the weather cools down, it's easy to stop thinking about it. We want to remind people that hydration and minerals don't have an offseason."
 
-Information
+ Consumers can explore and purchase ORGANA products through the company's Amazon storefront and on OneLavi.com. To learn more about the company's wellness philosophy visit organa.net.
 
- Event
+ About [ORGANA International](https://organa.net/) Founded in 1997, ORGANA International is a wellness company committed to delivering natural, bioavailable products that help people live healthier lives. From trace minerals and liquid oxygen to magnesium creams and detoxification teas, ORGANA’s product line is designed to restore vital elements often missing in modern lifestyles. Headquartered in Springville, Utah, ORGANA is a customer-first company with a 5-star BBB rating and nearly three decades of dedication to natural wellness.
 
-HARO Happy Hour, Scottsdale, Nov. 19, 2026
-
- Host
-
-HARO, owned by Featured.com
-
- Date and time
-
-Thursday, November 19, 2026, 5:30 to 7:00 p.m. MST
-
- Venue
-
-Industrious, 7014 E Camelback Rd Suite B100A, Scottsdale, AZ 85251
-
- Landmark
-
-Inside Scottsdale Fashion Square, next to the Apple Store
-
- Parking
-
-Fashion Square Parking Garage off Scottsdale Road. Turn at the Fashion Square light and head to the lower levels. Basement level two usually has the most space.
-
- Cost
-
-Free. Drinks provided by HARO.
-
- RSVP
-
-https://luma.com/glcd3i3y
-
- First event
-
-April 16, 2026, same venue, 60 attendees
-
- About HARO HARO (Help a Reporter Out) is a free newsletter that connects journalists with expert sources. Founded in 2008, HARO was shut down by its previous owner in December 2024 and relaunched by Featured in April 2025. HARO delivers journalist requests to subscribers in three weekday editions and sent more than 100 million emails in the past year. The newsletter is free for journalists and for the sources who answer them, and it is supported by advertising. Learn more at helpareporter.com.
-
- About Featured Featured is the AI co-pilot for PR, a platform that helps PR professionals and subject-matter experts land media placements, build brand authority, and grow AI visibility. The company owns and operates HARO (Help a Reporter Out) and Connectively as standalone products within its portfolio. Learn more at featured.com.
-
- Press InquiriesBrett FarmiloeEmail Contact
-
- https://helpareporter.com
-
- Terkel, Inc. (dba Featured)7014 E Camelback Rd, Suite B100AScottsdale, AZ 
+ FDA DisclaimerThese statements have not been evaluated by the Food and Drug 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610083035/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
+[Original/Source Press Release](https://newsworthy.ai/news/202610083041/organa-highlights-simple-wellness-habits-as-fall-routines-return)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/haro-happy-hour-returns-to-scottsdale-nov-19-2026/f3730a9bf830d76835e2e60a3f211669) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/organa-urges-simple-wellness-habits-for-fall/f9ccb9a30d351d12dfa4285181fd24cc) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/haro-happy-hour-returns-to-scottsdale-and-brands-can-enter-the-haro-gift-bag-for-free)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/08/haro-happy-hour-returns-to-scottsdale-offering-free-gift-bag-opportunity-for-brands/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/haro-happy-hour-returns-to-scottsdale-offering-free-gift-bag-opportunity-for-brands)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/haro-happy-hour-returns-to-scottsdale-offering-free-exposure-for-brands-in-gift-bag)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/haro-happy-hour-returns-to-scottsdale-offering-free-gift-bag-opportunities-for-brands)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/haro-happy-hour-returns-to-scottsdale-offering-free-brand-exposure-and-networking-for-pr-and-media-professionals)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/haro-happy-hour-regresa-a-scottsdale-con-exposicion-de-marca-gratuita-y-networking-para-profesionales-de-relaciones-publicas-y-medios)
-
-Pickup - [https://burstable.news](https://burstable.news/news/haro-happy-hour-returns-to-scottsdale-offering-free-gift-bag-opportunity-for-brands)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/haro-happy-hour-kehrt-nach-scottsdale-zuruck-und-bietet-marken-die-chance-auf-eine-kostenlose-goodie-bag-prasenz)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/regresa-el-happy-hour-de-haro-a-scottsdale-con-una-oportunidad-de-bolsa-de-regalo-gratis-para-las-marcas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-happy-hour-haro-fait-son-retour-a-scottsdale-avec-une-opportunite-de-sac-cadeau-gratuit-pour-les-marques)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/haro-happy-hour-retorna-a-scottsdale-oferecendo-oportunidade-de-sacola-de-brindes-gratis-para-marcas)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/haro-happy-hour-returns-to-scottsdale-offering-free-gift-bag-opportunity-for-brands)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/haro-happy-hour-returns-to-scottsdale-offering-free-brand-exposure-in-gift-bag)
+Pickup - [https://newsworthyai.substack.com](https://newsworthyai.substack.com/p/f9ccb9a30d351d12dfa4285181fd24cc)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/8/lily2l4g.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/8/pavenoLI.webp)

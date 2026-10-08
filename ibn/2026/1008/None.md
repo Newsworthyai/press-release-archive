@@ -1,36 +1,50 @@
-# InvestorNewsBreaks – ECGI Holdings Inc. (OTC: ECGI) Eliminates $2.56 Million Convertible Obligation to Reduce Potential Shareholder Dilution
+# BioMedNewsBreaks — Regentis Biomaterials Ltd. (NYSE American: RGNT) Seeks to Redefine Knee Cartilage Repair with Resorbable Hydrogel Technology
 
-ECGI Holdings (OTC: ECGI) announced that it has fully extinguished a $2.556 million convertible obligation as part of its ongoing balance sheet optimization strategy aimed at eliminating derivative liabilities, reducing potentially dilutive debt and simplifying its capital structure. The terminated obligation included market-linked conversion rights allowing principal and accrued interest to be converted into common stock at 80% of the lowest traded price during the preceding 10 trading days. Eliminating the obligation removes this variable-price conversion mechanism and reduces exposure to potential shareholder dilution. The company plans to continue addressing legacy financing arrangements and pursuing additional opportunities to strengthen its capital structure, with further updates expected as material milestones are achieved.
+Regentis Biomaterials (NYSE American: RGNT) is developing GelrinC, an acellular hydrogel implant designed to shift knee cartilage treatment from symptom management toward early structural repair. Unlike microfracture, which can produce less-durable fibrocartilage, GelrinC is engineered to gradually resorb as surrounding cells regenerate hyaline-like cartilage, while avoiding cell harvesting and a second surgery. In a Phase II study, the company reported roughly 100% greater KOOS improvement versus microfracture at 24 months, along with a mean MOCART score of 88.8/100 indicating strong structural repair. With CE Mark approval in Europe, a pivotal U.S. trial targeting completion around year-end 2026, and longer-term development programs aimed at smaller-joint defects and moderate osteoarthritis, Regentis is positioning its technology around the broader orthopedic trend toward earlier intervention and durable tissue preservation rather than waiting for disease progression.
 
- To view the full press release, visit https://ibn.fm/xNIBZ
+ To view the full article, visit https://ibn.fm/DjPC4
 
- ECGI Holdings, Inc. (OTC: ECGI) is a publicly traded holding company pursuing opportunities to build and scale operating businesses in large, evolving markets.
+ About Regentis Biomaterials Ltd.
 
- NOTE TO INVESTORS: The latest news and updates relating to ECGI are available in the company’s newsroom at https://ibn.fm/ECGI
+ Regentis Biomaterials is a regenerative medicine company dedicated to developing innovative tissue repair solutions that restore health and enhance quality of life. With an initial focus on orthopedic treatments, Regentis’ Gelrin platform technology, based on synchronized, degradable hydrogel implants, regenerates damaged or diseased tissue including inflamed cartilage and bone. Regentis’ lead product GelrinC(R) is a cell-free, off-the-shelf hydrogel that is eroded and resorbed in the knee, allowing the surrounding cells to regenerate the cartilage in a controlled and synchronous process. GelrinC(R) aims to address a market of approximately 470,000 cases for cartilage knee repair annually in the U.S. where no off-the-shelf treatment is available.
 
- About InvestorWire
+ This content has been disseminated on behalf of Regentis Biomaterials Ltd. (NASDAQ: RGNT) as part of a paid investor awareness and marketing engagement.
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ NOTE TO INVESTORS: The latest news and updates relating to RGNT are available in the company’s newsroom at https//ibn.fm/RGNT
 
- For more information, please visit https://www.InvestorWire.com
+ About BioMedWire
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ BMW is where breaking news, insightful content and actionable information converge.
 
- InvestorWire is powered by IBN 
+ To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+
+ For more information, please visit https://www.BioMedWire.com
+
+ Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
+
+ BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
+
+ BioMedWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-ecgi-holdings-inc-otc-ecgi-eliminates-2-56-million-convertible-obligation-to-reduce-potential-shareholder-dilution/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-regentis-biomaterials-ltd-nyse-american-rgnt-seeks-to-redefine-knee-cartilage-repair-with-resorbable-hydrogel-technology/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ecgi-holdings-eliminates-2-556m-convertible-debt-to-curb-dilution/3089f7db01a65b03edfd114aac17029f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regentis-biomaterials-gelrinc-shows-promise-in-knee-cartilage-repair/41d7ca37ae22098280aa74c1d98ffaee) 
 
+
+Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
+
+Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
+
+Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/8/xenoUVOc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/8/taroYfbe.webp)

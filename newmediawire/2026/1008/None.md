@@ -1,60 +1,41 @@
-# 45Drives Unveils Full 2026 Creator Summit Program, Bringing AI, Open Infrastructure and Creator-Tech Leaders to Wilmington
+# SS Innovations International(SSII) Builds Telerobotic Surgery Position as Remote Procedures Gain Ground
 
-Tom Lawrence, Wendell Wilson, Jeff Geerling, Unraid, LINBIT, Niche VFX, JR Automation, a Hitachi Company, and Arista Networks Join Leading Academics, Researchers and Media Figures for Three Days of Technical Sessions, Live Demonstrations, Enterprise AI and Creative AI Workflow Discussions, Livestreams and Community Events
+* Telerobotic surgery is moving from isolated demonstrations toward broader clinical and regulatory development, a recent article reads.
+* SS Innovations CEO Dr. Sudhir Srivastava told MedTech Dive that robotic surgery is inherently a form of teleoperation and that the central technical question is how much distance can be introduced without compromising responsiveness.
+* The company reported 195 robotic telesurgeries using its SSi Mantra system as of Sept 28, 2026, including cardiac procedures and long-distance operations.
+* The company’s installed base reached 244 SSi Mantra systems as of September 28, up 45% from the end of 2025, while cumulative procedures reached 14,503.
+* SSi Mantra has expanded into 12 countries, with recent cardiac-surgery programs launched in Colombia and Sri Lanka and a new program established at HCG Hospital in Ahmedabad.
+* SS Innovations is currently pursuing U.S. FDA clearance and European Union CE marking as it seeks to expand the system into additional international markets.
 
- SYDNEY, NOVA SCOTIA and WILMINGTON, NC - October 8, 2026 (NEWMEDIAWIRE) - 45Drives, the leader in big, strong, fast, open-source data storage and compute, today unveiled the complete program for its fourth annual Creator Summit, taking place October 20-22 across downtown Wilmington, North Carolina. The three-day gathering will bring influential independent technology creators together with enterprise infrastructure leaders, customers, open-source experts, AI researchers, academics, media figures and film and VFX professionals to examine where artificial intelligence, data ownership and modern computing infrastructure are heading next.
+ LOS ANGELES, CA - October 8, 2026 (NEWMEDIAWIRE) - The growing interest in telerobotic surgery is putting SS Innovations International (NASDAQ: SSII) and its founder and CEO, cardiac surgeon Dr. Sudhir Srivastava, in an increasingly relevant part of the surgical robotics market. A recent MedTech Dive report, “Telerobotic surgery is advancing around the world. Will the US embrace it?,” examined the technology’s development and the regulatory and infrastructure questions surrounding remote surgery. The article highlighted SS Innovations alongside larger medical-device companies and emerging robotics developers (https://ibn.fm/4ZLvL).
 
- The 2026 Creator Summit is organized around dedicated Enterprise and Creative tracks. Enterprise programming will focus on private and on-premises AI, high-performance data systems, data sovereignty, cybersecurity, open-source infrastructure and the decisions organizations face as AI workloads scale. The Creative Track will examine how AI is changing production, editing, design, storytelling and other real-world creative workflows.
+ ![](http://newmediawire.s3.amazonaws.com/6abff43ada846f543cccc50a_1)
 
- The speaker lineup includes creators Tom Lawrence of Lawrence Systems, Wendell Wilson of Level1Techs and Jeff Geerling; Ed Rawlings of Unraid; 45Drives Technical Director and Ceph Foundation board member Brett Kelly; Bob Henderson of Cass County; Ryan Walker of JR Automation; Dane Adams of Arista Networks; Allan Jude of Klara; Nicholas Wiczynski of NGW Post; Severine Erickson and Fenner Rockliffe of Niche VFX; Tyler Zibaie of Lighthouse Films; Christos Makridis of Arizona State University; and a remote session from Musora Media. Harvard educator and United Nations Senior Expert Alexander Puutio and PhillComm Global Founder and CEO Jon Lindsay Phillips will also join the program for a cross-disciplinary discussion of how enterprise AI is being adopted, measured, communicated and understood.
+ For SS Innovations, the discussion comes as its SSi Mantra system is accumulating experience in telesurgery while the…
 
- “This is the strongest program we’ve assembled because it reflects how technology is actually moving,” said Dr. Doug Milburn, President of 45Drives. “Enterprise teams are bringing AI closer to their data, creators are building more of their workflows on infrastructure they control, and open-source communities are influencing both. Creator Summit puts those groups in the same room to work through the same questions and gives people something they can take back and use.”
+ Read More
 
- Full 2026 Creator Summit Program
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- Tuesday, October 20 - The Skyline Center, 929 N. Front St. The Summit opens at 9:00 a.m., followed by an introduction to the Enterprise and Creative tracks. Parallel programming begins at 10:30 a.m. with Brett Kelly of 45Drives on the Enterprise side and Ed Rawlings of Unraid on the Creative side. Following lunch, Tom Lawrence of Lawrence Systems and a remote Musora Media session run from 1:00-2:15 p.m., followed by Wendell Wilson of Level1Techs and Jeff Geerling from 2:15-3:30 p.m. After the day's wrap, an invite-only Unraid event at Jengo’s Playhouse begins at 6:00 p.m. with a livestream, food and drink, and demonstrations of the 45HomeLab x Unraid Signature Series.
+ The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
 
- Wednesday, October 21 - The Skyline Center. Enterprise programming begins at 9:00 a.m. with Bob Henderson of Cass County, alongside Nicholas Wiczynski of NGW Post on the Creative Track. At 10:15 a.m., Allan Jude of Klara and Severine Erickson of Niche VFX take their respective stages. Afternoon programming features Ryan Walker of JR Automation, Dane Adams of Arista Networks, Tyler Zibaie of Lighthouse Films and Christos Makridis of Arizona State University. Makridis will connect AI research with creative production and education, including lessons from the creator-driven work of Living Opera. At 3:15 p.m., the tracks converge for the live 45Flow Stunt.
+ Forward Looking Statements
 
- Thursday, October 22 - Union Station Auditorium, 502 N. Front St. The final day begins at 10:00 a.m. with the AI High Speed Stunt, followed at 11:30 a.m. by Enterprise AI Pulse, a cross-disciplinary look at how enterprise AI is being adopted, measured, covered and understood. Featuring Christos Makridis, Alexander Puutio and Jon Lindsay Phillips, the session will examine private and on-prem AI, data sovereignty, open source, workforce impact, business returns and the changing relationship between traditional technology media and independent creators. A Panelist Livestream runs from 2:00-3:30 p.m., followed by closing remarks and the official Creator Summit afterparty.
-
- Sponsors and partners supporting this year’s event include Seagate, Unraid, Michael Best and Cintas, with Seagate maintaining a presence throughout the Summit. The event will also spotlight customers and ecosystem partners including Cass County and JR Automation, alongside creators whose audiences have become increasingly influential in enterprise technology.
-
- Now in its fourth year, Creator Summit brings together communities that increasingly shape one another: enterprise IT teams deploying AI and managing critical data, open-source engineers building the infrastructure, creators and filmmakers pushing new digital workflows, academics and researchers studying the implications, and technology media interpreting those changes for broader audiences.
-
- Creator Summit can be attended in person or virtually, with key talks and sessions available through the event’s livestream experience. In-person seating is limited and registration and additional information are available on the 45Drives Creator Summit page.
-
- About 45Drives
-
- 45Drives designs and manufactures open-source enterprise storage, virtualization and AI infrastructure built to give organizations control of their data and technology stack. Its North American-made hardware and integrated software solutions serve businesses, government agencies, research institutions and creators, while its 45HomeLab, 45Studio and 45Professional divisions extend that approach to self-hosters, creative professionals and MSPs.
-
- Contact: Jon Phillips45Drives@PhillComm.Global
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/45drives-unveils-full-2026-creator-summit-program-bringing-ai-open-infrastructure-and-creator-tech-leaders-to-wilmington-7090452)
+[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-builds-telerobotic-surgery-position-as-remote-procedures-gain-ground-7090453)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/45drives-unveils-2026-creator-summit-program-with-ai-and-open-source-leaders/1edb163d68e8891c279451a081410a5b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-builds-telerobotic-surgery-position-as-remote-procedures-gain-ground/f290eb7d0749160674a0503264ab49d2) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/45drives-unveils-2026-creator-summit-program-merging-ai-open-infrastructure-and-creator-tech-leadership-in-wilmington)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/45drives-creator-summit-2026-program-spotlights-ai-and-open-infrastructure-convergence)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/45drives-creator-summit-2026-to-bridge-ai-open-infrastructure-and-creative-workflows)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/45drives-creator-summit-2026-in-wilmington-to-spotlight-ai-open-infrastructure-and-creator-tech-convergence)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-creator-summit-2026-de-45drives-en-wilmington-destacara-la-ia-la-infraestructura-abierta-y-la-convergencia-entre-creadores-y-tecnologia)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/45drives-creator-summit-2026-program-unveiled-ai-open-infrastructure-and-creator-tech-leaders-converge-in-wilmington)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/filopL3g.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/isle56xz.webp)
