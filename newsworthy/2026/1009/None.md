@@ -1,98 +1,55 @@
-# Nationally Touring Comedian Myq Kaplan Headlines One-Night Performance in Bellingham
+# NWB Finland Oy to Expands U.S. Retail Presence With AINA Natural Water Coming Soon to Amazon
 
-Nationally touring comedian Myq Kaplan will headline a special one-night performance at Bar Two Eleven in downtown Bellingham on Friday, Oct. 23, bringing one of stand-up comedy's sharpest comedic voices to Northwest Washington.
+NWB Finland Oy is continuing its planned U.S. rollout of AINA Natural Water, announcing that the Finnish premium water brand is coming soon to Amazon.
 
- Kaplan has appeared on The Tonight Show Starring Jimmy Fallon, Conan, The Late Show with David Letterman, The Late Late Show, and Comedy Central Presents. His insightful humor and signature wordplay have garnered a global fanbase.
+ The upcoming Amazon availability represents another step in NWB Finland Oy’s strategy to introduce AINA Natural Water to U.S. consumers. The company previously announced that AINA would become available through OneLavi.com, marking the first opportunity for U.S. consumers to purchase the brand.
 
- "I love doing comedy anywhere, and Bellingham is one of those anywheres!" said Kaplan.
+ “Expanding to Amazon is an important next step for AINA in the United States,” said Marita Weiman, Quality Assurance Manager at NWB Finland Oy. “We want to make it easy for consumers to discover and purchase AINA while introducing them to what makes Northern Finnish water and our packaging approach different.”
 
- Kaplan is also well known within the vegan community. His first comedy album, Vegan Mind Meld, introduced audiences to comedy inspired by his vegan lifestyle, a theme that still appears throughout his stand-up today.
+ AINA Natural Water originates in the Pudasjärvi region of Northern Finland, where groundwater is naturally filtered through layers of soil, sand and rock before being mechanically filtered and packaged.
 
- "As a vegan, Bellingham is one of my favorite hams," Kaplan joked.
+ The water contains approximately 32 mg/L of Total Dissolved Solids (TDS). Its naturally low mineral content contributes to a soft, neutral taste and clean finish with no aftertaste.
 
- The performance is presented by Guffawingham, a local comedy series created by comedian and producer Tim Riney. The series brings nationally touring comedians together with regional performers, giving Bellingham audiences more opportunities to experience live stand-up close to home.
+ Premium Water Designed for Everyday Living NWB Finland Oy has built AINA around the idea that premium water should be practical enough to become part of everyday life.
 
- The evening also features Richard Bowen, a Seattle comedian known for his rapid-fire one-liners and sharp observations. Bowen earned national recognition after being named Laffy Taffy's "Chief Laugh Officer."
+ Instead of focusing on individual plastic bottles, AINA is offered in larger 5-liter and 10-liter bag-in-box formats designed for convenient use at home, at work and in other everyday settings. The sustainability-focused packaging uses substantially less plastic than comparable volumes packaged in traditional individual plastic bottles.
 
- Rounding out the lineup is Brett Emerson, a longtime Bellingham comedian whose quick wit and fearless sense of humor have made him a familiar face on stages throughout the region.
+ The approach combines three elements NWB Finland Oy believes can differentiate AINA in the U.S. market:
 
- "I love performing in the Pacific Northwest, because I'm a pacifist, a northerner, and a big fan of Mae West," Kaplan said.
+ * Northern Finland source
+* Naturally low mineral profile
+* Sustainability-Focused Packaging
 
- The performance is expected to draw comedy fans from throughout Northwest Washington and nearby British Columbia for a rare opportunity to see a nationally touring headliner in an intimate downtown venue.
+ AINA’s upcoming expansion to Amazon follows a series of steps by NWB Finland Oy to establish the brand in the United States. The company recently participated in the 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida, where AINA and its bag-in-box format were introduced to U.S. retail buyers.
 
- Event Details Date: Friday, Oct. 23, 2026
+ “We are building AINA’s U.S. presence step by step,” Weiman said. “Amazon will significantly broaden the opportunity for consumers across the country to experience AINA Natural Water.”
 
- Venue: Bar Two Eleven211 E. Chestnut StreetBellingham, WA
+ The AINA Difference * Northern Finland Source - Originates in the Pudasjärvi region of Northern Finland, an area known for its forests, natural landscapes, and groundwater resources.
+* Naturally Filtered - Groundwater is naturally filtered through layers of soil, sand, and rock before being mechanically filtered and packaged.
+* Measured Purity - Contains approximately 32 mg/L of Total Dissolved Solids (TDS), contributing to a soft, clean taste profile.
+* Clean Taste Profile - Naturally low mineral content helps provide a balanced drinking experience with no aftertaste.
+* Naturally Low in Sodium - Contains only small amounts of sodium and dissolved minerals.
+* Sustainability-Focused Packaging - Bag-in-box packaging uses substantially less plastic than traditional bottled-water formats.
 
- Doors Open: 7:00 p.m.
+ Additional details about Amazon availability will be announced when AINA Natural Water becomes available for purchase. For more information about AINA Natural Water, visit AINA Natural Water. To learn more about NWB Finland Oy, visit NWB Finland Oy.
 
- Show Starts: 8:00 p.m.
+ About [NWB Finland Oy](https://nwb.fi/about-us/) NWB Finland Oy is a Finland-based company focused on sustainable beverage packaging and natural water solutions. Headquartered in Pudasjärvi, Finland, the company was founded with a mission to develop environmentally responsible alternatives to traditional beverage packaging while delivering premium-quality products to consumers around the world.
 
- Tickets: https://www.tickettailor.com/events/guffawingham/2444106
+ Its flagship brand, AINA Natural Water, features naturally filtered groundwater sourced from Northern Finland, a region known for its pristine natural environment and abundant groundwater resources. The water is packaged in innovative bag-in-box formats designed to reduce plastic consumption while providing a convenient solution for households, businesses, hospitality venues, and events.
 
- About Myq Kaplan Myq Kaplan is a nationally touring comedian, writer, actor, and podcast host. His television appearances include The Tonight Show Starring Jimmy Fallon, Conan, The Late Show with David Letterman, The Late Late Show, and Comedy Central Presents. He has released multiple acclaimed comedy specials and albums and continues to perform at clubs, theaters, and festivals throughout North America. 
+ NWB Finland Oy's long-term vision is to make Northern Finland's natural groundwater available to consumers globally while continuing to invest in sustainable packaging solutions that support both consumer needs and environmental responsibility. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610093042/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
+[Original/Source Press Release](https://newsworthy.ai/news/202610093046/nwb-finland-oy-to-expands-us-retail-presence-with-aina-natural-water-coming-soon-to-amazon)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/myq-kaplan-to-headline-guffawingham-comedy-night-in-bellingham/d79d9fb50e05330c58c6a786171f956b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aina-natural-water-from-finland-coming-soon-to-amazon/2a74b673f88ffe9bf8dcb98a5d4d5101) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/nationally-touring-comedian-myq-kaplan-headlines-one-night-performance-in-bellingham)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/08/myq-kaplan-to-headline-one-night-comedy-show-in-bellingham/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/myq-kaplan-to-headline-one-night-comedy-show-in-bellingham)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/myq-kaplan-to-headline-one-night-comedy-show-in-bellingham)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/myq-kaplan-to-headline-one-night-comedy-show-in-bellingham)
-
-Pickup - [https://burstable.news](https://burstable.news/news/myq-kaplan-to-headline-one-night-comedy-show-in-bellingham)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/myq-kaplan-headlined-eine-einmalige-comedy-show-in-bellingham)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/myq-kaplan-encabezara-un-espectaculo-de-comedia-de-una-sola-noche-en-bellingham)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/myq-kaplan-en-tete-daffiche-dun-spectacle-dhumour-dune-soiree-a-bellingham)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/myq-kaplan-sera-a-atracao-principal-de-um-show-de-comedia-de-uma-noite-em-bellingham)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/myq-kaplan-to-headline-one-night-comedy-event-in-bellingham)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/myq-kaplan-to-headline-guffawingham-comedy-night-in-bellingham)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/myq-kaplan-to-headline-one-night-comedy-event-in-bellingham)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/9/ulnaRlFN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/9/echoxkVw.webp)
