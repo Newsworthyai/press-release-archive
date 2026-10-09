@@ -1,41 +1,70 @@
-# SS Innovations International(SSII) Builds Telerobotic Surgery Position as Remote Procedures Gain Ground
+# InTiCa Systems SE Completes Segment Change to Scale at the Frankfurt Stock Exchange Effective October 14, 2026
 
-* Telerobotic surgery is moving from isolated demonstrations toward broader clinical and regulatory development, a recent article reads.
-* SS Innovations CEO Dr. Sudhir Srivastava told MedTech Dive that robotic surgery is inherently a form of teleoperation and that the central technical question is how much distance can be introduced without compromising responsiveness.
-* The company reported 195 robotic telesurgeries using its SSi Mantra system as of Sept 28, 2026, including cardiac procedures and long-distance operations.
-* The company’s installed base reached 244 SSi Mantra systems as of September 28, up 45% from the end of 2025, while cumulative procedures reached 14,503.
-* SSi Mantra has expanded into 12 countries, with recent cardiac-surgery programs launched in Colombia and Sri Lanka and a new program established at HCG Hospital in Ahmedabad.
-* SS Innovations is currently pursuing U.S. FDA clearance and European Union CE marking as it seeks to expand the system into additional international markets.
+PASSAU, GERMANY - October 8, 2026 (NEWMEDIAWIRE) - InTiCa Systems SE (ISIN: DE0005874846) has successfully completed all formalities for the announced segment change with the Frankfurt Stock Exchange. The revocation of the admission of the shares to the regulated market (Prime Standard) and the inclusion in the open market segment Scale of the Frankfurt Stock Exchange will take effect as planned on October 14, 2026.
 
- LOS ANGELES, CA - October 8, 2026 (NEWMEDIAWIRE) - The growing interest in telerobotic surgery is putting SS Innovations International (NASDAQ: SSII) and its founder and CEO, cardiac surgeon Dr. Sudhir Srivastava, in an increasingly relevant part of the surgical robotics market. A recent MedTech Dive report, “Telerobotic surgery is advancing around the world. Will the US embrace it?,” examined the technology’s development and the regulatory and infrastructure questions surrounding remote surgery. The article highlighted SS Innovations alongside larger medical-device companies and emerging robotics developers (https://ibn.fm/4ZLvL).
+ As previously announced on August 13, 2026, the Management Board had resolved, with the approval of the Supervisory Board, to change to the Scale segment. The last trading day of the shares in the Prime Standard is October 13, 2026. From October 14, 2026, the shares of InTiCa Systems SE will be traded in the Scale segment. The tradability of the shares will remain continuously ensured.
 
- ![](http://newmediawire.s3.amazonaws.com/6abff43ada846f543cccc50a_1)
+ Less regulation with continued capital market proximity
 
- For SS Innovations, the discussion comes as its SSi Mantra system is accumulating experience in telesurgery while the…
+ The Scale segment is specifically aimed at growth-oriented small and medium-sized enterprises and, in the view of the Management Board, better corresponds to the current size and capital market orientation of InTiCa Systems SE. The segment change enables a significant reduction of regulatory and administrative costs without impairing the Company’s presence on the capital market. The Scale segment provides a suitable and appropriate trading framework for the shares of InTiCa Systems SE, allowing the Company to allocate more resources to its operating business without forgoing the pub-lic tradability of its shares on a German stock exchange.
 
- Read More
+ The legal basis for this step is the German Standortforderungsgesetz (StoFoG), effective since February 2026, which permits a change from the regulated market to an SME growth market without an accompanying delisting acquisition offer (Section 39 para. 2 sentence 2 no. 3 lit. a) of the German Stock Exchange Act (Borsengesetz - BorsG)).
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ InTiCa Systems SE will continue to keep its shareholders and the capital market informed transparently and promptly about all material developments.
 
- The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
+ InTiCa Systems SEThe Board of Directors
 
- Forward Looking Statements
+ CONTACT Dr. Gregor Wasle | CEOTEL +49 (0) 851 - 966 92 - 0FAX +49 (0) 851 - 966 92 - 15EMAIL investor.relations@intica-systems.com
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law
+ About InTiCa Systems
+
+ InTiCa Systems SE is an international provider of electronic components and systems. Its innovative solutions for the automotive industry, renewable energy, industrial applications and other sectors make a contribution to a more sustainable, networked future. You can find further information at www.intica-systems.com.
+
+ Forward-looking statements and predictions
+
+ This press release contains statements and forecasts referring to the future development of InTiCa Systems SE which are based on current assumptions and estimates by the management that are made using information currently available to them. If the underlying assumptions do not materialize, the actual figures may differ substantially from such estimates. Future developments and results are in fact dependent on a large number of factors; they contain different risks and imponderables and are based on assumptions that may not be accurate. We neither intend nor assume any obligation to update forward-looking statements on an ongoing basis as these are based exclusively on the circumstances prevailing on the date of publication.
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-builds-telerobotic-surgery-position-as-remote-procedures-gain-ground-7090453)
+[Original/Source Press Release](https://www.newmediawire.com/news/intica-systems-se-completes-segment-change-to-scale-at-the-frankfurt-stock-exchange-effective-october-14-2026-7090455)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-builds-telerobotic-surgery-position-as-remote-procedures-gain-ground/f290eb7d0749160674a0503264ab49d2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intica-systems-completes-move-to-scale-segment-on-frankfurt-stock-exchange/17ad8e5c6988bb34f7fb48bd15832fce) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/intica-systems-se-moves-to-scale-segment-on-frankfurt-stock-exchange-cutting-costs-and-regulatory-burden)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/intica-systems-se-moves-to-scale-segment-cutting-costs-while-keeping-market-presence)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/intica-systems-se-moves-to-scale-segment-on-frankfurt-stock-exchange-cutting-costs-while-staying-public)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/intica-systems-completes-segment-change-to-scale-on-frankfurt-stock-exchange)
+
+Pickup - [https://burstable.news](https://burstable.news/news/intica-systems-se-moves-to-scale-segment-on-frankfurt-stock-exchange-cutting-costs-and-boosting-flexibility)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/intica-systems-se-wechselt-an-der-frankfurter-wertpapierborse-in-das-scale-segment-senkt-kosten-und-erhoht-flexibilitat)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/intica-systems-se-se-traslada-al-segmento-scale-de-la-bolsa-de-francfort-reduciendo-costos-y-aumentando-la-flexibilidad)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/intica-systems-se-passe-au-segment-scale-de-la-bourse-de-francfort-reduisant-les-couts-et-renforcant-la-flexibilite)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/intica-systems-se-passa-para-o-segmento-scale-na-bolsa-de-frankfurt-reduzindo-custos-e-aumentando-a-flexibilidade)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/intica-systems-se-moves-to-scale-segment-cutting-costs-while-keeping-market-access)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/intica-systems-se-completes-segment-change-to-scale-on-frankfurt-stock-exchange-effective-october-14-2026)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/08/intica-systems-moves-to-scale-segment-on-frankfurt-stock-exchange-cutting-costs-while-staying-public/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/isle56xz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/8/quitm1Tn.webp)

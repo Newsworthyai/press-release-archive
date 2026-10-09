@@ -1,50 +1,86 @@
-# BioMedNewsBreaks — Regentis Biomaterials Ltd. (NYSE American: RGNT) Seeks to Redefine Knee Cartilage Repair with Resorbable Hydrogel Technology
+# Chile’s Codelco Secures World Bank Backing for Copper Mine Financing
 
-Regentis Biomaterials (NYSE American: RGNT) is developing GelrinC, an acellular hydrogel implant designed to shift knee cartilage treatment from symptom management toward early structural repair. Unlike microfracture, which can produce less-durable fibrocartilage, GelrinC is engineered to gradually resorb as surrounding cells regenerate hyaline-like cartilage, while avoiding cell harvesting and a second surgery. In a Phase II study, the company reported roughly 100% greater KOOS improvement versus microfracture at 24 months, along with a mean MOCART score of 88.8/100 indicating strong structural repair. With CE Mark approval in Europe, a pivotal U.S. trial targeting completion around year-end 2026, and longer-term development programs aimed at smaller-joint defects and moderate osteoarthritis, Regentis is positioning its technology around the broader orthopedic trend toward earlier intervention and durable tissue preservation rather than waiting for disease progression.
+Codelco, the largest copper mining firm globally, is owned by the nation of Chile. Recently, the company secured a long-term financing arrangement backed by the World Bank. The structure is highlighted as a potential model for countries with vast mineral resources seeking to attract private investments while advancing more sustainable mining.
 
- To view the full article, visit https://ibn.fm/DjPC4
+ For enterprises like Numa Numa Resources Inc. that are engaged in exploration and mine development, the Codelco example could offer some vital lessons on how to…
 
- About Regentis Biomaterials Ltd.
+ Read More>>
 
- Regentis Biomaterials is a regenerative medicine company dedicated to developing innovative tissue repair solutions that restore health and enhance quality of life. With an initial focus on orthopedic treatments, Regentis’ Gelrin platform technology, based on synchronized, degradable hydrogel implants, regenerates damaged or diseased tissue including inflamed cartilage and bone. Regentis’ lead product GelrinC(R) is a cell-free, off-the-shelf hydrogel that is eroded and resorbed in the knee, allowing the surrounding cells to regenerate the cartilage in a controlled and synchronous process. GelrinC(R) aims to address a market of approximately 470,000 cases for cartilage knee repair annually in the U.S. where no off-the-shelf treatment is available.
+ About MiningNewsWire
 
- This content has been disseminated on behalf of Regentis Biomaterials Ltd. (NASDAQ: RGNT) as part of a paid investor awareness and marketing engagement.
+ MiningNewsWire (“MNW”) is a specialized communications platform with a focus on developments and opportunities in the Global Mining and Resources sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MNW brings its clients unparalleled recognition and brand awareness.
 
- NOTE TO INVESTORS: The latest news and updates relating to RGNT are available in the company’s newsroom at https//ibn.fm/RGNT
+ MNW is where breaking news, insightful content and actionable information converge.
 
- About BioMedWire
+ To receive SMS alerts from MiningNewsWire, text “BigHole” to 888-902-4192 (U.S. Mobile Phones Only)
 
- BioMedWire (“BMW”) is a specialized communications platform with a focus on the latest developments in the Biotechnology (BioTech), Biomedical Sciences (BioMed) and Life Sciences sectors. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, BMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, BMW brings its clients unparalleled recognition and brand awareness.
+ For more information, please visit https://www.MiningNewsWire.com
 
- BMW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the MiningNewsWire website applicable to all content provided by MNW, wherever published or re-published: https://www.MiningNewsWire.com/Disclaimer
 
- To receive SMS alerts from BioMedWire, “Biotech” to 888-902-4192 (U.S. Mobile Phones Only)
+ MiningNewsWireAustin, Texaswww.MiningNewsWire.com512.354.7000 OfficeEditor@MiningNewsWire.com
 
- For more information, please visit https://www.BioMedWire.com
-
- Please see full terms of use and disclaimers on the BioMedWire website applicable to all content provided by BMW, wherever published or re-published: https://www.BioMedWire.com/Disclaimer
-
- BioMedWireAustin, Texaswww.BioMedWire.com512.354.7000 OfficeEditor@BioMedWire.com
-
- BioMedWire is powered by IBN 
+ MiningNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-regentis-biomaterials-ltd-nyse-american-rgnt-seeks-to-redefine-knee-cartilage-repair-with-resorbable-hydrogel-technology/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/regentis-biomaterials-gelrinc-shows-promise-in-knee-cartilage-repair/41d7ca37ae22098280aa74c1d98ffaee) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/codelco-secures-world-bank-backing-for-copper-mine-financing/4e5880bc0d5b7297c11e14a895a5bb6d) 
 
 
-Pickup - [https://curatedbusinessnews.substack.com](https://curatedbusinessnews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
+Pickup - [https://advos.io/en](https://advos.io/en/codelcos-world-bank-backed-financing-offers-blueprint-for-mining-investment)
 
-Pickup - [https://curatedhealthnews.substack.com](https://curatedhealthnews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/codelcos-world-bank-backed-financing-sets-precedent-for-sustainable-mining-investment)
 
-Pickup - [https://curatedtechnologynews.substack.com](https://curatedtechnologynews.substack.com/p/41d7ca37ae22098280aa74c1d98ffaee)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/world-bank-financing-deal-positions-codelco-as-model-for-sustainable-mining-investment)
+
+Pickup - [https://burstable.news](https://burstable.news/news/codelco-secures-world-bank-backed-financing-setting-precedent-for-sustainable-mining-investment)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/codelco-sichert-sich-von-der-weltbank-unterstutzte-finanzierung-und-setzt-massstabe-fur-nachhaltige-bergbauinvestitionen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/codelco-asegura-financiamiento-respaldado-por-el-banco-mundial-sentando-un-precedente-para-la-inversion-en-mineria-sostenible)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/codelco-obtient-un-financement-soutenu-par-la-banque-mondiale-etablissant-un-precedent-pour-linvestissement-minier-durable)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/codelco-garante-financiamento-apoiado-pelo-banco-mundial-estabelecendo-precedente-para-investimento-em-mineracao-sustentavel)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/codelcos-world-bank-backed-financing-sets-precedent-for-sustainable-mining-investment)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/codelco-secures-world-bank-backing-for-copper-mine-financing-setting-precedent-for-sustainable-mining-investment)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/chiles-codelco-secures-world-bank-backing-for-copper-mine-financing)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/08/codelcos-world-bank-financing-deal-offers-template-for-resource-rich-nations/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/8/taroYfbe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/8/coolqBgr.webp)
