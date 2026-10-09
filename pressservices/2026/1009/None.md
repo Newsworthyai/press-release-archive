@@ -1,82 +1,66 @@
-# Terzo CEO Argues Federal Contracts Should Be Treated as Financial Assets
+# Blinds n Co Adds Plantation Shutters to Sydney Metro Service
 
-Op-Ed by Terzo CEO Brandon Card: Federal Contracts Are Financial Assets, Not Paperwork
+Blinds n Co Expands Product Range for Custom Window Furnishings Across Sydney Metro
 
- Los Angeles, United States - October 9, 2026 / Terzo /
+ Fairfield, Australia - October 9, 2026 / Blinds n Co /
 
- LOS ANGELES, Calif., August 3, 2026. Brandon Card, founder and CEO of Terzo, published an op-ed in RealClearPolicy arguing that federal agencies should manage contracts as financial assets rather than treating them as legal or administrative paperwork.
+ Blinds n Co, the family-owned window furnishings business led by founder Mark Istiphan, has extended its operations across greater Sydney, making its full range of custom window furnishings - including blinds, curtains, plantation shutters, and screens - available to a wider base of residential customers throughout the region.
 
-In the piece, titled "Government Contracts Are a Financial Asset," Card points to the Department of Defense's approximately $445 billion in annual contract obligations across roughly 226,000 active contracts, and its eight consecutive failed audits, as evidence that government agencies lack real-time visibility into what their own contracts commit them to.
+The expansion reflects steady, deliberate growth built on a direct-to-homeowner service model that Istiphan has developed from the ground up. Operating from 9/22 Harris St, Fairfield NSW 2165, Blinds n Co now serves suburbs across the Sydney metropolitan area, with each project managed through a structured process covering initial consultation, precise on-site measurement, and final installation.
 
-The case for contract intelligence in government"No team, regardless of experience or size, can manually understand millions of contracts on a continuous basis," Card wrote in the op-ed.
+From Family Business to Sydney-Wide Reach
 
-Card argues that AI-assisted contract analysis could give federal agencies the same kind of financial visibility into contractual obligations that Terzo's platform provides to enterprise customers, extending the case for contract intelligence from the private sector into public-sector accountability and audit readiness.
+What started as a tightly run family operation has developed into one of Sydney's recognized specialists in custom window furnishings Sydney homeowners turn to for both new builds and renovation projects. The business has maintained its founding principles throughout that growth - each job receives the same attention to detail whether the project covers a single room or an entire home.
 
-In the private sector, that visibility runs through Document AI, which extracts obligations, pricing, and terms from contracts and purchase orders, and Contract Analytics, which turns that extracted data into spend, compliance, and risk dashboards.
+Mark Istiphan has remained central to the company's direction, keeping the focus on personalized service and precise craftsmanship rather than volume-driven output. That hands-on approach sets the business apart from larger, more transactional operators in the market.
 
-Those are the categories of tooling Card's op-ed points to as a model for how agencies could track obligations across large contract portfolios.
+"Every window is different, and every client has a different vision for their space," said Mark Istiphan, founder of Blinds n Co. "We take the time to understand exactly what they need before we recommend anything, and we stay involved through every step of the process."
 
-The full op-ed is available on RealClearPolicy.
+A Full Range Built Around Customization
 
-About TerzoTerzo is an AI financial intelligence platform that finds money enterprises lose across their third-party and supplier spend ecosystem, including contracts, invoices, purchase orders, and renewals. Founded in 2020, Terzo operates in the United States, Canada, and India.
+Blinds n Co supplies and installs a comprehensive product range designed to meet varying functional and aesthetic requirements. Modern blinds - including roller, Roman, and Venetian styles - are offered alongside curtains suited to both formal and casual interiors. The company's plantation shutters provide a more architectural solution, while its range of protective screens addresses privacy and environmental screening needs.
 
-Media ContactHeather Silverman
+All products are custom-made to specification rather than adapted from standard off-the-shelf sizing. That manufacturing approach is central to how the business delivers consistent results across Sydney's varied housing stock, from apartments in inner-city suburbs to freestanding homes in outer residential areas.
 
-Email: media@terzocloud.com
+Satisfaction Guarantee Anchors the Service Commitment
 
-Website: terzo.ai
+Every installation is backed by a 100% satisfaction guarantee - a formal commitment that positions the business to stand behind the quality of both its products and its workmanship. For homeowners investing in custom-made window treatments, the guarantee provides a defined assurance that the finished result will meet the agreed specification.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ldCfyqdNspQINDChkFxJ31340W1Cl32jwIyQr6y9.jpg) [](https://terzo.ai) Contact Information:
+The policy applies across the full product range and reflects the operational confidence Istiphan has built into the business over time. It also shapes how the team approaches each job: precision at the measurement stage reduces the likelihood of errors further along, and installation is carried out with the care that custom-made products require.
 
- Terzo
+Sydney Blinds and Curtains Market Demands Specialist Expertise
+
+The Sydney blinds and curtains market is served by a mix of national chains, independent retailers, and direct-to-consumer suppliers. Blinds n Co operates as a fully integrated provider - consulting, supplying, and installing - which means the same team that advises a client at the outset is responsible for the completed result. That continuity reduces the scope for miscommunication between suppliers and installers, a common source of problems in the category.
+
+Customers across Sydney can contact Blinds n Co directly by phone at 1300 099 117 to arrange a consultation or request an in-home measure and quote.
+
+About Blinds n Co
+
+Blinds n Co is a family-owned window furnishings company based in Fairfield, NSW. Founded and led by Mark Istiphan, the business supplies and installs custom blinds, curtains, plantation shutters, and screens for residential clients across the Sydney metropolitan area. All products are custom-made to specification, and every installation is backed by a 100% satisfaction guarantee. The company operates from 9/22 Harris St, Fairfield NSW 2165, and can be contacted on 1300 099 117.
+
+Learn more at Blinds n Co
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/GH9rnln9qUDGYw0mNh03J3klHTwj2A3fM5XuudJB.jpg) [](https://sydneyblindsnco.com.au) Contact Information:
+
+ Blinds n Co
 
  
 
-7190 West Sunset Blvd, #29A  Los Angeles, CA 90046United States
+9/22 Harris St  Fairfield, NSW 2165Australia
 
- Terzo Admin 11111111111 https://terzo.ai 
+ Mark Istiphan 1300 099 117 https://sydneyblindsnco.com.au 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/terzo-ceo-argues-federal-contracts-should-be-treated-as-financial-assets-451508)
+[Original/Source Press Release](https://mediawiretoday.com/blinds-n-co-adds-plantation-shutters-to-sydney-metro-service-451576)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/terzo-ceo-treat-federal-contracts-as-financial-assets/bc916431e01b599fc8f7b1f075652550) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blinds-n-co-expands-custom-window-furnishings-across-sydney/5a0c705648b6682e4264045451613d53) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/09/terzo-ceo-calls-for-federal-contracts-to-be-managed-as-financial-assets/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/federal-contracts-should-be-managed-as-financial-assets-not-paperwork-says-terzo-ceo)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/terzo-ceo-urges-federal-agencies-to-treat-contracts-as-financial-assets-citing-445b-in-dod-obligations-and-failed-audits)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/terzo-ceo-calls-for-federal-contracts-to-be-managed-as-financial-assets)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/terzo-ceo-federal-contracts-should-be-managed-as-financial-assets-not-paperwork)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ceo-de-terzo-los-contratos-federales-deberian-gestionarse-como-activos-financieros-no-como-papeleo)
-
-Pickup - [https://burstable.news](https://burstable.news/news/terzo-ceo-urges-federal-agencies-to-treat-contracts-as-financial-assets)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/terzo-ceo-fordert-bundesbehorden-auf-vertrage-als-finanzanlagen-zu-behandeln)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-ceo-de-terzo-insta-a-las-agencias-federales-a-tratar-los-contratos-como-activos-financieros)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-pdg-de-terzo-exhorte-les-agences-federales-a-traiter-les-contrats-comme-des-actifs-financiers)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ceo-da-terzo-insta-agencias-federais-a-tratar-contratos-como-ativos-financeiros)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/terzo-ceo-calls-for-treating-federal-contracts-as-financial-assets-to-address-audit-failures)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/terzo-ceo-calls-for-treating-federal-contracts-as-financial-assets)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/terzo-ceo-calls-for-federal-contracts-to-be-managed-as-financial-assets-citing-445b-in-dod-obligations-and-eight-failed-audits)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/terzo-ceo-argues-federal-contracts-should-be-treated-as-financial-assets-not-paperwork)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/9/mintQl3U.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/9/fileUOOz.webp)

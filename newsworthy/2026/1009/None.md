@@ -1,88 +1,76 @@
-# Leadership and Innovation: How Kasey Jorgenson is Transforming Real Estate with AI
+# Green Choice Proteins Highlights Shift in Plant-Based Nutrition
 
-Episode 94 of the Rock Solid: Round Rock Business Leaders Podcast, titled "Kasey Jorgenson: From Rescue Swimmer to Real Estate Leader," hosted by Bryan Eisenberg, drops October 7, 2026 with a timely conversation about leadership under pressure, AI disruption in housing, and the economics of going independent. Jorgenson, who leads Jorgenson Real Estate in downtown Round Rock, draws a direct line from Navy rescue swimmer training to how his team manages high-stakes transactions, panicked buyers, and a rapidly evolving Williamson County market as 2027 approaches.
+Green Choice Proteins, an Australian plant-based nutrition company preparing to expand into the United States, is highlighting an evolving approach to plant-based eating as consumers increasingly look beyond meat alternatives toward convenient, protein-rich foods and everyday nutrition products.
 
- The conversation moves briskly through several threads listeners can expect:
+ Plant-based nutrition is no longer defined solely by consumers following vegan or vegetarian diets. Interest in incorporating more plant-derived ingredients into everyday meals has broadened the conversation to include protein content, ingredient transparency, flavor and convenience.
 
- * Surviving an 86% attrition pipeline in Navy rescue swimmer school and translating that grit to real estate self-employment.
-* Why Jorgenson left a major national brokerage after more than 15 years to go independent, and why systems and mastery beat headcount growth.
-* How AI, ChatGPT recommendations, spoken-word content, YouTube, and Google Business Profiles are revolutionizing the way buyers connect with agents. Jorgenson Real Estate has introduced a new in-house AI agent three weeks ago, alongside a pro bono program for sellers facing financial hardship.
+ For Green Choice Proteins, this evolution reflects the philosophy behind its Australian-made plant protein products, which are designed for consumers seeking practical ways to incorporate plant-based nutrition into their daily routines.
 
- Jorgenson's calm-under-fire ethos surfaces in a story about a buyer who texted that there had been a murder in the front yard of a listing. "All right, well, let's just take a pause. There's no need to freak out. Let's do some information gathering, see what we're actually dealing with," he recalls telling the agent. On perseverance, he is just as direct:
+ "Plant-based nutrition doesn't have to be an all-or-nothing lifestyle choice," said Puneet Chawla, Founder of Green Choice Proteins. "We believe consumers should have access to high-quality plant protein products that fit naturally into their everyday lives, whether they're focused on fitness, general wellness or simply making more thoughtful food choices."
 
- "I was terrible at running. And it was perseverance from that, just refusing to quit.Bryan Eisenberg, bestselling author and international keynote speaker, engages Jorgenson Real Estate on the industry's future, highlighting Google's first major search-interface overhaul in 25 years and Perplexity's recent IPO filing. Jorgenson Real Estate asserts that AI models now prioritize spoken word and testimonials, which is why the brokerage already appears in ChatGPT queries throughout Williamson County.. He points to commercial real estate data, MCP connectors, 35-page home reports, and future "Carfax-style" property histories as near-term disruptors, predicting dramatic change inside one to two years. He also credits Round Rock's Dell-era master plan, strong schools, Old Settlers Park, and improvements along I-35 for anchoring the local market, while flagging education funding as the key variable for future home values. His brokerage, he notes, employs roughly 15 agents and is deliberately staying nimble. 
+ Moving Beyond Traditional Plant-Based Categories As plant-based nutrition continues evolving, consumers have more options beyond products designed to replace meat or dairy. Plant proteins can also serve as convenient ingredients in smoothies, breakfast foods, baking and other everyday meals.
 
- About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and international keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits, and companies powering Round Rock, Texas. Each episode explores the strategies, stories, and community ties behind the region's most interesting operators. Episode 94 with Kasey Jorgenson is available now wherever podcasts are heard. 
+ Green Choice Proteins focuses on this broader approach, combining plant-derived protein with carefully selected ingredients and flavors designed to make everyday nutrition both convenient and enjoyable.
+
+ The company's formulations feature Australian-grown pea and faba proteins, omega-3 from linseed and no artificial colours, flavours or fillers.
+
+ Three Flavors Designed for Everyday Nutrition Green Choice Proteins' initial U.S. product lineup includes three plant-based protein powders:
+
+ Chocolate Flavored Protein Powder - Plant-Based Protein
+
+ * 35.3g plant protein per serving
+* Made with Australian-grown pea and faba
+* Features pure cocoa powder and coconut milk powder
+* Contains omega-3 from linseed
+* No artificial colours, flavours or fillers
+
+ Vanilla Flavored Protein Powder - Plant Based Protein
+
+ * 34.9g plant protein per serving
+* Designed for smoothies, oats, baking and everyday nutrition routines
+* Made using Australian-grown plant proteins
+* Includes omega-3 from linseed
+* Clean vanilla flavor profile without artificial additives
+
+ Salted Caramel Flavored Protein Powder - Plant Based Protein
+
+ * 34.9g plant protein per serving
+* Combines caramel sweetness with balanced salted notes
+* Made using Australian-grown pea and faba
+* Includes omega-3 from linseed
+* No artificial colours, flavours or fillers
+
+ "Taste and convenience are just as important as the nutritional profile," added Chawla. "Our goal is to create products that people genuinely enjoy incorporating into their routines. We want plant-based nutrition to feel accessible and practical, not complicated or restrictive."
+
+ Australian-Made Nutrition With a Focus on Transparency Manufactured in Victoria, Australia, Green Choice Proteins emphasizes ingredient transparency, responsible sourcing and clean-label formulations.
+
+ The family-owned company uses Australian-grown pulses as a foundation for its products while incorporating other thoughtfully selected ingredients to create its plant protein formulations.
+
+ Green Choice Proteins believes the growing interest in everyday plant-based nutrition creates opportunities for brands that can combine quality ingredients with enjoyable flavors and convenient formats.
+
+ Building a Presence in the United States The company's focus on everyday plant nutrition comes as Green Choice Proteins continues its U.S. expansion strategy.
+
+ Following its participation in September's ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida, the company is preparing to introduce its products to American consumers through OneLavi and Amazon.
+
+ The upcoming launches represent the initial stages of Green Choice Proteins' broader strategy to establish its Australian-made plant nutrition products in the United States.
+
+ For more information, visit Green Choice Proteins.
+
+ About [Green Choice Proteins](https://gcproteins.com.au/) Based in Victoria, Australia, Green Choice Proteins is a family-owned plant-based nutrition company focused on delivering clean, functional daily nutrition for modern lifestyles. Using plant proteins derived from Australian-grown crops and manufacturing its products in Victoria, the company combines high-quality plant protein with thoughtfully selected functional ingredients to support everyday wellness, performance, and recovery. Built on a philosophy of transparency, sustainability, and formulation integrity, Green Choice Proteins creates clean-label nutrition products with no artificial colours, flavours, or fillers, helping consumers simplify their wellness routines with trusted, Australian-made plant-based nutrition.
+
+ Follow Green Choice Proteins on Instagram and Facebook. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610093040/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
+[Original/Source Press Release](https://newsworthy.ai/news/202610093050/green-choice-proteins-highlights-shift-in-plant-based-nutrition)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kasey-jorgenson-navy-grit-to-real-estate-leadership-on-rock-solid/eefd2e460ad6b5baff3063015442039f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-choice-proteins-brings-australian-plant-protein-to-the-u-s/0eabca097026020f81c2cd9887c7466f) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/leadership-and-innovation-how-kasey-jorgenson-is-transforming-real-estate-with-ai)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/09/kasey-jorgenson-on-leadership-ai-and-the-future-of-real-estate/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/kasey-jorgenson-on-leadership-ai-and-the-future-of-real-estate-in-round-rock)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ai-disruption-and-leadership-under-pressure-kasey-jorgenson-on-the-future-of-real-estate)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ai-and-independence-kasey-jorgenson-on-the-future-of-real-estate)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/kasey-jorgensons-journey-from-navy-rescue-swimmer-to-ai-powered-real-estate-leader-in-round-rock)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-viaje-de-kasey-jorgenson-de-nadador-de-rescate-de-la-marina-a-lider-inmobiliario-impulsado-por-ia-en-round-rock)
-
-Pickup - [https://burstable.news](https://burstable.news/news/kasey-jorgenson-on-leadership-ai-and-the-future-of-real-estate-in-round-rock)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kasey-jorgenson-uber-fuhrung-ki-und-die-zukunft-der-immobilienbranche-in-round-rock)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/kasey-jorgenson-sobre-liderazgo-ia-y-el-futuro-del-sector-inmobiliario-en-round-rock)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/kasey-jorgenson-sur-le-leadership-lia-et-lavenir-de-limmobilier-a-round-rock)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/kasey-jorgenson-sobre-lideranca-ia-e-o-futuro-do-mercado-imobiliario-em-round-rock)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/kasey-jorgenson-on-ai-independence-and-leadership-under-pressure-in-real-estate)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/kasey-jorgenson-on-leadership-ai-and-the-future-of-real-estate)
-
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/kasey-jorgenson-from-navy-rescue-swimmer-to-real-estate-innovator-in-round-rock)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/round-rock-real-estate-leader-ties-navy-rescue-training-to-thriving-in-an-ai-driven-housing-market)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/kasey-jorgenson-on-leadership-ai-and-the-future-of-real-estate)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/9/lunaFrZW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/9/finemknk.webp)

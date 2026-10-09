@@ -1,72 +1,36 @@
-# Pride Holdings Group Officially Launches Pride Cell, Mobile Service Created by and for the LGBTQ+ Community
+# TruGolf Holdings (TRUG) Completes Acquisition of Polymath Research, Expanding into Institutional Asset Tokenization
 
-Pride Cell Launches in Partnership With Perch Mobile, Utilizing the AT&T Network, With Unlimited Plans Starting at $13.33 per Month for the First Three Months, and $1 From Every Monthly Cell Bill Going Directly to The Trevor Project
+LOS ANGELES, CA - October 9, 2026 (NEWMEDIAWIRE) - TruGolf (NASDAQ: TRUG) announced the completion of its acquisition of Polymath Research Inc., a Canadian company specializing in institutional asset tokenization and developer of Polymesh, a Layer-1 blockchain designed for regulated assets. The transaction combines TruGolf’s established golf simulation and software business with Polymath’s blockchain infrastructure, creating two complementary revenue streams. As of Dec. 31, 2025, Polymath had issued more than $132 million in tokenized assets for more than 65 active issuers, supported by more than 50 ecosystem partners. The companies are also developing tokenized equipment leasing and fractional franchise ownership programs targeted for the first quarter of 2027.
 
- ORLANDO, FL - October 9, 2026 (NEWMEDIAWIRE) - Pride Holdings Group (OTC: PHSE) today announced the official launch of Pride Cell, the Company’s new mobile service created by and for the LGBTQ+ community.
+ Following the acquisition, Polymath will operate as a wholly owned subsidiary while TruGolf continues its golf technology operations, including its simulators and E6 platform. Natalie Hirsch, formerly Polymath’s chief financial officer and interim CEO, has been appointed chief financial officer and chief operating officer of TruGolf, while David Hackett has joined its board of directors. In connection with the transaction, TruGolf also received approximately $2.95 million in net proceeds from the exercise of Series B preferred warrants.
 
- Launching in partnership with Perch Mobile, Pride Cell represents another step in Pride Holdings Group’s strategy to build a diversified portfolio of businesses, products, and services designed to serve the LGBTQ+ community while creating new recurring-revenue opportunities for the Company.
+ To view the full press release, visit https://ibn.fm/WWfpH
 
- “Pride Cell is about more than launching another mobile service,” said Tim Majors, CEO of Pride Holdings Group. “It is about creating a brand that our community can identify with and support. Mobile service is something people use every single day, and we see an opportunity to combine competitive pricing with a brand built specifically around the LGBTQ+ community. Our partnership with Perch Mobile allows us to bring this vision to market as we continue expanding the Pride Holdings Group ecosystem.”
+ About TruGolf
 
- Proudly Giving Back to The Trevor Project
+ Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
 
- As an important part of the Pride Cell launch, Pride Cell and Pride Holdings Group have formed a unique partnership with The Trevor Project, the leading crisis intervention and suicide prevention organization for LGBTQ+ young people. $1 from every monthly Pride Cell bill will go directly to The Trevor Project. To learn more about their mission, please visit TheTrevorProject.org.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- “We are building Pride Cell around a very simple idea: provide a service people use every day while creating an opportunity to give back to our community every month,” said Tim Majors, CEO of Pride Holdings Group. “We are extremely proud of this initiative and proud to support The Trevor Project. As Pride Holdings Group continues to develop and expand LGBTQ+ businesses, we want supporting our community to remain an important part of what we do.”
+ The latest news and updates relating to TRUG are available in the company’s newsroom at https://ibn.fm/TRUG
 
- Built for the LGBTQ+ Community
+ Forward Looking Statements
 
- Pride Cell was developed around a straightforward concept: create a competitively priced mobile service that gives the LGBTQ+ community an opportunity to support a company focused on building businesses for the community it serves.
-
- The introductory Unlimited Plan is designed to make switching accessible, with customers paying $13.33 per month for their first three months before moving to $29.99 per month thereafter.
-
- Pride Holdings Group expects to support the launch through digital marketing, community outreach, cross-promotion across its portfolio, and strategic partnerships.
-
- About Pride Holdings Group
-
- Pride Holdings Group is a publicly traded holding company focused on acquiring, operating, and scaling LGBTQ+ oriented hospitality, nightlife, entertainment, and real estate assets. Through its portfolio of venues, events, and branded experiences, the Company aims to create safe, inclusive, and economically sustainable community spaces while delivering long-term value to shareholders.
-
- Forward-Looking Statements
-
- This press release contains forward-looking statements within the meaning of applicable securities laws. These statements are subject to risks and uncertainties that could cause actual results to differ materially. Pride Holdings Group undertakes no obligation to update forward-looking statements except as required by law.
-
- Contact:Media Relationspress@prideholdingsgroup.com
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pride-holdings-group-officially-launches-pride-cell-mobile-service-created-by-and-for-the-lgbtq+-community)
+[Original/Source Press Release](https://www.newmediawire.com/news/trugolf-holdings-trug-completes-acquisition-of-polymath-research-expanding-into-institutional-asset-tokenization-7090495)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pride-cell-launches-lgbtq-mobile-service-with-the-trevor-project/40c01f8d3a0e4d7b1b63e4f6e5401238) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-completes-polymath-acquisition-expands-into-asset-tokenization/e8adcb3b3f528fd0a05e731d4354bb6c) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/09/pride-holdings-group-launches-pride-cell-mobile-service-to-support-lgbtq-community-and-the-trevor-project/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/pride-holdings-group-launches-pride-cell-mobile-service-to-support-lgbtq-community)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pride-cell-launches-lgbtq-mobile-service-with-the-trevor-project-partnership)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pride-holdings-group-launches-pride-cell-a-mobile-service-for-the-lgbtq-community)
-
-Pickup - [https://burstable.news](https://burstable.news/news/pride-holdings-group-launches-pride-cell-mobile-service-to-support-lgbtq-community)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/pride-holdings-group-startet-pride-cell-mobilfunkdienst-zur-unterstutzung-der-lgbtq-community)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/pride-holdings-group-lanza-el-servicio-movil-pride-cell-para-apoyar-a-la-comunidad-lgbtq)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pride-holdings-group-lance-pride-cell-un-service-mobile-pour-soutenir-la-communaute-lgbtq)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pride-holdings-group-lanca-servico-movel-pride-cell-para-apoiar-a-comunidade-lgbtq)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pride-cell-launches-mobile-service-to-support-lgbtq-community-and-the-trevor-project)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/pride-holdings-group-launches-pride-cell-a-mobile-service-for-the-lgbtq-community)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/9/roam8DKt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/9/wamcvTCz.webp)
