@@ -1,40 +1,73 @@
-# Bruce Arians Selected as Recipient of Paul "Bear" Bryant Heart of a Champion Award
+# Health Tech Competition Finalists Advance Solutions for Heart and Brain Health
 
-HOUSTON - October 13, 2026 (NEWMEDIAWIRE) - Bruce Arians, one of the most respected offensive minds in the game of football, is the recipient of the American Heart Association’s 2027 Paul “Bear” Bryant Heart of a Champion Award, presented by Houston-based St. Luke’s Health, honoring his exceptional contributions to college football and the community.
+DALLAS - October 13, 2026 (NEWMEDIAWIRE) - Promising health technologies can face significant barriers to adoption, limiting their impact on patients and clinicians. The American Heart Association, a relentless force changing the future of health for everyone everywhere, has selected five finalists for its 2026 Health Tech Competition, to help accelerate innovations that improve cardiovascular and brain health care.
 
- ![](https://iprsoftwaremedia.com/67/files/20269/c9af9bee53ab4bf90e3d24b1d5b533ea/Bruce%20Arians.jpg)
+ ![](https://iprsoftwaremedia.com/67/files/20199/AHA_SS_LOGO_RGB-HEX_rk_LG.jpg)
 
- The American Heart Association, a relentless force changing the future of health for everyone everywhere, presents the Bear Bryant Awards annually to celebrate excellence in coaching, to honor coach Bryant’s legacy and to raise awareness and critical funds for its mission. The coaching legend died from a heart attack in 1983, just 28 days after his final victory and retirement.
+ Hosted by the American Heart Association Center for Technology & Innovation, the global competition received a record number of submissions from health technology companies around the world. Following a rigorous multi-stage review by American Heart Association volunteer experts across healthcare, science and industry, five finalists were selected for their potential to improve how cardiovascular and brain health conditions are prevented, diagnosed and treated.
 
- “Bruce Arians has demonstrated that true leadership is measured not only by success on the field, but by the impact we have on others. Throughout his career, he has shown resilience, integrity and a deep commitment to helping people reach their full potential,” said Nancy Brown, chief executive officer of the American Heart Association. “By sharing his own health journey with courage and authenticity, he has inspired countless individuals to face challenges with hope and determination. We are proud to honor him with the Heart of a Champion Award.”
+ The five finalists will present their solutions in the Health Innovation Pavilion during Scientific Sessions 2026, the Heart Association’s flagship global event for the latest research and clinical advancements in cardiovascular science. Scientific Sessions will take place Nov. 6-9 at McCormick Place in Chicago, with competition pitches scheduled Nov. 7-8 and the winners announced Nov. 8.
 
- The Heart of a Champion Award recognizes individuals whose notable contributions and positive influence have helped define the way we experience sports and who exemplify the characteristics for which Coach Paul “Bear” Bryant was known, including integrity, perseverance, determination and grit. The award is selected annually by the Paul “Bear” Bryant Awards Executive Leadership Team, comprised of members of the Bryant family and community leaders who come together to support the campaign.
+ The 2026 finalists are:
 
- Few individuals embody those qualities more completely than Arians, whose football journey spans more than five decades as a player, coach, mentor and advocate. A two-time Associated Press NFL (National Football League) Coach of the Year and Super Bowl-winning head coach, Arians has earned widespread respect not only for his success on the field, but also for his courage, authenticity and unwavering commitment to helping others succeed.
+ * HEARTio, Pittsburgh, Pa. - HEARTio is developing investigational AI software that analyzes a standard ECG to estimate obstructive coronary artery disease, the leading cause of heart attacks, without dyes, radiation, incisions or catheters.
+* MEGI, Chicago, Ill. - MEGI is an AI-powered digital health platform focused on women's heart health, maternal care and hypertension (high blood pressure) management.
+* MedRhythms, Portland, Maine - MedRhythms is a digital health and neurotherapeutics company that combines sensors, software and music to help people improve their walking and mobility after a neurological injury or disease.
+* Seerlinq, Bratislava, Slovakia - Seerlinq estimates cardiac filling pressure non-invasively from a short fingertip PPG measurement at home, catching deterioration in heart failure patients weeks before hospitalization and giving clinicians time to adjust therapy.
+* Vascudyne, St. Paul, Minn. - Vascudyne bioengineered blood vessels that regenerate into the patient's own tissue, giving coronary bypass patients a graft without leg-vein harvest and children with congenital defects an implant that grows with them.
 
- Arians’ coaching career began at Virginia Tech before stops at Mississippi State, Alabama and Temple University. From 1981-82, he served on Coach Bryant’s staff at the University of Alabama, coaching running backs under the Hall of Fame coach.
+ The competition is designed for emerging companies with clinically informed and validated technologies, early evidence of impact and a viable path to scale. Finalists are selected for solutions that may engage patients, support clinicians and demonstrate the potential to improve cardiovascular and brain health outcomes across diverse care settings.
 
- After transitioning to the NFL, Arians built a reputation as one of the game’s premier offensive minds and quarterback developers. Over a career that included leadership roles with the Indianapolis Colts, Pittsburgh Steelers, Arizona Cardinals and Tampa Bay Buccaneers, he helped guide the development of some of football’s most accomplished quarterbacks, including Peyton Manning, Ben Roethlisberger, Andrew Luck, Carson Palmer and Tom Brady.
+ Final presentations will be evaluated based on several criteria, including:
 
- Arians captured two Super Bowl titles as an assistant coach with the Pittsburgh Steelers before leading the Tampa Bay Buccaneers to victory in Super Bowl LV, becoming the oldest head coach in NFL history to win a Super Bowl at age 68. He also earned AP NFL Coach of the Year honors in 2012 and 2014.
+ * Clinical evidence: How strong is the supporting clinical or pilot data?
+* Scientific innovation: How innovative is the science or technology?
+* Market need: How well does the solution address a meaningful market need?
 
- Arians’ personal resilience has also served as an inspiration. A survivor of both prostate and kidney cancer, he has faced significant health challenges with the same determination that defined his coaching career. His openness about those experiences has helped raise awareness and encourage others facing their own health battles.
+ “Too many promising health technologies never reach the people who could benefit from them most,” said Lee A. Shapiro, J.D., volunteer chair of the American Heart Association and managing partner and co-founder at 7wireVentures, an investment firm headquartered in Chicago. “The American Heart Association’s Health Tech Competition highlights solutions that are grounded in science, informed by real-world needs and designed to improve care for people at risk for or living with cardiovascular and brain health conditions.”
 
- “I’m deeply honored to receive the Heart of a Champion Award,” Arians said. “To be associated with Coach Bryant’s legacy is incredibly meaningful to me, especially because I had the privilege of coaching on his staff early in my career. Football has given me so much, but the relationships, the opportunities to help others and the chance to make a difference beyond the game are what I value most. I’m grateful to the American Heart Association and the Paul ‘Bear’ Bryant Awards for this recognition.”
+ A panel of expert volunteer judges will review the finalists’ business and science presentations.
 
- The Heart of a Champion Award is one of five honors presented annually during the Paul “Bear” Bryant Awards Ceremony, presented by Memorial Hermann Health System.This year’s ceremony, in its 41st year, will be held on Wednesday, January 27, 2027, in Houston and will air on CBS Sports Network. In addition to Arians’ selection as Heart of a Champion, the Lifetime Achievement Award, Fan Favorite, Newcomer Coach of the Year and 2026 Paul “Bear” Bryant National Coach of the Year will be awarded. The Paul “Bear” Bryant Awards support the American Heart Association by raising funds and awareness to advance lifesaving research and improve cardiovascular health.
+ Saturday, November 7
 
- Fans can follow the Paul “Bear” Bryant Awards and track progress of the awards at facebook.com/bryantawards, https://x.com/bryantawards or by following the hashtag #BryantAwards. To attend an exclusive virtual, VIP experience for the Bryant Awards, contact 832-918-4009 or visit bryantawards.org.
+ Moderator: Sharon Langshur, MD, Principal Consultant at Cullom, Inc
 
- About the American Heart Association
+ * Catherine Liao, Chief Strategy & Commercial Officer, CONNEQT Health
+* Michael V. McConnell, MD, MSEE, Clinical Professor of Medicine, Stanford University School of Medicine
+* Bernado Perez-Villa, MD, MSc, VP Medical Affairs, Hello Heart
+* Eric D. Peterson, MD, MPH, FAHA, Vice Provost & Senior Associate Dean for Clinical Research, Professor of Medicine, University of Texas Southwestern Medical Center
+* Lee H. Schwamm, MD, FAHA, Associate Dean for Digital Strategy & Transformation, Yale School of Medicine
+* Lisa Suennen, Managing Partner, American Heart Association Ventures
+* Joseph C. Wu, MD, PhD, FAHA, 2023-2024 American Heart Association Volunteer President, Director of the Stanford Cardiovascular Institute and the Simon H. Stertzer, MD, Professor of Medicine and Radiology at Stanford University
+* Orson Xu, Assistant Professor, Columbia University
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public's health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform every life day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+ Sunday, November 8, 2026
 
- For Media Inquiries:
+ Moderator: Sharon Langshur, MD, Principal Consultant at Cullom, Inc.
 
- Paul Smith:paul.smith@heart.org
+ * Asif Ali, MD, Clinical Associate Professor of Cardiovascular Medicine, University of Texas Medical School at Houston, Director, Cena Research Institute
+* Craig Beam, President, Beam & Associates
+* Alan Go, MD, Director, Solutions through Technology and Advanced Analytics Research (STAR) Group; Associate Director (Cardiovascular, Kidney & Metabolic Health Research) at Kaiser Permanente Division of Research
+* Robert A. Harrington, MD, FAHA, Cardiologist and also serves as the Stephen and Suzanne Weiss Dean of Weill Cornell Medicine and Provost for Medical Affairs of Cornell University
+* Star Jones, lawyer/TV personality, Divorce Court, National Volunteer, American Heart Association
+* Gennaro Maida, MS, CEO and Chief Medical Information Officer, Denovo Innovations Group
+* Ken Nelson, Partner, Med Tech Innovators Advantage Fund
+* Lee Shapiro, JD, Chairman of the Board, American Heart Association, Managing Partner, 7wire Ventures
 
- Steven Embree:steven.embree@heart.org
+ To learn more about the competition, finalists and event details, visit ahahealthtech.org/aha-health-tech-competition-2026. Selection as a finalist does not constitute an endorsement, certification or validation of a company, product, clinical claim or commercial offering by the American Heart Association.
+
+ Additional Resources:
+
+ * American Heart Association news release: Global health tech competition aims to accelerate innovation improving cardiovascular and brain health
+* American Heart Association news release: Houston-based medical technology company wins overall global health tech competition at Scientific Sessions 2025
+* American Heart Association news release: Finalists named in global health technology competition to advance heart and brain health
+* Follow AHA/ASA news on X @HeartNews
+
+ About the American Heart AssociationThe American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+
+ For Media Inquiries: 214-706-1173
+
+ Karen Springs: karen.springs@heart.org
 
  For Public Inquiries: 1-800-AHA-USA1 (242-8721)
 
@@ -46,15 +79,29 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bruce-arians-selected-as-recipient-of-paul-bear-bryant-heart-of-a-champion-award-7090564)
+[Original/Source Press Release](https://www.newmediawire.com/news/health-tech-competition-finalists-advance-solutions-for-heart-and-brain-health-7090571)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bruce-arians-receives-heart-of-a-champion-award/ab039a697b89951d581f5fad76a2997d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-unveils-2026-health-tech-competition-finalists/1e824a0c103ffb596edf13a2ca99c6ae) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-names-five-finalists-for-2026-health-tech-competition)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/american-heart-association-names-five-finalists-for-2026-health-tech-competition-to-accelerate-cardiovascular-and-brain-health-innovation)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/american-heart-association-names-five-finalists-for-2026-health-tech-competition)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-heart-association-names-five-finalists-for-2026-health-tech-competition-to-accelerate-heart-and-brain-health-innovations)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-american-heart-association-nombra-a-cinco-finalistas-para-la-competencia-de-tecnologia-sanitaria-2026-con-el-fin-de-acelerar-las-innovaciones-en-salud-cardiaca-y-cerebral)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/american-heart-association-names-five-finalists-for-2026-health-tech-competition)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2110083095869210946)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/13/kiss08Ov.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/13/odorKpIL.webp)
