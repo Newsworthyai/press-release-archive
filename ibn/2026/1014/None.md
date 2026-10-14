@@ -1,16 +1,14 @@
-# NetworkNewsBreaks – Massimo Group (NASDAQ: MAMO) Advances Retail Expansion Program Across Ace Hardware Network
+# NetworkNewsBreaks – TruGolf Holdings, Inc. (NASDAQ: TRUG) Taps Newly Acquired Polymath to Tokenize Franchise Ownership Records
 
-Massimo Group (NASDAQ: MAMO), a manufacturer and distributor of powersports vehicles and mobility solutions, announced plans to expand the availability of its products across the Ace Hardware network through a new retail program. Building on existing relationships with independently operated Ace stores, Massimo is developing a scalable program to reach a broader group of retailers within the network, which includes more than 5,000 U.S. locations. The company recently participated in an Ace Hardware event in Orlando, Florida, where it showcased its products and discussed retail opportunities with store owners and representatives.
+TruGolf (NASDAQ: TRUG) announced that its franchise subsidiary, TruGolf Links Franchising LLC, has signed an intercompany agreement with Polymath Research Inc., its recently acquired tokenization subsidiary, to migrate TruGolf Links equity records onto Polymath’s regulated digital securities infrastructure. The agreement, signed six days after TruGolf completed its acquisition of Polymath on Oct. 8, 2026, marks the first Polymath engagement within the combined company. Under the agreement, Polymath will establish a tokenized capitalization table on its Polymesh blockchain, incorporating investor onboarding, identity verification and transfer restrictions to support regulatory compliance. The initiative is designed to support TruGolf Links franchise expansion, including commitments for more than 221 future locations across New Jersey, New York and Illinois, while laying the groundwork for an equipment leasing program and fractional franchise ownership opportunities for qualified franchisees, with an initial rollout targeted for the first quarter of 2027.
 
- Massimo has also submitted a proposed 2026 holiday retail program featuring select products for the Black Friday and Christmas shopping periods. The initiative focuses on inventory availability, pricing, merchandising and logistics to support participating stores. No purchase commitments or minimum participation levels have been established, and individual store participation remains subject to approvals and ordering decisions. The company said the initiative supports its broader strategy of diversifying distribution channels and expanding its presence in outdoor recreation, agricultural and utility markets.
+ To view the full press release, visit: https://nnw.fm/RZESf
 
- To view the full press release, visit https://nnw.fm/PO8sM
+ About TruGolf
 
- About Massimo Group
+ Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
 
- Massimo Group (NASDAQ: MAMO) is a U.S.-based provider of utility-focused powersports vehicles, recreational products, and marine equipment. The Company delivers feature-rich products through a nationwide distribution and service network and is focused on expanding its platform through product innovation, operational execution, and scalable channel development across consumer and commercial markets.
-
- NOTE TO INVESTORS: The latest news and updates relating to MAMO are available in the company’s newsroom at https:/nnw.fm/MAMO
+ NOTE TO INVESTORS: The latest news and updates relating to TRUG are available in the company’s newsroom at https://nnw.fm/TRUG
 
  About NetworkNewsWire
 
@@ -28,15 +26,59 @@ Massimo Group (NASDAQ: MAMO), a manufacturer and distributor of powersports vehi
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-massimo-group-nasdaq-mamo-advances-retail-expansion-program-across-ace-hardware-network/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/massimo-group-expands-powersports-line-to-ace-hardware-stores/aa46b9780c7ba75c98a581d6e4e7be30) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-tokenizes-franchise-equity-with-polymath-blockchain/80bb3000933ee2581f4ed612e3798fa4) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/trugolf-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records-2)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/trugolf-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/trugolf-taps-newly-acquired-polymath-to-tokenize-franchise-equity-signaling-blockchain-shift-in-franchising)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://burstable.news](https://burstable.news/news/trugolf-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/trugolf-setzt-auf-das-kurzlich-erworbene-polymath-zur-tokenisierung-von-franchise-eigentumsnachweisen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/trugolf-recurre-a-la-recien-adquirida-polymath-para-tokenizar-los-registros-de-propiedad-de-franquicias)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/trugolf-fait-appel-a-polymath-recemment-acquise-pour-tokeniser-les-registres-de-propriete-de-franchise)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/trugolf-recorre-a-recem-adquirida-polymath-para-tokenizar-registros-de-propriedade-de-franquias)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/trugolf-taps-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/networknewsbreaks-trugolf-holdings-inc-nasdaq-trug-taps-newly-acquired-polymath-to-tokenize-franchise-ownership-records)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/14/kissnUqp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/14/bestAZaj.webp)
