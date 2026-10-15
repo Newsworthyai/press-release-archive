@@ -1,65 +1,38 @@
-# TNT Says Don't Wait Until January to Reset Your Fitness Routine
+# OrthodontiCell Secures Capital to Complete Testing Supporting Planned U.S. Phase II Pivotal Study 
 
-Coming off its recent participation at ECRM, where True Nutrition Technology (TNT) featured its German sports nutrition portfolio during meetings with U.S. retail buyers, the company is turning its attention to a familiar seasonal fitness pattern: waiting until January to start again.
+OrthodontiCell, Inc. announced today that it has secured sufficient capital to complete the remaining testing needed to support its application to begin a planned Phase II pivotal clinical study in the United States.
 
- TNT says fall offers an opportunity to do the opposite.
+ The funding marks a significant milestone in the company’s development of bioelectric technology designed to accelerate tooth movement during orthodontic treatment. OrthodontiCell’s approach aims to shorten treatment time and improve the patient experience when used alongside orthodontic care.
 
- Rather than allowing changing schedules, shorter days and the approaching holiday season to interrupt established fitness routines, athletes and active consumers can use the final months of the year to focus on consistency and enter January with momentum already established.
+ With funding in place for this stage, the company can now focus on completing the testing and prepare its regulatory submission seeking authorization to initiate the planned final pivotal U.S. study.
 
- "January gets a tremendous amount of attention in the fitness industry, but there's no reason to wait for a date on the calendar to get serious about your routine," said Markus Himmelstoss, Managing Director of TNT. "Fall can be a great time to reset, establish consistency and build habits that are already in place when the new year arrives."
+ The proposed study is intended to evaluate the technology’s safety and effectiveness, including its potential to reduce the time required to straighten teeth. Final study design, participating centers, and enrollment timing will be announced in the near future, as the program advances.
 
- Fall Brings a Different Training Rhythm For many people, the transition from summer to fall changes how and when they train.
+ “For patients and families, a shorter path to a healthy, confident smile can make a meaningful difference,” said Mark Terrill CEO. “Securing the capital to complete this testing moves OrthodontiCell closer to its next clinical milestone and gives our team the resources to advance the application process.”
 
- Daylight hours become shorter, temperatures change, vacations end, school schedules return, and outdoor activities may begin shifting indoors. At the same time, the approaching holiday season can make regular training more difficult to maintain.
+ The capital secured covers the remaining testing supporting the planned application. Funding for conducting the pivotal study will be addressed separately.
 
- TNT believes adapting to those changes is more useful than treating them as a reason to put fitness goals on hold until January.
+ About [OrthodontiCell](http://www.orthdonticell.com) OrthodontiCell, Inc. is developing bioelectric technology intended to accelerate orthodontic tooth movement and improve the treatment experience. Its development program focuses on evaluating the use of controlled bioelectric stimulation alongside orthodontic treatment.
 
- "Consistency doesn't mean every workout or every week has to look exactly the same," Himmelstoss said. "Schedules change. Seasons change. The important thing is finding a routine that works with those changes instead of continually stopping and starting."
+ Development Status and Forward-Looking Statements
 
- Building the Routine Before January The New Year's fitness surge has become an annual tradition, with January often associated with new gym memberships, new training programs and renewed attention to nutrition.
-
- TNT's message this fall is simple: the habits people hope to begin in January can start in October.
-
- Establishing a realistic training schedule during October, November and December can allow people to experiment with workout times, adjust routines and develop greater consistency before the calendar turns to a new year.
-
- That philosophy reflects TNT's broader approach to sports nutrition and training, which emphasizes supporting an active lifestyle over time rather than focusing on short-term trends.
-
- A Portfolio Built Around Active Lifestyles TNT's portfolio includes Creapure Creatine Monohydrate, CLEAR WHEY protein isolate, Synapsensause Pre-Workout, and Game Changer, its carbohydrate and electrolyte formulation.
-
- The German brand has built a customer base of more than 500,000 consumers and is now expanding its presence in the United States.
-
- Its recent ECRM participation was part of that effort, introducing U.S. retail buyers to TNT's broader portfolio while the company continues building awareness and distribution in the American market.
-
- "Whether someone trains year-round or is trying to get back into a routine, the fundamentals don't suddenly become important on January 1," Himmelstoss said. "Our message is to start where you are, build consistency and carry that momentum into the new year."
-
- TNT products are available to U.S. consumers through Amazon and OneLavi.
-
- Where American Consumers Can Purchase TNT Products * TNT Creapure® Creatine Monohydrate Powder on OneLavi
-* TNT Synapsensause Pre-Workout "Wild Berry" Pre-Workout Booster on Amazon
-* TNT Synapsensause Pre-Workout "Wild Berry" Pre-Workout Booster on OneLavi
-* TNT Clear Whey Protein Isolate - Peach Iced Tea on OneLavi
-
- About [TNT (True Nutrition Technology)](https://www.tnt-supplements.com/) Founded in Germany by former athletes Michael Weigl and Markus Himmelstoss, TNT (True Nutrition Technology) is a leading sports nutrition brand trusted by more than 500,000 customers. Since 2012, TNT has produced premium supplements under strict German quality standards, with every product independently lab-tested for safety, purity, and transparency.
-
- TNT’s core product lineup includes Creatine Monohydrate with Creapure®, CLEAR WHEY Protein, and Synapsensause Pre-Workout-three performance-focused supplements widely used by athletes to support strength, recovery, energy, and training intensity.
-
- From advanced protein blends to innovative vegan formulations, TNT develops evidence-based nutrition designed to help athletes and everyday individuals perform at their best. More than just supplements, TNT represents a passion for sport, health, and performance. Built on German precision and a culture of honesty, TNT continues to expand globally with one mission: delivering the highest quality nutrition-for us, and for you.
-
- FDA Disclaimer
-
- These statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ OrthodontiCell’s technology remains investigational. Initiation of the planned U.S. study is subject to completion of testing and applicable regulatory and ethics approvals. Statements concerning development plans, treatment benefits, and future milestones reflect current expectations; actual results and timing may differ. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610153060/tnt-says-dont-wait-until-january-to-reset-your-fitness-routine)
+[Original/Source Press Release](https://newsworthy.ai/news/202610153061/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tnt-urges-fall-fitness-consistency-before-new-year-s-rush/f7f49b946312753af972a4a0ea1dbe78) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orthodonticell-secures-funding-for-phase-ii-pivotal-study-of-bioelectric-tooth-movement-tech/7ae2c5075f3093cedfa13cdb1a8e0e1a) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/15/leang2r9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/15/waitkuVB.webp)
