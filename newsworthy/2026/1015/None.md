@@ -1,38 +1,33 @@
-# OrthodontiCell Secures Capital to Complete Testing Supporting Planned U.S. Phase II Pivotal Study 
+# Judy Shelton, Gold Standard Chatter and Cracks in Credit: Inside DH Unplugged 821
 
-OrthodontiCell, Inc. announced today that it has secured sufficient capital to complete the remaining testing needed to support its application to begin a planned Phase II pivotal clinical study in the United States.
+Episode 821 of DH Unplugged, titled Gold Standard Ahead, hosted by Andrew Horowitz and John C. Dvorak, lands on October 14, 2026 with a flu-rattled Horowitz powering through a dense market docket. The pair unpack the appointment of Judy Shelton as a counselor to Treasury Secretary Scott Bessant, revived gold-standard chatter, the opening salvo of bank earnings season, cracking consumer credit, and a widening U.S. trade deficit. It is a quintessential DH Unplugged hour: skeptical, specific, and willing to call policy theater by its name.
 
- The funding marks a significant milestone in the company’s development of bioelectric technology designed to accelerate tooth movement during orthodontic treatment. OrthodontiCell’s approach aims to shorten treatment time and improve the patient experience when used alongside orthodontic care.
+ Listeners can expect granular reporting across several threads pulled directly from the week's tape:
 
- With funding in place for this stage, the company can now focus on completing the testing and prepare its regulatory submission seeking authorization to initiate the planned final pivotal U.S. study.
+ * JPMorgan, Goldman Sachs, Citigroup and Wells Fargo kicking off earnings, with Bank of America hit by a reported $1.5 billion money-laundering fine on the eve of its print.
+* High-yield bond yields climbing from 7.22% to 8.1% in a month, and CCC spreads blowing out roughly 1,250 basis points.
+* U.S.-to-China tanker bookings reportedly hitting $80 million per voyage, adding about $41 per barrel in freight cost alone.
+* Compass data showing price reductions on up to 58.9% of listings in Williamson, Texas, versus just 5.6% in San Francisco.
 
- The proposed study is intended to evaluate the technology’s safety and effectiveness, including its potential to reduce the time required to straighten teeth. Final study design, participating centers, and enrollment timing will be announced in the near future, as the program advances.
+ The hosts' trademark skepticism cuts through official narratives on rate policy, the Russia-Ukraine ceasefire framing, and Bessant's bond-market maneuvering. Horowitz, exasperated by Treasury's attempts to cap long-end yields and possibly scrap 20-year auctions, delivers a direct message:
 
- “For patients and families, a shorter path to a healthy, confident smile can make a meaningful difference,” said Mark Terrill CEO. “Securing the capital to complete this testing moves OrthodontiCell closer to its next clinical milestone and gives our team the resources to advance the application process.”
+ Scott Bessant, if you're listening, because I know you are, I know you're listening, it's maybe late in the show, but please stop because you're messing around with gasoline with a match. Dvorak counters with his read of the political optics, arguing the administration is in "the twilight of the optics game" where messaging substitutes for substance.
 
- The capital secured covers the remaining testing supporting the planned application. Funding for conducting the pivotal study will be addressed separately.
+ The episode goes deep on the collision of AI, labor and software economics. Kroger announced 3,000 corporate layoffs, roughly 30% of its 10,000-person white-collar headcount, targeting finance, supply chain, procurement, real estate and HR. Dvorak, drawing on his Fortune 500 consulting work, pushes back on the AI-productivity narrative, arguing most real savings come from replacing outside firms like PwC and Accenture rather than internal staff. The hosts also walk through Anthropic's new policy prohibiting "sustained needless cruelty" toward Claude, a French supermarket hack that remotely disabled internet-connected refrigerators (some reportedly catching fire), and a new open-source tool, Reverse Engineer Anything, which spawned Slowbooks, a free clone of QuickBooks 2003. Anduril's planned $3.7 billion Maryland shipyard for Virginia-class submarine components, Broadcom's $42 billion customer-financing program, and Apple's LG-built smart-home push round out the tech beat.
 
- About [OrthodontiCell](http://www.orthdonticell.com) OrthodontiCell, Inc. is developing bioelectric technology intended to accelerate orthodontic tooth movement and improve the treatment experience. Its development program focuses on evaluating the use of controlled bioelectric stimulation alongside orthodontic treatment.
-
- Development Status and Forward-Looking Statements
-
- OrthodontiCell’s technology remains investigational. Initiation of the planned U.S. study is subject to completion of testing and applicable regulatory and ethics approvals. Statements concerning development plans, treatment benefits, and future milestones reflect current expectations; actual results and timing may differ. 
+ About DH Unplugged DH Unplugged is a weekly investing and markets podcast hosted by financial advisor Andrew Horowitz and tech commentator John C. Dvorak. The show blends Fed policy, earnings, commodities, consumer trends and offbeat cultural observations with a skeptical, conversational tone that cuts through Wall Street spin. Available at dhunplugged.com, via RSS, Apple Podcasts, Spotify and Amazon Music/Podcasts, DH Unplugged serves self-directed investors who want context, not cheerleading. Episode 821 is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610153061/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
+[Original/Source Press Release](https://newsworthy.ai/news/202610153057/judy-shelton-gold-standard-chatter-and-cracks-in-credit-inside-dh-unplugged-821)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/orthodonticell-secures-funding-for-phase-ii-pivotal-study-of-bioelectric-tooth-movement-tech/7ae2c5075f3093cedfa13cdb1a8e0e1a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dh-unplugged-821-gold-standard-bank-earnings-kroger-layoffs/7bd0b875782bc41dbf273fd1aadd4750) 
 
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/orthodonticell-secures-capital-to-complete-testing-supporting-planned-us-phase-ii-pivotal-study)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/15/waitkuVB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/15/noteViIX.webp)
