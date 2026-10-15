@@ -1,35 +1,45 @@
-# SS Innovations International (SSII) Submits FDA Response for SSi Mantra Surgical Robotic System
+# MindMaze Therapeutics Reports New Home-Based Rehabilitation Results Ahead of MindMotion Lite Launch
 
-LOS ANGELES, CA - October 14, 2026 (NEWMEDIAWIRE) - SS Innovations International (NASDAQ: SSII), a developer of surgical robotic technologies, announced that it submitted its response to a request for additional information from the U.S. Food and Drug Administration (FDA) on Oct. 5, 2026, regarding its 510(k) submission for the SSi Mantra surgical robotic system. The response includes final data from an expanded human clinical and human factors validation study, as well as a bridging study completed in August 2026 at Hospital Internacional de Colombia, a member of the Mayo Clinic Care Network. The submission covers the initial indication of cholecystectomy, or gallbladder removal. The company anticipates that the FDA will complete its review of the response and 510(k) submission in the first quarter of 2027, advancing its efforts to introduce the SSi Mantra system to the U.S. market.
+Multi-site Program Demonstrates Threefold Increase in Rehabilitation Training Dose, With 84% Delivered Independently and Significant Improvements Across Functional Measures
 
- ![](http://newmediawire.s3.amazonaws.com/6acfb674da846f543cccc590_1)
+ GENEVA, SWITZERLAND - October 14, 2026 (NEWMEDIAWIRE) - MindMaze Therapeutics (SIX: MMTX), a global leader in scalable precision neurotherapeutics, today announced new real-world evidence from a multi-site program conducted with Vibra Healthcare, presented yesterday at the American Congress of Rehabilitation Medicine (ACRM) in Washington, DC.
 
- To view the full press release, visit https://ibn.fm/A6dJ8
+ The program demonstrated that home-based rehabilitation using MindMotion increased total motor-training dose by a median factor of three compared with usual outpatient therapy alone. 84% of active training was completed independently, without direct therapist supervision. Participants also showed statistically significant improvements in functional independence, balance, mobility and cognition, alongside high patient satisfaction.
 
- About SS Innovations
+ Building on previously reported inpatient results with Vibra Healthcare, the findings further support MindMaze Therapeutics' strategy to extend high-dose, high-intensity neurorehabilitation into patients' homes. This is particularly relevant to the Company's upcoming launch of MindMotion Lite, expected by year-end 2026. Recently announced, the tablet-based solution is designed to deliver the full range of MindMotion GO neurotherapeutic activities with substantially reduced hardware requirements, simplifying home deployment and supporting broader adoption by healthcare providers.
 
- SS Innovations International, Inc. develops innovative surgical robotic technologies with a vision to make the benefits of robotic surgery affordable and accessible to a larger segment of the global population. The Company’s product range includes its proprietary “SSi Mantra” surgical robotic system and its comprehensive suite of “SSi Mudra” surgical instruments, which support a variety of surgical robotic procedures including cardiac surgery. Headquartered in India, SS Innovations is a U.S. company focused on expanding the global presence of its technologically advanced, user-friendly, and cost-effective surgical robotic solutions. Visit the Company’s website at ssinnovations.com or LinkedIn for more information and updates.
+ “Earlier this year, we showed that MindMaze's high-dose, high-intensity therapy, integrated into inpatient rehabilitation, delivers superior functional outcomes in a resource-efficient way,” said Zach Henderson, CEO of MindMaze Therapeutics. “Now, we are demonstrating that this value can extend into the home to address a well-recognized gap in care once patients leave the clinic, in line with the 2026 AHA/ASA Guideline for Adult Stroke Rehabilitation and Recovery. These results, combined with our upcoming MindMotion Lite tablet-based solution, will help make high-quality neurotherapeutics more accessible. Together, these milestones bring us closer to our mission of making neurotherapeutics available at scale.”
 
- About the SSi Mantra
+ Study Design and ResultsThe retrospective, multi-site quality improvement program evaluated 177 rehabilitation episodes involving 172 adults with a range of neurological conditions, primarily stroke, across four Vibra Healthcare outpatient sites, without a control group. Participants followed an eight-week home-training program using MindMotion GO, with an optional four-week extension and periodic therapist supervision.
 
- The SSi Mantra surgical robotic system is a modular, multi-arm system with advanced technology features, including: 3 to 5 modular robotic arms, an open-faced ergonomic surgeon command center, a large 3D 4K monitor, a touch panel monitor for all patient related information display, a virtual real-time image of the robotic patient side arm carts, and the ability for superimposition of 3D models of diagnostic imaging. The optional SSi MantrAsana tele-surgeon console is a portable, compact alternative to the SSi Mantra’s standard surgeon command center that is intended to provide equivalent control functionality while enabling enhanced portability, ergonomic flexibility, and telesurgery capability. The SSi Mantra utilizes over 40 different types of robotic endo-surgical instruments to support different specialties, including cardiac surgery, and 5mm instruments for the pediatric population and ENT surgeries. A vision cart is designed to provide the table-side team with the same magnified 3D 4K view as the surgeon to provide better safety and efficiency. The SSi Mantra has been clinically validated in India in more than 190 different types of surgical procedures.
+ Key findings included:
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ * Training dose: Patients completed an average of 174 minutes of active training per week, with 84.4% delivered asynchronously. The additional home training increased total motor-training dose by a median factor of 3.0 compared with usual outpatient therapy alone, based on published assumptions for active practice during usual care.
+* Feasibility and engagement: 92.7% successfully completed home setup, while 80.2% achieved the predefined minimum training exposure. Among surveyed participants, 83.8% of satisfaction ratings were positive.
+* Functional outcomes: Statistically significant pre–post improvements were observed in independence (Barthel Index: +10.4 points), balance (Berg Balance Scale: +10.5 points), cognition (SLUMS: +3.4 points) and mobility (Timed Up and Go: −8.8 seconds) among participants with available paired assessments.
 
- The latest news and updates relating to SSII are available in the company’s newsroom at https://ibn.fm/SSII
+ The full poster, High-Dose, Home-Based Neurorehabilitation Using Gamified Technology: A Multi-Site Quality Improvement Program, is available at mindmazetherapeutics.com/mindmaze-platform/clinical-evidence.
 
- Forward Looking Statements
+ About MindMaze TherapeuticsMindMaze Therapeutics (SIX: MMTX) is a global leader in scalable, precision neurotherapeutics, dedicated to redefining the recovery trajectory for patients around the world. By integrating advanced software, proprietary sensors, and AI-driven data analytics, MindMaze Therapeutics provides a seamless continuum of care from the acute hospital phase to outpatient treatment to home-based therapy. The company's FDA-listed and CE-marked products are designed to address the systemic shortage of specialized clinicians, offering scalable, reimbursable solutions for stroke, Parkinson's disease, and other neurological disorders. With an extensive library of rigorous clinical validation, MindMaze Therapeutics is operationalizing the future of neurorestorative medicine. For more information, visit www.mindmazetherapeutics.com.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ Media & Investor ContactsJeremy Meinen, Chief Financial Officerir@mindmazetherapeutics.com
+
+ DISCLAIMERThis press release contains forward-looking statements, which may be identified by words such as "believe," "assume," "expect," "intend," "may," "could," "will," or similar expressions. These statements are based on current plans and assumptions and are subject to risks and uncertainties that could cause actual results, financial condition, performance, or achievements to differ materially from those expressed or implied. This communication is provided as of the date hereof, and MindMaze Therapeutics undertakes no obligation to update any forward-looking statements contained herein as a result of new information, future events or otherwise.
+
+ Additional features:File: [Press release_MindMaze_Home-Based Rehabilitation Results](https://nwr.eqs-cockpit.com/fncls2.ssx?fn=redirect&url=8fc128d51dce1eb2fb2afb2daedf390d&application_id=2415188&site_id=newmediawire~~~ce31e09e-58c0-4982-8e07-f69a10de079e&application_name=news)
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ss-innovations-international-ssii-submits-fda-response-for-ssi-mantra-surgical-robotic-system-7090618)
+[Original/Source Press Release](https://www.newmediawire.com/news/mindmaze-therapeutics-reports-new-home-based-rehabilitation-results-ahead-of-mindmotion-lite-launch-7090625)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ss-innovations-submits-fda-response-for-ssi-mantra-surgical-robot/f5cd85985ba329ffa129ecaf23332f92) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mindmaze-home-rehab-triples-training-dose-84-self-guided/c6dff228927548ebde3deedb08c8ef9f) 
 
  
 
@@ -37,4 +47,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/14/neon30rS.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/14/sageX_Eb.webp)
