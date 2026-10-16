@@ -1,61 +1,35 @@
-# The Prediction Markets Boom: Why Sportradar Is Confident It Doesn't Need To Pick A Winner
+# Mobilicom (MOB) Is 'One to Watch'
 
-By Meg Flippin, Benzinga
+* Mobilicom’s platform-agnostic technologies were selected by more than 50 customers, providing exposure to multiple manufacturers across defense and commercial drones, robotics, and autonomous systems.
+* Production deliveries tied to $2.2 million in OPF-L orders are proceeding on a monthly cadence, while the company’s nine Tier-1 platform opportunities span development, initial production, and production ramp-up.
+* Recent customer selections combine OS3 and ICE software with communications hardware and ground control stations, demonstrating Mobilicom’s ability to increase its technology content within individual platforms.
+* Mobilicom’s NDAA compliance, Blue UAS Framework Select status, FCC Trusted Drone inclusion, AUVSI Trusted Cyber testing, and DD1494 approval support its participation in U.S. and allied defense programs.
+* Mobilicom reported $1.7 million in revenue, up 19% year over year, and a 52% gross margin for the first half of 2026, alongside $15.2 million in cash and equivalents and no debt as of June 30, 2026.
 
- DETROIT, MICHIGAN - October 16, 2026 (NEWMEDIAWIRE) - Think the Knicks can win it all again in 2027? Or that the Cowboys will finally make a Super Bowl run? On prediction markets like Kalshi and Polymarket, you can trade on that outcome, and sports have quickly become the main event.
+ LOS ANGELES, CA - October 16, 2026 (NEWMEDIAWIRE) - Mobilicom (NASDAQ: MOB) is a provider of robust end-to-end hardware and software solutions for defense and commercial drones, robotics, and autonomous systems. The company serves original equipment manufacturers (“OEMs”) seeking to keep unmanned platforms connected, protected, and operational during demanding missions, including in environments exposed to interference and cyber threats.
 
- ![](http://newmediawire.s3.amazonaws.com/6ad113feda846f5439ccc30e_1)
+ ![](http://newmediawire.s3.amazonaws.com/6ad269a0da846f2f096ff385_1)
 
- Sports constituted ~82% of Kalshi's U.S. prediction volume in the last twelve months, according to an August report from industry research firm Eilers & Krejcik. The category is also growing fast. The report estimates that total monthly U.S. prediction market contract volume reached 49.0bn contracts in July 2026, representing growth of approximately 49x versus 0.9bn in August 2025.
+ Its business combines proprietary hardware and software with engineering expertise, generating revenue through product sales, software licensing, and professional support services. Mobilicom works with manufacturers to integrate its technologies into…
 
- Prediction markets are catching up to traditional sportsbooks, too. Per Eilers & Krejcik, U.S. sports prediction market handle-analog accounted for 30% of combined prediction market and online sports betting handle in June 2026, up from 1-2% just one year ago. Handle-analog is the prediction-market equivalent of the total amount wagered.
+ Read More
 
- What Are Prediction Markets, And Why Now?
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- Prediction markets let people buy and sell contracts tied to real-world outcomes. Kalshi and Polymarket are regulated by the CFTC, the federal agency that oversees futures trading, rather than by state gaming regulators. That gives them reach into states where regulated sports betting remains unavailable.
+ The latest news and updates relating to MOB are available in the company’s newsroom at https://ibn.fm/MOB
 
- In other words, prediction markets aren't just taking share from sportsbooks. They're bringing in new states and new customers. Even major sportsbook operators, including FanDuel and DraftKings, are building their own prediction market products and treating the category as an expansion lane.
+ Forward Looking Statements
 
- The money is following. U.S. prediction market app downloads reached a peak of more than 6 million in June 2026, led by Kalshi and Polymarket, according to Eilers & Krejcik. The firm also points to exchange fundraising targets implying valuations of up to $40 billion.
-
- Where Sportradar Fits
-
- Every one of those contracts has to settle against something: the official result of the game. That's where Sportradar (NASDAQ: SRAD) comes in.
-
- If you've watched live odds shift on a sportsbook app mid-game, that's the kind of real-time data Sportradar provides. The company has spent decades building the data, live odds, fan engagement, customer acquisition capabilities and integrity tools behind sports betting and media. Prediction markets need the same toolkit.
-
- "We see prediction markets as a natural extension of our core business and a significant opportunity where Sportradar is uniquely positioned to lead, given our premium content, global scale and unmatched product portfolio," said Carsten Koerl, Founder and CEO, Sportradar. "Prediction markets expand the U.S. total addressable market (TAM) by opening up new states, attracting new players, and increasing engagement with sports, all of which should drive higher revenue over time."
-
- Why It Matters
-
- Three things stand out:
-
- * Official data is the must-have. Every prediction market contract settles on the official result, and participants need that data in real time. Sportradar says decades of powering sports betting through official league partnerships give Sportradar some of the broadest and deepest sports content in the industry. Prediction markets need the same solutions.
-* The heavy lifting is already done. Sportradar reports its infrastructure, technology, sports rights and industry relationships are already in place for sports betting. Serving prediction markets means applying what it has already built to new customers, so it can scale into the opportunity efficiently.
-* Its market grows as the ecosystem does. Sportradar can sell beyond the exchanges to the market makers and brokers now entering the space. Those players need fast, reliable data to keep trading liquid, price contracts efficiently, and settle trades. As more of them arrive, Sportradar's opportunity grows with them. It's a classic "picks and shovels" setup.
-
- Importantly, Sportradar only works with authorized, registered, licensed operators and complies with all applicable regulations in every market where it operates.
-
- The Bottom Line
-
- Prediction markets show how Sportradar can adapt to where sports fans are heading and extend its technology beyond traditional sports betting. As the prediction markets boom plays out, Sportradar's model doesn't depend on which platform comes out on top.
-
- To learn more about how Sportradar powers prediction markets, click here.
-
- Featured image from Shutterstock.
-
- This content was originally published on Benzinga. Read further disclosures here.
-
- This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-prediction-markets-boom-why-sportradar-is-confident-it-doesn-t-need-to-pick-a-winner-7090692)
+[Original/Source Press Release](https://www.newmediawire.com/news/mobilicom-mob-is-one-to-watch-7090700)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sportradar-powers-prediction-markets-boom-with-official-data/bd8c3346675c6892a71a357d8d5e58fd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mobilicom-mob-gains-traction-with-50-customers-in-defense-drones/3c26d1fa3e70156abbc9d9f26b20a12b) 
 
  
 
@@ -63,4 +37,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/16/roamL6cO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/16/palecZFe.webp)
