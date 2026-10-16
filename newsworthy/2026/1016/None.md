@@ -1,50 +1,29 @@
-# AgeReverse RESURGE Now Available to U.S. Consumers on Amazon
+# Irving-Based Total Office Solutions Gears Up for 2026 Toys for Tots Campaign
 
+Total Office Solutions, LLP, a strategic turnkey partner in navigating multifaceted logistics and corporate relocation services, is returning as a sponsor for the U.S. Marine Corps Reserve’s 2026 Arlington-Dallas Toys for Tots campaign. This marks the third consecutive year the firm has supported this worthy cause through transportation, logistics, material support, and more than 25,000 square feet of dedicated warehouse space to collect, store, and distribute donated toys.
 
-AgeReverse, a Canadian longevity company focused on healthy aging and cellular vitality, today announced that its flagship RESURGE formulation is now available to U.S. consumers on Amazon, marking another significant step in the company’s expansion into the American market.
+ In addition to Total Office Solutions, AT&T, the Apartment Association of Greater Dallas, KDFW FOX 4 News, and the Jordan Kahn Music Company will also be lending their support as returning sponsors.
 
- The Amazon launch follows a series of U.S. expansion initiatives for AgeReverse, including the company’s recent participation in the ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida. With RESURGE now available through one of the country’s largest online marketplaces, AgeReverse is expanding consumer access while continuing to introduce its broader science-first approach to healthy aging.
+ “On behalf of our entire team of transportation and logistics specialists, we’re proud to support the Arlington-Dallas Toys for Tots program for the third consecutive year,” stated Megan Monette-McDaniel, vice-president of global accounts at Move Solutions, Ltd., an entity of Total Office Solutions, LLP. “With families in our communities struggling with increased costs and tighter household budgets, it’s more important than ever to ensure every child in North Texas has toys to unwrap this holiday season.”
 
- “Making RESURGE available on Amazon is an important milestone for AgeReverse because it gives consumers across the United States convenient access to our first product in the market,” said Kubi Turkmen, Founder and CEO of AgeReverse. “We are building AgeReverse around a comprehensive view of healthy aging, and RESURGE represents the internal wellness component of that larger vision.”
+ The 2026 Arlington-Dallas Toys for Tots Campaign officially kicked things off on Oct. 15 at the city’s Levitt Pavilion, where longtime coordinator Watson Robinson, Jr. provided information on several upcoming events with attendees. Donations of new, unwrapped toys, appropriate for children up to age 12, can be dropped off at Total Office Solutions showroom located at 2201 Chemsearch Blvd., Irving, TX, 75062, or any of the other 7,500 drop box locations that have been strategically placed throughout North Texas. For a complete list of participating businesses and drop-off locations for Toys for Tots donations, please follow this link.
 
- AgeReverse developed RESURGE around the scientific concept of the 12 Hallmarks of Aging, a framework used by researchers to describe interconnected biological processes associated with aging. Rather than focusing on a single ingredient or isolated wellness benefit, the company designed RESURGE as a multi-ingredient formulation intended to support multiple aspects of healthy aging and everyday wellness.
+ In addition to the campaign kickoff in October, Total Office Solutions will be participating in the Arlington Veterans Day Parade, set to take place on Wednesday, Nov. 11 in the Arlington Entertainment District. Total Office Solutions’ office-moving division, Move Solutions, Ltd., plans to have two specially wrapped Toys for Tots-themed office moving trucks in the parade that will also double as collection points for unwrapped toy donations. The parade kicks off at 5:30 p.m. in the Arlington Entertainment District.
 
- The 90-capsule formulation combines ingredients including NMN, Resveratrol, Quercetin, Fisetin, CoQ10, Astragalus Extract, Hyaluronic Acid, Aronia Extract and Noni Berry into a simplified three-capsule daily regimen.
+ “On behalf of the 2026 Arlington-Dallas Toys for Tots Campaign, we’re very thankful for our sponsors who have pledged their support to help with our toy donation efforts this holiday season,” said longtime coordinator Watson Robinson, Jr. “Without their generous assistance, we couldn’t make these Christmas miracles happen. Throughout my 28 years of service in the U.S. Marines, I’ve learned that nothing is more rewarding than serving others, especially those who are less fortunate. With the support from individuals throughout North Texas, I am hopeful we will have enough gifts for all the families and children in need who live in our local communities.”
 
- Key features and benefits of RESURGE include: * Designed to support all 12 Hallmarks of Aging through a comprehensive longevity-focused formulation
-* Combines ingredients including NMN, Resveratrol, Quercetin, Fisetin, CoQ10, Astragalus Extract, Hyaluronic Acid, Aronia Extract, and Noni Berry
-* Provides antioxidant support to help protect cells from oxidative stress and free radical damage
-* Supports nutrient metabolism and overall cellular health
-* Helps support cardiovascular health and immune system function
-* Supports collagen formation, connective tissue development, and skin quality
-* Helps maintain healthy joints, cartilage, bones, gums, and connective tissue
-* Includes herbal ingredients traditionally used as capillary and blood vessel protectants
-* Consolidates what the company describes as 15+ supplement protocols into a simplified 3-capsule daily routine
-* Manufactured in GMP-certified facilities in Ontario, Canada using vegan capsules
-* Registered as a Natural Health Product with Health Canada
+ The mission of the U.S. Marine Corps Reserve Toys for Tots Program is to collect new, unwrapped toys from October to December, and distribute donated toys as Christmas gifts to less fortunate children in communities nationwide. For more information on the U.S. Marine Corps Reserve 2026 Arlington-Dallas Toys for Tots campaign, please visit: https://arlington-tx.toysfortots.org/local-coordinator-sites/lco-sites/default.aspx.
 
- The Amazon availability also advances a broader AgeReverse strategy that extends beyond nutritional wellness. The company is developing a complete range of healthy aging products and technologies intended to address both internal wellness and external skin aging.
+ About Total Office Solutions Total Office Solutions is a strategic turnkey partner in navigating multifaceted logistics and corporate relocation services. Since 1987, the multi-generation, family-owned, woman-led business has earned a stellar brand and reputation within the commercial moving and office furniture resale industries. With approximately 300 employees, Total Office Solutions operates multiple business units, each with a single point of contact. The company’s integrated suite of services includes logistical planning, corporate office relocation, the selling, leasing, decommissioning and liquidation of office furnishings, office renovations, and IT installation and integration. The Total Office Solutions family of “Anywhere” brands includes Corporate Source, Office Furniture Plus, Move Solutions, TechTeam Solutions, Furniture Services Now, Office Boy and PaintandCarpet.com. For more information, please visit tospartners.com and follow us on Facebook, LinkedIn and YouTube.
 
- The planned AgeReverse product range includes a Bioage Test, daily skincare products developed around the 12 Hallmarks of Aging, professional mesotherapy products for the medical aesthetics and medspa markets, and non-invasive mesotherapy technology designed to deliver skincare formulations without needles.
-
- “Our vision has always extended beyond one product,” Turkmen added. “We believe healthy aging should be approached from both inside and outside the body. RESURGE gives U.S. consumers an introduction to that philosophy, and Amazon gives us an important channel for building awareness and accessibility as the AgeReverse product range grows.”
-
- AgeReverse is positioning its expanding portfolio around a science-first philosophy aimed at men and women interested in longevity, healthy aging, cellular wellness and maintaining vitality as they age. The company plans to serve both consumers and professionals in the medical aesthetics market as additional products are introduced.
-
- RESURGE is now available to U.S. consumers on Amazon. AgeReverse plans to continue expanding its product range and U.S. presence as additional products become available.
-
- Visit the AgeReverse Website and follow the company on Instagram and LinkedIn.
-
- About [AgeReverse](https://agereverse.ca/) AgeReverse is a Canada-based longevity wellness company focused on developing science-driven products designed to support healthy aging and cellular vitality. Founded by Kubi Turkmen, who has more than 30 years of experience in anti-aging innovation, the company’s approach combines longevity research, telomere science, and wellness innovation to create comprehensive healthy aging solutions. The company’s expanding AgeReverse platform includes longevity supplements and other wellness technologies designed to support multiple biological pathways associated with aging and long-term vitality. Products are manufactured in GMP-certified facilities in Ontario, Canada.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ About Toys for Tots Founded in 1947 by the U.S. Marine Corps Reserve, the Toys for Tots program aims to deliver a message of hope and joy to children in need. Through the donation of new, unwrapped toys, the program seeks to bring smiles to children and families facing challenging times, ensuring that every child can experience the magic of the holiday season. To learn more about Toys for Tots or to find other donation locations, visit www.toysfortots.org. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610163064/agereverse-resurge-now-available-to-us-consumers-on-amazon)
+[Original/Source Press Release](https://newsworthy.ai/news/202610163063/irving-based-total-office-solutions-gears-up-for-2026-toys-for-tots-campaign)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/agereverse-launches-resurge-longevity-supplement-on-amazon-us/d5f55433c0fe1e5c464b1e85bf72d625) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/total-office-solutions-backs-2026-toys-for-tots-campaign/86d5389b8470b2f51dd616fbaeb77d82) 
 
  
 
@@ -52,4 +31,4 @@ AgeReverse, a Canadian longevity company focused on healthy aging and cellular v
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/16/openQ8mE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/16/lushNXjF.webp)

@@ -1,55 +1,61 @@
-# Loyalist Announces Closing of Shares for Debt Transaction and Termination of Non-Brokered Private Placement
+# The Prediction Markets Boom: Why Sportradar Is Confident It Doesn't Need To Pick A Winner
 
-TORONTO, ON - October 16, 2026 (NEWMEDIAWIRE) - Loyalist Exploration Limited (CSE:PNGC) (“Loyalist” or the “Company”) announces that it has terminated its previously announced non-brokered private placement (the “Offering”) and that no further tranches or closings of the Offering will be completed. As previously announced in the Company’s press release dated August 31, 2026, the Company closed the first tranche (the “First Tranche”) of the Offering, consisting of the sale of 25,000,000 common shares in the capital of the Company (“Common Shares”) at a price of $0.04 per Common Share for gross proceeds to the Company of $1,000,000. The First Tranche represents the final closing of the Offering. The Offering was originally announced in the Company’s press release dated August 10, 2026.
+By Meg Flippin, Benzinga
 
- ![](https://newmediawire.s3.amazonaws.com/6ad1967fda846f543accc31b_1_1792123143062_0dzkd2)
+ DETROIT, MICHIGAN - October 16, 2026 (NEWMEDIAWIRE) - Think the Knicks can win it all again in 2027? Or that the Cowboys will finally make a Super Bowl run? On prediction markets like Kalshi and Polymarket, you can trade on that outcome, and sports have quickly become the main event.
 
- The Company is also pleased to announce the closing of a shares for debt transaction (the “Shares for Debt Transaction”), pursuant to which the Company settled an aggregate of $113,285.00 of outstanding indebtedness owing to certain creditors through the issuance of 2,832,125 Common Shares at a price of $0.04 per Common Share. All securities issued in connection with the Shares for Debt Transaction are subject to a hold period expiring four months and one day after the date of issuance.
+ ![](http://newmediawire.s3.amazonaws.com/6ad113feda846f5439ccc30e_1)
 
- Errol Farr, President and CEO of Loyalist, commented: “We are grateful for the support of our subscribers, which has enabled us to achieve our objective of funding the ongoing Tully PEA. With this capital in place, we continue to execute on our strategy of becoming the next gold producer in the Timmins camp by systematically advancing Tully toward a fully funded and permitted mining operation.”
+ Sports constituted ~82% of Kalshi's U.S. prediction volume in the last twelve months, according to an August report from industry research firm Eilers & Krejcik. The category is also growing fast. The report estimates that total monthly U.S. prediction market contract volume reached 49.0bn contracts in July 2026, representing growth of approximately 49x versus 0.9bn in August 2025.
 
- The Shares for Debt Transaction included the settlement of an aggregate of $45,000 of indebtedness owing to Errol Farr, the President, Chief Executive Officer and a director of the Company and to Leonard Mackenzie, the Vice President of Exploration of the Company, through the issuance of an aggregate of 1,125,000 Common Shares. Messrs. Farr and Mackenzie are each a “related party” of the Company within the meaning of Multilateral Instrument 61-101 – Protection of Minority Security Holders in Special Transactions (“MI 61-101”) and, accordingly, the Shares for Debt Transaction is a “related party transaction” for the purposes of MI 61-101. The Company is relying on the exemptions from the formal valuation and minority approval requirements contained in section 5.5(a) and section 5.7(1)(a) of MI 61‑101, respectively, on the basis that neither the fair market value of the subject matter of, nor the fair market value of the consideration for, the Shares for Debt Transaction, insofar as it involves Messrs. Farr and Mackenzie, exceeds 25% of the Company’s market capitalization.
+ Prediction markets are catching up to traditional sportsbooks, too. Per Eilers & Krejcik, U.S. sports prediction market handle-analog accounted for 30% of combined prediction market and online sports betting handle in June 2026, up from 1-2% just one year ago. Handle-analog is the prediction-market equivalent of the total amount wagered.
 
- The proceeds from the First Tranche will be used to complete ongoing NI 43-101 technical reports including a resource estimate and preliminary economic assessment on the Company’s Tully project and ongoing production permitting work at Tully, property payments and general working capital.
+ What Are Prediction Markets, And Why Now?
 
- In connection with the First Tranche, the Company paid finder’s fees of $37,200 in cash to Haywood Securities Inc. (“Haywood”) and issued 930,000 non-transferable broker warrants to Haywood (the “Broker Warrants”). Each Broker Warrant entitles Haywood to acquire one Common Share at an exercise price of $0.075 per Common Share until August 31, 2028.
+ Prediction markets let people buy and sell contracts tied to real-world outcomes. Kalshi and Polymarket are regulated by the CFTC, the federal agency that oversees futures trading, rather than by state gaming regulators. That gives them reach into states where regulated sports betting remains unavailable.
 
- All of the securities issued in connection with the First Tranche are subject to a hold period expiring four months and one day after the date of issuance.
+ In other words, prediction markets aren't just taking share from sportsbooks. They're bringing in new states and new customers. Even major sportsbook operators, including FanDuel and DraftKings, are building their own prediction market products and treating the category as an expansion lane.
 
- The securities offered have not been registered under the United States Securities Act of 1933, as amended, and may not be offered or sold in the United States or to, or for the account or benefit of, U.S. persons absent registration or an applicable exemption from registration requirements. This release does not constitute an offer for sale of securities in the United States.
+ The money is following. U.S. prediction market app downloads reached a peak of more than 6 million in June 2026, led by Kalshi and Polymarket, according to Eilers & Krejcik. The firm also points to exchange fundraising targets implying valuations of up to $40 billion.
 
- Neither the Canadian Securities Exchange nor its Market Regulator (as that term is defined in the policies of the Canadian Securities Exchange) have reviewed or accept responsibility for the adequacy or accuracy of this release.
+ Where Sportradar Fits
 
- About Loyalist Exploration Limited
+ Every one of those contracts has to settle against something: the official result of the game. That's where Sportradar (NASDAQ: SRAD) comes in.
 
- Loyalist is a Canadian mineral exploration and development company focused on creating long-term shareholder value through the advancement of high-quality mineral projects in Timmins, Ontario. The Company’s flagship 100%-owned Tully Gold Project, located in the prolific Timmins Gold Camp of northeastern Ontario, is a growing underground gold project with significant exploration upside and excellent development potential. Supported by a high-confidence Indicated and Inferred Mineral Resource Estimate, favourable infrastructure, and a modern geological model, Tully provides a strong platform for continued development and expansion.
+ If you've watched live odds shift on a sportsbook app mid-game, that's the kind of real-time data Sportradar provides. The company has spent decades building the data, live odds, fan engagement, customer acquisition capabilities and integrity tools behind sports betting and media. Prediction markets need the same toolkit.
 
- Loyalist's strategy is to systematically advance the Tully Gold Project to production while growing the deposit and continuing to evaluate opportunities to expand its portfolio of high-quality mineral assets.
+ "We see prediction markets as a natural extension of our core business and a significant opportunity where Sportradar is uniquely positioned to lead, given our premium content, global scale and unmatched product portfolio," said Carsten Koerl, Founder and CEO, Sportradar. "Prediction markets expand the U.S. total addressable market (TAM) by opening up new states, attracting new players, and increasing engagement with sports, all of which should drive higher revenue over time."
 
- The Company also looks forward to advancing exploration activities on its three other Timmins based projects – DeSantis, Gold Rush and Loveland.
+ Why It Matters
 
- The Company is committed to maintaining the highest standards of technical excellence and responsible development throughout all stages of project advancement.
+ Three things stand out:
 
- For further information please visit the Company's website at www.loyalistexploration.com or contact:
+ * Official data is the must-have. Every prediction market contract settles on the official result, and participants need that data in real time. Sportradar says decades of powering sports betting through official league partnerships give Sportradar some of the broadest and deepest sports content in the industry. Prediction markets need the same solutions.
+* The heavy lifting is already done. Sportradar reports its infrastructure, technology, sports rights and industry relationships are already in place for sports betting. Serving prediction markets means applying what it has already built to new customers, so it can scale into the opportunity efficiently.
+* Its market grows as the ecosystem does. Sportradar can sell beyond the exchanges to the market makers and brokers now entering the space. Those players need fast, reliable data to keep trading liquid, price contracts efficiently, and settle trades. As more of them arrive, Sportradar's opportunity grows with them. It's a classic "picks and shovels" setup.
 
- Loyalist Exploration LimitedErrol Farr, President and CEOEmail: efarr@loyalistexploration.comTel: 647-296-1270
+ Importantly, Sportradar only works with authorized, registered, licensed operators and complies with all applicable regulations in every market where it operates.
 
- This news release contains “forward-looking statements” or “forward-looking information” (collectively, “forward-looking statements”) within the meaning of applicable securities legislation. All statements, other than statements of historical fact, are forward-looking statements and are based on expectations, estimates and projections as of the date of this news release. Any statements that express or involve discussions with respect to predictions, expectations, beliefs, plans, projections, objectives, assumptions or future events or performance (often, but not always, identified by words or phrases such as “expects”, “is expected”, “anticipates”, “believes”, “plans”, “projects”, “estimates”, “assumes”, “intends”, “strategy”, “goals”, “objectives”, “forecasts”, “budget”, “schedule”, “potential”, “possible” or variations thereof or stating that certain actions, events, conditions or results “may”, “could”, “would”, “should”, “might” or “will” be taken, occur or be achieved, or the negative of any of these terms and similar expressions) are not statements of historical fact and may be forward-looking statements. Forward-looking statements include, but are not limited to, statements regarding: the timing and content of upcoming work programs; geological interpretations; timing of the Company’s exploration programs; and estimates of market conditions.
+ The Bottom Line
 
- Forward-looking statements are subject to a variety of known and unknown risks, uncertainties and other factors that could cause actual events or results to differ from those expressed or implied by forward-looking statements contained herein. There can be no assurance that such statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Certain important factors that could cause actual results, performance or achievements to differ materially from those in the forward-looking statements include, among others: general economic conditions in Canada and globally; industry conditions; governmental regulation of the mining industry, including environmental regulation; geological, technical and drilling problems; unanticipated operating events; competition for and/or inability to retain drilling rigs and other services; the availability of capital on acceptable terms; the need to obtain required approvals from regulatory authorities; stock market volatility; volatility in market prices for commodities; liabilities inherent in the mining industry; changes in tax laws and incentive programs relating to the mining industry. This list is not exhaustive of the factors that may affect the Company’s forward-looking statements. There may be other factors that could cause actual events or results to differ from those expressed or implied by forward-looking statements contained herein.
+ Prediction markets show how Sportradar can adapt to where sports fans are heading and extend its technology beyond traditional sports betting. As the prediction markets boom plays out, Sportradar's model doesn't depend on which platform comes out on top.
 
- Forward-looking statements are necessarily based upon a number of factors and assumptions that, if untrue, could cause actual events or results to differ from those expressed or implied by forward-looking statements contained herein. Forward-looking statements are based upon a number of estimates and assumptions that, while considered reasonable by the Company at this time, are inherently subject to significant business, economic and competitive uncertainties and contingencies that may cause the Company’s actual financial results, performance, or achievements to be materially different from those expressed or implied herein. Some of the material factors or assumptions used to develop forward-looking statements include, without limitation: the future price of gold; anticipated costs and the Company’s ability to raise additional capital if and when necessary; volatility in the market price of the Company’s securities; future sales of the Company’s securities; the Company’s ability to carry on exploration and development activities; the success of exploration, development and operations activities; the timing and results of drilling programs; the discovery of mineral resources on the Company’s mineral properties; the costs of operating and exploration expenditures; the Company’s ability to identify, complete and successfully integrate acquisitions; the Company’s ability to operate in a safe, efficient and effective manner; health, safety and environmental risks; the presence of laws and regulations that may impose restrictions on mining; employee relations; relationships with and claims by local communities and indigenous populations; availability of increasing costs associated with mining inputs and labour; the speculative nature of mineral exploration and development (including the risks of obtaining necessary licenses, permits and approvals from government authorities); uncertainties related to title to mineral properties; assessments by taxation authorities; fluctuations in general macroeconomic conditions.
+ To learn more about how Sportradar powers prediction markets, click here.
 
- The forward-looking statements contained in this news release are expressly qualified by this cautionary statement. Any forward-looking statements and the assumptions made with respect thereto are made as of the date of this news release and, accordingly, are subject to change after such date. The Company disclaims any obligation to update any forward-looking statements, whether as a result of new information, future events or otherwise, except as may be required by applicable securities laws. There can be no assurance that forward-looking statements will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers should not place undue reliance on forward-looking statements.
+ Featured image from Shutterstock.
+
+ This content was originally published on Benzinga. Read further disclosures here.
+
+ This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/loyalist-announces-closing-of-shares-for-debt-transaction-and-termination-of-non-brokered-private-placement-7090685)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-prediction-markets-boom-why-sportradar-is-confident-it-doesn-t-need-to-pick-a-winner-7090692)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/loyalist-exploration-closes-1m-tranche-settles-debt-advances-tully-gold-project/370852ffeca7b824d0b898d27bf1513e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sportradar-powers-prediction-markets-boom-with-official-data/bd8c3346675c6892a71a357d8d5e58fd) 
 
  
 
@@ -57,4 +63,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/16/apexGzQQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/16/roamL6cO.webp)
