@@ -1,89 +1,34 @@
-# Free Educational Webinar Makes Estate Planning Easier to Understand
+# Roto-Rooter Services Company Expands California Service Coverage to Reach 11M+ More Residents
 
-DALLAS - October 15, 2026 (NEWMEDIAWIRE) - An estimated 56% of Americans do not have an up-to-date estate plan, leaving their financial wellness at risk. Estate planning helps people protect loved ones, clarify their wishes and support the causes that matter to them most. During National Estate Planning Awareness Week, October 19-25, the American Heart Association, devoted to changing the future to a world of healthier lives for all, will host a free webinar designed to make the planning process easier to understand and begin.
+Expansion is Expected to Extend Access to Plumbing, Drain, Sewer, and Water Cleanup Services in Additional California Markets
 
- ![](https://iprsoftwaremedia.com/67/files/20187/AHA_LOGO-RGB_rk_LG.jpg)
+ CINCINNATI, OH - October 15, 2026 (NEWMEDIAWIRE) - Roto-Rooter Services Company, a wholly owned subsidiary of Chemed Corporation (NYSE: CHE), announced it has acquired the largest independent Roto-Rooter franchise.
 
- “Your Legacy, Your Way: Estate Planning for Peace of Mind” will take place Tuesday, October 20, at 1 p.m. Eastern/noon Central/10 a.m. Pacific. The session is designed for people creating an estate plan for the first time as well as those reviewing an existing plan.
+ The acquired franchise serves a population of approximately 11 million people across California, extending Roto-Rooter service coverage in Northern San Diego, Palm Springs, Ventura, Santa Barbara, Bakersfield, Lancaster, Fresno, Monterey, Stockton, Modesto, Manteca, and Sacramento.
 
- “Estate planning is about more than financial documents. It is an opportunity to make thoughtful decisions for the people and causes that matter to you the most,” said Lee Shapiro, volunteer chairperson of the American Heart Association and managing partner and co-founder at 7wireVentures, an investment firm headquartered in Chicago. “This webinar will offer clear information and practical steps to allow you to begin or revisit your estate plans with greater confidence.”
+ Roto-Rooter also acquired a smaller franchise serving Marin County, a territory with a population of approximately 254,000 people. Roto-Rooter Services Company already operates service territories encompassing the entire Los Angeles metro area, the San Francisco Bay region, San Jose, Santa Cruz, and part of San Diego County.
 
- Featured speakers include attorney Megan Kelly, with Megan M. Kelly Law, City, state, and Trent Grzegorczyk, wealth manager with Corso Wealth, City, State. They will explain estate planning fundamentals, including essential documents, key decisions and practical next steps to help participants move forward with greater confidence.
+ The acquisition brings Roto-Rooter’s company-owned coverage in California close to completion and extends the reach of its company-owned operations to approximately 75% of the U.S. population.
 
- The webinar will address:
+ The acquisitions give more homeowners and businesses in these territories access to an ever-expanding group of services offered by Roto-Rooter Services Company, including residential and commercial water cleanup, advanced trenchless pipe repair methods, as well as Roto-Rooter’s familiar 24-hour emergency plumbing and drain cleaning services. The California acquisitions also help Roto-Rooter Services Company provide a more consistent suite of services to its national commercial customers that have locations from coast to coast.
 
- * Essential documents commonly included in an estate plan
-* Key decisions involved in planning for the future
-* Considerations for people reviewing an existing plan
-* Practical next steps that can help make estate planning feel more manageable
+ “California customers rely on fast, local service when plumbing and water cleanup emergencies happen. This expansion strengthens Roto-Rooter’s ability to serve more homeowners and businesses with the responsiveness, experience, and reliability they expect from our brand,” said Paul Abrams, Director of Public Relations at Roto-Rooter Services Company.“Roto-Rooter’s strength has always been combining experienced local service teams with the resources and quality standards of a national brand. As we grow in California, the goal is to make it easier for customers to get trusted help when and where they need it,” said Abrams. “Expanding our presence helps us better support our customers across a wider mix of residential, commercial, coastal, inland, and fast-growing communities.”
 
- Everyone who registers will receive a collection of estate planning guides for instant download. Advance registration is required at heart.org/plan.
+ Customers in the acquired California service areas can contact their local Roto-Rooter for information about available plumbing, drain, sewer, and water cleanup services.
 
- National Estate Planning Awareness Week is an opportunity to help people understand the importance of creating or updating an estate plan to protect loved ones and leave a lasting legacy. Additional resources, including information about wills and beneficiary designations, are available at heart.org/NEPAW.
-
- Planned giving is a powerful way to create lasting impact and support the causes that matter most. Donations contributed from planned gifts allow the Heart Association to drive breakthroughs and implement proven solutions in science, policy and care for healthier people and communities. American Heart Association donors who choose to give a legacy gift through charitable financial planning are recognized for their leadership as members of the Paul Dudley White Legacy Circle, a designation within the Cor Vitae Society, named in tribute to one of the Association’s visionary founders and a pioneer of preventive cardiology.
-
- Legacy gifts are vital to sustain the American Heart Association’s role as the nation’s leading non-governmental funder of cardiovascular research, with more than $6.3 billion invested in scientific discovery since 1949. This generosity is what fuels lifesaving research and education, helping people everywhere live longer, healthier lives for generations to come.
-
- Additional Resources:
-
- * Register for “Your Legacy, Your Way: Estate Planning for Peace of Mind”
-* National Estate Planning Awareness Week resources
-* American Heart Association charitable estate planning information
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Erin Montie: erin.montie@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org 
+ About Roto-Rooter Services CompanyRoto-Rooter Services Company, a wholly owned subsidiary of Chemed Corporation (NYSE: CHE), provides plumbing and drain cleaning services for residential and commercial customers. Headquartered in Cincinnati, Ohio, Roto-Rooter serves customers through its network of local service operations across the United States and Canada.Media ContactPaul AbramsDirector of Public Relationspaul.abrams@rrsc.com(513) 762-6434 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/free-educational-webinar-makes-estate-planning-easier-to-understand-7090649)
+[Original/Source Press Release](https://www.newmediawire.com/news/roto-rooter-services-company-expands-california-service-coverage-to-reach-11m+-more-residents-7090668)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-hosts-free-estate-planning-webinar/044a9c58970c9a2923ac3d6fbc9f7b56) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roto-rooter-acquires-major-california-franchise-expands-service-to-11m/48fcc91f664e49cfbf8f73ec392ac28f) 
 
-
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/american-heart-association-webinar-addresses-estate-planning-gap-as-56-of-americans-lack-up-to-date-plans)
-
-Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-hosts-free-estate-planning-webinar-during-national-estate-planning-awareness-week)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/american-heart-association-webinar-addresses-estate-planning-gap-during-national-estate-planning-awareness-week)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/american-heart-association-webinar-aims-to-close-estate-planning-gap)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-heart-association-webinar-to-simplify-estate-planning-during-national-estate-planning-awareness-week)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-american-heart-association-ofrece-un-seminario-web-para-simplificar-la-planificacion-patrimonial-durante-la-semana-nacional-de-concientizacion-sobre-la-planificacion-patrimonial)
-
-Pickup - [https://burstable.news](https://burstable.news/news/american-heart-association-to-host-free-estate-planning-webinar-during-national-estate-planning-awareness-week)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/american-heart-association-veranstaltet-wahrend-der-national-estate-planning-awareness-week-ein-kostenloses-webinar-zur-nachlassplanung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-american-heart-association-organizara-un-seminario-web-gratuito-sobre-planificacion-patrimonial-durante-la-semana-nacional-de-concientizacion-sobre-la-planificacion-patrimonial)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lamerican-heart-association-organisera-un-webinaire-gratuit-sur-la-planification-successorale-pendant-la-semaine-nationale-de-sensibilisation-a-la-planification-successorale)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/american-heart-association-promovera-webinar-gratuito-sobre-planejamento-patrimonial-durante-a-semana-nacional-de-conscientizacao-sobre-planejamento-patrimonial)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/american-heart-association-webinar-addresses-estate-planning-gap-during-awareness-week)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/american-heart-association-webinar-addresses-estate-planning-gap-during-national-estate-planning-awareness-week)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/american-heart-association-webinar-addresses-estate-planning-gap-as-56-of-americans-lack-up-to-date-plans)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/15/american-heart-association-webinar-aims-to-simplify-estate-planning-during-awareness-week/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/15/noteHSSO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/15/envyYwNs.webp)
