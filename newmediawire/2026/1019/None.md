@@ -1,52 +1,44 @@
-# Cotecna Group Acquires Energon Labs, Strengthening Global Pharmaceutical Testing Capabilities and Expanding Its Presence in India
+# Nano-X Imaging (NNOX) Subsidiary Signs Distribution Agreement to Commercialize HealthOST in Italy
 
-GENEVA, SWITZERLAND and HYDERABAD, INDIA - October 19, 2026 (NEWMEDIAWIRE) - Cotecna, a leading provider of Testing, Inspection and Certification (TIC) services, today announced the acquisition of Energon Labs, a cGMP-compliant, USFDA-inspected, ISO 9001:2015 and ISO 17025:2017 certified analytical testing laboratory based in Hyderabad, India.
+LOS ANGELES, CA - October 19, 2026 (NEWMEDIAWIRE) - Nanox (NASDAQ: NNOX) announced that its subsidiary, Nanox AI Ltd., has entered into a distribution agreement with Technologic s.r.l., an Italian company affiliated with Tecnologie Avanzate, to commercialize its AI-powered bone health solution, HealthOST, in Italy. The agreement is intended to expand Nanox AI commercial presence in the Italian market, leveraging Technologic experience and local market knowledge. HealthOST analyzes eligible routine CT scans to provide qualitative and quantitative assessments of the spine, helping clinicians identify patients who may benefit from further evaluation for musculoskeletal conditions such as osteoporosis.
 
- ![](http://newmediawire.s3.amazonaws.com/6ad61b39da846f777ceb0c03_1)
+ ![](http://newmediawire.s3.amazonaws.com/6ad665abda846f777beb0c08_1)
 
- The acquisition strengthens Cotecna's global Life Sciences platform and expands its pharmaceutical testing capabilities across the Pharmaceutical, Biopharmaceutical, Medical Device and Packaging sectors. Serving customers across India, the United States, Asia-Pacific, and the Middle East, Energon is recognized for its scientific excellence, regulatory expertise and commitment to quality.
+ To view the full press release, visit https://ibn.fm/y9Zro
 
- Strategically located in Hyderabad, one of the world's leading pharmaceutical and biotechnology hubs, Energon provides Cotecna with access to highly specialized scientific talent, advanced laboratory infrastructure and a well-established pharmaceutical ecosystem. India is also one of the world's fastest-growing pharmaceutical markets and a critical manufacturing hub for global healthcare supply chains.
+ About Nanox
 
- The acquisition enhances the Cotecna's ability to support both Indian and international customers with high-quality, regulatory-compliant testing services while delivering greater responsiveness, scalability and operational efficiency across key markets.
+ Nanox is focused on driving the world’s transition to preventive health care by delivering an integrated, end-to-end medical imaging and healthcare services platform.
 
- The addition of Energon further complements Cotecna's growing pharmaceutical testing network which includes Cotecna Life Sciences, Shiva Analyticals and Neotron Pharma. Together, this capabilities strengthen the Group's ability to support customers throughout the product lifecycle and address evolving global quality, compliance and regulatory requirements.
+ Nanox combines affordable imaging hardware, advanced AI-based solutions, cloud-based software, access to remote radiology, health IT solutions, and a marketplace to enable earlier detection, improved clinical efficiency, and broader access to care.
 
- Energon offers a comprehensive portfolio of analytical testing and quality assurance services, including analytical method development and validation, stability studies, impurity profiling, extractables and leachables, glass delamination studies, peptides and oligonucleotide characterisation, raw material and finished product testing, in-vitro binding studies, packaging compatibility studies, and regulatory support services. These capabilities will further strengthen Cotecna's position as a trusted partner to pharmaceutical manufacturers serving regulated markets worldwide.
+ Nanox’s vision is to expand the reach of medical imaging both within and beyond traditional hospital settings by providing a seamless solution from scan to interpretation and beyond. By leveraging proprietary digital X-ray technology, AI-driven analytics, and a clinically driven approach, Nanox aims to enhance the efficiency of routine imaging workflows, support early detection of disease, and improve patient outcomes.
 
- Sebastien Dannaud, Chief Executive Officer of Cotecna Group, commented: “We are pleased to welcome Energon Labs to the Cotecna Group. This acquisition represents another important step to support our ambition to become one of the largest providers of Life Sciences testing services in India, and strengthens our position in one of the world's most important pharmaceutical markets.”
+ The Nanox ecosystem includes Nanox.ARC, a cost-effective, 3D multi-source digital tomosynthesis imaging system designed for ease of use and scalability; Nanox.AI, a suite of AI-based algorithms that augment the interpretation of routine CT imaging to identify early signs often associated with chronic disease; Nanox.CLOUD, a cloud-based platform for secure data management, storage, and advanced imaging analytics; Nanox.MARKETPLACE and USARAD Holdings, which provide access to remote radiology and cardiology experts and comprehensive teleradiology services; and Nanox Health IT, which combines deep healthcare IT expertise with leading technology partners to deliver RIS, PACS, AI, dictation, and secure infrastructure solutions that streamline workflows and support safer, more efficient care delivery.
 
- Amit Chopra, CEO South Asia and Middle East, Cotecna Group, added: "I am delighted to welcome Manikanth Reddy and the talented team of Energon Labs to the Cotecna group. This acquisition aligns perfectly with our strategy of building a comprehensive pharmaceutical testing ecosystem across key growth markets. Energon's strong technical capabilities, experienced team and established customer relationships will enhance our ability to serve pharmaceutical, biopharmaceutical and medical device companies across India and globally. Together, we are creating a stronger platform to support the evolving needs of the pharmaceutical and healthcare sectors. "
+ By integrating imaging technology, AI, cloud infrastructure, clinical expertise, a marketplace, and health information technology, Nanox seeks to lower barriers to adoption, improve utilization, and advance preventive care worldwide.
 
- Manikanth Reddy, Founder, Energon, said: "Joining the Cotecna Group opens an exciting new chapter for Energon Labs. Over the years, we have focused on building a laboratory recognized for quality, scientific expertise and reliability. Becoming part of a global organization like Cotecna provides new opportunities to expand our capabilities, strengthen our service offerings and deliver even greater value to our customers. Our team remains committed to maintaining the highest standards of analytical excellence while supporting the continued growth of the life sciences industry.”
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- About Energon Labs
+ The latest news and updates relating to NNOX are available in the company’s newsroom at https://ibn.fm/NNOX
 
- Energon Labs is a cGMP-compliant, USFDA-inspected, ISO 9001:2015 and ISO 17025:2017 certified analytical testing laboratory located in Hyderabad, India. The company provides comprehensive analytical testing, quality assurance and regulatory support services to pharmaceutical, biopharmaceutical, medical device and packaging industries, serving customers across India, the United States, Asia Pacific and the Middle East.
+ Forward Looking Statements
 
- About Cotecna
-
- Founded in Switzerland in 1974, Cotecna is a leading provider of Testing, Inspection and Certification services. With operations in more than 55 countries, Cotecna helps clients ensure quality, safety, compliance and sustainability across global supply chains. The Group serves customers across agriculture and food, pharmaceuticals, minerals and metals, consumer products, certification and ESG services through a worldwide network of experts, laboratories and technical specialists.
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/cotecna-group-acquires-energon-labs-strengthening-global-pharmaceutical-testing-capabilities-and-expanding-its-presence-in-india-7090729)
+[Original/Source Press Release](https://www.newmediawire.com/news/nano-x-imaging-nnox-subsidiary-signs-distribution-agreement-to-commercialize-healthost-in-italy-7090732)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cotecna-acquires-energon-labs-to-boost-pharma-testing-in-india/87509102250b5e76213372d69eb95840) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nanox-ai-signs-distribution-deal-to-bring-healthost-to-italy/d1f4c73ce67c64a892c0968af74a2584) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/cotecna-acquires-energon-labs-to-bolster-pharmaceutical-testing-in-india)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/cotecna-acquires-energon-labs-to-expand-pharmaceutical-testing-in-india)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/cotecna-acquires-energon-labs-to-expand-pharmaceutical-testing-in-india)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/19/hushDrPA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/19/mossQHWM.webp)
