@@ -1,101 +1,50 @@
-# Green Choice Proteins Announces Upcoming U.S. Launch on One Lavi
+# RChilli Brings AI-Powered Hiring Experience to Oracle AI World 2026
 
+RChilli plans to participate in Oracle AI World 2026, taking place October 25-28, 2026, at The Venetian Convention and Expo Center in Las Vegas. RChili will showcase how recruiting teams can use its solutions with Oracle Fusion Cloud Recruiting to automate recruiting processes, strengthen talent data, and improve the hiring experience.
 
-Green Choice Proteins, an Australian plant-based nutrition company, announced that its products are coming soon to OneLavi.com, marking the company's first planned U.S. consumer availability as it continues expanding its presence in the American market.
+ RChili’s Vision for AI-Powered Hiring RChilli’s work with Oracle Recruiting helps recruiting teams reduce repetitive work, improve talent data quality and consistency, and give recruiters additional context across candidate attraction, evaluation, interview preparation, and hiring decisions.
 
- The upcoming launch will introduce Green Choice Proteins' Australian-made plant protein powders to U.S. consumers through an online retail platform. The company views OneLavi as an important first step in a broader expansion strategy that also includes a planned Amazon launch and opportunities for additional retail distribution.
+ For enterprise HR leaders facing pressure to hire faster without compromising data quality, or appropriate recruiting processes and controls, the message is straightforward: AI can deliver greater value when it works with trusted talent data and supports clearly defined recruiting outcomes.
 
- "Making Green Choice Proteins available to American consumers is something we've been working toward, and OneLavi represents an exciting first step," said Puneet Chawla, Founder of Green Choice Proteins. "We want to introduce our approach to plant-based nutrition to a new audience, with products that combine quality ingredients, enjoyable flavors, and the convenience people look for in their everyday routines."
+ RChilli AI Agents for Oracle Recruiting At Oracle AI World 2026, RChilli will highlight practical recruiting use cases across its AI Agent portfolio, including the Profile Augmentation - Talent Data Refresh Agent, which supports more current and useful talent data, and can reduce profile maintenance effort by up to 90% and improve candidate rediscovery by up to 30%.
 
- Three Plant Protein Flavors Coming to OneLavi Green Choice Proteins plans to introduce three of its plant-based protein powders on OneLavi, each developed around the company's commitment to ingredient transparency, flavor, and functional daily nutrition.
+ Extending the Value Across Oracle Recruiting Along with RChilli AI Agents, attendees can explore how RChilli’s broader Oracle Recruiting portfolio can support connected recruiting workflows:
 
- Chocolate Flavored Protein Powder - Plant-Based Protein
+ * Enhanced Candidate Profile Import helps organizations streamline candidate profile creation, reduce manual data entry, and support more consistent candidate records.
+* Data Hygiene for Oracle Fusion Cloud HCM helps keep talent information complete, standardized, and current, supporting more reliable search, matching and reporting.
+* RChilli LOV Mapping maps client-specific values to Oracle dropdowns for Degrees, Languages, Licenses/Certifications, and Schools, helping reduce candidate corrections and support cleaner, more consistent data.
+* Redact and Design supports skills-focused candidate evaluation and structured recruiting practices while helping organizations reduce the risks associated with unconscious bias.
+* Recruiter Hub and Connectors helps recruiting teams reduce administrative work around candidate intake, support high-volume hiring and migration scenarios, and bring candidate information into Oracle more efficiently.
 
- * 35.3g plant protein per serving
-* Made with Australian-grown pea and faba
-* Features pure cocoa powder and coconut milk powder
-* Contains omega-3 from linseed
-* No artificial colours, flavours, or fillers
+ Together, these solutions are designed to complement Oracle Recruiting and support connected recruiting workflows.
 
- Vanilla Flavored Protein Powder - Plant Based Protein
+ Trusted Talent Data Matters More as AI Adoption Grows As enterprises expand the use of AI across recruiting, inconsistent or outdated candidate information can affect downstream recruiting processes and decisions. RChilli places data quality alongside automation so organizations can move faster while supporting greater consistency and control.
 
- * 34.9g plant protein per serving
-* Designed for smoothies, oats, baking, and everyday nutrition routines
-* Made using Australian-grown plant proteins
-* Includes omega-3 from linseed
-* Clean vanilla flavor profile without artificial additives
+ “Recruiting teams are moving beyond isolated AI capabilities. They need connected workflows that help reduce repetitive work while improving the quality of the information behind every decision,” said Vinay Johar, CEO of RChilli. “At Oracle AI World 2026, we look forward to showcasing how intelligent automation, high-quality talent data, and better hiring context can come together within the Oracle Recruiting experience.”
 
- Salted Caramel Flavored Protein Powder - Plant Based Protein
+ Meet RChilli at Oracle AI World 2026 Organizations do not need to wait for recruiting bottlenecks, poor data quality, or increasing manual workloads to become larger transformation challenges.
 
- * 34.9g plant protein per serving
-* Combines caramel sweetness with balanced salted notes
-* Made using Australian-grown pea and faba
-* Includes omega-3 from linseed
-* No artificial colours, flavours, or fillers
+ Bring RChilli one recruiting workflow that still feels manual. The team will show you where intelligent automation and better talent data can help streamline recruiting processes.
 
- All three products are manufactured in Victoria, Australia, and reflect the company's approach to creating plant-based nutrition products that can be incorporated into everyday lifestyles.
+ Booth: #6024 | October 25-28 The Venetian Convention and Expo Center, Las VegasCTA: Book a Meeting
 
- Building on U.S. Retail Expansion The OneLavi announcement follows Green Choice Proteins' participation in the September 2026 ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida, where the company introduced its Australian-made products and brand philosophy to U.S. retail buyers.
+ About RChilli RChilli provides recruitment intelligence solutions that help enterprises automate hiring workflows, improve talent data quality, promote more consistent hiring practices, and support better-informed recruitment decisions. Its solutions support enterprise HR ecosystems including Oracle HCM, SAP SuccessFactors, Salesforce, and recruitment technology platforms.
 
- The company's U.S. strategy combines direct consumer availability through e-commerce with ongoing efforts to develop relationships across additional retail channels.
+ RChilli helps organizations move from repetitive recruiting tasks toward AI-powered hiring experiences built on trusted data, responsible automation, and enterprise-ready security.
 
- Green Choice Proteins has also announced plans to bring its products to Amazon, providing another potential avenue for reaching consumers as its U.S. presence grows.
-
- "Our goal is to build Green Choice Proteins in the United States step by step," added Chawla. "OneLavi gives us an opportunity to begin reaching consumers directly, while our recent ECRM participation and plans for Amazon are part of a larger effort to introduce the brand across multiple retail channels."
-
- Australian-Made Nutrition for Everyday Lifestyles Green Choice Proteins develops plant-based nutrition products intended to fit into a wide range of daily routines, from breakfast smoothies and oatmeal to baking and other convenient meal options.
-
- Rather than focusing exclusively on traditional sports nutrition audiences, the company emphasizes the broader appeal of plant protein for consumers interested in clean-label ingredients, transparency, and practical everyday nutrition.
-
- The family-owned business also places importance on responsible sourcing and Australian manufacturing, incorporating plant proteins derived from Australian-grown crops into its formulations.
-
- With its first U.S. consumer launch approaching, Green Choice Proteins plans to continue introducing its products and brand philosophy to American consumers while pursuing additional opportunities for retail growth.
-
- For more information, visit Green Choice Proteins.
-
- About [Green Choice Proteins](https://gcproteins.com.au/) Based in Victoria, Australia, Green Choice Proteins is a family-owned plant-based nutrition company focused on delivering clean, functional daily nutrition for modern lifestyles. Using plant proteins derived from Australian-grown crops and manufacturing its products in Victoria, the company combines high-quality plant protein with thoughtfully selected functional ingredients to support everyday wellness, performance, and recovery. Built on a philosophy of transparency, sustainability, and formulation integrity, Green Choice Proteins creates clean-label nutrition products with no artificial colours, flavours, or fillers, helping consumers simplify their wellness routines with trusted, Australian-made plant-based nutrition.
-
- Follow Green Choice Proteins on Instagram and Facebook. 
+ About Oracle AI World Oracle AI World is where customers and partners discover the latest product and technology innovations, see how AI is being applied across industries, connect with peers and experts, and learn practical ways to drive business value. Attendees can explore new capabilities in action and hear from thought leaders and industry leaders. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610193068/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
+[Original/Source Press Release](https://newsworthy.ai/news/202610193071/rchilli-brings-ai-powered-hiring-experience-to-oracle-ai-world-2026)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/green-choice-proteins-to-launch-plant-protein-powders-on-onelavi-com/c4749040263c1a636378920c4f17a9a7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-to-showcase-ai-recruiting-solutions-at-oracle-ai-world-2026/d947edb62bb80a1fed0ea29ac62c0365) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/green-choice-proteins-announces-upcoming-us-launch-on-one-lavi)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/19/green-choice-proteins-to-enter-us-market-with-onelavi-launch/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/19/blurWd3r.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/19/envykRMY.webp)
