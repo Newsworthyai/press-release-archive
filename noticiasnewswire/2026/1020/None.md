@@ -1,50 +1,70 @@
-# HPRA Names H+M Communications Founder and CEO Etienne Hernandez-Medina 2026 ¡BRAVO! DEI Champion of the Year
+# Laura Gómez, Founder and CEO of GV Group, on The Cover of Ejecutiva Magazine
 
-MIAMI, FL — October 20, 2026 — (NOTICIAS NEWSWIRE) — The Hispanic Public Relations Association (HPRA) announced today that Etienne Hernandez-Medina, founder and CEO of H+M Communications, will receive the 2026 ¡BRAVO! DEI Champion of the Year Award, recognizing a trailblazing career dedicated to cultural understanding, representation, and expanding opportunity within the communications industry.
+MIAMI, FL — October 20, 2026 — (NOTICIAS NEWSWIRE) — Ejecutiva Magazine features Laura Gómez, founder and CEO of GV Group, in its latest edition, a businesswoman whose career is linked to international tax planning, corporate structuring, and the development of strategies for entrepreneurs and investors seeking to establish and expand their operations in the United States.
 
- Hernandez-Medina will be honored at the 12th annual HPRA ¡BRAVO! Awards on November 19, 2026, at the Los Angeles River Center & Gardens. This year’s celebration, themed Legacy in Motion, marks HPRA’s return to the city where the organization was founded in 1984 and underscores the importance of turning professional achievement into lasting opportunities for future generations.
+ The cover recognizes a business vision that goes beyond opening companies or complying with tax obligations. For Gómez, true growth requires planning, technical knowledge, and structures capable of supporting the evolution of businesses and protecting wealth over the long term.
 
- For HPRA, Hernandez-Medina’s recognition carries particular significance. Beyond his accomplishments as an agency founder and industry leader, he has been an extraordinary advocate for the organization’s mission, providing meaningful support to its National Scholarship Program during a period when securing funding for emerging talent has become increasingly challenging. His generosity has helped strengthen the program, while his willingness to step forward in support of the organization’s mission reflects an outstanding commitment to community that extends well beyond professional recognition.
+ Through GV Group, the executive has developed a service offering aimed at entrepreneurs, investors, and international companies that need to understand and manage the complexities of the U.S. tax and corporate environment.
 
- Additionally, Hernandez-Medina has played an active role in helping to shape programming of HPRA events, helping ensure the organization has a role in ensuring its members are well-informed about, and ready to take action on, current and emerging trends and innovations that stand to impact the industry. Recently, he led a H+M Communications team in envisioning and bringing to life a thought leadership event on the new influence playbook, which set a strong tone for HPRA in its key market of Los Angeles.
+ A Vision Based on the Architecture of the Future
 
- “There are people who talk about the importance of investing in the next generation, and then there are people who consistently show up to make that investment possible,” said HPRA National President Sonia V. Diaz. “Etienne is someone who shows up. During a time when organizations like ours have had to work harder to secure the resources that sustain opportunity, he has never waited for an invitation to help us forge our path forward. He understands that supporting young talent isn’t simply a charitable gesture. It’s a responsibility we share as leaders who have benefited from the doors others have helped open for us. His generosity, his conviction, his leadership, his one-on-one time spent counseling young professionals and the care he brings to this work are precisely why we are proud to recognize Etienne as our DEI Champion.”
+ In an exclusive interview with Ejecutiva Magazine, Gómez explains that one of the decisive moments of her career occurred when she stopped viewing her work solely as a professional service and began taking on a strategic role in building the future of her clients.
 
- Born in Cuba, Hernandez-Medina arrived in the United States during the 1980 Mariel boatlift, an experience that helped shape his understanding of identity, belonging and the power of representation. He later studied political science and communications at the University of Miami, where he earned recognition as a collegiate debate All-American.
+ “That day, I stopped seeing my work as a service and understood that my true mission was to build an architecture for the future for entrepreneurs who are committed to growing and transcending,” she stated.
 
- Before founding H+M Communications in 2004, Hernandez-Medina held senior leadership roles at global communications firms including Ketchum, Golin, Edelman and Weber Shandwick. He also served as Executive Vice President of Publicity and Corporate Communications at Universal Pictures.
+ The businesswoman believes that an appropriate corporate structure should allow companies to prepare for new challenges, incorporate opportunities, and develop a sustainable growth strategy.
 
- Over the past two decades, Hernandez-Medina has built H+M into one of the nation’s leading independent public relations and integrated communications consultancies, with more than 40 professionals and a presence across major U.S. markets and Mexico City. The agency has partnered with major entertainment, technology and consumer brands, including Universal Pictures, Warner Bros., Sony Pictures, Paramount Pictures, Prime Video, Comcast Xfinity, Telemundo, GALLO, Pinterest and Apple.
+ Her philosophy also incorporates human dimensions. Behind every business project, she explains, there are families, aspirations, and years of effort that deserve responsible planning.
 
- Under Hernandez-Medina’s leadership, H+M has earned HPRA’s ¡BRAVO! Agency of the Year award four times, reflecting the firm’s creative excellence and influence within multicultural communications. In 2026, Hernandez-Medina was also recognized as an Industry Legend by the Diversity Action Alliance.
+ “Because behind every company there is a story, and behind every story there is a dream that deserves structure, protection, and direction,” Gómez noted during the interview.
 
- Throughout his career, Hernandez-Medina has championed cultural intelligence as a business imperative, challenging brands and agencies to move beyond narrow definitions of multicultural marketing and recognize the complex identities, experiences and cultural influences shaping today’s consumers. His work has helped demonstrate that authentic cultural understanding is not separate from business success, but essential to it.
+ Female Leadership and Business Expansion
 
- That same philosophy informs Hernandez-Medina’s commitment to developing talent and strengthening the institutions that serve the industry. HPRA’s National Scholarship Program provides aspiring communications professionals with financial assistance, mentorship and professional development opportunities. This year, six scholarship recipients will be recognized at the ¡BRAVO! Awards, where they can connect with established leaders and build relationships that can shape their careers.
+ The edition of Ejecutiva Magazine also addresses Gómez’s vision of female leadership and the next five years of GV Group.
 
- Hernandez-Medina joins previously announced 2026 ¡BRAVO! honorees Snow Tha Product, recipient of the President’s Award, and Jesus “Malverde” Gonzalez, Vice President, Creative, Latin at BMI, who will receive the Pioneer of the Year Award.
+ The executive envisions a period of expansion based on strengthening her team, developing talent, and fostering a corporate culture in which excellence is the result of collective work.
 
- The ¡BRAVO! Awards serve as HPRA’s primary scholarship fundraiser, bringing together communications leaders, agencies, brands, media organizations and community advocates to celebrate excellence while investing in the industry’s future.
+ “GV Group will continue to expand, but most importantly, it will do so from a culture where excellence is not individual: it is a collective construction,” she expressed.
 
- For event information, tickets and sponsorship opportunities, visit https://bravo.hprausa.org/. Sponsorship inquiries may be directed to Bravo@hprausa.org.
+ Gómez also shared a message directed at women seeking to consolidate their professional and business careers.
 
- About the HPRA ¡BRAVO! Awards Since 2014, the HPRA ¡BRAVO! Awards have recognized excellence in multicultural communications. From agency innovators to corporate leaders, the honorees reflect the creativity, discipline and cultural fluency that move the industry forward. The annual celebration also supports HPRA’s commitment to expanding access and opportunity for emerging communications professionals through its National Scholarship Program.
+ “The business future needs more women making decisions, creating structures, and leading with intelligence, character, and purpose,” she emphasized.
 
- About HPRA  The Hispanic Public Relations Association (HPRA), founded in 1984, is a professional organization dedicated to advancing Hispanic and multicultural communications professionals. Through professional development, networking, mentorship, scholarships and industry events such as the ¡BRAVO! Awards. HPRA supports and celebrates the diverse voices building the future of communications.
+ Recognition of Her Business Career
 
- CONTACT: Elena Ruiz elena@zaidpr.com 
+ In October 2026, Laura Gómez received the “Excellence in Tax Strategy & Business Leadership Award” during the Top Entrepreneur of USA Awards 2026, held at EB Hotel Miami and organized by Negocios Magazine and Ejecutiva Magazine.
+
+ The recognition highlighted her professional career and her work in developing tax strategies and corporate structures for entrepreneurs, investors, and companies.
+
+ You can read the full article featuring the interview with Laura Gómez at the following link:  LAURA Gómez: “EL FUTURO EMPRESARIAL NECESITA MÁS MUJERES TOMANDO DECISIONES” | Ejecutiva Magazine
+
+ About Ejecutiva Magazine Journalist Eduardo Hapke partnered with attorney Karen Blanco, and together they created Ejecutiva Magazine in 2013, the only Spanish-language business magazine in South Florida focused on businesswomen. The magazine has its own website, www.ejecutivamagazine.com, which features daily news updates and extensive content distribution across social media.
+
+ Ejecutiva Magazine is also distributed through PressReader, a digital platform featuring 7,000 publications worldwide. Hotels and companies have access to this news platform.
+
+ Ejecutiva Magazine is also published on the platform www.heyzine.com, where the complete publication can be viewed online.
+
+ Ejecutiva Magazine is part of the media group Acta Diurna Urbis Group Corp., based in Miami, Florida, which also publishes Negocios Magazine, Welcome to America, Salud & Buen Vivir Florida, Hispanic Time, and Hispanic Time: Electric Cars Plus.
+
+ You can follow the interviews and news published in Ejecutiva Magazine through its social media channels on Facebook, Instagram, and LinkedIn.
+
+ Instagram: @ejecutivamagazine Facebook: https://www.facebook.com/ejecutivamagazine X: @EjecutivaMa LinkedIn: Eduardo Hapke
+
+ CONTACT: Karen Blanco 786-607-9355 karen@ejecutiva.us 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/etienne-hernandez-medina-2026-bravo-dei-champion-of-the-year/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/laura-gomez-in-ejecutiva-magazine/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hpra-to-honor-etienne-hernandez-medina-with-2026-bravo-dei-champion-award/147a9f5dd675539c421499267bd43c34) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laura-gomez-graces-cover-of-ejecutiva-magazine/a9ebccf3a2a7761ad4ddcbdf270e02d6) 
 
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/ejecutiva-magazine-spotlights-laura-gomezs-strategic-vision-for-international-business-growth)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/20/zeroxedF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/20/smog9HNg.webp)

@@ -1,18 +1,62 @@
-# Wuzhen Summit Puts Spotlight on Tongxiang’s Expanding AI Industry
+# China's Village Super League: More Than Just Soccer
 
-TONGXIANG, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 20 October 2026 – The 2026 World Internet Conference Wuzhen Summit will open on Nov. 2, bringing technology leaders, researchers and companies to the historic water town as Tongxiang firms expand AI applications from commercial cleaning and autonomous delivery to industrial control and data-center cooling.    For Tongxiang, long associated with the annual internet conference, the summit is also a chance to demonstrate how local companies are commercializing AI technologies for customers at home and abroad.   Ahead of the event, reporters visited seven Tongxiang-based companies working in robotics, intelligent vehicles, synthetic data, industrial automation, logistics and computing infrastructure.   Singapore Changi Airport earlier this year placed a fourth order for commercial cleaning robots from CenoBots, a Tongxiang-based company whose machines are used in airports, supermarkets, hospitals, factories and warehouses.   CenoBots has sold products in more than 40 countries and regions. Its customers include Changi Airport, British retailer Tesco, the University of Minnesota and pharmaceutical company Novo Nordisk. This year, the company supplied about 600 autonomous cleaning robots for Tesco Express stores across the United Kingdom.   "Cleaning robots are appearing in more and more settings," said Shen Jizhong, CenoBots' co-founder and vice president. "It is much like electric vehicles becoming a familiar sight on the roads — a trend that is gathering pace."   The company's machines are adapted to different settings. Hospital robots must move through busy corridors without disrupting patient care, while those used in supermarkets navigate around shoppers and carts. Factory robots operate near forklifts, and airport models must handle both fine debris in carpeted areas and small obstacles on smooth floors.   CenoBots continues to refine its robots through real-world testing, focusing on reliable operation and consistent cleaning performance across diverse environments. The company has expanded its research, development and production facilities in Tongxiang from approximately 3,000 square meters in its early years to more than 20,000 square meters. Local malls, hospitals and sports venues have also served as long-term testing sites.   While CenoBots focuses on service robots, TEEMO is developing the vehicle platforms that support autonomous mobility. The company makes drive-by-wire skateboard chassis and core components for autonomous vehicles used in last-mile delivery, patrols and logistics.   Its standardized chassis can be equipped with different vehicle bodies and hardware for specific uses. One of TEEMO's strategic customers, autonomous delivery-vehicle maker Zelos, was selected for all lots in China Post's centralized procurement program for 7,000 autonomous delivery vehicles.   TEEMO's customers already span the United States, the Middle East, India and Russia, said Zhang Yongjian, the company's director of operations.   "In some overseas markets, distances are long, populations are dispersed and last-mile delivery is difficult to staff," Zhang said. "Autonomous delivery vehicles have strong potential there, and overseas business will become an important growth driver for us."   Other Tongxiang companies are concentrating on the data and perception systems that allow machines to function in physical environments.   Dayan Technology, founded in Tongxiang in May 2025, provides synthetic-data and toolchain services for autonomous-driving and humanoid-robotics companies. It combines real-world data collection, digital twins and simulated training environments to help developers train robots before they are deployed.   Its wearable devices record human movement and interactions with objects. A haptic glove uses liquid-metal and pressure sensors to capture hand gestures, finger movements and contact force. A multi-camera headset records a user's visual field, body posture, hand movements and the position of nearby objects.   Dayan said its tactile-perception model can process touch signals in milliseconds. The technology is intended to help robots do more than identify objects visually: They can learn how firmly to grip an item, recognize when it is slipping and apply force without causing damage.    Freetech is applying related sensing and decision-making capabilities to intelligent driving. The company develops intelligent-driving systems and 4D imaging radar for passenger and commercial vehicles, and said its technology has been selected for hundreds of vehicle programs.   Its ODIN AI platform supports products at different levels of driving automation. The radar is designed to complement cameras in heavy rain, fog, darkness and abrupt changes in light, including when vehicles enter or leave tunnels.   At its intelligent-manufacturing base in Wuzhen, Freetech is also using AI in production. An in-house system reads customer orders and calculates the components and materials needed for each production line before manufacturing begins. The company said the system has increased overall efficiency by more than 20%.   "Transportation combined with a specialized function will be an important direction for the future," said Dr. Zhang Lin, Freetech's founder and CEO.   Freetech sees potential applications beyond passenger vehicles, including robots, elder-care vehicles, mining equipment and agricultural machinery.   Beyond mobility, Tongxiang firms are using AI to address the complexity of industrial operations. Founded in 2019, Shuhan Technologies provides on-premises industrial AI for chemical plants, energy facilities and wastewater-treatment systems. Its AI-driven control layer continuously ingests data from central control systems and field sensors, identifies dynamic conditions and autonomously adjusts operating parameters in real time.   "Fundamentally, all industrial process challenges can be framed as control and optimization problems," said Zhai Zhengjun, Shuhan's Chief Technology Officer.   At a coal chemical plant with annual capacity of 1.2 million metric tons, Shuhan said its system reduced raw-material consumption by 6%. The company estimated that the deployment generated more than 176 million yuan, or about $26 million, in annualized economic benefits and reduced carbon emissions by more than 500,000 metric tons.   SENAD is targeting bottlenecks in logistics operations, including loading, unloading, sorting and pallet handling. It develops autonomous loading and unloading robots, as well as a multimodal logistics model called Robot Insight, for sectors including beverages, tobacco, consumer goods, pharmaceuticals and logistics.   Tongxiang's AI sector also includes companies addressing the infrastructure needed to run increasingly powerful computing systems. SynthCool is tackling a basic constraint of the AI boom: heat.   SynthCool develops two-phase liquid-cooling systems to address the heat generated by increasingly powerful processors. Inadequate cooling can trigger thermal throttling, reducing performance and energy efficiency.   "Heat dissipation is infrastructure," said Zhu Zhijiang, SynthCool's general manager.   SynthCool's two-phase cooling technology uses the latent heat of vaporization to remove heat from processors. The cooling fluid absorbs heat and boils into vapor, which is then condensed back into liquid and recirculated.   Depending on ambient conditions and system design, two-phase cooling can also support free cooling and reduce reliance on compressor-based refrigeration. Waste heat may be recovered where temperatures and local demand make reuse practical.   According to SynthCool, its technology supports heat dissipation of more than 3,000 watts per chip and heat flux above 250 watts per square centimeter. Under comparable cooling requirements, the system requires approximately one-third of the flow needed by conventional single-phase water-cooled cold plates, helping reduce piping requirements and pumping demand.   SynthCool's portfolio includes two-phase direct-to-chip and immersion cooling solutions, along with distribution units and control systems for AI data centers.  Hashtag: #TongxiangThe issuer is solely responsible for the content of this announcement. 
+BEIJING, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 20 October 2026 – In Rongjiang, a county in Guizhou, southwest China, soccer is bringing communities together and creating new opportunities for local businesses.    From packed stadiums to traditional music and dance, the Village Super League is about much more than the game; it's a celebration of local culture, community spirit and hometown pride.  Hashtag: #CGTNThe issuer is solely responsible for the content of this announcement. 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/10/20/495379/)
+[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/10/21/494972/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tongxiang-ai-firms-shine-ahead-of-wuzhen-summit/4495b95001c70c1c1ef6ea224c2a6a2e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/china-s-village-super-league-scores-big-for-community-and-business/afd7b77aa17bf8f0457519faf8b5d3c6) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://advos.io/en](https://advos.io/en/chinas-village-super-league-kicks-off-economic-and-cultural-revival-in-guizhou)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/chinas-village-super-league-kicks-off-cultural-and-economic-revival-in-guizhou)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/chinas-village-super-league-kicks-off-economic-and-cultural-revival-in-guizhou)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://burstable.news](https://burstable.news/news/chinas-village-super-league-scores-big-for-rural-economy-and-culture)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/chinas-dorf-super-liga-punktet-gross-fur-landliche-wirtschaft-und-kultur)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-super-liga-de-aldeas-de-china-anota-un-gran-tanto-para-la-economia-y-la-cultura-rurales)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-super-ligue-des-villages-en-chine-marque-des-points-pour-leconomie-et-la-culture-rurales)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/liga-super-de-vilarejos-da-china-marca-grande-sucesso-para-a-economia-e-a-cultura-rural)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/chinas-village-super-league-kicks-off-economic-and-cultural-boom-in-guizhou)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/chinas-village-super-league-more-than-just-soccer)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2610/20/odorym21.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2610/20/pearakRs.webp)
