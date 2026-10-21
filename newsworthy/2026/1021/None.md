@@ -1,100 +1,107 @@
-# Featured Brings Newsjacking to Local TV News
+# 2026 New York Comedy Festival: Comedy Village Showcases Top Talent
 
-Featured, the AI co-pilot for PR, today added U.S. local TV stations to its platform. With Featured Newsjacking flagging breaking stories in a client’s beats and cities, PR teams can now find the stations covering that client’s market and draft a pitch to the news desk while the story is still moving.
+Comedy Village, the renowned comedy hub in Hell’s Kitchen established by seasoned comedian PJ Landers, is gearing up to amplify the laughter as it hosts top-tier comedic talent for the 2026 New York Comedy Festival, scheduled from November 6-15 across New York City.
 
- The new capability, Find TV Stations, runs inside the same Featured chat used for Newsjacking, so the workflow stays in one place:
+ For the third year running, Comedy Village proudly hosts the New York Comedy Festival, inviting audiences to its state-of-the-art, two-story venue near Times Square and iconic Broadway theaters.The club will feature performances by some of the funniest names in stand-up alongside rising comedy stars.
 
- 1. Set up Newsjacking with the client’s beats and city markets.
-2. When a story card arrives, open it in chat and ask for the TV stations in the client’s market, for example “Find TV stations in New York.”
-3. Draft the pitch to the news desk from a station card, leading with the local angle and the person who can be on camera today.
+ [The Comedy Village lineup for the 2026 New York Comedy Festival includes:](https://comedyvillage.com/) 
 
- Find TV Stations and Newsjacking are available on every Featured plan, including Free.
+ * Sweet & Sour Chicks Comedy Tour with Kiki Yeung and Esther Ku: Sunday, November 8 at 7:00 PM
+* Late for School Starring Jimmy Cash: Tuesday, November 10 at 7:00 PM
+* Samuel Orson: Wednesday, November 11 at 7:00 PM
+* Headliner Series with Lance Weiss: Wednesday, November 11 at 7:00 PM
+* Billie Lee: Thursday, November 12 at 7:00 PM
+* Paige Gallagher: Thursday, November 12 at 9:30 PM
 
- Local news desks look for a local angle on national stories every day. Muck Rack’s State of Journalism 2026 survey found that 78% of journalists say a pitch is relevant when it directly affects the community their audience belongs to, and only 16% say the pitches they receive usually reflect that community. Local television is where that audience is.
+ Additional shows and performers may be announced. Schedule subject to change without notice.
 
- The Pew Research Center reports that 65% of Americans get local news from local TV stations at least sometimes, and in the Reuters Institute’s 2026 Digital News Report, 56% of U.S. respondents rated local TV news trustworthy, ahead of every national brand in the survey. The RTDNA/Newhouse survey published in September 2026 counted 26,458 full-time local TV news employees in 2025, down 2.2% in a year, with nearly two-thirds of stations relying on multimedia journalists who shoot, write and edit their own stories.
+ “New York City is the greatest comedy city in the world, and Caroline Hirsch has played an enormous role in making it that way,” said PJ Landers, owner of Comedy Village. “What Caroline has built with the New York Comedy Festival is extraordinary. She took an idea and turned it into the largest and longest-running annual comedy festival in the United States, while creating a platform that brings together the biggest names in comedy with the comedians who are going to be the next big names. We’re We’re proud to join the festival for a third year, showcasing the brightest talent on Comedy Village stages this November.an exciting time for comedy in New York, and we’re thrilled to be part of it.” Nestled in the vibrant heart of Hell’s Kitchen, mere steps from Times Square and the city's legendary Broadway theaters, Comedy Village has established itself as a must-visit spot for New Yorkers, tourists, and comedy enthusiasts worldwide. Comedy Village.lub’s new, state-of-the-art venue features two floors, each with its own unique showroom, creating an intimate setting where audiences can experience stand-up comedy up close.
 
- “Every national story has a local version, and the local news desk usually wants it the same day,” said Brett Farmiloe, Founder and CEO of Featured. “Newsjacking finds the story and the angle. Now the stations in your client’s market are one more question in the same chat.”
+ A prime central location, Comedy Village delivers an intimate comedy experience with two shows nightly, seven days a week. Showcasing a diverse array of comedic talent, from rising stars to industry icons, it offers the best in stand-up comedy. Whether you're a seasoned comedy aficionado or a casual observer, there's something for everyone at Comedy Village.
 
- Featured’s TV station database covers 1,757 U.S. TV stations and carries newsroom contacts for 470 of them across 195 TV markets, including news desk emails for 365 stations and news desk phone numbers for 332. It also holds 269 department desk addresses for weather, sports, consumer and investigative teams. Contacts were collected from station websites in September 2026.
+ About the New York Comedy Festival Founded in 2004 by Caroline Hirsch, the New York Comedy Festival is the largest and longest-running annual comedy festival in the United States. Produced by Carolines, the festival brings together the biggest names in comedy, emerging talent and comedy fans from around the world for 10 days of performances and special events at venues throughout New York City. The festival has featured an extraordinary roster of comedic talent over the years and continues to celebrate New York’s unique role as the home of stand-up comedy.
 
- Users can search by state, TV market, city, or call sign, and Featured shows which stations it can draft a pitch to. Find TV Stations is live now at featured.com. Free to start. No credit card.
+ For tickets and complete festival information, visit www.nycomedyfestival.com.
 
- About Featured
+ About Comedy Village Comedy Village is more than just a comedy club; it's a comedy institution. Founded in 2004 by comedian and entrepreneur PJ Landers, the club quickly became a haven for both up-and-coming talent and established comedy legends. Its original Greenwich Village location played host to a who's who of comedy greats, including Dave Attell, Bill Burr, and Dave Chappelle, who honed their craft on its intimate stage.
 
- Featured is the AI co-pilot for PR, a platform that helps PR professionals and subject-matter experts land media placements, build brand authority, and grow AI visibility. The company owns and operates HARO (Help a Reporter Out) and Connectively as standalone products within its portfolio. Learn more at featured.com.
+ In 2024, Comedy Village made a bold move to the heart of Hell’s Kitchen, just steps from Times Square and the city’s most iconic Broadway theaters, bringing its signature blend of high-quality comedy to one of New York City’s most vibrant neighborhoods. The club’s new, state-of-the-art venue features two floors, each with its own unique showroom, ensuring a comfortable and entertaining experience for every guest.
 
- Press Inquiries Brett FarmiloeEmail Contact https://featured.com
+ With two shows nightly, seven days a week, Comedy Village offers a diverse lineup of comedic talent. From rising stars to industry icons, our stages showcase the best in stand-up comedy. Whether you're a seasoned comedy aficionado or a casual observer, there's something for everyone at Comedy Village. Connect with Comedy Village on Facebook, Instagram, and X.
 
- Terkel, Inc. (dba Featured)7014 E Camelback Rd, Suite B100AScottsdale, AZ 
+ Media Contact:
+
+ PJ Landers
+
+ Email Contact
+
+ (646) 469-7531 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610213075/featured-brings-newsjacking-to-local-tv-news)
+[Original/Source Press Release](https://newsworthy.ai/news/202610212957/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/featured-adds-local-tv-stations-to-ai-pr-platform/3251f10f4218436288bf9626934f46c2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-returns-to-new-york-comedy-festival-for-third-year/7bbed8614f7cf0e2a7a9f5a92cce1e9c) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://advos.io/en](https://advos.io/en/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/featured-brings-newsjacking-to-local-tv-news)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/21/featured-adds-local-tv-station-database-to-newsjacking-tool-aiming-to-help-pr-teams-pitch-local-angles-faster/)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://advos.io/en](https://advos.io/en/featured-adds-local-tv-stations-to-its-ai-pr-platform-targeting-same-day-newsjacking)
+Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/featured-adds-local-tv-station-database-to-newsjacking-platform)
+Pickup - [https://burstable.news](https://burstable.news/news/comedy-village-returns-for-third-year-at-2026-new-york-comedy-festival)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/featured-adds-local-tv-station-outreach-to-its-ai-pr-platform)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/comedy-village-kehrt-zum-dritten-mal-zum-new-york-comedy-festival-2026-zuruck)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/featured-adds-local-tv-stations-to-ai-pr-platform-enabling-newsjacking-for-local-news-desks)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/comedy-village-regresa-por-tercer-ano-al-festival-de-comedia-de-nueva-york-2026)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/featured-anade-cadenas-de-tv-locales-a-su-plataforma-de-ia-para-pr-permitiendo-newsjacking-para-las-mesas-de-noticias-locales)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/comedy-village-revient-pour-une-troisieme-annee-au-new-york-comedy-festival-2026)
 
-Pickup - [https://burstable.news](https://burstable.news/news/featured-adds-local-tv-station-search-to-its-newsjacking-workflow)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/comedy-village-retorna-pelo-terceiro-ano-no-new-york-comedy-festival-2026)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/featured-erweitert-seinen-newsjacking-workflow-um-die-suche-nach-lokalen-tv-sendern)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/featured-anade-la-busqueda-de-cadenas-de-television-locales-a-su-flujo-de-trabajo-de-newsjacking)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/featured-ajoute-la-recherche-de-chaines-de-television-locales-a-son-flux-de-travail-newsjacking)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/featured-adiciona-busca-por-emissoras-de-tv-locais-ao-seu-fluxo-de-trabalho-de-newsjacking)
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/featured-adds-local-tv-stations-to-newsjacking-enabling-pr-teams-to-pitch-breaking-news-in-real-time)
+Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/featured-adds-local-tv-stations-to-newsjacking-enabling-real-time-local-media-pitches)
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/comedy-village-brings-top-talent-to-2026-new-york-comedy-festival)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/featured-adds-local-tv-stations-to-newsjacking-enabling-real-time-local-media-pitches)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/featured-adds-local-tv-station-database-to-its-ai-pr-platform)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/21/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/mendji5l.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/mossPN8a.webp)

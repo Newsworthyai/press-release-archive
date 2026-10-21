@@ -1,38 +1,61 @@
-# Real Estate Investor Daniel Kaufman Details ZeroPoint, Kaufman &amp; Company’s AI Infrastructure Platform, as Project Zero Micro Data Center Prototype Is Deployed in Detroit
+# Outamation Delivers Equifax Soft-Pull Credit Data into OutamateMods to Help Servicers Retain Performing Loans
 
-Factory-built and vendor-agnostic, Project Zero is the first working piece of a platform that also includes hyperscale campuses in predevelopment in El Paso, Texas, and Utah.
+Outamation, an AI-native mortgage operations technology company, is improving the process to help loan servicers identify performing borrowers who are good candidates for a loan modification by now offering Equifax® consumer credit data integrated into OutamateMods. In today’s rate environment, refinance activity is low, but that will change once rates fall. To prepare for a refinance wave, this new integration allows servicers to react on day one. This gives qualified consumers new opportunities to improve their cash flow while helping servicers maintain their portfolios. With the integration, servicers get:
 
- LOS ANGELES (Oct., 2026) Kaufman & Company, the permanent capital holding company founded by real estate investor Daniel Kaufman, today detailed ZeroPoint, its platform for developing the physical infrastructure behind artificial intelligence, and announced that Project Zero, its micro data center prototype, is deployed on site in Detroit.
+ * Equifax soft-pull credit data inside OutamateMods and across the Outamation platform.
+* Portfolio retention review to identify performing borrowers who are candidates for a modification.
+* End-to-end execution in OutamateMods, from eligibility through documents and closing.
+* Support for retention and recapture programs, including performing loan modifications for portfolio loans.
 
- Project Zero is a modular, vendor-agnostic micro data center system built by Kaufman Development. Each unit is manufactured in a factory, shipped flat-packed, and assembled on site, giving operators compact, low-latency edge compute without a purpose-built facility. A containment design keeps cold supply air separate from hot exhaust, which is intended to reduce cooling loads and energy costs. The company’s design target is a 20% to 30% lower total cost of ownership than standard containerized systems; that figure will be measured as the Detroit prototype matures.
+ “The time to build a retention program is before the next refinance wave, not during it,” said Ron Morton, Chief Revenue Officer at Outamation. “Keeping a borrower costs far less than winning one back, so having the tools in place now to prepare is a critical step to create compelling offers for consumers quickly.”
 
- “We are starting with something we can stand next to and test,” Kaufman said. “A working unit in Detroit tells us more than any rendering. Prove the model, learn what breaks, then scale it with discipline.”
+ “Mortgage servicers need timely insights to help match borrowers with the right loan,” said Carrie Doyle, VP of Business Development, Digital Alliances for Mortgage & Housing at Equifax. “Bringing Equifax soft-pull credit data into OutamateMods puts that insight directly inside the retention workflow. It helps servicers act sooner and serve borrowers better.”
 
- Alongside Project Zero, ZeroPoint includes two hyperscale projects in predevelopment: the Rio Grande Data Campus in El Paso, Texas, and the Wasatch Data Campus in Utah. LoneStar Kaufman Development Partners and ServerDomes Global, which is independently owned and operated, are joint venture partners on both campuses, with Kaufman Ventures as an investor.
+ The integration is live today for OutamateMods clients. Learn more at outamation.com.
 
- Kaufman said the platform is built on the same view that shapes the company’s housing work: infrastructure should leave something useful behind in the places where it is built.
-
- “Compute is becoming as basic to a local economy as power and water,” Kaufman said. “If we are going to build infrastructure for machines, we have to be just as serious about the people and the neighborhoods around it. Small, modular sites let us put capacity where it is needed, including in existing buildings and older industrial cities, instead of only on greenfield land.”
-
- ZeroPoint is one of eight brands Kaufman & Company introduced this month across its Residential, Places and Infrastructure divisions. More information is available at thekaufmanco.com/platform-zeropoint.
-
- About Kaufman & CompanyKaufman & Company (thekaufmanco.com) is a permanent capital holding company founded by Daniel Kaufman and the trade name of Kaufman Family Office LLC and Kaufman Real Estate & Consulting LLC. Its 10 operating companies are Convivium Living, DanReDev, DEK Builds, Design Build Affordable, DK Homes, Forge Development Partners, Kaufman Development, Kaufman Real Estate & Consulting, LoneStar Kaufman and Kaufman Ventures, whose portfolio includes BridgeStar, Meridian, LandBriefing, SpreadSight, FoundCheck, ServerDomes and Mr Good Container Homes. Oldivai is an aligned, independently led workforce housing partner. The platform represents more than $2 billion in project value and more than 10,000 housing units across more than 25 years of building, lending and investing.
-
- Media ContactJanine RodriguesKeyCrew Mediajanine.rodrigues.a@gmail.com
+ This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions. The views expressed are those of the individuals quoted.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/real-estate-investor-daniel-kaufman-details-zeropoint-kaufman-companys-ai-infrastructure-platform-as-project-zero-micro-data-center-prototype-is-deployed-in-detroit/)
+[Original/Source Press Release](https://keycrew.co/journal/outamation-delivers-equifax-soft-pull-credit-data-into-outamatemods-to-help-servicers-retain-performing-loans/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kaufman-co-deploys-project-zero-micro-data-center-in-detroit/5d4d6d28c7be90f76982148989ace13a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/outamation-integrates-equifax-credit-data-to-boost-loan-modifications/f1f51252d326ca4a3b57f14007afcc15) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://burstable.news](https://burstable.news/news/outamation-integrates-equifax-soft-pull-credit-data-into-outamatemods-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/outamation-integriert-equifax-soft-pull-kreditdaten-in-outamatemods-um-servicern-zu-helfen-leistungsfahige-kredite-zu-halten)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/outamation-integra-los-datos-de-credito-soft-pull-de-equifax-en-outamatemods-para-ayudar-a-los-servicers-a-retener-prestamos-con-buen-comportamiento-de-pago)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/outamation-integre-les-donnees-de-credit-soft-pull-dequifax-dans-outamatemods-pour-aider-les-servicers-a-conserver-les-prets-performants)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/outamation-integra-dados-de-credito-soft-pull-da-equifax-ao-outamatemods-para-ajudar-servicers-a-reter-emprestimos-em-dia)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/outamation-integrates-equifax-soft-pull-credit-data-into-outamatemods-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/outamation-integrates-equifax-soft-pull-credit-data-into-outamatemods-to-help-servicers-retain-performing-loans)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/21/outamation-integrates-equifax-soft-pull-credit-data-to-help-servicers-retain-performing-loans/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/21/leanBGvL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/21/chefQ9NF.webp)
