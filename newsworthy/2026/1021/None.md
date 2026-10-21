@@ -1,45 +1,48 @@
-# Austin Law Firm Wins $7.5 Million in Landmark Delivery Crash Case
+# Cibolo Texas EDC Awards Over $200,000 in FY2026 Grants
 
-Austin personal injury law firm Joe Lopez Law, P.C., through its El Joe Me Ayudó | Personal Injury Network brand, in conjunction with the Falcon Law Group PLLC secured a $7.5 million settlement on behalf of a client seriously injured in a May 2025 highway collision involving a vehicle operated by one of the nation's largest delivery companies.
+The Cibolo Economic Development Corporation (CEDC) announced that it awarded more than $200,000 in business development grants during fiscal year 2026, which ended September 30. The milestone comes during the first fiscal year of the EDGE Grant Program, an initiative designed to encourage business investment, commercial property improvements, and continued economic growth throughout Cibolo.
 
- The crash was caused by a distracted delivery driver who missed a highway turn and abruptly braked, leading to a serious collision.
+ Building on that progress, CEDC has consolidated its business grant offerings into a single program for fiscal year 2027: the Economic Development for Growth & Enhancement (EDGE) Grant Program.
 
- For more than a year, the delivery company and its insurer maintained that Lopez's client was responsible for the crash.
+ The updated program provides two funding tiers, allowing CEDC to support both smaller commercial improvement projects and larger business investments.
 
- Lopez and Falcon Law conducted a thorough investigation, collecting electronic evidence and deposing key witnesses to challenge the company's stance.
+ Two Grant Opportunities for FY2027 The EDGE Grant Program now includes:
 
- A pivotal moment came during the investigating police officer's deposition. Falcon Law’s Michael Darling showed the officer video footage and other evidence the delivery company had not provided during the original crash investigation.
+ * Standard EDGE Grant: A 50/50 matching reimbursement grant of up to $15,000 for eligible commercial property improvements. Businesses can use the funding for qualifying projects such as façade enhancements, signage, exterior construction, lighting, and parking improvements.
+* Special Circumstances EDGE Grant: Grants of up to $50,000 for qualifying projects involving an investment of $1 million or more. This tier is designed to provide additional support for larger business investments that contribute to Cibolo's economic development goals.
 
- After reviewing the previously unavailable evidence, the officer changed his opinion regarding responsibility for the collision.
+ By bringing its grant offerings together under the EDGE program, CEDC aims to simplify the process for businesses seeking financial assistance while providing greater flexibility to support projects of different sizes.
 
- "What makes this case particularly troubling is that the company had footage that could have helped explain what happened from the very beginning," said Joe Lopez, founder of Joe Lopez Law. "Instead, our client spent more than a year being blamed for a crash. When we finally put that evidence in front of the investigating officer, even he changed his opinion about who was responsible."
+ “The EDGE Grant Program helps Cibolo businesses invest, grow, and strengthen our local economy,” said Clancy Hardin, Assistant Director of Economic Development, City of Cibolo. “The program’s first-year results demonstrate strong momentum, and the updated structure will allow us to support projects of all sizes.”
 
- The case highlights the importance of independently investigating commercial vehicle accidents, particularly when large corporations possess electronic evidence that may not be available to injured motorists or investigating authorities.
+ Supporting Business Growth in Cibolo Originally introduced in July 2025, the EDGE Grant Program was created to help existing and new businesses invest in commercial properties, improve their facilities, and strengthen their presence in the community.
 
- Commercial delivery vehicles can generate extensive electronic information, including onboard camera footage, vehicle tracking data, driver activity records and other information that may help establish how a collision occurred.
+ Local businesses across retail, restaurants, and personal services have received grant awards, including River City ACE, CRUST Pizza, Max & Louie's New York Diner, and other Cibolo establishments. These awards demonstrate the program's reach across different business sectors and its role in encouraging local investment.
 
- "When you're going up against a billion-dollar company, you cannot simply accept its version of events," Lopez said. "You have to dig into the evidence, question the witnesses and be prepared to challenge the narrative. That's what we did, and ultimately we secured a $7.5 million settlement for our client."
+ "The Edge Grant signaled to us that the City of Cibolo was invested in supporting and helping us bring our dream of opening our restaurant to reality,” said Derek Campbell, Owner of Crust Pizza in Cibolo, Texas. “The grant showed us we picked the right city and how important we as small business owners are to the City of Cibolo! They have continued to support us throughout our entire -process and have shown they are committed to our success.”
 
- This settlement conclusively resolves the client's injury claims from the collision.
+ "Receiving the EDGE Grant means so much to our family,” said Shannon Eklund from River City Ace Hardware in Cibolo, Texas. “Opening River City Ace has been a labor of love, and we are incredibly grateful to the City of Cibolo for believing in our vision and supporting our investment in this community. From the beginning, our goal has been to create more than just a hardware store, we wanted to build a place where neighbors feel welcome, relationships are formed, and the community comes together. We are so proud to call Cibolo home and look forward to growing alongside this wonderful community for many years to come."
 
- About Joe Lopez Law Joe Lopez Law, P.C., is an Austin-based personal injury law firm founded by trial attorney Joe Lopez, who has practiced law since 2003. Through the firm's bilingual brand, El Joe Me Ayudó | Personal Injury Network, Lopez represents injured individuals and connects clients with legal representation in serious personal injury matters.
+ “The City of Cibolo’s EDGE Grant program was instrumental in helping bring Max & Louie’s NY Diner to life in Cibolo, Texas," said Drew Glick, Owner of Max & Louie’s NY Diner, Cibolo, Texas. “The amazing team, led by Clancy Hardin, was incredibly helpful throughout the process, and the availability of this grant to local business owners is truly immeasurable. The funding helped us install the drop-down blinds on our patio, enhancing the comfort and usability of our outdoor dining space, while also helping offset the cost of installing our incredible Max & Louie’s building signs. Programs like the EDGE Grant demonstrate the City’s commitment to supporting local businesses, strengthening the community, and helping businesses create inviting spaces for residents and visitors alike. We are extremely grateful to the City of Cibolo and its outstanding team for their support.”
 
- The firm handles car accidents, commercial delivery vehicle collisions, 18-wheeler and trucking accidents, catastrophic injuries and wrongful death cases.
+ The more than $200,000 in grants awarded during FY2026 reflects CEDC's ongoing efforts to encourage private investment and support the local business community.
 
- Lopez has recovered more than $100 million for injured clients throughout his legal career. His professional affiliations include The National Trial Lawyers Top 100, the Multi-Million Dollar Advocates Forum and the Texas Trial Lawyers Association.
+ The program also supports Cibolo's broader economic development strategy, which emphasizes business retention, expansion, and attracting new investment.
 
- Fluent in English and Spanish, Lopez serves clients throughout Austin and across Texas.
+ With the introduction of the two-tier EDGE program for FY2027, CEDC is expanding the range of projects that may qualify for assistance while maintaining its focus on responsible economic development and long-term community growth.
 
- Joe Lopez Law, P.C.1502 West AvenueAustin, Texas(512) 580-9962www.JoeLopezLaw.com
+ Businesses interested in learning more about the EDGE Grant Program, eligibility requirements, or the application process can visit www.cibolotx.gov/EDC or contact the Cibolo Economic Development Corporation at Email Contact.
 
- Past results do not guarantee future outcomes. Every case is unique, and results depend on the particular facts and circumstances. 
+ About the [Cibolo Economic Development Corporation](https://www.cibolotx.gov/EDC/) The Cibolo Economic Development Corporation (CEDC) supports economic growth and business development in Cibolo, Texas. Through business assistance programs, strategic investment initiatives, and partnerships with the local business community, CEDC works to encourage business retention, expansion, and new investment while supporting Cibolo's long-term economic vitality.
+
+ For more information, visit www.cibolotx.gov/EDC. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610213073/austin-law-firm-wins-dollar75-million-in-landmark-delivery-crash-case)
+[Original/Source Press Release](https://newsworthy.ai/news/202610213074/cibolo-texas-edc-awards-over-dollar200000-in-fy2026-grants)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/joe-lopez-law-falcon-law-secure-7-5m-settlement-in-delivery-truck-crash/cbac0cb58311dd4d6d4a873acb23bf92) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cibolo-edge-grant-program-awards-200k-expands-for-fy2027/f98201bd1fd41359d4a04a5484e220de) 
 
  
 
@@ -47,4 +50,4 @@ Austin personal injury law firm Joe Lopez Law, P.C., through its El Joe Me Ayud�
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/pearl5Ed.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/corncl8o.webp)
