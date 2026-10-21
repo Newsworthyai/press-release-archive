@@ -1,36 +1,60 @@
-# Beeline Holdings (BLNE) Targets $3M in Additional Annualized Operating Expense Reductions
+# Branicks Group AG: Creditors Vote to Extend Maturity and Pave the Way for Restructuring
 
-LOS ANGELES, CA - October 20, 2026 (NEWMEDIAWIRE) - Beeline Holdings (NASDAQ: BLNE), a digital mortgage and home equity platform, announced an additional operating expense reduction plan targeting approximately $250,000 in monthly savings, or $3 million annually, beyond cost reductions implemented earlier in 2026. The initiative includes workforce reductions, infrastructure consolidation and elimination of legacy overhead costs, with approximately $270,000 in one-time transition expenses expected through Dec. 1, 2026. The company anticipates realizing the full monthly savings thereafter, supporting its efforts to improve operating leverage and accelerate its path toward positive operating cash flow. Beeline continues to leverage its MagicBlocks AI customer acquisition technology and new mortgage pricing engine to improve efficiency and support higher-value mortgage products, including Bank Statement and Debt Service Coverage Ratio loans. The company is also advancing its proposed acquisition of TYTL Holdings, Inc. and its broader home equity and blockchain strategy, subject to applicable approvals and closing conditions.
+* Creditors vote 99% in favor of restructuring their securities
+* Restructuring plan is set to take effect by the end of 2026
+* The company terminates consulting agreements with members of the supervisory board
 
- ![](http://newmediawire.s3.amazonaws.com/6ad7b356da846f777beb0c15_1)
+ FRANKFURT AM MAIN, GERMANY - October 20, 2026 (NEWMEDIAWIRE) - Branicks Group AG (ISIN: DE000A1X3XX4 and DE000A41YEE3) (the “Company”) announces that the holders of the corporate bond in the amount of 400 million euros, originally due in 2026, have voted in favor of a restructuring of the Company’s liabilities with 99% of the votes cast. In doing so, they have also endorsed the financial restructuring plan developed by the Company for Branicks.
 
- To view the full press release, visit https://ibn.fm/ca5AK
+ The restructuring of liabilities arising from bonds, promissory note loans, and registered bonds sets September 30, 2030, as the new maturity date for a total of 375 million euros, and September 30, 2028, for an additional 220 million euros.
 
- About Beeline
+ “Our creditors’ vote is a sign of confidence in our restructuring plan. With the time we've gained, we can now refocus fully on our business and use our resources and expertise to capitalize on opportunities in what remains a challenging market for us,” said Josef Schultheis, Chief Restructuring Officer at Branicks Group AG.
 
- Beeline Holdings, Inc. is a technology-driven mortgage and home-finance company focused on simplifying and accelerating the path to homeownership, property investment and home-equity access. Through its digital platform, Beeline offers mortgage products designed for traditional borrowers, self-employed borrowers and real estate investors and is expanding its platform into home equity investment products. We believe everyone’s an investor seeking greater financial freedom. That’s why we’re leveling the playing field with the fastest, simplest loans and access to home-equity ever, helping you reach your financial happy place.
+ Following the creditors’ decision, a number of technical requirements for implementation still need to be clarified in the coming weeks. The goal is for the company’s restructuring plan to take effect by the end of the 2026 fiscal year, or by March 31, 2027, at the latest.
 
- Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
+ The Company further announces that it has terminated, by mutual agreement, the consulting agreements with MDC Matthias Danne Consulting GmbH and BLACKLAKE Management Partners GmbH, whose managing directors are Supervisory Board members Dr. Matthias Danne and Dr. Johannes Conradi, respectively. MDC Matthias Danne Consulting GmbH and BLACKLAKE Management Partners GmbH have notified the company that they have each entered into service agreements with a company financed by the creditors.
 
- The latest news and updates relating to BLNE are available in the company’s newsroom at https://ibn.fm/BLNE
+ About Branicks Group AG:
 
- Forward Looking Statements
+ Branicks Group AG (formerly DIC Asset AG) is a leading German listed specialist for office and logistics real estate with over 25 years of experience in the real estate market and access to a broad investor network. Our basis is the national and regional real estate platform with nine offices in the ground in all major German markets (including VIB Vermögen AG). As of June 30, 2026, we managed properties with a market value of EUR 10.1 billion in the Commercial Portfolio and Institutional Business segments.
 
- Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
+ The Commercial Portfolio segment comprises real estate held for our own account. Here, we generate cash flows from stable rent revenues on long-term leases while also optimizing the value of our portfolio assets through active management and realizing gains from sales.
+
+ In the Institutional Business segment, we earn recurrent fees from real estate services we provide to national and international institutional investors by structuring and managing investment products that return attractive dividend yields.
+
+ The shares of Branicks Group AG are listed in the Prime Standard of the German Stock Exchange (WKN: A1X3XX / ISIN: DE000A1X3XX4).
+
+ The company is fully committed to sustainability and occupies top positions in ESG-relevant ratings such as Morningstar Sustainalytics and S&P Global CSA. The Branicks Group is also a signatory to the UN Global Compact and the UN PRI network. Properties in the Branicks portfolio have been awarded renowned sustainability certificates such as DGNB, LEED or BREEAM.
+
+ For more details, go to www.branicks.com
+
+ PR-Kontakt Branicks Group AG:Stephan HeimbachNeue Mainzer StraßBe 32-3660311 Frankfurt am MainFon +49 69 9454858-1569pr@branicks.com
+
+ IR-Kontakt Branicks Group AG:Jasmin DentzNeue Mainzer StraBe 32-3660311 Frankfurt am MainFon +49 69 9454858-1492ir@branicks.com
+
+ 
+
+ 
+
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/beeline-holdings-blne-targets-3m-in-additional-annualized-operating-expense-reductions-7090761)
+[Original/Source Press Release](https://www.newmediawire.com/news/branicks-group-ag-creditors-vote-to-extend-maturity-and-pave-the-way-for-restructuring-7090766)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-targets-3m-in-additional-annual-cost-savings/824d2d72c7c596d76ced46e620f4f5db) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/branicks-creditors-approve-restructuring-with-99-vote/a4ce4e1951dae5f46411dbe49f5e21ad) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/20/branicks-creditors-back-restructuring-with-99-vote-extending-maturities-to-2030/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/20/harpa5w2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/20/pintsQ1T.webp)
