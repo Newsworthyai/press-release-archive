@@ -1,50 +1,90 @@
-# Schoenberg Family Law Group Expands to Beverly Hills, Enhancing Statewide Legal Services
+# Featured Launches Find Bookstores for Authors Planning Book Signings and Book Tours
 
-Schoenberg Family Law Group, P.C. (SFLG), a California family law firm founded by Certified Family Law Specialist Debra R. Schoenberg, has opened a new office at 9665 Wilshire Blvd, M10, in Beverly Hills. The office marks the firm’s first permanent location in Southern California and gives Los Angeles County clients direct, local access to a firm that has handled complex divorce and custody cases for nearly 40 years.
+Featured, the AI co-pilot for PR, today launched Find Bookstores, a search of 1,093 independent U.S. bookstores built for authors and book publicists planning signings and book tours. Users name a place or a genre in Featured's chat and get the stores that host author events, with a link to each store's website or events page and, where the store publishes one, its email.
 
- The Beverly Hills office will serve clients throughout Beverly Hills, Bel Air, Holmby Hills, West Hollywood, and the greater Los Angeles area. Attorneys at the new location handle the full range of family law matters, including contested and uncontested divorce, legal separation, child custody and visitation, child and spousal support, prenuptial and postnuptial agreements, and post-judgment modifications.
+ Type a request such as "Bookstores in Texas that host author signings" or "Mystery bookstores in California" and Featured returns the matching stores. Each result shows the store's name and location, a short description of its programming, a link to its website or events page, and an email address when the store publishes one. Users can then ask Featured to draft the pitch in the same chat.
 
- “The opening of our Beverly Hills office marks an exciting new chapter for our firm and expands our ability to serve families across California,” said Debra Schoenberg, Founder and Principal of Schoenberg Family Law Group. “For nearly four decades, we’ve guided clients through some of life’s most difficult transitions with compassion, thoughtful counsel and a strategic approach. We’re proud to extend that same personalized service to individuals and families in Southern California and throughout the state.”
+ Find Bookstores is available on every Featured plan, including Free. Book publicists can plan the rest of the tour in the same place: Featured answers requests for bookstores and speaking opportunities in the same chat, and Find Podcasts covers the interviews around each stop.
 
- A Focus on High-Asset and Complex Family Law Cases High-asset divorces are common in Beverly Hills and the surrounding communities, and they often involve business interests, real estate portfolios, investment accounts, executive compensation, and entertainment-industry income such as residuals and royalties. SFLG’s attorneys work with forensic accountants and valuation experts to identify, value, and divide community and separate property under California law, and to uncover assets when a spouse fails to make full financial disclosure.
+ Independent bookstores are growing. The American Booksellers Association's 2025 annual report counted 605 new bookstore businesses opened in 2025, including 399 storefronts, against 65 closures, with openings up 87% from 2024. ABA membership reached 3,417 members operating 3,783 locations, nearly double the 1,775 members the association counted in 2016 and, according to the Associated Press, the highest since the late 1990s. For an author, each of those stores is a room and a crowd that chose to come.
 
- The firm often resolves cases through negotiation and mediation, maintaining privacy in sensitive family and financial matters. If settlements fail, SFLG's trial attorneys litigate in the Los Angeles County Superior Court, including the Stanley Mosk Courthouse.
+ “When my book came out, I pitched Changing Hands in Tempe for a talk and signing,” said Brett Farmiloe, Founder and CEO of Featured. “What made it tough is that as a first-time author, I had no idea what I was doing when it came down to promoting my book. Featured simplifies that path, and connects authors with the stores that host events and can move product.”
 
- SFLG aims for negotiated resolutions but prepares each case for trial to ensure clients negotiate from a position of strength.
+ Of the 1,093 stores in Featured's database, 59.9% link to a public events or calendar page and 37.6% publish an email address for the store. The stores span all 50 states and the District of Columbia across 796 cities, and 36.6% describe author events, readings or signings in their own words.
 
- Led by a Board-Certified Family Law Specialist Debra R. Schoenberg is a Certified Family Law Specialist designated by the State Bar of California Board of Legal Specialization, a Board-Certified Family Law Trial Specialist through the National Board of Trial Advocacy, and a Fellow of the American Academy of Matrimonial Lawyers. The Daily Journal has named her one of California’s Top Family Lawyers each year from 2022 through 2026.
+ Find Bookstores runs inside the same Featured chat users already use to find Substack publications and TV stations. It is live now at featured.com. Free to start. No credit card.
 
- SFLG was voted the No. 1 Family Law Firm in California for six consecutive years, 2021 through 2026, in a statewide poll of judges, attorneys, and law firm administrators conducted by The Recorder. The San Francisco Business Times has also named the firm one of the Best Places to Work in the Bay Area. Together, the firm’s attorneys bring more than 400 years of collective family law experience.
+ About Featured Featured is the AI co-pilot for PR, a platform that helps PR professionals and subject-matter experts land media placements, build brand authority, and grow AI visibility. The company owns and operates HARO (Help a Reporter Out) and Connectively as standalone products within its portfolio. Learn more at featured.com.
 
- About [Schoenberg Family Law Group, P.C.](https://www.sflg.com/beverly-hills-family-law/) Schoenberg Family Law Group, P.C. is a California family law firm representing clients in divorce, child custody, support, property division, prenuptial and postnuptial agreements, and post-judgment matters. Founded by Debra R. Schoenberg, the firm has practiced family law for nearly 40 years and maintains offices in San Francisco, Beverly Hills, San Mateo, San Jose, and Roseville.
+ Press Inquiries
 
- People in the Los Angeles area who need guidance on divorce, custody, or another family law matter can schedule a confidential consultation with the firm’s Beverly Hills family law attorneys.
+ Brett Farmiloe
 
- Contact Us: Schoenberg Family Law Group, P.C.
+ Email Contact
 
- Beverly Hills 9665 Wilshire Blvd, M10 Beverly Hills, CA 90212
+ https://featured.com
 
- Phone: 310-340-1846
+ Terkel, Inc. (dba Featured)
 
- Web: https://www.sflg.com/beverly-hills-family-law/ 
+ 7014 E Camelback Rd, Suite B100A
+
+ Scottsdale, AZ 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610223083/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+[Original/Source Press Release](https://newsworthy.ai/news/202610223086/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/schoenberg-family-law-group-opens-beverly-hills-office/c0a094fb320a4956b45bfeb40aeb7e4b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/featured-launches-find-bookstores-ai-tool-for-author-book-tours/809a9a94d673657efcf1d7b5c2b91001) 
 
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/featured-launches-find-bookstores-for-authors-planning-book-signings-and-book-tours)
+
+Pickup - [https://advos.io/en](https://advos.io/en/featured-launches-find-bookstores-to-help-authors-plan-book-tours-as-independent-bookstores-surge)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/featured-launches-find-bookstores-to-help-authors-plan-signings-and-tours)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/featured-launches-find-bookstores-to-help-authors-plan-signings-and-tours)
+
+Pickup - [https://news.bookretreat.com/book-news](https://news.bookretreat.com/book-news/featured-launches-find-bookstores-to-help-authors-plan-book-tours-amid-independent-bookstore-boom)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/featureds-find-bookstores-tool-targets-texas-authors-as-independent-bookshops-multiply)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-herramienta-find-bookstores-de-featured-apunta-a-autores-de-texas-mientras-se-multiplican-las-librerias-independientes)
+
+Pickup - [https://burstable.news](https://burstable.news/news/featured-launches-find-bookstores-to-help-authors-plan-signings-and-tours)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/featured-startet-find-bookstores-um-autoren-bei-der-planung-von-signierstunden-und-lesereisen-zu-helfen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/featured-lanza-find-bookstores-para-ayudar-a-los-autores-a-planificar-firmas-y-giras)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/featured-lance-un-outil-pour-trouver-des-librairies-et-aider-les-auteurs-a-planifier-leurs-seances-de-dedicaces-et-leurs-tournees)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/featured-lanca-ferramenta-find-bookstores-para-ajudar-autores-a-planejar-sessoes-de-autografos-e-turnes)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/featured-launches-find-bookstores-to-help-authors-plan-signings-and-tours)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/22/luna917u.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/22/yawnSvbS.webp)
