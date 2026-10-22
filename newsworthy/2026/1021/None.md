@@ -1,107 +1,78 @@
-# 2026 New York Comedy Festival: Comedy Village Showcases Top Talent
+# Sage Dispensary Brings New Life To Mount Laurel Landmark With Grand Opening At Former Sage Diner
 
-Comedy Village, the renowned comedy hub in Hell’s Kitchen established by seasoned comedian PJ Landers, is gearing up to amplify the laughter as it hosts top-tier comedic talent for the 2026 New York Comedy Festival, scheduled from November 6-15 across New York City.
+A familiar South Jersey landmark is getting a new chapter. Sage Dispensary has officially opened its doors at 1170 Route 73 in Mount Laurel, transforming the former Sage Diner into a locally rooted cannabis destination while preserving the character and name of the property that has long been part of the community.
 
- For the third year running, Comedy Village proudly hosts the New York Comedy Festival, inviting audiences to its state-of-the-art, two-story venue near Times Square and iconic Broadway theaters.The club will feature performances by some of the funniest names in stand-up alongside rising comedy stars.
+ For founder and managing partner Alex Kardos, the opening represents something more personal than the launch of another cannabis retailer. Raised in the Cherry Hill area, Kardos grew up just a few miles from the diner and remembers visiting Sage with his parents as a child. When he returned to South Jersey after more than a decade building his career in the cannabis industry on the West Coast, the opportunity to bring new life to the familiar property felt like a natural homecoming.
 
- [The Comedy Village lineup for the 2026 New York Comedy Festival includes:](https://comedyvillage.com/) 
+ “The Sage Diner was part of the landscape I grew up with, so being able to bring this building back to life while keeping the Sage name means a lot to me,” said Kardos. “I’ve spent nearly two decades learning every side of this industry, and I wanted to bring all of that experience home and create a place where people can find great cannabis, get honest guidance and feel comfortable whether they’ve been shopping for years or are completely new to it.”
 
- * Sweet & Sour Chicks Comedy Tour with Kiki Yeung and Esther Ku: Sunday, November 8 at 7:00 PM
-* Late for School Starring Jimmy Cash: Tuesday, November 10 at 7:00 PM
-* Samuel Orson: Wednesday, November 11 at 7:00 PM
-* Headliner Series with Lance Weiss: Wednesday, November 11 at 7:00 PM
-* Billie Lee: Thursday, November 12 at 7:00 PM
-* Paige Gallagher: Thursday, November 12 at 9:30 PM
+ Sage occupies the existing approximately 5,700-square-foot former diner property, retaining the distinctive setting rather than replacing it with a conventional retail buildout. The location sits at the Route 73 and Church Road intersection, a prominent Mount Laurel location.
 
- Additional shows and performers may be announced. Schedule subject to change without notice.
+ Today, Sage offers adult-use cannabis products selected with an emphasis on quality, variety and knowledgeable customer service. The dispensary is designed to serve a broad range of consumers, from experienced flower enthusiasts interested in growers, cultivation and new genetics to customers looking for convenient formats such as pre-rolls and edibles, as well as those who appreciate additional guidance when navigating an increasingly diverse cannabis market.
 
- “New York City is the greatest comedy city in the world, and Caroline Hirsch has played an enormous role in making it that way,” said PJ Landers, owner of Comedy Village. “What Caroline has built with the New York Comedy Festival is extraordinary. She took an idea and turned it into the largest and longest-running annual comedy festival in the United States, while creating a platform that brings together the biggest names in comedy with the comedians who are going to be the next big names. We’re We’re proud to join the festival for a third year, showcasing the brightest talent on Comedy Village stages this November.an exciting time for comedy in New York, and we’re thrilled to be part of it.” Nestled in the vibrant heart of Hell’s Kitchen, mere steps from Times Square and the city's legendary Broadway theaters, Comedy Village has established itself as a must-visit spot for New Yorkers, tourists, and comedy enthusiasts worldwide. Comedy Village.lub’s new, state-of-the-art venue features two floors, each with its own unique showroom, creating an intimate setting where audiences can experience stand-up comedy up close.
+ That experience informs Sage’s approach to product selection and education, as the dispensary aims to create an environment where customers can ask questions, explore products and develop relationships with knowledgeable staff.
 
- A prime central location, Comedy Village delivers an intimate comedy experience with two shows nightly, seven days a week. Showcasing a diverse array of comedic talent, from rising stars to industry icons, it offers the best in stand-up comedy. Whether you're a seasoned comedy aficionado or a casual observer, there's something for everyone at Comedy Village.
+ “We’re not trying to make cannabis complicated,” Kardos said. “There is an incredible amount of choice available today, and that can be exciting, but it can also be overwhelming. Our job is to know the products, understand what makes them different and help customers find what makes sense for them.”
 
- About the New York Comedy Festival Founded in 2004 by Caroline Hirsch, the New York Comedy Festival is the largest and longest-running annual comedy festival in the United States. Produced by Carolines, the festival brings together the biggest names in comedy, emerging talent and comedy fans from around the world for 10 days of performances and special events at venues throughout New York City. The festival has featured an extraordinary roster of comedic talent over the years and continues to celebrate New York’s unique role as the home of stand-up comedy.
+ Sage’s current operation reflects that emphasis on accessibility and convenience. The dispensary is open daily from 8 a.m. to 10 p.m. and offers in-store shopping, curbside pickup and delivery.
 
- For tickets and complete festival information, visit www.nycomedyfestival.com.
+ The opening also marks the realization of a project that began with Kardos’s recognition that the former diner’s zoning and distinctive physical space presented an unusual opportunity. Sage was conceived as a way to give the landmark a new purpose while retaining the name and character that connected it to the surrounding community.
 
- About Comedy Village Comedy Village is more than just a comedy club; it's a comedy institution. Founded in 2004 by comedian and entrepreneur PJ Landers, the club quickly became a haven for both up-and-coming talent and established comedy legends. Its original Greenwich Village location played host to a who's who of comedy greats, including Dave Attell, Bill Burr, and Dave Chappelle, who honed their craft on its intimate stage.
+ Sage’s philosophy extends beyond the products on its shelves. The company describes its mission as reshaping cannabis culture through community connection, education and giving back, with an emphasis on becoming part of the communities it serves.
 
- In 2024, Comedy Village made a bold move to the heart of Hell’s Kitchen, just steps from Times Square and the city’s most iconic Broadway theaters, bringing its signature blend of high-quality comedy to one of New York City’s most vibrant neighborhoods. The club’s new, state-of-the-art venue features two floors, each with its own unique showroom, ensuring a comfortable and entertaining experience for every guest.
+ For Kardos, that community connection is ultimately what brings the story full circle: a South Jersey native returning home with nearly 20 years of cannabis experience and opening a business in a place he remembers from childhood.
 
- With two shows nightly, seven days a week, Comedy Village offers a diverse lineup of comedic talent. From rising stars to industry icons, our stages showcase the best in stand-up comedy. Whether you're a seasoned comedy aficionado or a casual observer, there's something for everyone at Comedy Village. Connect with Comedy Village on Facebook, Instagram, and X.
+ “I’ve worked in cannabis in a lot of different places and in a lot of different roles,” Kardos said. “Coming back to where I grew up and building something in a place that was already meaningful to the community is incredibly rewarding. The Sage location has a history here. We’re excited to add the next chapter.”
 
- Media Contact:
-
- PJ Landers
-
- Email Contact
-
- (646) 469-7531 
+ Sage Dispensary is located at 1170 NJ-73, Mount Laurel, NJ 08054 and is open daily from 8 a.m. to 10 p.m. For more information, visit Sage Dispensary. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610212957/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+[Original/Source Press Release](https://newsworthy.ai/news/202610213085/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/comedy-village-returns-to-new-york-comedy-festival-for-third-year/7bbed8614f7cf0e2a7a9f5a92cce1e9c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sage-dispensary-opens-in-former-mount-laurel-diner/b4e817c7bf1e319a893d08ee53c79160) 
 
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://advos.io/en](https://advos.io/en/sage-dispensary-opens-in-former-sage-diner-bringing-cannabis-retail-to-mount-laurel-landmark)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/sage-dispensary-opens-in-former-sage-diner-reviving-a-mount-laurel-landmark)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/sage-dispensary-opens-in-former-mount-laurel-diner-bringing-local-cannabis-experience-home)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://news.jerseycitytribune.com/curated](https://news.jerseycitytribune.com/curated/sage-dispensary-opens-in-former-sage-diner-bringing-new-life-to-mount-laurel-landmark)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://news.newwarkherald.com/curated](https://news.newwarkherald.com/curated/sage-dispensary-opens-in-former-sage-diner-reviving-a-mount-laurel-landmark)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/2026-new-york-comedy-festival-comedy-village-showcases-top-talent)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://advos.io/en](https://advos.io/en/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://news.buffalodailytribune.com/curated](https://news.buffalodailytribune.com/curated/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://burstable.news](https://burstable.news/news/comedy-village-returns-for-third-year-at-2026-new-york-comedy-festival)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/comedy-village-kehrt-zum-dritten-mal-zum-new-york-comedy-festival-2026-zuruck)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/comedy-village-regresa-por-tercer-ano-al-festival-de-comedia-de-nueva-york-2026)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/comedy-village-revient-pour-une-troisieme-annee-au-new-york-comedy-festival-2026)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/comedy-village-retorna-pelo-terceiro-ano-no-new-york-comedy-festival-2026)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
-
-Pickup - [https://news.newyorkdailytribune.com/curated](https://news.newyorkdailytribune.com/curated/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup)
-
-Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/comedy-village-brings-top-talent-to-2026-new-york-comedy-festival)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/21/comedy-village-returns-to-new-york-comedy-festival-for-third-year-with-star-studded-lineup/)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/sage-dispensary-brings-new-life-to-mount-laurel-landmark-with-grand-opening-at-former-sage-diner)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/mossPN8a.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/21/kissuT_q.webp)
