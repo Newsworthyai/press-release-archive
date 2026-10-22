@@ -1,40 +1,68 @@
-# Schoenberg Family Law Group Expands to Beverly Hills, Enhancing Statewide Legal Services
+# UGI System Upgrade Project Set to Begin In Richland Township
 
-BEVERLY HILLS, CA, OCTOBER 22, 2026
+FOR IMMEDIATE RELEASE - OCTOBER 23, 2026
 
-Schoenberg Family Law Group, P.C. (SFLG), a California family law firm founded by Certified Family Law Specialist Debra R. Schoenberg, has opened a new office at 9665 Wilshire Blvd, M10, in Beverly Hills. The office marks the firm’s first permanent location in Southern California and gives Los Angeles County clients direct, local access to a firm that has handled complex divorce and custody cases for nearly 40 years.
+UGI Utilities is scheduled to begin a system upgrade project on Friday, October 23, 2026, in Richland Township, Bucks County. The natural gas main replacement is part of UGI’s commitment to provide safe and reliable service and is an opportunity for those who live along the route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Schoenberg Family Law Group opens its first permanent Southern California office at 9665 Wilshire Blvd, M10, in Beverly Hills, giving Los Angeles County clients direct local access.
-* The Beverly Hills office serves clients across Beverly Hills, Bel Air, Holmby Hills, West Hollywood, and the greater Los Angeles area and handles the full spectrum of family law matters, including complex high-asset divorces.
-* Led by Certified Family Law Specialist Debra R. Schoenberg, the firm brings more than 400 years of collective experience and has been voted California’s No. 1 family law firm for six consecutive years.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-system-upgrade-project-set-to-begin-in-richland-township)
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-About Schoenberg Family Law Group, P.C.
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-Schoenberg Family Law Group, P.C. is a California family law firm representing clients in divorce, child custody, support, property division, prenuptial and postnuptial agreements, and post-judgment matters. Founded by Debra R. Schoenberg, the firm has practiced family law for nearly 40 years and maintains offices in San Francisco, Beverly Hills, San Mateo, San Jose, and Roseville.
-
-People in the Los Angeles area who need guidance on divorce, custody, or another family law matter can schedule a confidential consultation with the firm’s Beverly Hills family law attorneys.
-
-Contacts:Schoenberg Family Law Group, P.C. 310-340-1846
-
-Source: Newsworthy.ai
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/schoenberg-family-law-group-expands-to-beverly-hills-enhancing-statewide-legal-services)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-system-upgrade-project-set-to-begin-in-richland-township)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/schoenberg-family-law-group-opens-beverly-hills-office/ba038e2a20ded4a1d146841e6ed42f22) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-utilities-to-begin-gas-main-upgrade-in-richland-township/7edcfb2d8f6a659ef4cd1e6c9b6d7079) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://advos.io/en](https://advos.io/en/ugi-utilities-to-begin-natural-gas-main-replacement-in-richland-township)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ugi-natural-gas-main-replacement-in-richland-township-begins-october-23)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ugi-natural-gas-main-replacement-begins-in-richland-township)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/ugi-utilities-begins-natural-gas-main-replacement-in-richland-township)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ugi-utilities-comienza-el-reemplazo-de-la-tuberia-principal-de-gas-natural-en-richland-township)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/ugi-system-upgrade-project-set-to-begin-in-richland-township)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/22/lineEgVT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/22/gain7hav.webp)

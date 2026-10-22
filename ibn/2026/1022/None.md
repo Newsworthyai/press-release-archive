@@ -1,46 +1,42 @@
-# MissionIRNewsBreaks – TruGolf Holdings, Inc. (NASDAQ: TRUG) Expands E6 Golf Library to More Than 15,000 Courses, Reports Increased Platform Usage
+# TechMediaBreaks – Wrap Technologies Inc. (NASDAQ: WRAP) Brings Scenario-Based Training Through WRAP Reality, WRAP Tactics
 
-TruGolf (NASDAQ: TRUG) announced that its E6 golf simulation platform now offers more than 15,000 real-world courses on demand, a 50% increase in less than a year. Powered by Cesium for Unreal technology from Bentley Systems Inc. (NASDAQ: BSY), the platform generates courses at runtime and streams geographic data as needed, reducing installation size, bandwidth requirements and storage costs. E6 supports 19 launch monitors, allowing golfers using hardware from multiple manufacturers to access the expanding course library, which is also available throughout the TruGolf Links franchise network.
+Wrap Technologies (NASDAQ: WRAP) is positioning its training solutions as tools to help law enforcement and public safety agencies address training decay, the gradual loss of skills and knowledge when not regularly reinforced. The company’s WRAP Reality(TM) and WRAP Tactics(TM) platforms offer recurring, scenario-based learning designed to help personnel practice decision-making, de-escalation, policy compliance and other critical skills between formal training sessions. WRAP Reality uses immersive virtual reality simulations to help personnel rehearse responses to high-pressure situations, while WRAP Tactics provides digital training, proficiency tracking and recertification capabilities. According to the company, its solutions can be operational for most agencies within 30 days. By supplementing traditional instruction with shorter, repeatable exercises, Wrap Technologies aims to help agencies maintain personnel readiness, monitor proficiency and manage training demands more efficiently.
 
- The company reported that on-demand course play increased nearly sixfold year over year, while the number of courses explored grew more than fourfold and shots played on on-demand courses rose more than sevenfold. Total rounds played on E6 Golf 2026 more than tripled, with on-demand courses accounting for over 40% of course rounds, compared with approximately 30% a year earlier. TruGolf said the expanding library supports its recurring software business by making additional courses available to existing subscribers and venues without requiring larger software installations.
+ To view the full article, visit https://ibn.fm/CnBAS
 
- To view the full press release, visit: https://ibn.fm/IQnwH
+ About Wrap Technologies Inc.
 
- About TruGolf
+ WRAP Technologies is a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern-day challenges facing public-safety organizations. WRAP’s complete public-safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions such as PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which support the company’s mission to provide safer, scalable and cost-effective technologies for public safety, defense and critical infrastructure markets.
 
- Since 1983, TruGolf has been passionate about driving the golf industry with innovative indoor golf solutions. TruGolf builds products that capture the spirit of golf. TruGolf’s mission is to help grow the game by attempting to make it more Available, Approachable, and Affordable through technology – because TruGolf believes Golf is for Everyone. TruGolf’s team has built award-winning video games (“Links”), innovative hardware solutions, and an all-new e-sports platform, E6 CONNECT, to connect golfers around the world. Since TruGolf’s beginning, TruGolf has continued to attempt to define and redefine what is possible with golf technology.
+ For more information about the company, visit www.Wrap.com.
 
- NOTE TO INVESTORS: The latest news and updates relating to TRUG are available in the company’s newsroom at https://ibn.fm/TRUG
+ NOTE TO INVESTORS: The latest news and updates relating to WRAP are available in the company’s newsroom at https://ibn.fm/WRAP
 
- About MissionIR
+ About TechMediaWire
 
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- MIR is where breaking news, insightful content and actionable information converge.
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit www.MissionIR.com
+ For more information, please visit https://www.TechMediaWire.com
 
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
 
- MissionIR is powered by IBN 
+ TechMediaWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-trugolf-holdings-inc-nasdaq-trug-expands-e6-golf-library-to-more-than-15000-courses-reports-increased-platform-usage/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-wrap-technologies-inc-nasdaq-wrap-brings-scenario-based-training-through-wrap-reality-wrap-tactics/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trugolf-expands-e6-platform-to-15000-on-demand-courses/3d0554f717215ff3dcebab83d89b5407) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-fights-training-decay-with-vr-digital-tools/ebc229eec7559acd2da0aae5d27a5dc3) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/trugolf-expands-e6-golf-library-to-over-15000-courses-reports-surge-in-platform-usage)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/trugolfs-e6-platform-surpasses-15000-courses-reports-surge-in-usage)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/22/pitapicobNCE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/22/bestQ7ND.webp)
