@@ -1,35 +1,35 @@
-# InvestorNewsBreaks – QT Imaging Holdings, Inc. (NASDAQ: QTI) Receives Buy Rating, $9 Price Target in D. Boral Capital Initiation of Coverage
+# MissionIRNewsBreaks – Versus Systems Inc. (NASDAQ: VS) Taps Expertise to Advance Gamification Strategy
 
-QT Imaging (NASDAQ: QTI), a medical technology company developing advanced breast imaging solutions, received a Buy rating and $9 price target from D. Boral Capital in an Oct. 23, 2026, research report titled “Beyond the Mammogram.” Analyst Patrick McCann cited growing adoption of the company’s Breast Acoustic CT(TM) Scanner, expanding international distribution and potential applications beyond supplemental breast imaging. The scanner produces three-dimensional images without radiation, breast compression or contrast injections, offering additional imaging capabilities particularly for women with dense breast tissue. The report also highlighted potential applications in diagnostic evaluation and oncology treatment monitoring, subject to further clinical validation.
+Versus Systems (NASDAQ: VS), a provider of gamification and audience engagement technology, recently appointed Brian Goldenberg, CPA, as chief financial officer. Goldenberg brings more than 25 years of financial and operational leadership experience, including previous CFO, COO and chief compliance officer roles at investment management firms. He will also serve as the company’s principal financial officer and principal accounting officer, overseeing key financial reporting and accounting responsibilities. The appointment comes as Versus expands its audience engagement business through its Winfinite customizable web-based gaming platform, Filter Fan Cam live-event technology and a partnership with Drinkfinger that integrates QR-code interactions with digital games and rewards. Goldenberg’s expertise is expected to support the company’s operational infrastructure and growth strategy as it develops gamification solutions for brands, sports teams and entertainment partners across digital and live environments.
 
- D. Boral Capital forecasts revenue increasing from approximately $39 million in 2026 to $46.7 million in 2027 and $90.5 million by 2030, supported by increased scanner shipments, international regulatory approvals and a developing direct-sales strategy targeting hospitals and imaging providers. The firm also projects adjusted earnings before interest, taxes, depreciation and amortization (“EBITDA”) reaching $21.8 million by 2030, with recurring maintenance and software revenue contributing to growth. The $9 price target is based on a discounted cash flow analysis using a 15% discount rate and 1% terminal growth rate. The report identified commercialization, manufacturing, financing, regulatory and reimbursement risks as factors that could affect the company’s growth trajectory.
+ To view the full article, visit https://ibn.fm/Mabd5
 
- To view the full report, visit https://ibn.fm/CpwHO
+ About Versus Systems Inc.
 
- About QT Imaging
+ Versus Systems is a leading provider of gamification and audience engagement technology. Its platform enables brands, teams, and entertainment partners to create rewarding interactive experiences that transform how they connect with consumers worldwide. For more information on Versus Systems and its engagement technologies, visit VersusSystems.com.
 
- QT Imaging Holdings, Inc. (Nasdaq: QTI) is a medical device company engaged in the research, development, and commercialization of innovative imaging systems that use low-frequency sound waves. QT Imaging Holdings, Inc. strives to improve global health outcomes. Its strategy is predicated upon the fact that medical imaging is critical to the detection, diagnosis, and treatment of disease and that it should be safe, affordable, accessible, and centered on the patient’s experience.
+ NOTE TO INVESTORS: The latest news and updates relating to VS are available in the company’s newsroom at https://ibn.fm/VSI
 
- For more information on QT Imaging Holdings, Inc., please visit the Company’s website at www.qtimaging.com
+ About MissionIR
 
- About InvestorWire
+ MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ MIR is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.InvestorWire.com
+ For more information, please visit www.MissionIR.com
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
 
- InvestorWire is powered by IBN 
+ MissionIR is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-qt-imaging-holdings-inc-nasdaq-qti-receives-buy-rating-9-price-target-in-d-boral-capital-initiation-of-coverage/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-versus-systems-inc-nasdaq-vs-taps-expertise-to-advance-gamification-strategy/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/qt-imaging-gets-buy-rating-9-target-from-d-boral-capital/2f8f7cd262f0a4a71df90a38c90625c4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/versus-systems-appoints-brian-goldenberg-as-cfo-to-drive-growth/4b4beddde5547b0c97b35648ba3035d1) 
 
  
 
@@ -37,4 +37,4 @@ QT Imaging (NASDAQ: QTI), a medical technology company developing advanced breas
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/23/jokedNqg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/23/archAGth.webp)
