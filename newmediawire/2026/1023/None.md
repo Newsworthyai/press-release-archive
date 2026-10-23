@@ -1,103 +1,41 @@
-# Hong Kong International Optical Fair Opens in November
+# SAPPE Showcases Product Innovations at SIAL Paris 2026
 
-- Showcasing Innovation, Technology and Trendsetting Designs to Capture New Opportunities in the Eyewear Industry
+Mogu Mogu Leads a Diverse New Product Lineup on the Global Stage
 
- HONG KONG - October 23, 2026 (NEWMEDIAWIRE) - Organised by the Hong Kong Trade Development Council (HKTDC) and co-organised by the Hong Kong Optical Manufacturers Association (HKMOA), the 34th Hong Kong International Optical Fair will be held from 4 to 6 November at the Hong Kong Convention and Exhibition Centre (HKCEC). Under the theme "Bright Eyes • New Horizons", the fair will bring together more than 600 exhibitors from 14 countries and regions, featuring a wide range of products and solutions covering smart eyewear, eye care, sports and specialist eyewear, frames, lenses and more, providing buyers with a comprehensive one-stop sourcing platform.
+ BANGKOK - October 23, 2026 (NEWMEDIAWIRE) - Sappe Public Company Limited (SAPPE PCL.) is showcasing its innovative product portfolio at SIAL Paris 2026, a global food and beverage trade exhibition held from 17-21 October 2026 at Paris Nord Villepinte Exhibition Centre in Paris, France. The company is presenting new products and flavours that combine fun and creativity while welcoming trade partners, importers and distributors from around the world to exchange ideas and explore business opportunities.
 
- ![](http://newmediawire.s3.amazonaws.com/6adb278ada846f777beb0c66_1)
+ ![](http://newmediawire.s3.amazonaws.com/6adb6d14da846f777ceb0c0c_1)
 
- HKTDC Associate Executive Director Smilely Lam said: "The eyewear industry is entering a new era driven by technological innovation, sustainability and changing lifestyles. AI-powered smart glasses, for example, recorded global shipments of 8.7 million units last year, representing a remarkable year-on-year increase of 322%, underscoring the sector’s strong growth momentum. The Hong Kong International Optical Fair showcases the latest products and technologies, and also inspires the industry to explore emerging market opportunities from fresh perspectives and foster cross-industry collaboration. From smart eyewear and green solutions to innovative fashion-forward designs, we look forward to providing a platform for exchanges and partnerships within and beyond the industry while reinforcing Hong Kong's position as an international business hub and regional sourcing centre."
+ Leading SAPPE’s showcase is its flagship brand, Mogu Mogu, with a wide range of new offerings, including Zero Sugar drinks, Jelly, Gummy, Candy and Iced Tea, alongside new flavours in its original drink range. The lineup extends the brand’s signature fun and creativity across diverse product formats, giving trade partners and visitors the opportunity to discover and taste the products firsthand.
 
- Global brands unveil the next wave of eyewear innovation
+ SAPPE is also presenting products from Sappe Aloe Vera, Sappe Beauti and All Coco, adding variety to its booth and offering new choices for international markets. Trade partners, importers, distributors and other interested visitors can meet the team to discuss the products and explore opportunities for international business development.
 
- This year, the fair brings together exhibitors from Hong Kong, the Chinese Mainland, Taiwan, and across Asia, Europe and the United States. Industry associations and enterprises from various regions will also be featured, including the HKOMA, Danyang in Jiangsu Province, Zhejiang, Yingtan in Jiangxi Province, Taiwan, ASEAN, Korea and the Fukui Optical Association, as well as the Visionaries of Style zone dedicated to creative designer brands. Making its debut at the fair, Daegu Health College of Korea will bring a number of local eyewear companies and showcase their innovative products. The spotlighted "Brand Name Gallery" will showcase some 200 renowned brands from around the world, highlighting the latest designs and technological innovations.
+ SIAL Paris is one of the world’s largest food and beverage trade exhibitions, taking place every two years. For its 2026 edition, organisers expect 8,000 exhibitors and approximately 400,000 products across 10 industry sectors, covering 280,000 square metres of exhibition space. Bringing together manufacturers, buyers and distributors from around the world, the event provides SAPPE with another opportunity to showcase the capabilities of Thai brands and its diverse portfolio of innovative products to international trade partners.
 
- The 34th Hong Kong International Optical Fair has already attracted pre-registered buyers from leading retailers and distributors worldwide, including Capitol Optical (Singapore), Eyespace Eyewear (UK), Grand Optik (Indonesia), Kaundi GmbH (Austria), Optica Halperin Ltd (Israel), Optical London Drugs (Canada), Parasite Design (France), The Optical Company (Australia) and Vision Plus (US), demonstrating the event’s strong international sourcing appeal.
+ Visitors can discover and sample SAPPE’s products at Booth 5C F035, Hall 5C, throughout SIAL Paris 2026, from 17-21 October 2026.
 
- ![](http://newmediawire.s3.amazonaws.com/6adb278ada846f777beb0c66_2)
+ ![](http://newmediawire.s3.amazonaws.com/6adb6d14da846f777ceb0c0c_2)
 
- Capturing growth in smart eyewear and the silver economy
+ About SAPPE
 
- Rapid advances in artificial intelligence and wearable technology are driving strong growth in the smart eyewear sector. According to IDC, global smart glasses shipments reached 3.566 million units in the first quarter of 2026, up 130.1% year-on-year. Meanwhile, market research firm Omdia reported that global AI eyewear shipments reached 8.7 million units in 2025, representing annual growth of 322%, highlighting the transition of smart eyewear from a niche category to mainstream adoption.
+ Sappe PCL (SAPPE) is a leading Thai beverage innovator and the creator of the "Snack Drink" category through its iconic global brand, Mogu Mogu, now exported to over 100 countries across Asia, Europe, the Middle East, and beyond. The company specializes in fruit juice and functional health beverages designed to serve the evolving lifestyle needs of modern consumers around the world.
 
- This year's fair will feature a wide array of smart eyewear equipped with augmented reality (AR), AI voice assistants, real-time translation, 4K recording and navigation functions. At the same time, growing demand from the silver economy is fuelling interest in vision care and eye-health products. Exhibitors will showcase progressive lenses, smart reading glasses, bone-conduction audio glasses and eye-care devices designed for older consumers, helping to enhance quality of life and visual wellbeing. Sports eyewear, performance eyewear, sustainability-focused products and green manufacturing technologies will also be among the highlights.
+ SAPPE's diverse portfolio includes globally recognized brands such as Mogu Mogu, the world's first snackable drink; Sappe Aloe Vera, known for its refreshing taste and natural ingredients; and Sappe Beauti, a functional drink line focused on health, wellness, and women empowerment. Headquartered in Bangkok, Thailand, SAPPE is listed on the Stock Exchange of Thailand (SET) under the symbol SAPPE.
 
- Industry events spotlight emerging trends and future opportunities
+ Driven by innovation, deep consumer insights, and a strong commitment to sustainability, SAPPE operates with a balanced focus on product innovation, economic performance, social responsibility, and environmental impact. The company believes that building a sustainable future begins with valuing people, embracing diversity, and leading with authenticity, creativity, and the courage to drive positive change. SAPPE's mission is to inspire lives worldwide one meaningful beverage at a time.
 
- A series of forums and seminars will be held during the fair, covering topics such as smart eyewear, performance eyewear, testing and certification, enabling industry professionals to keep abreast of the latest market developments. The 24th Hong Kong International Optometric Symposium, organised by the HKTDC and co-organised by the Hong Kong Optometric Association and The Hong Kong Polytechnic University, will take place on 5 November. Under the theme "Primary Eye Care in Action: Elevating Clinical Scope and Community Impact", experts from Chinese Mainland, Hong Kong, Australia, the United Kingdom, and the United States will share the latest research findings and clinical experiences on a wide range of topics, including paediatric eye care, digital eye strain, driving vision assessment, dry eye management, inherited retinal diseases, and collaborative management between optometrists and ophthalmologists.
+ Sappe official: https://www.sappe.com/en/Facebook: https://www.facebook.com/sappeplaygroundInstagram: https://www.instagram.com/mogumogu_global/Line: https://shop.line.me/@sappeonlineShopee: https://shopee.co.th/sappe.officialEmail: corpcom@sappe.com
 
- In addition, the 26th Hong Kong Eyewear Design Competition will hold its award presentation ceremony on the opening day of the fair. This year's theme, "Mix & Match", encourages designers to showcase eyewear as an expression of fashion and personal style through innovative designs. A new Technology Concept Award has been introduced for student participants to encourage the integration of creativity and technology.
-
- ![](http://newmediawire.s3.amazonaws.com/6adb278ada846f777beb0c66_3)
-
- The fair will continue to adopt the EXHIBITION+ hybrid model which seamlessly integrates online and offline elements to extend business opportunities. Exhibitors and buyers can connect and arrange meetings through the Click2Match online smart business-matching platform until 13 November. During the physical event, buyers can also use the Scan2Match function on the HKTDC Marketplace App to scan exhibitors’ QR codes to bookmark favourite suppliers, access product details and interactive floor plans, and make product enquiries - enabling engagement with exhibitors before and after the fair to continue their sourcing journey.
-
- Featured Products
-
- Driven by technological innovation, demographic shifts and increasing health awareness, the eyewear industry is entering a new era of growth and transformation. This year's fair spotlights five major trends: smart technology, the silver economy, fashion and design, active lifestyles, and sustainability. Showcasing innovative products and solutions that combine technology, wellness, design and environmental responsibility, the fair offers a glimpse into the future of the industry while opening up fresh business opportunities. Highlights include:
-
- Photo Download: https://bit.ly/4iuIl1Q
-
- Websites
-
- The Hong Kong International Optical Fair: https://www.hktdc.com/event/hkopticalfair/en
-
- Event details of the Hong Kong International Optical Fair: https://www.hktdc.com/event/hkopticalfair/en/programme
-
- The 24th Hong Kong International Optometric Symposium: https://www.hktdc.com/event/hkopticalfair/en/the-24th-hong-kong-international-optometric-symposium
-
- The HKTDC's Media Room: http://mediaroom.hktdc.com/en
-
- Fair Details
-
- Date:
-
-4 – 6 November 2026 (Wednesday to Friday)
-
- Time:
-
-(4 to 5 November) 9:30am – 6:30pm(6 November) 9:30am – 5:00pm
-
- Venue:
-
-Hong Kong Convention and Exhibition Centre
-
- Admission: For trade visitors aged 18 or above only. Onsite Registration Fee: HK$100 per person (free for e-Badge registration and pre-registered buyers)
-
- Click2Match – Smart Business Matching Platform:
-
- Date: 28 October – 13 November
-
- Media enquiries:
-
- For enquiries, please contact:
-
- HKTDC Communication and Public Affairs Department:
-
- Navin Law
-
-Tel: (852) 2584 4525
-
-Email: navin.cm.law@hktdc.org
-
- Winnie Kan
-
-Tel: (852) 2584 4055
-
-Email: winnie.wy.kan@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ Sappe PCL [SET: SAPPE, SAPPE/F, SAPPE-R] https://www.sappe.com/en/
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hong-kong-international-optical-fair-opens-in-november-7090830)
+[Original/Source Press Release](https://www.newmediawire.com/news/sappe-showcases-product-innovations-at-sial-paris-2026-7090834)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-optical-fair-2026-smart-eyewear-takes-center-stage/8a65fb7e2dae226484e4c9a0603f7037) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mogu-mogu-maker-sappe-unveils-new-product-lineup-at-sial-paris-2026/b2841b0144005eeab7463145263a425d) 
 
  
 
@@ -105,4 +43,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/23/veil0swW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/23/vastiAoi.webp)

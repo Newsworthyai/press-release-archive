@@ -1,70 +1,32 @@
-# My MMJ Doctor Launches Partner Program to Help Dispensaries Earn Commissions & Reward Customers
+# 3,814-Acre Kronkosky Natural Area Targets Late Fall 2026 Opening Between Boerne and Bandera
 
-My MMJ Doctor, a leading telehealth platform in the US connecting patients with state-licensed medical cannabis physicians, announced the launch of its Dispensary Partner Program. The program is designed to empower licensed cannabis retailers to earn affiliate commissions on every patient evaluation while offering exclusive discounts and rewards.
+The Building Texas Show's latest episode, New Texas State Park Near Boerne: Why It Isn't a Park | ABK, hosted by Justin McKenzie and published October 21, 2026, delivers an on-the-ground preview of the Albert & Bessie Kronkosky State Natural Area (ABK), the 3,814-acre site straddling Bandera County and Kendall County along Highway 46 between Boerne and Bandera. New site superintendent Stephanie Kwiatkowski, who stepped into the role in June, explains why Texas Parks and Wildlife is targeting late fall 2026 to open the gates, and why the agency classified ABK as a state natural area rather than a state park.
 
- As cannabis dispensaries face falling product prices and tighter profit margins, many are looking for new ways to generate revenue without adding high costs. My MMJ Doctor’s Partner Program offers dispensaries another potential income source through recurring referral commissions on qualifying medical marijuana card evaluations and renewals, without requiring upfront program fees.
+ The conversation is a return visit for the show, which previously hosted founding superintendent James Rice while the land was still in survey and planning. Kwiatkowski walks listeners through several specific threads:
 
- Under the new program, participating dispensaries receive customized promotional portals, QR code displays, and co-branded digital collateral. When dispensary customers sign up to obtain or renew their medical marijuana card, the dispensary earns a competitive affiliate commission for every completed evaluation. Simultaneously, customers benefit from discounted evaluation rates and gain access to the financial advantages of holding a state medical card-including state excise tax exemptions, higher daily possession limits, and access for qualifying young adults. This way, both dispensaries and customers benefit from this alliance.
+ * The legal and operational distinction between a state park and a state natural area under the Texas Admin Code, with comparisons to Government Canyon, Lost Maples, Inks Lake, and McKinney Falls.
+* The 28 miles of multi-use trail open to hikers, mountain bikers, joggers, and strollers.
+* Operational lessons from the July 2026 flooding event, which washed out landscaping, trails, and campsites before any public visitation.
 
- Program Highlights for Dispensary Partners:
+ Kwiatkowski frames the park-versus-natural-area question as a spectrum between recreation and conservation, and she is candid about the stakes of protecting the ABK viewshed. Standing in a UTV above the canyons during her first weeks on site, she described the moment this way:
 
- * Recurring Affiliate Commissions: Every patient who evaluates or renews their medical marijuana card via the dispensary's dedicated portal earns direct commissions. With MyMMJDoctor, participating dispensaries can earn 10-15 % for each qualifying referral.
-* Customer Loyalty & VIP Perks: Store Customers get rewarded with discounted online evaluations, creating immediate goodwill and trust. It positions the dispensary as a trusted patient advocate.
-* Increased Customer Lifetime Value: Anyone who holds a medical marijuana card has benefits like tax savings, higher purchase limits, etc. This leads to high visit frequency and comparatively larger purchases from dispensaries
-* No Upfront Program Fee: Requires no upfront fees, software integration costs, or inventory risk, maintaining complete clinical independence and healthcare compliance.
-* Full-Circle Patient Shopping Journey: Bridges online medical evaluations directly with physical and online dispensary retail, turning health-conscious consumers into active buyers. Patients complete their online physician evaluation via smartphone or desktop and return directly to the partner dispensary to purchase products tailored to their qualifying conditions.
+ "The site owns both sides of those canyons. And so that view, that viewshed, it is safeguarded for, um, forever." She also credits the volunteer corps assembled by James Rice, a former biologist, calling the relationships "integral to our success as a site."
 
- 
+ The episode digs into the ecological specifics that justify ABK's protective designation: bigtooth maples that rival those at Lost Maples State Natural Area, the riparian corridors along Red Bluff Creek and Pipe Creek, and the transition zones between ash juniper woodlands and creek bottoms. Kwiatkowski traces her own path from a childhood of camping in a pop-up trailer, through an environmental science degree with a minor in environmental sociology, GIS and consulting work, a formative seasonal job with the City of New Braunfels parks, the park operations trainee role at the Lost Pines Complex (Bastrop and Buescher State Parks), and an assistant superintendent stint at Pedernales Falls State Park before her June promotion. Construction crews, subcontractors, and a six-person site team are now preparing cabins, screened shelters, tent sites, backcountry camping, and hike-and-bike infrastructure for public access.
 
- “Dispensary operators today are working harder than ever to protect their margins while providing exceptional care to their communities, " said the Director of Partnerships at My MMJ Doctor.. Our Affiliate Program is built to solve that exact equation. By removing financial friction and automating the medical certification journey, we give dispensaries a turnkey strategy to increase patient foot traffic, elevate customer lifetime value, and build a sustainable healthcare bridge in their local markets."
-
- The My MMJ Doctor Affiliate Partnership Program is now open to licensed medical and dual-use dispensaries across all active medical cannabis states. 
+ About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the people, places, and projects shaping Texas communities, from Hill Country conservation to small-business entrepreneurship. New episodes publish weekly across YouTube, Facebook, Instagram, and LinkedIn, with sponsorship support from Chisos Boots. The ABK episode is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610233090/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-and-reward-customers)
+[Original/Source Press Release](https://newsworthy.ai/news/202610233078/3814-acre-kronkosky-natural-area-targets-late-fall-2026-opening-between-boerne-and-bandera)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/my-mmj-doctor-launches-dispensary-partner-program-with-affiliate-commissions/fdf4f7ec8b319cec008cc29b58eef56e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abk-natural-area-near-boerne-superintendent-talks-fall-2026-opening/8a7d93f32f339661df1e33004f700bcd) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/my-mmj-doctor-launches-partner-program-to-help-dispensaries-earn-commissions-reward-customers)
-
-Pickup - [https://advos.io/en](https://advos.io/en/telehealth-platform-launches-dispensary-partner-program-to-boost-cannabis-retailer-revenue)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/my-mmj-doctor-launches-dispensary-partner-program-to-help-texas-cannabis-retailers-earn-commissions)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/my-mmj-doctor-lanza-un-programa-de-socios-para-dispensarios-para-ayudar-a-los-minoristas-de-cannabis-de-texas-a-ganar-comisiones)
-
-Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/my-mmj-doctor-launches-dispensary-partner-program-to-help-cannabis-retailers-boost-revenue)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/23/warpBhFY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/23/vastqlyB.webp)
