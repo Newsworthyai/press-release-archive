@@ -1,40 +1,98 @@
-# MissionIRNewsBreaks – Versus Systems Inc. (NASDAQ: VS) Taps Expertise to Advance Gamification Strategy
+# InvestorNewsBreaks – SuperQ Quantum Computing Inc. (CSE: QBTQ) (OTCQB: QBTQF) (FSE: 25X) Positions Hybrid Architecture at Intersection of Quantum, AI
 
-Versus Systems (NASDAQ: VS), a provider of gamification and audience engagement technology, recently appointed Brian Goldenberg, CPA, as chief financial officer. Goldenberg brings more than 25 years of financial and operational leadership experience, including previous CFO, COO and chief compliance officer roles at investment management firms. He will also serve as the company’s principal financial officer and principal accounting officer, overseeing key financial reporting and accounting responsibilities. The appointment comes as Versus expands its audience engagement business through its Winfinite customizable web-based gaming platform, Filter Fan Cam live-event technology and a partnership with Drinkfinger that integrates QR-code interactions with digital games and rewards. Goldenberg’s expertise is expected to support the company’s operational infrastructure and growth strategy as it develops gamification solutions for brands, sports teams and entertainment partners across digital and live environments.
+Disseminated on behalf of SuperQ Quantum Computing Inc. and may include paid advertisements.
 
- To view the full article, visit https://ibn.fm/Mabd5
+ SuperQ Quantum (CSE: QBTQ) (OTCQB: QBTQF) (FSE: 25X) is developing an integrated hybrid quantum-computing ecosystem designed to connect quantum processors with traditional computing infrastructure, including CPUs, GPUs, high-performance computing and artificial intelligence. Its flagship Super(TM) platform provides a unified environment for accessing and deploying computational resources, while Super OS(TM) is being developed to orchestrate these resources through a common execution layer. The company is also developing Super Nova(TM), a modular hybrid quantum computer, with its quantum hardware work taking place at the University of Waterloo’s Digital Quantum Matter Lab under Professor Matteo Mariantoni. SuperQ is expanding its technology and commercial ecosystem through a partnership with photonic quantum technology company Quanfluence and a commercial agreement with AI Financial Corporation focused on post-quantum security and compute tokenization.
 
- About Versus Systems Inc.
+ To view the full article, visit https://ibn.fm/XvxBT
 
- Versus Systems is a leading provider of gamification and audience engagement technology. Its platform enables brands, teams, and entertainment partners to create rewarding interactive experiences that transform how they connect with consumers worldwide. For more information on Versus Systems and its engagement technologies, visit VersusSystems.com.
+ About SuperQ Quantum Computing Inc.
 
- NOTE TO INVESTORS: The latest news and updates relating to VS are available in the company’s newsroom at https://ibn.fm/VSI
+ SuperQ Quantum Computing is building the operating system, Super OS, to unify quantum and supercomputing for data center and enterprise deployment. This OS will run on SuperQ’s in-development Super Nova hybrid quantum computers and third-party hardware. The company’s already commercialized Super platform enables enterprises, government and research institutions to autonomously solve complex optimization and cybersecurity challenges by combining quantum and high-performance computing. The company is also putting quantum computing in the palm of consumers’ hands through ChatQLM – the world’s first consumer application powered by hybrid quantum and supercomputing.
 
- About MissionIR
+ SuperQ Quantum is headquartered in Canada with a growing international presence, particularly in the U.S., Middle East and Asia, strategically establishing Super Hubs in key regions. Through the Super platform, Super OS, Super Nova and ChatQLM, the company is taking quantum computing utility and quantum security beyond boardroom meetings to production grade solutions.
 
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
+ For more information, visit https://www.superq.co.
 
- MIR is where breaking news, insightful content and actionable information converge.
+ NOTE TO INVESTORS: The latest news and updates relating to QBTQF are available in the company’s newsroom at https://ibn.fm/QBTQF
 
- For more information, please visit www.MissionIR.com
+ About InvestorWire
 
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
+ For more information, please visit https://www.InvestorWire.com
 
- MissionIR is powered by IBN 
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-versus-systems-inc-nasdaq-vs-taps-expertise-to-advance-gamification-strategy/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/versus-systems-appoints-brian-goldenberg-as-cfo-to-drive-growth/4b4beddde5547b0c97b35648ba3035d1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superq-quantum-builds-hybrid-ecosystem-to-unify-quantum-and-classical-computing/d3f74b2e8103ba22897f23ba3e869b35) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/23/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-and-ai/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-and-ai)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/superq-quantum-computing-positions-hybrid-architecture-at-the-intersection-of-quantum-and-ai)
+
+Pickup - [https://burstable.news](https://burstable.news/news/superq-quantum-computing-positions-hybrid-architecture-at-the-intersection-of-quantum-and-ai)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/superq-quantum-computing-positioniert-hybridarchitektur-an-der-schnittstelle-von-quantencomputing-und-ki)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/superq-quantum-computing-posiciona-su-arquitectura-hibrida-en-la-interseccion-de-la-computacion-cuantica-y-la-ia)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/superq-quantum-computing-positionne-son-architecture-hybride-a-lintersection-du-quantique-et-de-lia)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/superq-quantum-computing-posiciona-arquitetura-hibrida-na-intersecao-entre-computacao-quantica-e-ia)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-and-ai)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/superq-quantum-computing-positions-hybrid-architecture-at-the-intersection-of-quantum-and-ai)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-and-ai)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/superq-quantum-computing-positions-hybrid-architecture-at-intersection-of-quantum-and-ai)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/superq-quantum-computing-advances-hybrid-quantum-ecosystem-with-integrated-platform-and-strategic-partnerships)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/investornewsbreaks-superq-quantum-computing-inc-cse-qbtq-otcqb-qbtqf-fse-25x-positions-hybrid-architecture-at-intersection-of-quantum-ai)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/23/archAGth.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/23/fernQEex.webp)
