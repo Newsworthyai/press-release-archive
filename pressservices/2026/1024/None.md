@@ -1,72 +1,62 @@
-# FaithNFreedomTV Now Live On Truth+ With Three 24/7 Channels
+# Aronfeld Warns: Verbal Incident Reports Are Not Enough at Sea
 
-All Three FaithNFreedomTV Channels Now Live on Truth+
+Hurt on a Carnival or Royal Caribbean Ship? A Written Incident Report Is Non-Negotiable
 
- Plano, United States - October 24, 2026 / FaithNFreedom /
+ Miami, United States - October 24, 2026 / Aronfeld Trial Lawyers /
 
- PLANO, Texas — October 22, 2026 — FaithNFreedomTV, a ministry of B2T Ministries, is now carried on Truth+, the streaming service operated by Trump Media & Technology Group Corp. (Nasdaq: "DJT"; NYSE Texas: "DJT"), the parent company behind Truth Social, with three around-the-clock linear channels.
+ Aronfeld Trial Lawyers, a Miami-based personal injury firm concentrating on maritime claims, has published a six-step guide for cruise passengers who sustain injuries during the holiday travel season -- a period that consistently produces some of the highest passenger volumes of the year across major cruise lines including Carnival, Royal Caribbean, NCL, MSC, Celebrity, Virgin, Margaritaville at Sea, Princess, and Disney.
 
-All three channels can be accessed via the Truth+ TV Guide under the Religious category:
+The guide addresses a gap the firm identifies as leaving many passengers exposed: a lack of awareness about what to do in the immediate aftermath of an onboard injury, and the risk of unknowingly forfeiting legal rights before ever returning to port.
 
-* FaithNFreedomTV — biblical teaching, prophetic discernment and faith-and-freedom commentary, including The B2T Show
-* Growing Your Faith — verse-by-verse Bible teaching, worship and discipleship
-* BiohackingvilleTV — faith-based wellness and health-freedom programming
+Why the Holiday Season Raises the StakesCruise ships operating during peak holiday periods carry full or near-full passenger loads, placing additional pressure on deck surfaces, dining areas, pool decks, and onboard entertainment venues. When an accident occurs at sea, the actions a passenger takes -- or fails to take -- in the first hours can significantly affect any future legal claim. Cruise ticket contracts contain strict notice and filing deadlines, often six months for written notice and one year to file suit. Missing those windows can bar a claim entirely, regardless of the severity of the injury.
 
-The channels run on a schedule, in a guide, 24 hours a day. Together, they carry more than 40 independent Christian creators, including Joe Horn, Lance Wallnau, Amanda Grace, Mel K, and Gene Bailey of Flashpoint. All three channels are free to watch on Truth+.
+Six Steps Aronfeld Trial Lawyers Outlines for Injured PassengersThe firm's guidance covers six immediate actions for anyone hurt on a cruise ship:
 
-Truth+ carries an interactive 14-day program guide with catch-up viewing, so a viewer who joins a show already in progress can start it from the beginning with one click. You can watch Truth+ by downloading the Truth+ app on your phone, connected TV, or by visiting https://truthplus.tv.
+First, report the incident to guest services and obtain a written copy of the incident report. Verbal reports are not sufficient -- passengers should confirm that a written record exists and request a copy before disembarking.
 
-FaithNFreedomTV was built after its founder, Rick Rene, was removed from the platforms that had carried his work. In 2020, weeks before the presidential election, YouTube terminated Rene's Blessed2Teach channel. Rene says the channel had about 109,000 subscribers and no strikes against it, and that his payment processors and banks closed his accounts in the weeks that followed. He put The B2T Show on every platform that would still carry it, and FaithNFreedomTV grew out of that: a network built to carry other voices, not only his own.
+Second, seek medical attention at the ship's medical center and retain all records. Documentation of treatment, diagnoses, and any medications dispensed establishes a medical trail that supports a future claim.
 
-"This network was never built to be about me. More than forty independent Christian voices are carried on these channels, and many of them have been throttled, demonetized or removed somewhere along the way. Truth+ gives them a 24/7 home on Truth Social. All three channels are live there now," said Rene.
+Third, photograph the scene. Images of the exact location where the injury occurred -- including any hazardous condition such as a wet floor, broken equipment, or uneven surface -- should be captured as soon as it is safe to do so.
 
-About B2T Ministries and FaithNFreedomTVB2T Ministries is a nonprofit corporation based in Plano, Texas, operating as FaithNFreedomTV. The network carries more than 40 independent Christian creators across three 24/7 channels and an on-demand library, with apps for Roku, Fire TV, Apple TV, Android TV, iOS and Android. Its websites are faithnfreedom.org and blessed2teach.com, and its community is at faithnfreedom.social.
+Fourth, collect the names and cabin numbers of any witnesses. Witnesses disperse quickly once a voyage ends, and contact information gathered onboard may be the only means of locating them later.
 
-Media contactRick Rene, FounderB2T Ministries d/b/a FaithNFreedomTVinfo@blessed2teach.com972-381-4255
+Fifth, sign nothing and provide no recorded statements to cruise line representatives. Crew members or ship security staff may ask passengers to submit statements or sign documents described as routine. Doing so before consulting an attorney can compromise a claim.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/VhqY2opIegwdDdDkPIZFmZN20W9UdXAs2DoFfape.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ANN0QTarLDAvQa0VQxGEXgHSMS40D6FAAJeDy3po.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Tw3FX1KlkMxZDdt2mDo24Bod8XopNQvIyAe7GDL0.jpg) [](https://faithnfreedom.org) Contact Information:
+Sixth, contact a cruise ship injury lawyer before leaving the ship if possible, and no later than immediately upon returning home. Because cruise ticket contracts are governed by federal maritime law and frequently require that disputes be filed in a specific jurisdiction -- typically Miami or Los Angeles -- passengers who are hurt on a cruise ship face a more complex legal landscape than a standard personal injury case on land. Consulting a Miami cruise injury attorney early in the process helps passengers understand the specific deadlines and jurisdictional requirements that apply to their situation.
 
- FaithNFreedom
+The Firm's Approach to Maritime Injury CasesAronfeld Trial Lawyers handles cases involving passengers injured on vessels operated by Carnival, Royal Caribbean, and other major lines. As a maritime lawyer Miami firm, it works on a contingency basis -- no recovery, no fee -- meaning clients pay nothing unless the case results in a recovery.
+
+Spencer Aronfeld, who founded the firm and has spent his career focused on cases against the cruise industry, emphasized the importance of acting without delay.
+
+"Cruise lines write the rules in their ticket contracts, and most passengers never read them," said Spencer Aronfeld, founder of Aronfeld Trial Lawyers. "The steps you take in the first few hours after an injury can decide whether you ever recover a dime."
+
+The firm notes that its guidance applies across all major cruise operators. Whether a passenger is seeking help from a Royal Caribbean injury lawyer or a Carnival injury lawyer, the procedural steps remain the same, and the consequences of skipping any one of them can be permanent.
+
+About Aronfeld Trial LawyersFounded in 1991, Aronfeld Trial Lawyers is a personal injury law firm based in Miami, Florida, with a focus on maritime law and cruise ship injury litigation. The firm represents passengers injured on cruise ships operated by Carnival, Royal Caribbean, NCL, MSC, Celebrity, Virgin, Margaritaville at Sea, Princess, Disney, and other major lines. Cases include children's injuries, slip and falls, food poisoning and illness, shore excursion accidents, inadequate shipboard medical care, sexual assault, and overboard deaths. Aronfeld Trial Lawyers works on a contingency basis: No Recovery. No Fee.
+
+Learn more at Aronfeld Trial Lawyers
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PQL1MLu9K6iYCTVjDt0WoLeSpZVrZX60wqtJo8Ip.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/akjm3rKYZvqwjAM8pqmDBAwgZo7Rc2ea2UPG1iqo.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/WCaFsRHpob2Lw1mgK9rUYMWmsgiq0tsLAIP7my2h.jpg) [](https://www.aronfeld.com) Contact Information:
+
+ Aronfeld Trial Lawyers
 
  
 
-5055 W Park Blvd #400, Suite 170  Plano, TX 75093United States
+1 Alhambra Plaza, Penthouse  Miami, FL 33134United States
 
- Rick Rene +1-972-381-4255 https://faithnfreedom.org 
+ Spencer Aronfeld +1 (305) 441-0440 https://www.aronfeld.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/faithnfreedomtv-now-live-on-truth-with-three-247-channels-453202)
+[Original/Source Press Release](https://mediawiretoday.com/aronfeld-warns-verbal-incident-reports-are-not-enough-at-sea-453260)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/faithnfreedomtv-launches-all-three-channels-on-truth/56174236d6144d1511acd168090a1a88) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hurt-on-a-cruise-new-guide-reveals-6-critical-steps/8341d30a695f2992d4dde3fac8819d0a) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/faithnfreedomtv-launches-three-247-channels-on-truth)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/faithnfreedomtv-launches-three-247-channels-on-truth)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/faithnfreedomtv-launches-three-247-channels-on-truth)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/plano-based-faithnfreedomtv-launches-three-247-channels-on-truth)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/faithnfreedomtv-con-sede-en-plano-lanza-tres-canales-247-en-truth)
-
-Pickup - [https://burstable.news](https://burstable.news/news/faithnfreedomtv-launches-three-247-channels-on-truth-streaming-platform)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/faithnfreedomtv-startet-drei-247-kanale-auf-der-streaming-plattform-truth)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/faithnfreedomtv-lanza-tres-canales-247-en-la-plataforma-de-streaming-truth)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/faithnfreedomtv-lance-trois-chaines-24h24-et-7j7-sur-la-plateforme-de-streaming-truth)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/faithnfreedomtv-lanca-tres-canais-24-horas-por-dia-na-plataforma-de-streaming-truth)
-
-Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/faithnfreedomtv-launches-three-247-channels-on-truth-expanding-reach-for-independent-christian-voices)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/24/noonYuey.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/24/gleeZG5H.webp)
