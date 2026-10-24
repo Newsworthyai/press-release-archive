@@ -1,62 +1,72 @@
-# San Antonio Orthodontist Explains Lingual Braces Behind the Teeth
+# FaithNFreedomTV Now Live On Truth+ With Three 24/7 Channels
 
-Solana Orthodontics Offers Lingual Braces for Adults and Teens in San Antonio TX
+All Three FaithNFreedomTV Channels Now Live on Truth+
 
- San Antonio, United States - October 24, 2026 / Solana Orthodontics /
+ Plano, United States - October 24, 2026 / FaithNFreedom /
 
- Solana Orthodontics, located at 2907 N Loop 1604 E, Suite 101 in San Antonio, offers lingual braces for adults and teens who require fixed orthodontic correction without visible hardware. Dr. Sandra Nairooz, a board-certified orthodontist, provides the treatment, which uses custom-fabricated brackets and wires bonded to the back surfaces of the teeth rather than the front.
+ PLANO, Texas — October 22, 2026 — FaithNFreedomTV, a ministry of B2T Ministries, is now carried on Truth+, the streaming service operated by Trump Media & Technology Group Corp. (Nasdaq: "DJT"; NYSE Texas: "DJT"), the parent company behind Truth Social, with three around-the-clock linear channels.
 
-What Lingual Braces Are and How They Work
+All three channels can be accessed via the Truth+ TV Guide under the Religious category:
 
-Lingual braces use brackets and arch wires that are bonded to the tongue-facing side of the teeth, keeping them entirely out of view when a patient speaks or smiles. Each bracket is custom-made to conform to the specific contour of the individual tooth it is attached to, which distinguishes this approach from standard front-facing brackets that are manufactured to a common shape. Because the hardware sits behind the teeth, the treatment produces the same biomechanical tooth movement as conventional braces while staying virtually invisible from the outside.
+* FaithNFreedomTV — biblical teaching, prophetic discernment and faith-and-freedom commentary, including The B2T Show
+* Growing Your Faith — verse-by-verse Bible teaching, worship and discipleship
+* BiohackingvilleTV — faith-based wellness and health-freedom programming
 
-The system differs from clear aligners in a meaningful way: lingual braces are fixed appliances, meaning they are not removed for meals or cleaning. That characteristic makes them suitable for patients who prefer or require a treatment that does not depend on consistent wear compliance. Unlike removable aligners, which rely on the patient to keep them in for the recommended daily hours, lingual braces work continuously.
+The channels run on a schedule, in a guide, 24 hours a day. Together, they carry more than 40 independent Christian creators, including Joe Horn, Lance Wallnau, Amanda Grace, Mel K, and Gene Bailey of Flashpoint. All three channels are free to watch on Truth+.
 
-Who Tends to Be a Strong Candidate
+Truth+ carries an interactive 14-day program guide with catch-up viewing, so a viewer who joins a show already in progress can start it from the beginning with one click. You can watch Truth+ by downloading the Truth+ app on your phone, connected TV, or by visiting https://truthplus.tv.
 
-Two groups in particular tend to ask about lingual braces in San Antonio TX. The first is working adults in client-facing positions - such as sales professionals, attorneys, healthcare workers, and educators - who interact with patients, clients, or the public daily and prefer to keep their orthodontic treatment private. The second group is teens who want the predictability of fixed braces but are uncomfortable with the appearance of traditional metal brackets on the front of their teeth.
+FaithNFreedomTV was built after its founder, Rick Rene, was removed from the platforms that had carried his work. In 2020, weeks before the presidential election, YouTube terminated Rene's Blessed2Teach channel. Rene says the channel had about 109,000 subscribers and no strikes against it, and that his payment processors and banks closed his accounts in the weeks that followed. He put The B2T Show on every platform that would still carry it, and FaithNFreedomTV grew out of that: a network built to carry other voices, not only his own.
 
-Braces for adults in San Antonio TX are a frequent question from patients who want orthodontic care that fits within a professional setting. Lingual placement addresses that concern directly by eliminating the external visibility of the appliance entirely.
+"This network was never built to be about me. More than forty independent Christian voices are carried on these channels, and many of them have been throttled, demonetized or removed somewhere along the way. Truth+ gives them a 24/7 home on Truth Social. All three channels are live there now," said Rene.
 
-How Lingual Braces Compare to Front Braces and Clear Aligners
+About B2T Ministries and FaithNFreedomTVB2T Ministries is a nonprofit corporation based in Plano, Texas, operating as FaithNFreedomTV. The network carries more than 40 independent Christian creators across three 24/7 channels and an on-demand library, with apps for Roku, Fire TV, Apple TV, Android TV, iOS and Android. Its websites are faithnfreedom.org and blessed2teach.com, and its community is at faithnfreedom.social.
 
-Front-facing metal or ceramic braces are placed on the outer surface of the teeth, making them visible during normal interaction. They are effective for a wide range of cases and remain one of the most commonly used fixed orthodontic systems. Clear aligners are removable trays molded to the teeth that are swapped out over the course of treatment; they are discreet but require disciplined daily wear to remain on schedule.
+Media contactRick Rene, FounderB2T Ministries d/b/a FaithNFreedomTVinfo@blessed2teach.com972-381-4255
 
-Lingual braces in San Antonio TX occupy a distinct position among these options: they offer the continuous force application of fixed braces without any visible hardware. The trade-off is an adjustment period during which speech can be temporarily affected, as the tongue must adapt to the presence of brackets on the inner tooth surfaces. That adaptation period varies by individual and typically resolves as the tongue becomes accustomed to the new configuration.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/VhqY2opIegwdDdDkPIZFmZN20W9UdXAs2DoFfape.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/ANN0QTarLDAvQa0VQxGEXgHSMS40D6FAAJeDy3po.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Tw3FX1KlkMxZDdt2mDo24Bod8XopNQvIyAe7GDL0.jpg) [](https://faithnfreedom.org) Contact Information:
 
-What to Expect at a Consultation
-
-Patients who schedule a consultation at Solana Orthodontics can expect a review of their current bite and alignment, a discussion of whether their specific orthodontic needs are suited to lingual placement, and a comparison of braces in San Antonio TX treatment options relevant to their case. Dr. Nairooz evaluates candidacy based on tooth anatomy, bite complexity, and the patient's treatment goals. Not every case is automatically suited to lingual braces, and the consultation is designed to determine fit before any commitment is made.
-
-The practice can be reached directly at (210) 905-9000 to schedule an evaluation with Dr. Nairooz.
-
-About Solana Orthodontics
-
-Solana Orthodontics is an orthodontic practice in San Antonio, Texas, operated by Dr. Sandra Nairooz, a board-certified orthodontist. The practice is located at 2907 N Loop 1604 E, Suite 101, and provides orthodontic evaluation and treatment for adults and teens. Services include fixed and removable orthodontic options tailored to each patient's clinical needs and personal preferences.
-
-Learn more at Solana Orthodontics
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/cJMAMECuPxhcOk9TBqRYqUqNZm7tBVuppoMx1lKe.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/tom4sDF8zOWFp8PpJHI0jALQJtQAXm7zOKZDfWXX.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Hbxr78qtfLgo592Yktnr48ZkXwbEbRIx9mH3Kgw4.jpg) [](https://www.solanaortho.com) Contact Information:
-
- Solana Orthodontics
+ FaithNFreedom
 
  
 
-2907 N Loop 1604 E Ste 101  San Antonio, TX 78232United States
+5055 W Park Blvd #400, Suite 170  Plano, TX 75093United States
 
- Dr. Sandra Nairooz +1-210-905-9000 https://www.solanaortho.com 
+ Rick Rene +1-972-381-4255 https://faithnfreedom.org 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/san-antonio-orthodontist-explains-lingual-braces-behind-the-teeth-453174)
+[Original/Source Press Release](https://mediawiretoday.com/faithnfreedomtv-now-live-on-truth-with-three-247-channels-453202)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-orthodontics-offers-hidden-lingual-braces-in-san-antonio/ab6882a865293e4355557a4c36ba4897) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/faithnfreedomtv-launches-all-three-channels-on-truth/56174236d6144d1511acd168090a1a88) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/faithnfreedomtv-launches-three-247-channels-on-truth)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/faithnfreedomtv-launches-three-247-channels-on-truth)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/faithnfreedomtv-launches-three-247-channels-on-truth)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/plano-based-faithnfreedomtv-launches-three-247-channels-on-truth)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/faithnfreedomtv-con-sede-en-plano-lanza-tres-canales-247-en-truth)
+
+Pickup - [https://burstable.news](https://burstable.news/news/faithnfreedomtv-launches-three-247-channels-on-truth-streaming-platform)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/faithnfreedomtv-startet-drei-247-kanale-auf-der-streaming-plattform-truth)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/faithnfreedomtv-lanza-tres-canales-247-en-la-plataforma-de-streaming-truth)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/faithnfreedomtv-lance-trois-chaines-24h24-et-7j7-sur-la-plateforme-de-streaming-truth)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/faithnfreedomtv-lanca-tres-canais-24-horas-por-dia-na-plataforma-de-streaming-truth)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/faithnfreedomtv-launches-three-247-channels-on-truth-expanding-reach-for-independent-christian-voices)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/24/fineN2Zh.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/24/noonYuey.webp)
