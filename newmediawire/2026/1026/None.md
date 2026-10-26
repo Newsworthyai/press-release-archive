@@ -1,167 +1,115 @@
-# Why Every Stage of Life Matters for a Woman's Heart Health
+# Trailbreaker Resources Completes Phase One Drill Program At The Coho Property, Provides Atsutla Project Update
 
-What to know about women’s heart health:
+VANCOUVER, BRITISH COLUMBIA - October 26, 2026 (NEWMEDIAWIRE) - Trailbreaker Resources Ltd. (TBK.V) (“Trailbreaker” or “the Company”) is pleased to announce the completion of its Phase One diamond drill program at the Coho Property in central British Columbia (BC), as well as to provide a corporate update on other 2026 exploration activities and timing of pending assay results.
 
- * A new approach to women’s heart health looks at risk and opportunity across every stage of their life.
-* Hormonal health, mental health and well-being, heart health and brain health are closely connected.
-* Periods, pregnancy and the time around and during menopause can offer important opportunities to better protect heart health.
+ ![](http://newmediawire.s3.amazonaws.com/6adbd9fcda846f7778eb0c14_1)
 
- DALLAS - October 26, 2026 (NEWMEDIAWIRE) - A new approach to women’s heart health may offer them a lifetime of opportunities. A trio of scientific papers, published today in the journal Circulation, spells out how fluctuating hormones, mental health and well-being, the heart and the brain are linked and how those connections need to be a routine part of care from a young age.
+ The completed diamond drill program at the Coho Property consisted of seven holes totalling 2,667.00 metres (see Table 1 for collar information, Figure 1 for a location map). The drilling tested an area of 1,000 x 800 metres and a vertical extent of 474 metres.
 
- ![](https://iprsoftwaremedia.com/67/files/20259/Doctor%20speaks%20on%20%20CKM%20infographic.png)
+ The 8,000-ha Coho Property is a copper-gold (Cu-Au) porphyry target located 90 km north of the Town of Fort St. James, BC, and 30 km west of the Mt. Milligan Cu-Au porphyry deposit. The property is road accessible, with a large network of Forest Service Roads and logging roads located within the claims.
 
- “Women experience their healthcare across clinical specialties, but it often is fragmented or disconnected. Specifically, these reports connect the dots for clinicians, for patients, and across health domains so that care is holistic and begins in adolescence,” Dr. Sadiya Khan, chair of the writing group, said in a news release. Khan is the Magerstadt Professor of Cardiovascular Epidemiology at Northwestern University’s Feinberg School of Medicine in Chicago.
+ Trailbreaker also completed an induced polarization (IP) survey at the Coho Zone, concurrent with the drill program. The survey consisted of four east-west lines totalling fourteen line-kilometres. Three lines spaced 200 metres apart were completed 200 metres to the north of the historic (2023) IP survey. One line was completed within the widely spaced (400 m) historic IP survey to confirm historic results. Trailbreaker was able to utilize preliminary results of this survey to target a chargeability anomaly and interpreted structure with one of the 2026 drill holes (CH-26-07).
 
- “Heart disease and other forms of cardiovascular disease don’t suddenly become relevant when we become older women,” said Dr. Stacey E. Rosen, immediate past volunteer president of the American Heart Association, who helped write the reports. They view a woman’s life in distinct stages – each of which offers chances for early detection, risk factor identification and treatment, she said.
+ Message from the President
 
- The publications are a joint effort among the Heart Association, the American Academy of Pediatrics, the American College of Obstetricians and Gynecologists and the Society for Maternal-Fetal Medicine. They represent “a paradigm shift in how we look at women’s cardiovascular and brain health,” Rosen said.
+ "We are very pleased to have completed the Phase One drill program at Coho and look forward to receiving the assay results. With assay results expected soon from diamond drilling of our Highlands gold and Swan copper-molybdenum porphyry targets, both within the Atsutla Project in northwestern BC, Trailbreaker is well positioned to provide a steady flow of news through the remainder of 2026 and early 2027.”
 
- For pediatricians, primary care clinicians, endocrinologists, obstetricians, gynecologists and cardiologists, the documents offer a unified approach to cardiovascular concerns specifically for women, said Dr. Esther S.H. Kim, director of the Center for Women’s Cardiovascular Health at Atrium Health in Charlotte, North Carolina. She also helped write the publications.
+ - Daithi Mac Gearailt
 
- Each stage of a woman’s life offers “windows of opportunity” to prevent heart disease, she said.“We can go all the way back to adolescence and even childhood and figure out, ‘This person is at risk; we need to keep a closer eye on them," said Kim, who is also a professor and chair of cardiovascular medicine at the Wake Forest University School of Medicine in Charlotte.
+ Click Here to see Table 1: Drill collar details for the 2026 program
 
- For women themselves, it comes down to a simple point, said Dr. Natalie A. Cameron, an internal medicine specialist who is an assistant professor at Northwestern. She led the writing team for one of the documents and contributed to the other two.“We don’t want heart attacks and strokes to happen,” she said. By being proactive, women have opportunities to lower their risks.
+ Click Here to see Figure 1: 2026 drill plan map at the Coho Property.
 
- Here are some of the key points from the new publications that women may want to discuss with their healthcare team to ensure their hearts are as healthy as possible.
+ The diamond drill program was focused on the Coho Zone, a Cu-Au porphyry target with recently completed property-wide geochemical and geophysical surveys. The zone hosts recently identified coincident IP chargeability and resistivity anomalies, associated with high-grade gold and copper values from surface rock grab samples. While there has been limited historical drilling within the claim block, the actual Coho Zone had never been drilled prior to Trailbreaker’s 2026 program.
 
- How does heart disease differ in men and women?
+ Within the Coho Zone, multiple features were targeted:
 
- The reports emphasize how hormonal health affects cardiovascular health across a woman’s life.
+ * Holes CH-26-01 (Figure 2) and CH-26-02 targeted a sizable (400m x 800m) IP coincident chargeability and resistivity high feature.
+* Hole CH-26-03 targeted a shallow IP chargeability high feature, as well as the Chinook showing which includes historic channel samples grading 0.08 g/t Au and 0.29% Cu over 11.4 m, and 0.13 g/t Au and 0.49% Cu over 2.0 m. CH-26-04 was also drilled at the Chinook showing, targeting an interpreted SE-trending structure as well as a historic channel sampling interval of 0.64 g/t Au and 0.36% Cu over 3.0 m. Hole CH-26-06, drilled at right angles to holes CH-26-03 and CH-26-04, targeted an east-west fault.
+* Hole CH-26-05 was drilled in the King showing area. This hole targeted a shallow chargeability high, as well as a historic channel sample of 0.68 g/t Au and 2.83% Cu over 1.0 m.
+* Hole CH-26-07 was drilled 500 metres to the north of CH-26-05, based on preliminary results of the 2026 IP survey. It targeted a deep chargeability high and an ESE-trending structure.
 
- For years, scientists ignored the importance of hormones in women’s heart health, Rosen said, because the monthly fluctuations made research more complicated. But estrogen, estradiol and progesterone “impact cells in blood vessels, in the brain, in heart muscle,” Rosen said. They affect cholesterol levels, the stickiness of blood cells, inflammation, blood pressure and the body’s stress response.
+ A total of 1,415 drill core samples (including standard reference material and blank samples placed at regular intervals) were submitted to Bureau Veritas’ lab in Vancouver, BC. Assay results will be released following compilation and data verification. Results are expected in late 2026 or early 2027.
 
- “If you appreciate the understanding that these hormones are not just affecting the uterus, ovaries and fallopian tubes but affecting in a rhythmic way every part of the cardiovascular system and brain, you can appreciate why these fluctuations or issues related to these hormones in women have an enormous impact” on heart and brain health, she said.
+ Click Here to see Figure 2: Diamond drill set up at the Coho Property
 
- And while the most common cardiovascular issue in women is the same as in men - plaque buildup that narrows arteries - Kim said that women are more likely to have other serious problems. The classic image of heart disease, Kim said, is a “Homer Simpson-type of person - a middle-aged or older man with very obvious cardiovascular risk factors. But you know, Marge Simpson can also have heart disease.”
+ Coho Property – Masu Zone surface exploration
 
- “And the heart disease that Marge could have may look different than Homer’s; things like microvascular coronary disease, which affects small blood vessels in the heart; or heart failure with preserved ejection fraction, in which the heart contracts normally but fails to relax properly between beats; or spontaneous coronary artery dissection, where a heart artery suddenly tears,” Kim said.
+ In June, 2026, Trailbreaker conducted a surface exploration program at the Masu Zone, located along the western boundary of the Coho Property. This program targeted the potential eastward extension of the “A Zone” identified by Pacific Empire Minerals (‘PEMC’) on its adjoining Trident Property, from which positive results were released in January 2026.
 
- Doctors need to think about such conditions in women, Kim said, because they require specific diagnostic tests, “and if you don’t think of the disease processes, you won’t order the right tests, and these diseases will be missed.” And women should not be afraid to speak up, Kim said. “Know the symptoms of cardiovascular disease, and if you’re having them, talk about them,” Kim said. “And if your doctor is ignoring you, you should be persistent.”
+ The Trident Property is contiguous with the Coho Property’s western border. Drilling at the Trident Property’s ‘A Zone’ returned results including 240.0 m of 0.64% Cu, 0.41 g/t Au, and 2.8 g/t silver (Ag). The Masu Zone is located 3.3 km east of the A Zone*. Results from Trailbreaker’s program are currently being compiled.
 
- Why the teen years matter in women’s heart health
+ For more information about the Coho Property see our presentation (link to presentation)
 
- “Heart health for women doesn’t start at menopause,” said Dr. Amanda M. Perak, an associate professor of pediatrics and preventive medicine at Northwestern. “Puberty is a big turning point.”
+ Atsutla Gold Project Update
 
- For example, details about menstrual cycles, or periods, offer a look at future heart health, said Perak, who is also a pediatric cardiologist at Ann & Robert H. Lurie Children's Hospital of Chicago who worked on all three publications. She said:
+ In early August, 2026, Trailbreaker completed a six hole, 1,684-metre drill program at its Atsutla Gold Project in northwestern BC (see August 10, 2026 news release, Table 2 for collar details). The program targeted two zones spaced 26 km apart: the Highlands Zone, a high-grade, vein-hosted gold target (Figure 3); and the Swan Zone, a Cu-Au-Ag-Mo porphyry target (Figure 4).
 
- * A first period before age 10 is linked to a higher risk of heart disease later in life. “That’s not automatically a reason for alarm or medication,” Perak said. “It’s a reason to pay a little closer attention to healthy habits and routine checkups.”
-* Irregular periods, especially along with stubborn, deep acne or unusually extra facial or body hair growth, can be a sign of polyendocrine metabolic ovarian syndrome (previously known as polycystic ovary syndrome, or PCOS), which has been linked to problems regulating blood sugar, diabetes and heart disease later on. “Some irregularity is expected in the first one to three years after a girl’s first period,” Perak said, “so what matters is a pattern that persists.”
-* By knowing their period history, older teens can be ready to talk with their adult doctor or healthcare professional after they leave a pediatrician’s care.
+ * Assays from the program remain pending. When the entire sample set has been assayed, the company will compile and release the results.
+* Upon completion of the drill program, Trailbreaker contracted Eagle Mapping to perform an airborne property-wide LiDAR (“Light Detection and Ranging”) survey. LiDAR surveys can aid in mapping resistant (or recessive) lithologies, as well as locate veins, faults, geological contacts, and dikes. The company is awaiting the completed survey data.
+* Trailbreaker Resources has also contracted Aurora Geosciences Ltd. to complete an independent technical report in accordance with National Instrument 43-101 - Standards of Disclosure for Mineral Projects (“NI 43-101”). This report will replace a previous NI-43-101 report filed on the property in December, 2022.
 
- “The goal isn't to worry teens about the chance of a heart attack, which are decades away for nearly all of them,” Perak said. “It’s that the teen years are when patterns get set, and it’s much easier to keep good heart health than to get it back.”
+ Click Here to see Table 2: Drill collar details for the 2026 program
 
- Early adulthood: What women may want to discuss with their doctors
+ Click Here to see Figure 3: 2026 drill plan map at the Highlands Zone, Atsutla Gold Project.
 
- “Women should just be aware that they can be at risk for cardiovascular disease,” Kim said. She has worked with older women who were referred to her for testing that measures plaque buildup in the heart’s arteries and were “shocked out of their minds” to see abnormal scores.
+ Click Here to see Figure 4: 2026 drill plan map at the Swan Zone, Atsutla Gold Project.
 
- If those women had been aware of cholesterol problems, family history issues or the need for healthy habits at an earlier age, their abnormal scores might have been prevented, she said. “At every phase of life, women can ask their clinicians, ‘How can I optimize my heart health?’” Cameron said. And at every phase, the basics known as Life’s Essential 8 will be part of the answer.
+ About Trailbreaker Resources
 
- That means maintaining healthy weight, blood pressure, blood sugar and cholesterol levels; eating a healthy diet; getting enough physical activity and quality sleep; and avoiding tobacco.
+ Trailbreaker Resources is a mining exploration company focused primarily on mining-friendly British Columbia and Yukon Territory, Canada. Trailbreaker is committed to continuous exploration and research, allowing maintenance of a portfolio of quality mineral properties which in turn provides value for shareholders. The company has an experienced management team with a proven track record as explorers and developers throughout the Yukon Territory, British Columbia, Alaska and Nevada.
 
- Other important questions Cameron suggested include:
+ ON BEHALF OF THE BOARDDaithi Mac GearailtPresident and Chief Executive Officer
 
- * What is a normal period? Abnormalities at this age can signal higher cardiovascular risk.
-* How do contraceptive options affect heart health? Some are better for women with heart disease or cardiovascular disease risk factors.
-* If a woman is planning pregnancy, does she need any specific tests related to her history or medication adjustments?
+ Carl Schulze, P. Geo., Consulting Geologist with Aurora Geosciences Ltd, is a qualified person as defined by National Instrument 43-101 for Trailbreaker's BC and Yukon exploration projects, and has reviewed and approved the technical information in this release.
 
- The reports emphasize the importance of having good cardiovascular health before pregnancy. But 9 out of 10 women ages 20 to 44 have less-than-ideal heart health when they become pregnant.
+ Other
 
- After pregnancy: Why heart health still matters postpartum
+ For new information about the Company’s projects, please visit Trailbreaker’s website at TrailbreakerResources.com and sign up to receive news. For further information, follow Trailbreaker’s tweets at Twitter.com/TrailbreakerLtd, use the ‘Contact’ section of our website, or contact us at (604) 681-1820 or at info@trailbreakerresources.com.
 
- Pregnancy is often seen as a stress test for the heart. High blood pressure in pregnancy, gestational diabetes, or having a preterm birth, are linked to higher risk of heart disease later in life, Cameron said.
+ Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
 
- The first year after a pregnancy is also “a very critical time” for controlling and monitoring those risks, she said. But many women face challenges that prevent them from getting follow-up care.
+ Forward-Looking Statements
 
- The links between a woman’s mental health and their heart
-
- For women, mental health and well-being, hormonal health and heart health are connected in many ways at every life stage.
-
- * Mood changes, which may include symptoms of anxiety and depression, can be related to hormonal fluctuations.
-* Anxiety or depression may influence lifestyle choices. “You may exercise less or eat less healthy foods if you’re feeling very depressed,” Cameron said.
-* Starting around age 12, eating disorders, which can affect future cardiovascular health, become more common in girls, Perak said.
-* By age 17, girls are twice as likely as boys to be diagnosed with depression. Teens with depression are more likely to develop obesity later, Perak said, and teens with obesity are more likely to develop depression.
-* Women with established cardiovascular disease are more likely to have depression and anxiety, Rosen said, while depression and anxiety can harm their cardiovascular health.
-
- The new series of papers call for making mental health and well-being screening a routine part of a woman’s care.
-
- What happens to heart health before and after menopause?
-
- Hormones fluctuate in the years before menopause, Cameron said. “In general, as those changes are happening, women may experience increases in their low-density lipoprotein (“bad cholesterol”) levels, weight gain and potentially rising blood pressure.”
-
- It’s also a time when years of unhealthy lifestyle choices may start to catch up, and overt heart disease may emerge. Does that mean it’s time to throw in the towel and surrender to something inevitable? “The answer is an absolute, positive, emphatic no,” Rosen said. It's never too late to make healthy changes.
-
- But the years around menopause are a good time for a woman and her healthcare team to discuss questions such as:
-
- * Am I at risk for heart disease?
-* What can I do about it?
-* What tests should I have?
-
- “It's really important to know your numbers and monitor those numbers with a clinician at your annual visits, or more often” if you're actively managing blood pressure or cholesterol levels, Cameron said.
-
- What should women know about menopause and heart health?
-
- Menopause marks the end of a woman’s periods. But if she lives an average life span, 40% of her life is still ahead of her.
-
- Key things a woman may want to discuss with her healthcare team, Rosen said, include:
-
- * How do I predict my risk? A doctor may use a risk calculator, such as the American Heart Association’s PREVENT equations, to guide care.
-* What can I do to address those essential risk factors?
-* Sleep, for example, is often a concern during menopause, Rosen said. Anyone having problems may want to ask, “Is this something to be concerned about and how should I be evaluated? What are treatment options?”
-* What else can I do to make sure the next 40 years are as healthy as possible?
-
- It’s never too late to do something, Rosen emphasized, noting that her mother, 87, was just put on cholesterol-lowering medications – a decision she heartily endorsed. “It’s always about opportunities,” she said.
-
- How coordinated care can support women’s heart health
-
- Women’s healthcare is fragmented, Cameron said. Over the course of her life, she may see a pediatrician, primary care doctor, obstetrician/gynecologist, cardiologist and psychologist. Communication is not a given, and health records do not always transfer.
-
- The new publications spell out the need for unified care, but women can find ways to own and organize their own health journey as well, Rosen said.
-
- “I joke with new patients, ‘You would never go to your accountant before tax season without your paperwork,’” expecting them to know your salary and what taxes you’ve paid in the past. So whether it’s in a notepad or a digital folder, Rosen encourages tracking that medical history as a way of taking an active role in care.
-
- Cameron suggested asking anyone who sees multiple doctors if their clinicians can see each other’s medical notes and whether they’ve talked. Some of her patients have provided phone numbers to help her connect with clinicians outside of her healthcare system.
-
- Some women are better taking such steps on behalf of others, Rosen said. A woman caring for a sick parent or child can be “a lioness” about preventive care. “Remind yourself that you’re worthy of doing that work for yourself.”
-
- Cardiovascular disease, which includes heart disease and stroke, is the leading cause of death in women, claiming more than 400,000 lives in the U.S. each year. That’s more than breast cancer, lung cancer and chronic lung disease combined. Yet only about 4 in 10 women recognize it as their greatest health threat. The American Heart Association, through its Go Red for Women initiative, aims to empower women to take charge of their heart health. Resources are available to help protect and strengthen your heart at every stage of life.
-
- Additional Resources:
-
- * Multimedia, including survivor/patient video interview clips, is on the right column of the release link.
-* Infographic (PDF) - A Woman’s Heart Through Every Stage of Life - A guide to protecting your heart from your first period through menopause and beyond  What Women Need to Know - Adolescence Infographic (PDF). Learn more about supporting good heart health in adolescence. What Women Need to Know - Young Adulthood Infographic (PDF). Learn more about supporting good heart health in pregnancy and postpartum. What Women Need to Know - Perimenopause Infographic (PDF). Learn more about supporting good heart health in midlife. What Women Need to Know - Postmenopause Infographic (PDF). Learn more about supporting good heart health during menopause and beyond.
-* Infographic (PDF) - My Heart & Health Checklist - Questions to think about before your next visit
-* American Heart Association news release: Leading health groups redefine heart health for girls and women - Spanish news release (Oct. 26, 2026)
-* American Heart Association News story: Why every stage of life matters for a woman's heart health (Oct. 26, 2026)
-* American Heart Association news release: New cardiology-OB-GYN continuing education to launch with $1 million gift from leading media voice on health Dr. Jennifer Ashton and husband Tom Werner
-* American Heart Association news release: This is Our Lane - Too: Joint Statement on the Maternal Health Crisis from the Association of Black Cardiologists, American College of Cardiology and American Heart Association
-* Follow AHA/ASA news on X @HeartNews.
-* Follow news from the American Heart Association's flagship journal Circulation @CircAHA.
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Maggie Francis; Maggie.Francis@heart.org
-
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
-
- heart.org and stroke.org
+ Statements contained in this news release that are not historical facts are "forward-looking information" or "forward-looking statements" (collectively, "Forward-Looking Information") within the meaning of applicable Canadian securities legislation and the United States Private Securities Litigation Reform Act of 1995. Forward-Looking Information includes, but is not limited to, disclosure regarding possible events, conditions or financial performance that is based on assumptions about future economic conditions and courses of action; expectations regarding future exploration and drilling programs and receipt of related permitting. In certain cases, Forward-Looking Information can be identified by the use of words and phrases such as "anticipates", "expects", "understanding", "has agreed to" or variations of such words and phrases or statements that certain actions, events or results "would", "occur" or "be achieved". Although Trailbreaker has attempted to identify important factors that could affect Trailbreaker and may cause actual actions, events or results to differ materially from those described in Forward-Looking Information, there may be other factors that cause actions, events or results not to be as anticipated, estimated or intended. In making the forward-looking statements in this news release, if any, Trailbreaker has applied several material assumptions, including the assumption that general business and economic conditions will not change in a materially adverse manner. There can be no assurance that Forward-Looking Information will prove to be accurate, as actual results and future events could differ materially from those anticipated in such statements. Accordingly, readers should not place undue reliance on Forward-Looking Information. Except as required by law, Trailbreaker does not assume any obligation to release publicly any revisions to Forward-Looking Information contained in this news release to reflect events or circumstances after the date hereof or to reflect the occurrence of unanticipated events.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/why-every-stage-of-life-matters-for-a-woman-s-heart-health-7090853)
+[Original/Source Press Release](https://www.newmediawire.com/news/trailbreaker-resources-completes-phase-one-drill-program-at-the-coho-property-provides-atsutla-project-update-7090854)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/women-s-heart-health-new-guidelines-span-every-life-stage/e030c68279990de895da6d98104d335f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trailbreaker-wraps-up-phase-one-drilling-at-coho-awaits-assays/0fd1d891734d82ae3f8b5df6f45e724a) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/26/trailbreaker-resources-completes-first-ever-drilling-at-coho-copper-gold-porphyry-target-in-central-bc/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/trailbreaker-completes-phase-one-drilling-at-coho-copper-gold-project-eyes-late-2026-assays)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/trailbreaker-resources-completes-first-ever-drilling-at-coho-zone-assays-pending)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/trailbreaker-wraps-first-ever-drilling-at-coho-porphyry-target-assays-pending)
+
+Pickup - [https://burstable.news](https://burstable.news/news/trailbreaker-resources-completes-phase-one-drilling-at-coho-property-awaits-assays)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/trailbreaker-resources-schliesst-phase-eins-bohrprogramm-auf-der-coho-liegenschaft-ab-wartet-auf-analyseergebnisse)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/trailbreaker-resources-completa-la-perforacion-de-la-fase-uno-en-la-propiedad-coho-y-espera-los-ensayos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/trailbreaker-resources-acheve-la-premiere-phase-de-forage-sur-la-propriete-coho-et-attend-les-resultats-danalyse)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/trailbreaker-resources-conclui-a-primeira-fase-de-perfuracao-na-propriedade-coho-e-aguarda-resultados-de-analises)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/trailbreaker-completes-first-ever-drilling-at-coho-porphyry-target-assays-pending)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/trailbreaker-completes-first-ever-drilling-at-coho-zone-assays-pending)
+
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/trailbreaker-completes-first-ever-drilling-at-coho-porphyry-target-assays-pending)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/26/lendjq_I.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/26/take3tTy.webp)
