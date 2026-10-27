@@ -1,142 +1,94 @@
-# The 21st Eco Expo Asia Opens Today
+# Western Star Tenders Drill Contract and Submits Exploration Notice to BLM for 17-Hole Drill Program at Eagle Point Tungsten Project, New Mexico
 
-More Than 340 Exhibitors Showcase Global Green Technologies With Over 80 Leaders From Government, Industry and Academia Exploring Business Opportunities
+Planned Drill Program Would be the First Drilling at Eagle Point in More Than 70 Years
 
- HONG KONG - October 26, 2026 (NEWMEDIAWIRE) - The 21st Eco Expo Asia 2026, jointly organised by the Hong Kong Trade Development Council (HKTDC) and Messe Frankfurt (HK) Ltd and co-organised by the Environment and Ecology Bureau of the Government of the Hong Kong Special Administrative Region (HKSAR), opens today for a four-day run (26 to 29 October) at AsiaWorld-Expo. Held under the theme 'Connecting the World for a Sustainable Future', this year's Expo brings together over 340 exhibitors from 15 countries and regions. Some 200 senior officials and representatives of semi-official organisations from the Chinese Mainland, Hong Kong, Belt and Road and ASEAN countries will attend, further strengthening international exchange and ties.
+ VANCOUVER, BC - October 27, 2026 (NEWMEDIAWIRE) - Western Star Resources Inc. (CSE: WSR) (OTC: WSRIF) (FRA: 4K2) (the "Company" or "Western Star") is pleased to announce that on October 22, 2026, a 43 CFR 3809 Exploration Notice (the "Notice") was submitted to the U.S. Bureau of Land Management ("BLM") Las Cruces District Office for its Eagle Point Tungsten Project ("Eagle Point" or the "Property") in Hidalgo County, New Mexico. The Notice, prepared and filed on the Company's behalf by KC Harvey Environmental, LLC, covers a tungsten exploration program of 17 HQ core holes from 12 drill pads, approximately 0.56 mile of temporary connector roads and one laydown area, for a total of 1.71 acres of surface disturbance on BLM-administered and private land.
 
- ![](http://newmediawire.s3.amazonaws.com/6adff847da846f196f288ecf_1)
+ Submission of the Notice is a key step toward the Company's planned 17-hole, approximately 6,000-foot drill program, which the Company believes will be the first drilling at Eagle Point in more than 70 years. Drill targets were refined using the results of the Company's 2026 surface mapping and sampling program, as reported in its news release dated September 30, 2026.
 
- HKTDC Executive Director Sophia Chong said: "Hong Kong's first Five-Year Plan and the latest Policy Address both call for building a green and liveable city, to inject fresh momentum into the development of the green sector. As an important green trade platform in the region, Eco Expo Asia gathers innovative green technologies, products and solutions from around the world, fostering exchange and cooperation among governments, businesses, investors and research institutions. International participation has also grown this year, with Indonesia, Laos, the Philippines, Thailand and Vietnam joining for the first time. Through the Expo, we hope to harness Hong Kong's strengths as an international business centre and smart green technology hub, promoting cross-region collaboration and enabling enterprises to enter new markets and unlock fresh opportunities."
+ Blake Morgan, CEO and President of Western Star, stated, "Filing our Exploration Notice moves Eagle Point from field mapping and exploration, to only weeks away drilling. Our 2026 surface work gave us clear targets along the granite contact, and this program is designed to test them beneath surface exposures and talus cover. We appreciate the work of KC Harvey Environmental in preparing the submission and look forward to working with the BLM as we advance a domestic tungsten project at a time when secure U.S. supply has become a national priority."
 
- Tse Chin-wan, Secretary for Environment and Ecology, said, "The nation embarks on its 15th Five-Year Plan, and the HKSAR's first Five-Year Plan proactively aligns with national development strategies, with green transformation and development of a green and liveable city as its key directions. Hong Kong will continue to leverage its roles of "super connector" and a "super value-adder" to foster regional and international green cooperation. In this year's Expo, the Environment and Ecology Bureau and the Ministry of Ecology and Environment jointly organise the Belt and Road Green Innovation Conference in Hong Kong on 26 October for the first time. Holding the two events concurrently fully harnesses the synergy. I am sure the Expo will inspire innovation and open up business collaboration opportunity, giving fresh impetus to a sustainable green future!”
+ Key Highlights:
 
- ![](http://newmediawire.s3.amazonaws.com/6adff847da846f196f288ecf_2)
+ * Notice submitted: A 43 CFR 3809 Exploration Notice was filed with the BLM Las Cruces District Office on October 22, 2026, covering five lode claims in Section 22, T29S R16W, New Mexico Principal Meridian, Hidalgo County.
+* Drill program: 17 HQ core holes from 12 drill pads, totalling approximately 6,000 feet, with planned hole depths of 164 to 820 feet, designed to test the steeply dipping skarn contact.
+* Small footprint: Total proposed surface disturbance is 1.71 acres, including the 12 drill pads, approximately 0.56 mile of temporary connector roads and a single laydown area. All new disturbance will be reclaimed concurrently with the program.
+* Surface access secured: Western Star has a surface use agreement in place with the private surface owner covering road access and all proposed activities on private land.
+* Program preparation underway: The Company is tendering drilling contractors and setting up logistics for the program.
 
- The Eco Expo Asia welcome ceremony will be held tomorrow (27 October). Tse Chin-wan, Secretary for Environment and Ecology, Sophia Chong, HKTDC Executive Director, and Jack Wong, Deputy General Manager of Messe Frankfurt (HK) Ltd, among other guests, will attend the ceremony.
+ Exploration Notice Details
 
- Pavilions gather participants from home and abroad, HKSAR Government booth debuts green living experiences
+ The Notice was submitted under the BLM's surface management regulations at 43 CFR Subpart 3809, which govern exploration on federal mining claims. The submission includes location, access and project layout figures, claims information, a typical drill pad layout, and GIS shapefiles for the drill pads, roads, laydown area and claim boundary.
 
- The number of pavilions at this year's Expo has risen to 18. The new ASEAN Pavilion brings together seven ASEAN countries, namely Singapore, Laos, Malaysia, the Philippines, Indonesia, Thailand and Vietnam, with 12 green technology ventures presenting innovative solutions in water treatment, circular economy, green finance and ESG services, green building and environmental products. Several overseas pavilions also make a return, including Canada, Italy, Korea and the Netherlands. On the Chinese Mainland front, Qinghai Province makes its first appearance, while nine Greater Bay Area cities and Macau, Guangxi, Hunan, Shanghai and Nanjing of Jiangsu Province will also participate.
+ Eight of the 12 drill pads, the laydown area and most of the connector roads are on private surface, accounting for approximately 1.35 acres of the proposed disturbance. The remaining four pads and approximately 565 feet of connector road are on BLM-administered land, accounting for approximately 0.36 acres. The Project area is accessed by approximately 3.3 miles of existing roads from U.S. Highway 81, which will be used without upgrades.
 
- ![](http://newmediawire.s3.amazonaws.com/6adff847da846f196f288ecf_3)
+ Drilling will use a water-based fluid recirculated through a closed-loop centrifuge system, so no in-ground sumps or mud pits are proposed. Drilling water will be purchased from a commercial supplier and trucked to site, with no on-site well or surface water diversion. Each hole will be plugged and abandoned on completion, and drill pads, connector roads and the laydown area will be recontoured, topsoiled and seeded.
 
- On the Hong Kong front, the Hong Kong Science and Technology Parks Corporation leads 11 local start-ups to showcase various energy solutions. The Hong Kong Pavilion, supported by the Environmental Protection Department and coordinated by the Federation of Hong Kong Industries, gathers 19 local companies, while the Environmental Campaign Committee brings 22 start-ups together to demonstrate homegrown green innovations and drive their practical application. The HKSAR Government booth, formed by the Environment and Ecology Bureau, the Environmental Protection Department and nine other government departments, introduces a new comprehensive experience zone for green technology organised around four themes. "Green Flat" is built with sustainable building technologies and materials to illustrate sustainable living concepts, while "Green Match", "Green Cooperation" and "Green Innovation" foster collaboration among green enterprises and open up opportunities in the low-carbon economy.
+ ![](http://newmediawire.s3.amazonaws.com/6adf90cfda846f1970288edd_1)
 
- Leveraging Hong Kong’s professional services to support Chinese Mainland green enterprises in going global
+ Figure 1: Location and access overview of the Eagle Point Tungsten Project, Hidalgo County, New Mexico, showing the access route from U.S. Highway 81, surface management, the mining claim boundary and the proposed drill pads.
 
- As a member of the "GoGlobal Task Force", the HKTDC has set up a GoGlobal Connect Zone for the first time at the Expo, to support Chinese Mainland environmental enterprises in reaching international markets through Hong Kong’s professional services. Today, the Expo hosts an "Experience Sharing Forum on Promoting Environmental Business in Overseas Markets". Sharing its story is Hunan exhibitor Lihe Technology, which signed a memorandum of understanding with a delegation from the Republic of Kazakhstan during the Expo last year. The session also features government officials from Belt and Road countries, together with representatives of InvestHK and several Chinese Mainland environmental enterprises, who explore how to tap Hong Kong’s advantages to go global. An ASEAN networking reception follows the session to connect green enterprises with the ASEAN region.
+ Figure 2: Eagle Point project layout, showing the 17 proposed drill hole locations (EP26-001 to EP26-017) on 12 drill pads, temporary connector roads, laydown area LD-1 and the existing access road.
 
- Tomorrow (27 October), the organiser will stage a "GoGlobal Seminar", bringing together representatives of industrial parks in Malaysia and Thailand, the Bank of China (Hong Kong) and the Hong Kong Accreditation Service to discuss how Hong Kong can integrate international green finance, cross-border infrastructure expertise, global certification standards and strategic industrial park partnerships to build a comprehensive ecosystem that accelerates the expansion of Chinese Mainland green enterprises into the ASEAN market.
+ Next Steps
 
- Four thematic areas aligning with latest decarbonisation policies as frontier green technologies take the stage
+ The Notice describes an operating period from December 2026 through December 2027. Before drilling begins, the Company will submit a Minimal Impact Exploration Operation permit application to the New Mexico Mining and Minerals Division and well and plugging filings to the New Mexico Office of the State Engineer, and will post a reclamation financial guarantee, which is anticipated to be held jointly by the BLM and the Mining and Minerals Division. The Company will also provide the BLM with supplemental vegetation documentation and the results of a cultural resources file search and site inventory.
 
- Green transformation is increasingly becoming a defining force in the market. The State Council of the People's Republic of China formally issued the action plan for carbon peaking during the 15th Five-Year Plan period this July, setting out comprehensive arrangements for the country's decarbonisation efforts over the next five years. On the Hong Kong front, the city's first Five-Year Plan also sets the green transformation direction for various industries, while the Policy Address 2026 goes further with concrete measures spanning zero-carbon energy, hydrogen energy, green transport, waste reduction and recycling. In line with these trends, this year's Expo centres on four areas: "Green Energy in Motion", "Frontier Green Tech", "Building for a Greener City" and "From Waste to Worth", keeping pace with the latest policy directions.
+ In parallel, Western Star is tendering drilling contractors, setting up field logistics and finalizing collar locations using its Leapfrog Geo model.
 
- Under "Green Energy in Motion", this year's Expo features green energy solutions spanning the maritime, land transport and aviation sectors. Making its debut, EcoCeres Limited (Booth: 3-F30), the world's second largest sustainable aviation fuel (SAF) producer, showcases SAF and hydrotreated vegetable oil (HVO) produced from waste feedstocks, in response to the HKSAR Government's call to build an SAF value chain. The Hong Kong Science and Technology Parks Pavilion (Booth: 3-E02) brings the slimmest wall-mounted DC Fast EV charger currently on the market, developed by TriTerra Technology Limited.
+ No Mineral Resource has been established at Eagle Point.
 
- The area of "Frontier Green Tech" features about 30 start-ups and university spin-offs. The Chinese University of Hong Kong (Booth: 3-G25) showcases high-strength bacterial cellulose films upcycled from tea waste. Being strong, flexible, and water-resistant, the material can serve as sustainable packaging or even a next-generation bio-based leather. Lingnan University (Booth: 3-F26) presents various newly developed technologies and products, among them a fleet management system combining AIoT with GeoAI technology to cut traffic delays and boost the overall operational efficiency of public and commercial transport fleets.
+ Qualified Person
 
- Under "Building for a Greener City", Hyper-Tech Environmental Limited (Booth: 6-E28) showcases Oizom, the IoT-driven environmental monitoring system, whose patented active-sampling technology helps monitor pollutant and noise levels in support of smart city development. Umwelt Consulting Limited (Booth: 6-C19) brings its InvisQuiet Acoustic Window and Acoustic Balcony, which use the windowpane itself as a noise barrier to ease environmental noise while taking up less indoor space and consuming fewer materials.
+ The scientific and technical information contained in this news release has been reviewed and approved by Jacob Anderson, CPG (#12160), MAusIMM (#3089445), an independent consultant to the Company and a Qualified Person as defined by National Instrument 43-101, Standards of Disclosure for Mineral Projects. Mr. Anderson is independent of the Company.
 
- For "From Waste to Worth", Chongqing Sanfeng Environment Group Corp., Ltd. (Booth: 3-D30) brings its waste-to-energy projects, with technologies and equipment already deployed in the Chinese Mainland and 10 other countries. Baguio Green Technology Limited (Booth: 3-D29) demonstrates a Smart Waste Management Solution that integrates smart recycling equipment, IoT technology and a big data platform to track recycling data and streamline analysis, easing the burden of ESG reporting for businesses.
+ About Western Star Resources
 
- Over 80 government, industry and academic leaders discuss policy, technology and green business opportunities
+ Western Star Resources is a mineral exploration company focused on the acquisition, exploration and advancement of mineral properties, with a growing strategic emphasis on tungsten and critical minerals in the United States. The Company is advancing a portfolio of past-producing tungsten assets in Nevada and New Mexico while maintaining additional exploration exposure through its Western Star property in British Columbia.
 
- This year's events are organised into four themed days aligned with the Expo's focus areas, featuring more than 30 forums and thematic sessions that bring together over 80 government officials and industry leaders from the Chinese Mainland, Australia, Malaysia, Thailand and other Belt and Road countries. The flagship event, the Eco Asia Conference, explores green development from multiple perspectives, spanning policy, technology, green finance, green building and industry applications. Various prominent industry leaders and experts will share their insights in person, including Ar Clarence Leung, Council Member and Chairperson of the Committee on Environment and Sustainability of the Construction Industry Council, Ir Kenny Wong, Director of Business Development & Projects - Hong Kong of ALBA Group Asia, and Henry Ho, Head of Sustainability of China State Construction Engineering (HK) Limited.
+ Contact Information
 
- One session of the Eco Asia Conference took place today, featuring Prof Su Hui, Department of Civil and Environmental Engineering of HKUST, who led the development of the Multi-Spectral Imaging Carbon Observatory (MUSICO). MUSICO was installed on China's Tiangong Space Station this year, and at the session she shared its practice and applications. Joined by Prof Kenneth Leung, Director of the State Key Laboratory of Marine Environmental Health at CityUHK, they also discussed extreme climate monitoring technologies.
+ On behalf of the Board of Directors,Blake Morgan, Director, President and CEOblake@acvc.vc
 
- Tomorrow (27 October) will also feature multiple events, including the government session of the Eco Asia Conference. An official from the Chinese Mainland and a representative of United Nations Environment Programme will share their respective environmental policy updates. There is also a panel discussion with a number of officials and experts holding in-depth exchanges on the advancement of innovative technologies for the building of the Green Silk Road. The Government Department Forum will gather representatives from the Environmental Protection Department, the Civil Aviation Department, the Civil Engineering and Development Department, the Electrical & Mechanical Services Department and the Water Supplies Department to brief the industry on government procurement needs, thereby advancing the application of environmental solutions and driving green opportunities. On the same day, the Startup Edge Exhibitor Forum will invite start-ups from different environmental fields to share their experiences. Local university representatives will also explain how green technologies move from the laboratory to the market.
+ Neither the Canadian Securities Exchange nor its Regulation Services Provider accepts responsibility for the adequacy or accuracy of this press release.
 
- Other highlights include the 7th Hydrogen Economy Forum on 28 October, at which Eddie Cheung, JP, Permanent Secretary for Environment and Ecology (Environment), will deliver a keynote speech. Experts including Ir Sammy Kong, General Manager of Commercial & Industrial Marketing & Sales at The Hong Kong and China Gas Company Limited, and Thomas Lui, Director of Decarbonisation and Integrated System Planning at CLP Power Hong Kong Limited, will then discuss the application of green fuels and energy storage technologies in Hong Kong.
-
- The final day of the Expo (29 October) will be Public Day, with free admission for the public, aiming to deepen public understanding of sustainability and to encourage the adoption of green lifestyles. A series of interactive environmental workshops and talks will be held that day. Speakers include representatives of the Hong Kong Observatory and the Asia Circular Economy Association, as well as Leung Wing Mo, former Assistant Director of the Hong Kong Observatory, who will discuss hot topics such as extreme heat and climate change with the public. Prof Karen Cheung, President of the UNESCO Hong Kong Association, together with representatives from Lingnan University and others, will host a Career Forum to share the prospects and trends of the green job market, encouraging talents to seize career opportunities in the green industry. In addition, Ways Out Hong Kong, a local social enterprise, will share its story of upcycling food waste into jewellery.
-
- Other concurrent fairs
-
- The Hong Kong International Outdoor and Tech Light Expo runs concurrently with Eco Expo Asia (26 to 29 October) at AsiaWorld-Expo, showcasing a wide range of outdoor and professional technical lighting solutions for commercial and industrial use. Meanwhile, the Hong Kong International Lighting Fair (Autumn Edition) will run for four days from tomorrow (27 to 30 October) at the Hong Kong Convention and Exhibition Centre. Free shuttle bus services are offered between these venues and other locations in the city throughout the fair period. Please refer to the following page for details:
-
- https://www.hktdc.com/event/ecoexpoasia/en/travel-to-fairground-awe
-
- Website: Eco Expo Asia – https://www.hktdc.com/event/ecoexpoasia/en
-
- Photo Download:  https://bit.ly/4kfc7ca
-
- Media enquiries:
-
- For enquiries, please contact:
-
- HKTDC Communication and Public Affairs Department:
-
- Christy LeeTel: (852) 2584 4369Email: christy.wn.lee@hktdc.org
-
- Dawn YuenTel: (852) 2584 4575Email: dawn.nh.yuen@hktdc.org
-
- Jane CheungTel: (852) 2584 4137Email: jane.mh.cheung@hktdc.org
-
- HKTDC Mediaroom: https://mediaroom.hktdc.com/
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus. Follow us on @hktdc and LinkedIn
-
- About Messe Frankfurt
-
- The Messe Frankfurt Group is the world's largest trade fair, congress and event organiser with its own exhibition grounds. With a workforce of some 2,700 people at its headquarters in Frankfurt am Main and in 29 subsidiaries, it organises events around the world. Group sales in financial year 2025 were about EUR 766 million. We serve our customers' business interests efficiently within the framework of our Fairs & Events, Locations and Services business fields. One of Messe Frankfurt's key strengths is its powerful and closely knit global sales network, which covers around 180 countries in all regions of the world. Our comprehensive range of services - both onsite and online - ensures that customers worldwide enjoy consistently high quality and flexibility when planning, organising and running their events.
-
- Messe Frankfurt develops new business models based on its digital expertise. Its range of services encompasses venue rental as well as exhibition stand construction, marketing services, staffing services, and catering.
-
- Sustainability is a central pillar of our corporate strategy. Maintaining a balance between environmental and economic responsibility, social responsibility, and diversity lies at the heart of its approach.
-
- For more information, please visit our website at: www.messefrankfurt.com/sustainability
-
- With its headquarters in Frankfurt am Main, the company is owned by the City of Frankfurt (60 percent) and the State of Hesse (40 percent).
-
- For more information, please visit our website at: www.messefrankfurt.com
-
-View the original release on www.newmediawire.com 
+ Forward-looking information: Certain statements herein may constitute forward-looking information, including references to the BLM's review of the Exploration Notice, state permit applications, the posting of a reclamation financial guarantee, the timing, scope and completion of the planned drill program, and future exploration work. Such statements are subject to risks associated with regulatory review and permitting, land access, exploration, operations, weather, and contractor and equipment availability. Forward-looking information is based on the Company's current expectations and assumptions, including that regulatory reviews will be completed on a timely basis, that required approvals and financial guarantees will be obtained on acceptable terms, and that drilling contractors and equipment will be available as planned. Readers are advised not to place undue reliance on forward-looking information. The Company does not undertake to update forward-looking information except as required by applicable securities laws. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-21st-eco-expo-asia-opens-today-7090871)
+[Original/Source Press Release](https://www.newmediawire.com/news/western-star-tenders-drill-contract-and-submits-exploration-notice-to-blm-for-17-hole-drill-program-at-eagle-point-tungsten-project-new-mexico-7090874)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/eco-expo-asia-2026-opens-with-340-exhibitors-driving-green-innovation/679c82c44da0923443ca99a64dc7597e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/western-star-files-blm-notice-for-first-eagle-point-drilling-in-70-years/f5f85e34a631725cfe7227a6a59a594a) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-technologies)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/27/western-star-submits-blm-notice-for-first-eagle-point-drilling-in-over-70-years/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-tech-commercialisation)
+Pickup - [https://advos.io/en](https://advos.io/en/western-star-files-blm-notice-for-first-eagle-point-drilling-in-over-70-years)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-technologies)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/western-star-files-blm-notice-for-first-eagle-point-drilling-in-over-70-years)
 
-Pickup - [https://burstable.news](https://burstable.news/news/21st-eco-expo-asia-opens-with-340-exhibitors-strengthening-hong-kongs-green-tech-hub-role)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/western-star-submits-blm-notice-for-first-eagle-point-drilling-in-over-70-years)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/21-eco-expo-asia-eroffnet-mit-uber-340-ausstellern-und-starkt-hongkongs-rolle-als-green-tech-hub)
+Pickup - [https://burstable.news](https://burstable.news/news/western-star-submits-blm-notice-for-17-hole-tungsten-drill-program-at-eagle-point)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-21a-eco-expo-asia-abre-con-mas-de-340-expositores-y-refuerza-el-papel-de-hong-kong-como-centro-de-tecnologia-verde)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/western-star-reicht-blm-mitteilung-fur-17-loch-wolfram-bohrprogramm-bei-eagle-point-ein)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-21e-eco-expo-asia-ouvre-ses-portes-avec-plus-de-340-exposants-renforcant-le-role-de-hong-kong-comme-pole-technologique-vert)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/western-star-presenta-aviso-al-blm-para-un-programa-de-perforacion-de-tungsteno-de-17-pozos-en-eagle-point)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/21a-eco-expo-asia-abre-com-mais-de-340-expositores-reforcando-o-papel-de-hong-kong-como-centro-de-tecnologia-verde)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/western-star-depose-un-avis-blm-pour-un-programme-de-forage-de-17-trous-pour-le-tungstene-a-eagle-point)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-tech-commercialisation)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/western-star-submete-aviso-ao-blm-para-programa-de-perfuracao-de-tungstenio-de-17-furos-no-eagle-point)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-technologies)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/western-star-files-blm-notice-for-first-eagle-point-drilling-in-over-70-years)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-technologies)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/western-star-files-blm-notice-for-first-eagle-point-drilling-in-over-70-years)
 
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/21st-eco-expo-asia-opens-with-340-exhibitors-spotlighting-green-tech-and-cross-regional-collaboration)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-technologies)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/eco-expo-asia-2026-opens-with-record-international-participation-and-focus-on-green-trade)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/eco-expo-asia-2026-opens-with-340-exhibitors-spotlighting-global-green-tech-and-business-opportunities)
+Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/western-star-resources-files-exploration-notice-for-17-hole-drill-program-at-eagle-point-tungsten-project)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/27/apexqFM7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2610/27/jokekwfj.webp)

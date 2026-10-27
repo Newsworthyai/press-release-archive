@@ -1,28 +1,22 @@
-# OmniPhi Secures Strategic Investment from Beeks Group and Launches Beeks Sovereign AI for Capital Markets
+# Jennifer Woodward's New Book Debunks Peptide Myths for Women's Health
 
-VANCOUVER, BC, OCTOBER 27, 2026
+LOS ANGELES, CA, OCTOBER 27, 2026
 
-OmniPhi has announced a strategic partnership with Beeks Financial Cloud Group plc (AIM: BKS), which includes a strategic minority investment in OmniPhi by Beeks.
+Jennifer Woodward introduces The Peptide Promise: How Smart Molecules Are Changing Everything We Know About Weight, Energy, and Aging, a new book intended to help women understand the science, questions and uncertainties surrounding peptides before deciding whether they belong in their health journey.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* OmniPhi partners with Beeks Financial Cloud Group, which makes a strategic minority investment in OmniPhi, to launch Beeks Sovereign AI, the first end-to-end agentic AI platform purpose-built for capital markets that runs entirely on client-controlled infrastructure.
-* The platform brings AI agents to institutions' data, with OmniPhi's proprietary Phi orchestrating agents across research, strategy, risk and execution while Beeks delivers GPU-enabled Proximity Cloud infrastructure managed end to end, keeping prompts, code and data inside the firm to meet sovereignty and compliance needs.
-* Beeks Sovereign AI is set for launch in the third quarter of Beeks' 2027 financial year and will be deployable in colocation or on-premise across all asset classes and institution types.
+Key Takeaways:* Jennifer Woodward introduces The Peptide Promise, a book that helps women evaluate peptides by explaining the science, clarifying uncertainties, and distinguishing research-backed applications from experimental approaches.
+* The book centers on Woodward’s Power Four—protein, minerals, circadian rhythm, and movement—as the foundational approach whether or not readers choose to use peptides.
+* The Peptide Promise is available for pre-order and on Kindle now and releases in paperback on November 10, 2026.
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/omniphi-secures-strategic-investment-from-beeks-group-and-launches-beeks-sovereign-ai-for-capital-markets)
+[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/jennifer-woodward-s-new-book-debunks-peptide-myths-for-women-s-health)
 
-About OmniPhi
+About Jennifer Woodward
 
-OmniPhi is building the agentic operating system for markets. Its Agentic Integrated Trading Environment (AITE) serves traders and capital markets firms. Emerging from stealth in 2026, the company's platform delivers a unified workspace where agents, charts, research, backtesting, code, and live execution share a single memory. At its centre is Phi, an agentic harness that coordinates specialised AI agents across research, strategy development, backtesting, deployment and risk. Driven by natural language and bounded by strict, user-defined risk parameters, Phi writes readable code, runs the analysis and operates strategies within the limits each trader or firm sets. Institutions can run Phi on infrastructure they control through Beeks Sovereign AI. OmniPhi never holds user funds, routing all execution through official broker APIs and the order systems each firm connects. OmniPhi is based in Vancouver, British Columbia. To learn more, visit https://omniphi.ai/.
+Jennifer Woodward is the author of The Peptide Promise. Her work focuses on helping women understand midlife health, with an emphasis on nutrition, foundational habits and informed decisions about peptides. Learn more at www.JenniferWoodwardNutrition.com.
 
-Disclaimer: OmniPhi is software operated by the trader; it is not investment advice, and no performance is promised or implied. Trading involves substantial risk of loss and is not suitable for everyone.
-
-About Beeks Group
-
-Beeks Group plc is an AIM-listed specialist cloud computing and connectivity provider focused exclusively on financial markets. Beeks delivers proximity cloud, analytics, and Exchange Cloud solutions to banks, brokers, trading firms, and exchanges globally.
-
-Contacts:Nik Vassev nik@storylinepros.com
+Contacts:Wellness Eternal — PR Team 914-846-9444we@wellnesseternal.com
 
 Source: Newsworthy.ai
 
@@ -30,15 +24,73 @@ Distributed by: Reportable, Inc.
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/omniphi-secures-strategic-investment-from-beeks-group-and-launches-beeks-sovereign-ai-for-capital-markets)
+[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/jennifer-woodward-s-new-book-debunks-peptide-myths-for-women-s-health)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/omniphi-secures-beeks-investment-launches-sovereign-ai-for-capital-markets/174b39525e01b7542b3ee27ac7251d2c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jennifer-woodward-s-new-book-debunks-peptide-myths-for-women/0496604c1d80f66fbeb963c12e570a26) 
 
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/jennifer-woodwards-new-book-debunks-peptide-myths-for-womens-health)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/27/new-book-aims-to-separate-peptide-fact-from-fiction-for-womens-health/)
+
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/new-book-aims-to-separate-peptide-hype-from-science-for-womens-health)
+
+Pickup - [https://advos.io/en](https://advos.io/en/new-book-aims-to-separate-peptide-science-from-hype-for-women)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/new-book-the-peptide-promise-aims-to-separate-science-from-hype-for-women-considering-peptides)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/new-book-the-peptide-promise-empowers-women-to-make-informed-peptide-decisions)
+
+Pickup - [https://news.bookretreat.com/book-news](https://news.bookretreat.com/book-news/new-book-the-peptide-promise-aims-to-separate-science-from-hype-for-women-considering-peptides)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/new-book-the-peptide-promise-aims-to-clarify-peptide-science-for-texas-women)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-nuevo-libro-the-peptide-promise-busca-aclarar-la-ciencia-de-los-peptidos-para-las-mujeres-de-texas)
+
+Pickup - [https://burstable.news](https://burstable.news/news/new-book-aims-to-clarify-peptide-science-for-womens-health-decisions)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/neues-buch-will-peptid-wissenschaft-fur-gesundheitsentscheidungen-von-frauen-klaren)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/nuevo-libro-busca-aclarar-la-ciencia-de-los-peptidos-para-las-decisiones-de-salud-de-las-mujeres)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-nouveau-livre-vise-a-clarifier-la-science-des-peptides-pour-les-decisions-de-sante-des-femmes)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/novo-livro-busca-esclarecer-a-ciencia-dos-peptideos-para-decisoes-de-saude-feminina)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/new-book-aims-to-help-women-separate-peptide-science-from-hype)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/new-book-the-peptide-promise-debunks-myths-and-offers-balanced-guidance-for-womens-health)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/new-book-aims-to-separate-peptide-fact-from-fiction-for-womens-health)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/27/fondsZYg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/27/isleIzyp.webp)

@@ -1,54 +1,84 @@
-# How Ground-Floor Retail Can Raise the Value of an Entire Mixed-Use Project, According to a Boston Retail Strategist
+# AI Agents Are the Newest Users in the Brokerage. Few Have Been Given a Job Description.
 
-Developers usually judge ground-floor retail by the rent it brings in. Ann Ehrhart, a Boston, Massachusetts retail strategist and founder of EVERSTREET, says that number tells only part of the story.
+Real estate brokerages are being sold on AI agents: software that drafts follow-ups, updates the CRM, chases transaction paperwork, and keeps a pipeline moving. Much of that conversation blurs a distinction that Chris Skipworth, CEO of Passpack, thinks brokerage leaders can’t afford to miss. An AI agent is not a smarter chatbot.
 
- “A property’s address doesn’t change, but its location value can improve,” Ehrhart said. Every project her firm takes on starts with the same question: how can this location become more valuable than it is today? In her view, retail is one of the most effective tools for answering it.
+ “A chatbot talks. An agent acts,” says Skipworth. “The ability to act is the whole story, and it’s also where the security question starts.”
 
- Why Retail Works as a Location Multiplier Retail’s impact reaches beyond the walls of the space it occupies. Ehrhart uses a restaurant as an example. It may take up 5,000 square feet, but a good one can make people want to live nearby, work nearby, visit more often, and spend more time in the neighborhood.
+ Agents operate inside your systems To send the email, edit the record, file the document, or book the showing, an agent needs access to the CRM, the inbox, the transaction platform, or the shared drive of client documents. A chatbot can only discuss those systems. An agent works within them.
 
- Real estate typically measures retail through rent, net operating income, occupancy, and leasing costs. In mixed-use projects, developers also count it as an amenity that helps lease the apartments or offices above. “All of that is real value, but it doesn’t capture the full economic impact of great retail and great place,” she said.
+ Skipworth, who moved into software from the semiconductor industry and now leads a zero-knowledge password management company for small and mid-sized businesses, has spent his career watching new technology get adopted faster than it gets governed. He sees the same pattern forming here.
 
- When retail makes a place more desirable, the benefit can show up in residential, office, hospitality, and surrounding real estate. “The storefront creates the experience,” Ehrhart said. “The location captures the multiplier.”
+ “People rely very heavily on these tools and don’t ask what they’ve been handed the keys to,” he says. “Once you see an agent as a new kind of user with access to your systems, the right questions follow on their own.”
 
- What People Are Actually Paying For Ehrhart points to research showing that walkable, mixed-use environments command measurable premiums in home values, apartment rents, and office and retail rents compared with locations that aren’t walkable. Municipal research she has reviewed also shows walkable mixed-use districts producing more property tax revenue per acre than lower-density development.
+ Every agent runs on borrowed access An agent has no access of its own. Whatever it can do, it can do because a person or team lent it credentials: a login, an API key, a token, a connection to a shared account.
 
- She is careful about what drives that premium. “People aren’t paying a premium for sidewalks. They’re paying for what the sidewalks connect them to.” Restaurants, shops, fitness, entertainment, services, and public spaces give people reasons to walk and reasons to choose one location over another.
+ In a brokerage, where teams move fast and share tools, the quickest way to get an agent working is often to set it up under one licensee’s login or a shared team account. It then inherits everything that account can reach, including client files, financial documents and communications, rather than a role scoped to its task.
 
- This isn’t limited to established downtowns. In larger master-planned developments, ownership can shape density, streets, public spaces, dining, and the connections between uses. “You’re creating a location rather than simply reacting to one,” Ehrhart said. That is where planning for future location value matters most.
+ “Nobody sees a new user appear,” Skipworth says. “The agent’s access can quietly exceed its job, and nobody ever decided it should.”
 
- More Retail Is Not the Same as Better Retail None of this means developers should simply add more retail square footage. According to Ehrhart, the multiplier comes from the right retail, not the most retail.
+ Why the credentials behind an agent matter most For Skipworth, this is where agents become a credential problem, and why he treats credential management as foundational infrastructure rather than an optional extra.
 
- EVERSTREET evaluates fit through market demand, which it defines as the intersection of consumer demand and tenant demand. Once demand is understood, merchandising, design, and underwriting should line up around it. “A great retail ecosystem isn’t necessarily the biggest one,” she said. “It’s the one people actually want to use and operators can successfully occupy.”
+ He points to two trends that make loosely managed access riskier. The first is that AI-powered threats increasingly target credentials directly. “A lot of fake AI applications get installed without anyone vetting where they came from,” he says. “Many are designed to harvest credentials and learn how people behave with them. It’s not just grabbing a password. It’s studying the habits around it.”
 
- That idea runs through the firm’s mission: the tenants in a space have to be supported by the community around them for the space to perform over time. Retail that the neighborhood doesn’t use works against a project instead of for it.
+ The second is that AI is good at the reconnaissance attackers used to do by hand. “One thing AI is very good at is spotting weaknesses in how an organization protects its credentials,” Skipworth says. “If logins live in a shared drive or a spreadsheet, or an agent’s access sits behind a shared password, that’s an easy find for an attacker with AI tools.”
 
- Asking a Second Question About Every Storefront At the storefront level, the obvious question is how much rent a tenant can pay. Ehrhart encourages developers and investors to ask a second one: what can this retail investment do for the value of the location?
+ His view is that an agent’s access is only as safe as the credentials it runs on. “A password manager isn’t a guarantee, but it’s the first line of defense. It’s the base you build every other control on.”
 
- Those two questions don’t always lead to the same answer. The tenant offering the highest rent may not be the one that does the most for residential retention, office demand, or foot traffic. That doesn’t mean subsidizing retail without discipline, Ehrhart said. It means being clear about what return you’re trying to create and where it will show up, whether that’s storefront income, residential rents, retention, office demand, visitation, land value, or future development potential.
+ Three questions to ask about any agent Skipworth says brokerage leaders don’t need technical expertise to assess an agent’s reach. They need to ask clear questions:
 
- “That’s when retail becomes a capital allocation conversation, not simply a leasing conversation,” she said.
+ * Which systems can it touch? List every platform it connects to. Connections added for convenience accumulate unnoticed.
+* Which client files can it see? An agent that schedules showings shouldn’t have a path to closing documents, identification records or financial details.
+* Which actions can it take? Reading, drafting, sending, editing and deleting carry very different risks. Whether an agent suggests or executes should be a deliberate decision.
 
- For developers weighing a mixed-use program, the practical step is to look past what a storefront is worth on its own. “The question shouldn’t only be, what is this storefront worth?” Ehrhart said. “We should also be asking, what can this storefront do for the future value of the place around it?”
+ Treat it like a new hire The approach Skipworth recommends is one brokerages already know from onboarding:
 
- About EVERSTREETEVERSTREET is a Boston, Massachusetts-based retail leasing, strategy, and activation advisory led by Ann Ehrhart, a 20-year retail leasing veteran working with mixed-use developments across the Boston area and into new growth markets. Learn more at everstreet.co.
+ * Defined scope. A clear statement of what the agent is for, and what it isn’t.
+* An accountable owner. A named person responsible for its access and activity, so it never becomes an orphaned tool.
+* A way to revoke access. The ability to cut it off quickly and completely without disrupting anyone else, which is far easier when the agent has its own credentials than when it shares a person’s or a team’s login.
 
- General: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ “None of this means avoiding AI,” Skipworth says. “It means applying least privilege, ownership and offboarding to a new kind of user. Security is a wall that has to keep getting higher, and attackers are always looking for the ladder. Don’t hand them one.”
 
- Third-party vendor: This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions.
+ The takeaway for leaders AI agents will probably become routine in brokerage operations. Skipworth’s advice is to skip the question of how impressive the technology is and ask what it has been given the power to do, and who answers for it.
+
+ That thinking underpins Passpack’s approach for small and mid-sized businesses: strong, zero-knowledge credential security shouldn’t require an enterprise budget or a dedicated IT team. As agents join the workforce, the same principle applies to them.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/how-ground-floor-retail-can-raise-the-value-of-an-entire-mixed-use-project-according-to-a-boston-retail-strategist/)
+[Original/Source Press Release](https://keycrew.co/journal/ai-agents-are-the-newest-users-in-the-brokerage-few-have-been-given-a-job-description/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/retail-as-a-location-multiplier-everstreet-s-ann-ehrhart-on-unlocking-hidden-value/349a9548d6ba372b38dfad7d51fff538) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-agents-in-real-estate-secure-credential-access-is-key/601b5f099373f0e2d06a46128ff81f23) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ai-agents-in-real-estate-brokerages-need-job-descriptions-not-just-enthusiasm)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ai-agents-in-real-estate-brokerages-raise-credential-security-concerns)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ai-agents-in-real-estate-brokerages-pose-hidden-credential-risks)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/ai-agents-in-real-estate-brokerages-require-credential-oversight-passpack-ceo-warns)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/los-agentes-de-ia-en-las-corredurias-inmobiliarias-requieren-supervision-de-credenciales-advierte-el-ceo-de-passpack)
+
+Pickup - [https://burstable.news](https://burstable.news/news/real-estate-brokerages-told-to-treat-ai-agents-as-new-users-with-borrowed-credentials)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/immobilienmakler-sollen-ki-agenten-als-neue-nutzer-mit-geliehenen-zugangsdaten-behandeln)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/a-las-agencias-inmobiliarias-se-les-dice-que-traten-a-los-agentes-de-ia-como-nuevos-usuarios-con-credenciales-prestadas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-agences-immobilieres-invitees-a-traiter-les-agents-ia-comme-de-nouveaux-utilisateurs-disposant-didentifiants-empruntes)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/corretoras-imobiliarias-orientadas-a-tratar-agentes-de-ia-como-novos-usuarios-com-credenciais-emprestadas)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ai-agents-in-real-estate-brokerages-need-credential-security-not-just-job-descriptions)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ai-agents-in-real-estate-brokerages-the-hidden-security-risks-of-borrowed-credentials)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/26/envynajN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/27/wall1ybR.webp)
