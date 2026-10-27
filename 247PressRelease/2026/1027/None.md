@@ -1,0 +1,18 @@
+# 6 Stones Receives Electric Refrigerated Van From Whole Foods Market to Support New Hope Center Food Pantry
+
+EULESS, TX, October 27, 2026 /24-7PressRelease/ -- Hope has a new set of wheels. Whole Foods Market delivered a new electric refrigerated van to 6 Stones, supporting food pickups for the New Hope Center and the neighbors who rely on the center to help feed their families. See Photos  The 6 Stones New Hope Center serves approximately 60,000 neighbors each year. Before food reaches the pantry, staff must pick it up and transport it. Whole Foods Market's practical investment strengthens an important connection in local food access: the trip between food pickup and the pantry.   For neighbors navigating a challenging season, the availability of fresh, healthy food for their household matters. 6 Stones staff and volunteers coordinate food pickups, transportation, and pantry operations. By providing refrigerated transportation, Whole Foods Market is supporting the behind-the-scenes work that connects food resources with neighbors.  "Whole Foods Market's generosity supports the everyday work of getting food to our New Hope Center," said Lori Krouskos, Chief Development Officer at 6 Stones. "Partnerships like this do more than provide transportation; they bridge the gap between generosity and real impact, ensuring no family in our community goes hungry."  Support Local Food Access Through Volunteering and Giving  Community members can participate in the New Hope Center's work by exploring current volunteer opportunities or making a financial donation. Volunteering offers a way to serve alongside others through shared community action. Financial contributions support 6 Stones' ongoing work of connecting neighbors with food and practical pathways of Hope.  To explore available volunteer roles, visit Volunteer at New Hope Center. To support the New Hope Center through a financial gift, visit Donate to New Hope Center.  6 Stones thanks Whole Foods Market for this investment in food transportation and for participating in a community where neighbors, businesses, volunteers, and donors each have a meaningful role.  About 6 Stones 6 Stones brings churches, businesses, schools, civic leaders, volunteers, and neighbors together around a shared mission: Sharing Hope through community mobilization. Its vision is "A Catalyst of Hope transforming lives, homes, and communities."  6 Stones connects community resources with practical action and lasting relationships. Its work includes food provision through the New Hope Center, community revitalization, mentoring, and personal development. These pathways honor each neighbor's dignity, choices, and progress while creating opportunities for people to serve alongside one another.  Through community partnerships, business sponsorships, volunteering, and giving, 6 Stones invites individuals and organizations to put their commitment into action. Together, they strengthen a community where neighbors can build connections, pursue their goals, and move forward with Hope. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/539917/6-stones-receives-electric-refrigerated-van-from-whole-foods-market-to-support-new-hope-center-food-pantry)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whole-foods-donates-electric-refrigerated-van-to-6-stones-food-pantry/4b9df0fc37e0feb8e02237112f398661) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2610/27/ferngn5W.webp)
