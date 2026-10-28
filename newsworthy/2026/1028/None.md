@@ -1,56 +1,78 @@
-# Longevity Brand RESURGE Featured Among One Lavi Best Sellers
+# A Place At Home - North Austin Recognized by Round Rock Chamber with Prestigious Award Nomination
 
-AgeReverse, a Canadian longevity company focused on healthy aging and cellular vitality, today announced that its flagship RESURGE formulation has been featured in the Best Sellers section of OneLavi.com, marking another milestone in the company's growing U.S. retail presence.
+A Place At Home - North Austin has been named a finalist for the Big Boy Hester Small Business of the Year Award in the Round Rock Chamber's 2026 Annual Business Awards. The agency is also a nominee for Best Senior Care Service in the 2026 Best of Round Rock, where it is going for a third consecutive win after taking the title in 2024 and 2025.
 
- The featured placement follows the recent introduction of RESURGE on One Lavi and reflects continued efforts by AgeReverse to build awareness of its science-first approach to healthy aging among American consumers.
+ The Chamber chose finalists from dozens of public nominations through a closed committee of community leaders. A Place At Home - North Austin is one of three finalists in the small business category, alongside The Palk Insurance Agency and Stone Stash Coffee. Winners will be announced at the Chamber's 59th Annual Business Awards banquet on January 28, 2027, at Kalahari Resorts & Conventions, where about 600 area business and community leaders are expected.
 
- OneLavi is an online destination for health, wellness, beauty and nutrition products, offering consumers access to brands from around the world. Its Best Sellers section highlights selected products across its growing portfolio of wellness offerings.
+ "We feature our award on our website and bring it with us to our local events," said Bryan Eisenberg, co-owner of A Place At Home - North Austin. "It's important to hire a home care agency that shows up for their community, and there is no better way to show that than by showing how the community shows up for you in voting for the Round Rock Chamber and Best of Round Rock award.s"
 
- "Being featured among OneLavi's Best Sellers is an encouraging development as we continue introducing AgeReverse to the U.S. market," said Kubi Turkmen, Founder and CEO of AgeReverse. "We are focused on building awareness of RESURGE and helping consumers understand our comprehensive approach to healthy aging."
+ Owned by senior care expert, Stacey and Bryan Eisenberg, A Place At Home - North Austin provides in-home care for seniors, veterans, and adults with disabilities. Every caregiver is fully background checked. The agency has also been named Provider of Choice and Employer of Choice by Best of Home Care. Beyond direct care, it offers care coordination and senior living placement help, and it works with local nonprofit ShareTheWill on a medical lending closet for veterans, seniors, and people in need.
 
- RESURGE was developed around the scientific framework of the 12 Hallmarks of Aging, which describes interconnected biological processes associated with aging. Rather than emphasizing a single ingredient or isolated wellness benefit, AgeReverse designed RESURGE as a multi-ingredient formulation intended to support several aspects of everyday wellness.
+ Community members can vote for A Place At Home - North Austin in Best Senior Care Service at bestofroundrocktx.com.
 
- The 90-capsule formulation combines ingredients including NMN, Resveratrol, Quercetin, Fisetin, CoQ10, Astragalus Extract, Hyaluronic Acid, Aronia Extract and Noni Berry into a simplified three-capsule daily regimen.
-
- Key features of RESURGE include: * Developed around the scientific concept of the 12 Hallmarks of Aging
-* Combines multiple ingredients associated with antioxidant support and everyday wellness
-* Supports nutrient metabolism, cardiovascular health and immune system function
-* Helps support collagen formation, connective tissue development and joint health
-* Simplifies what the company describes as 12 or more individual products and 15 or more capsules per day into a three-capsule daily regimen
-* Manufactured in GMP-certified facilities in Ontario, Canada using vegan capsules
-* Registered as a Natural Health Product with Health Canada under NPN 80130202
-
- The OneLavi recognition comes as AgeReverse continues building its U.S. presence through multiple retail and direct-to-consumer channels. RESURGE is also available on Amazon, and the company recently launched AgeReverseLongevity.com, its own online store featuring RESURGE, biological age testing and additional purchasing options.
-
- Beyond nutritional wellness, AgeReverse is developing a broader product range focused on both internal wellness and external skin aging. Planned offerings include daily skincare products, professional aesthetic formulations and non-invasive mesotherapy technology.
-
- "Our vision extends beyond a single product," Turkmen added. "We are developing a complete range of healthy aging solutions while expanding the ways consumers can discover and access AgeReverse. Visibility through retail partners such as OneLavi is an important part of that strategy."
-
- AgeReverse plans to continue building its U.S. presence through online retail distribution, direct-to-consumer sales and additional opportunities across the health and wellness market.
-
- RESURGE is now available on OneLavi.com and Amazon.
-
- Visit the AgeReverse Website and follow the company on Instagram and LinkedIn.
-
- About [AgeReverse](https://agereverselongevity.com/) AgeReverse is a Canada-based longevity wellness company focused on developing science-driven products designed to support healthy aging and cellular vitality. Founded by Kubi Turkmen, who has more than 30 years of experience in anti-aging innovation, the company’s approach combines longevity research, telomere science, and wellness innovation to create comprehensive healthy aging solutions. The company’s expanding AgeReverse platform includes longevity supplements and other wellness technologies designed to support multiple biological pathways associated with aging and long-term vitality. Products are manufactured in GMP-certified facilities in Ontario, Canada. Learn more at the company’s website.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ About A Place At Home - North Austin A Place At Home - North Austin provides compassionate in-home care in Round Rock, Georgetown, Cedar Park, Leander, Brushy Creek, Liberty Hill, and surrounding North Austin communities. Learn more at aplaceathomenorthaustin.com or call (512) 521-3010. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610283097/longevity-brand-resurge-featured-among-one-lavi-best-sellers)
+[Original/Source Press Release](https://newsworthy.ai/news/202610283113/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/agereverse-s-resurge-hits-onelavi-best-sellers-in-u-s-push/03ca11adbe949497bbe2d6fefe36aae0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/a-place-at-home-north-austin-named-finalist-for-chamber-award/0ab5ddab5cf2caa83bbde36ee46fb598) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/longevity-brand-resurge-featured-among-one-lavi-best-sellers)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/longevity-brand-resurge-featured-among-one-lavi-best-sellers)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/a-place-at-home-north-austin-named-finalist-for-chamber-award-and-best-of-round-rock-nominee)
+
+Pickup - [https://advos.io/en](https://advos.io/en/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/a-place-at-home-north-austin-earns-chamber-award-finalist-spot-and-best-of-round-rock-nomination)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chamber-small-business-award)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/a-place-at-home-north-austin-finalista-del-premio-a-la-pequena-empresa-de-la-camara-de-round-rock)
+
+Pickup - [https://burstable.news](https://burstable.news/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/a-place-at-home-north-austin-ist-finalist-fur-den-preis-small-business-of-the-year-der-round-rock-chamber)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/a-place-at-home-north-austin-finalista-del-premio-pequena-empresa-del-ano-de-la-camara-de-round-rock)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/a-place-at-home-north-austin-finaliste-pour-le-prix-de-la-petite-entreprise-de-lannee-de-la-chambre-de-commerce-de-round-rock)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/a-place-at-home-north-austin-e-finalista-do-premio-small-business-of-the-year-da-round-rock-chamber)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/a-place-at-home-north-austin-earns-chamber-award-nod-eyes-third-best-of-round-rock-win)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/28/wamce9XL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/28/tall5zdl.webp)
