@@ -1,83 +1,36 @@
-# Certified-PEP Publishes 2026 Research Peptide Supplier Comparison
+# Encotech CEO Ali Khataw on Immigrant Grit, Engineering 35-Year Firm and Photo Philanthropy
 
-Certified-PEP, a U.S.-based supplier of peptides and compounds for laboratory research, has published its 2026 Research Peptide Supplier Comparison, evaluating 10 suppliers across several criteria, including independent laboratory testing, Certificates of Analysis (COAs), manufacturing disclosures, customer reviews and purchasing information.
+Episode 96 of Rock Solid: Round Rock Business Leaders Podcast, titled "Ali Khataw | From Immigrant Entrepreneur to Community Leader," hosted by Bryan Eisenberg, released October 20, 2026, features a wide-ranging conversation with Ali Khataw, CEO of Incoteq Engineering and a Round Rock Chamber board member. Khataw traces his path from arriving alone in the United States, enrolling at the University of Arkansas, and launching Encotech in 1990, to leading a 45-person engineering firm that has now operated for 35 years while serving on boards across Central Texas.
 
- The comparison was conducted in October 2026 and is intended to provide qualified research customers with additional information when evaluating suppliers of laboratory research materials.
+ The episode blends business strategy with humanitarian storytelling. Listeners can expect specific threads including:
 
- The study examined publicly available supplier information and purchasing processes, using a 100-point scoring system to assess documentation, transparency and other factors relevant to research customers.
+ * Scaling Encotech from a solo practice into a mechanical, electrical and structural engineering firm behind projects such as the Austin Central Library, the Butterfly Bridge and Zachary Scott Theater.
+* Lessons from Leadership Austin's 2009 class on collaborative thinking and community trusteeship, and chairing the Austin Chamber of Commerce.
+* Khataw's photojournalism in Oaxaca, Mexico, Pakistan, Cuba, Tanzania and Kenya, including his LFI magazine feature on transgender communities in Pakistan.
 
- Certified-PEP conducted and published the comparison and was itself one of the suppliers evaluated. The company has made its scoring methodology and individual supplier results available in the full report.
+ Khataw speaks candidly about visibility, failure and the entrepreneur's need to put ideas into the world. Reflecting on the core value his father taught him, he tells Eisenberg:
 
- Research Peptide Suppliers Evaluated in the 2026 Comparison *Certified-PEP's 2026 comparison examined the following 10 research peptide suppliers, listed alphabetically:
+ If money is lost, nothing is lost because you can always make it up. If health is lost, something is lost. But if integrity is lost, everything is lost. He also describes photographing a blind Oaxacan sculptor for a Tono magazine piece titled "Hands That See," and weeping on a street in Oaxaca while documenting Semana Santa, moments he says reflect the human connection that threads through every chapter of his career.
 
- * American Peptides
-* BioLongevity Labs
-* Certified-PEP
-* Glacier Aminos
-* Hydro Research
-* Instant Peptides
-* Ion Peptide
-* Mile High Compounds
-* Modern Peptides
-* Phoenix Pharmaceuticals
+ The conversation goes deep on practical leadership. Khataw recounts advice from former Goodwill Industries CEO Jerry Davis, who challenged him to take a 10 to 15 percent pay cut, stop designing, and focus on business development, a pivot that unlocked Incoteq's growth. He describes a firm-wide points competition proposed by principal Patrick Morrissey that rewarded volunteer hours (not board seats or donations), earning Incoteq a small business win from Austin Gives. Khataw also previews an upcoming workshop trip to Tanzania and Kenya with Fair Trade Safaris CEO Saurabh Katipal, where proceeds will support a wildlife conservation group working with elephants, plus education funding for a young woman in Tanzania.
 
- The companies were evaluated using a 100-point scoring system covering testing and COA transparency, manufacturing disclosures, customer reviews, pricing, checkout functionality, shipping information and payment options.
-
- The complete rankings, individual scores and methodology are available in the published comparison.
-
- What the Comparison Found The study identified differences among suppliers in the availability of manufacturing information, independent testing documentation, public customer reviews and purchasing options.
-
- One area of particular interest was the availability of Certificates of Analysis and the extent to which suppliers make analytical testing information accessible to research customers.
-
- The comparison also examined whether suppliers identify the laboratories performing their analytical testing, provide documentation associated with specific product batches and make manufacturing-origin information available.
-
- Customer reviews, shipping policies, payment options and the functionality of online purchasing systems were also included in the evaluation.
-
- The findings highlight the range of information available to research customers and the importance of reviewing supplier documentation rather than relying solely on product descriptions or general quality claims.
-
- Why Certificates of Analysis Matter A Certificate of Analysis provides information about analytical testing performed on a particular material or batch. Depending on the testing conducted, documentation may include information about product identity, purity, analytical methods and other quality-related characteristics.
-
- For qualified research customers, batch-specific documentation can provide a way to review analytical information associated with the materials they receive rather than relying solely on general product descriptions or stated purity levels.
-
- The Certified-PEP comparison encourages research customers to consider several questions when evaluating suppliers, including whether the testing laboratory is identified, whether documentation corresponds to a specific batch, what analytical methods were used and whether the results can be independently reviewed.
-
- The report also discusses the distinction between a stated purity percentage and more comprehensive analytical documentation. Purity testing alone does not necessarily establish a compound's identity or address every characteristic relevant to laboratory research.
-
- A COA documents the results of specified analytical tests and does not, by itself, establish that a research compound is safe or effective for human use.
-
- Certified-PEP's Approach to Testing and Transparency Certified-PEP emphasizes U.S. manufacturing, independent batch testing and accessible analytical documentation as part of its approach to serving qualified research customers.
-
- All Certified-PEP product batches are tested by Vanguard Laboratory, with Certificates of Analysis made available for corresponding products.
-
- The company also includes QR codes on every vial, allowing research customers to access available batch-specific documentation through Vanguard Laboratory's reporting system.
-
- These practices reflect Certified-PEP's emphasis on providing research customers with information about the materials they purchase, including manufacturing origin, analytical testing and product traceability.
-
- Supporting Informed Supplier Evaluation The 2026 comparison is intended to provide a structured framework for reviewing information that research compound suppliers make available to customers.
-
- Because Certified-PEP conducted the study and participated in the evaluation, its findings represent a company-published comparison rather than independent third-party research. The published methodology and supporting information allow readers to examine the criteria and assess the findings for themselves.
-
- The full report includes a side-by-side comparison of the 10 suppliers, individual scoring results, analytical documentation examples and a checklist of questions for evaluating research compound suppliers.
-
- The complete 2026 Research Peptide Supplier Comparison is available on the Certified-PEP website.
-
- About[Certified-PEP](https://certified-pep.com/) Certified-PEP is a U.S.-based supplier of peptides and compounds for qualified laboratory research. The company emphasizes U.S. manufacturing, batch-specific analytical testing through Vanguard Laboratory, product labeling with COA information, transparent research documentation and top-tier customer service. Certified-PEP products are intended solely for in-vitro laboratory research and are not intended for human or veterinary use or clinical applications.
-
- Research Use Only: Certified-PEP products are intended solely for in-vitro laboratory research and are not intended for human or veterinary use, consumption, clinical use, diagnosis, treatment or prevention of disease.
-
- Media Contact:Certified-PEP Media InquiriesEmail Contact 
+ About Rock Solid: Round Rock Business Leaders Podcast Produced by Round Rock Studio and hosted by bestselling author and keynote speaker Bryan Eisenberg, Rock Solid spotlights the entrepreneurs, nonprofits and corporate leaders shaping Round Rock, Texas, and the broader Central Texas economy. Each episode explores the founder stories, strategic decisions and community commitments behind the region's most dynamic organizations. Episode 96 with Ali Khataw is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610293116/certified-pep-publishes-2026-research-peptide-supplier-comparison)
+[Original/Source Press Release](https://newsworthy.ai/news/202610293082/encotech-ceo-ali-khataw-on-immigrant-grit-engineering-35-year-firm-and-photo-philanthropy)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/certified-pep-releases-2026-research-peptide-supplier-comparison/268d6efa8fce2c5291eec28dd5d241b1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ali-khataw-from-immigrant-entrepreneur-to-community-leader-on-rock-solid-podcast/8a82fc8fee334a89347e9b901d5c62e0) 
 
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/ali-khataw-from-immigrant-entrepreneur-to-community-leader)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/ali-khataws-journey-from-immigrant-entrepreneur-to-community-leader-featured-on-rock-solid-podcast)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/29/blur1hyj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/29/irisp2Uy.webp)

@@ -1,100 +1,95 @@
-# Larry's RV LLC Highlights Folding Pop-Up Camper Features in MI
+# GVO Captures SuiteWorld 2026 Micro-Vertical Partner of the Year
 
-Toy Hauler Travel Trailers: Key Features for Buyers Comparing RV Options
+GVO's PracticeERP Earns Micro-Vertical Partner of the Year Honor at SuiteWorld 2026
 
- Jackson, United States - October 29, 2026 / Larry's RV LLC /
+ Waunakee, United States - October 29, 2026 / goVirtualOffice, LLC /
 
- JACKSON, MICHIGAN, October 29, 2026 — Larry’s RV LLC is highlighting RV shopping considerations for buyers researching toy hauler travel trailers, new RVs for sale, and folding pop-up campers. Based in Jackson, Michigan, the business provides a contact point for customers seeking information about RV purchasing options. The announcement addresses common factors buyers can review when comparing models, including towing capacity, sleeping arrangements, storage, and intended travel use.
+ goVirtualOffice (GVO), a NetSuite Solution Provider and the company behind PracticeERP, has been named Micro-Vertical Solution Provider Partner of the Year by Oracle NetSuite. The award was presented at SuiteWorld 2026, held October 25-28 in Las Vegas, marking the second time in three years GVO has received the recognition.
 
-![](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/aXX1bdfTtHZkhJ91v7WRxLP0ZIX81SeytDcRuAeP.jpg)
+Oracle NetSuite presents this award to the partner that has demonstrated the most focused effort in building and delivering specialized solutions for a specific industry niche. GVO earned the distinction for PracticeERP, its NetSuite-based operating platform designed for CPA firms. The platform consolidates practice management, time and billing, project accounting, and financial reporting into a single system, giving firm leaders a unified, real-time view of their operations.
 
-RV Categories for Different Travel PlansDifferent RV designs serve different travel needs, from carrying recreational equipment to providing a compact place to sleep while camping.
+"Being named Micro-Vertical Solution Provider Partner of the Year for the second time in three years is a tremendous honor, and it belongs to our team and to the CPA firms who trust us to help run their practices," said Dirk Shimpach, CPA, founder and CEO of goVirtualOffice. "We're grateful to Oracle NetSuite for a partnership that lets us build something truly purpose-built for accounting firms. PracticeERP exists because we believe firm leaders deserve the same real-time visibility into their own business that they deliver to their clients every day, and we're more committed than ever to helping CPA firms grow, modernize, and spend less time wrestling with disconnected systems."
 
-Toy Hauler Travel Trailers for Equipment and Living SpaceToy hauler travel trailers combine living quarters with cargo space for motorcycles, ATVs, and other outdoor gear. Buyers should compare garage dimensions, cargo capacity, trailer weight, and sleeping space before choosing a model.
+GVO first received this award at SuiteWorld 2024. In the period since, the company became a CPAmerica Preferred Provider, extending PracticeERP access to the association's member firms. GVO is also developing PracticeERP on NetSuite Next, an effort aimed at introducing AI-driven insights and automation into day-to-day firm workflows. The consecutive recognition reflects GVO's sustained concentration on a single vertical, which it serves through four connected brands:
 
-New RVs for Sale for Families and Extended TripsNew RVs for sale in Michigan offer different layouts for weekend camping, family trips, and longer stays. Models appearing in the Jackson inventory include the 2027 Forest River Wildwood FSX 135ICE, 2026 Forest River Viking 3K Series 12RD, and 2026 Heartland Prowler 1700BH.
+* PracticeERP: the NetSuite-based operating platform for CPA firms
+* CPA360: education, community, and advisory resources for CPA firm leaders
+* BOOST: managed application services for ongoing optimization and support
+* GVO consulting: ERP implementation and advisory services on NetSuite and Acumatica
 
-When comparing models, shoppers should review sleeping capacity, kitchen and bathroom layouts, storage, appliances, heating and cooling systems, and available solar equipment to find an RV suited to their travel plans.
+"We used to run the firm on legacy software and a stack of weekly Excel reports. PracticeERP gave us dashboards and real-time data across all our offices, so our people see where things stand every day and we can forecast with confidence. GVO built PracticeERP for firms like ours and they understand how CPA firms actually work," said Tim Moy, CPA, Managing Partner of MBE CPAs.
 
-Folding Pop-Up Campers for Compact CampingFolding pop-up campers offer a compact alternative to many conventional travel trailers. Their collapsible design can reduce the space they occupy during transport and storage. Depending on the model, these campers may include sleeping areas, basic cooking facilities, and other camping features.
+About goVirtualOffice
 
-People searching for a folding pop-up camper for sale in TX should verify current inventory and the location of the specific unit. Availability can change, and not every dealership carries the same models. Buyers should confirm the camper’s weight, setup process, sleeping capacity, and towing requirements before arranging a visit.
+goVirtualOffice (GVO) is an ERP consulting and implementation firm specializing in NetSuite and Acumatica. Through PracticeERP, CPA360, and BOOST managed services, GVO helps CPA firms and growing businesses modernize operations, improve profitability, and scale with confidence. GVO has team members in Texas, Colorado, and Wisconsin. Learn more at govirtualoffice.com.
 
-Important Factors When Comparing RV ModelsBuyers should compare RV specifications with their towing vehicle, travel plans, and storage needs before choosing a model.
+PracticeERP is a trademark of goVirtualOffice, LLC. NetSuite is a registered trademark of Oracle and/or its affiliates.
 
-Towing Capacity and Weight RatingsCheck the RV’s unloaded weight, gross vehicle weight rating, and cargo capacity against the tow vehicle’s limits. Hitch ratings, payload, and braking requirements also affect towing compatibility.
+Media Contact
 
-Storage, Sleeping Space, and EquipmentCompare sleeping arrangements, storage space, and cargo capacity based on the number of travelers and equipment carried. Solar capability, battery capacity, and climate-control features vary by model and should be verified in the individual listing.
+Chrissy Buonincontro Allard
 
-Inventory Inquiries and AvailabilityThe company can be contacted for information about RV purchasing options and related inquiries. Shoppers researching a toy hauler travel trailer or other RV should confirm the availability, location, condition, and specifications of the particular unit before traveling to view it.
+Marketing & Sales Director, goVirtualOffice
 
-Customers searching for new RVs for sale in Texas should also verify whether the requested model is available through a Texas dealership or whether delivery to their preferred location is offered.
+callard@govirtualoffice.com
 
-“Our goal has always been to help more families find an RV that fits their needs and budget. As the business grows, the focus remains on offering a wide selection of RVs and helping buyers make informed decisions about their purchases,” said Jarrod McGhee, Founder and Chairman.
+9207230262
 
-![](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zElcRrTG89waaHtZaKYWjd7gFg0H4vcU2eZLNPKL.jpg)
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/0y4mfKKFxSOglISAsydjO1VxItFjGIpUhZYahIM9.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/kNuZRegegzPi3qlCApWX2chsDoqMacXwY1UOw53x.jpg) [](https://govirtualoffice.com) Contact Information:
 
-About Larry’s RV LLCLarry’s RV LLC is an RV business located in Jackson, Michigan. The business is associated with the address at 2501 Lansing Ave and provides a point of contact for customers making RV-related inquiries. Buyers can contact the business directly to request information about its services, purchasing options, and current availability. Customers can also ask about available RV models and the features that match their travel plans.
-
-Media ContactPublic Relations
-
-Larry’s RV LLC
-
-2501 Lansing Ave
-
-Jackson, MI 49202, United States
-
-Phone: (517) 787-3830
-
-Contact page: https://www.funtownrv.com/locations
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zElcRrTG89waaHtZaKYWjd7gFg0H4vcU2eZLNPKL.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/aXX1bdfTtHZkhJ91v7WRxLP0ZIX81SeytDcRuAeP.jpg) [](https://www.larrysrvservice.com/) Contact Information:
-
- Larry's RV LLC
+ goVirtualOffice, LLC
 
  
 
-2501 Lansing Ave  Jackson, MI 49202United States
+1021 Quinn Dr #200  Waunakee, WI 53597United States
 
- Public Relations (517) 787-3830 https://www.larrysrvservice.com/
-
- 
-
- Original Source:  https://larrysrvllc.media-room.app/ 
+ Chrissy Buonincontro Allard 19207230262 https://govirtualoffice.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/larrys-rv-llc-highlights-folding-pop-up-camper-features-in-mi-452835)
+[Original/Source Press Release](https://mediawiretoday.com/gvo-captures-suiteworld-2026-micro-vertical-partner-of-the-year-453725)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/larrys-rv-llc-guides-buyers-on-toy-haulers-new-rvs-and-pop-up-campers/503d163d32a7dfe11e21f4617e47f351) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gvo-s-practiceerp-wins-netsuite-micro-vertical-partner-of-the-year/33f50d8a57e1416cff9e7fc113dba772) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/larrys-rv-llc-guides-michigan-buyers-on-toy-haulers-new-rvs-and-pop-up-campers)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/29/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/larrys-rv-llc-guides-michigan-buyers-on-toy-haulers-new-rvs-and-pop-up-campers)
+Pickup - [https://advos.io/en](https://advos.io/en/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/larrys-rv-llc-guides-michigan-buyers-on-toy-haulers-new-rvs-and-pop-up-campers)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/larrys-rv-llc-guides-texas-buyers-on-toy-haulers-new-rvs-and-pop-up-campers)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/gvo-wins-netsuite-micro-vertical-partner-of-the-year-for-second-time-in-three-years)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/larrys-rv-llc-orienta-a-los-compradores-de-texas-sobre-remolques-de-carga-vehiculos-recreativos-nuevos-y-caravanas-plegables)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
 
-Pickup - [https://burstable.news](https://burstable.news/news/larrys-rv-llc-guides-michigan-buyers-on-toy-haulers-new-rvs-and-pop-up-campers)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/gvo-gana-por-segunda-vez-el-premio-micro-vertical-partner-of-the-year-por-practiceerp)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/larrys-rv-llc-berat-kaufer-in-michigan-zu-toy-haulern-neuen-wohnmobilen-und-klappanhangern)
+Pickup - [https://burstable.news](https://burstable.news/news/gvo-wins-netsuite-micro-vertical-partner-of-the-year-for-second-time-in-three-years)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/larrys-rv-llc-orienta-a-los-compradores-de-michigan-sobre-toy-haulers-rvs-nuevas-y-caravanas-plegables)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gvo-gewinnt-zum-zweiten-mal-in-drei-jahren-den-netsuite-micro-vertical-partner-of-the-year-award)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/larrys-rv-llc-guide-les-acheteurs-du-michigan-sur-les-toy-haulers-les-vr-neufs-et-les-caravanes-pliantes)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/gvo-gana-el-premio-netsuite-micro-vertical-partner-of-the-year-por-segunda-vez-en-tres-anos)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/larrys-rv-llc-orienta-compradores-de-michigan-sobre-toy-haulers-rvs-novos-e-trailers-pop-up)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/gvo-remporte-pour-la-deuxieme-fois-en-trois-ans-le-prix-netsuite-micro-vertical-partner-of-the-year)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/larrys-rv-llc-spotlights-rv-buying-considerations-for-toy-haulers-new-rvs-and-pop-up-campers-in-michigan)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/gvo-conquista-premio-de-parceiro-micro-vertical-do-ano-da-netsuite-pela-segunda-vez-em-tres-anos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/gvo-wins-second-netsuite-micro-vertical-partner-of-the-year-award-for-practiceerp)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-cpa-focused-practiceerp)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-cpa-focused-practiceerp)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/29/veil2GTK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/29/noondupG.webp)
