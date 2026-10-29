@@ -1,100 +1,84 @@
-# Deck of Shame Launches Gaza Genocide Edition, Turning a Playing Card Deck Into an Act of Witness
+# ECU Poll Finds Graham Leading Andrews by Four Points
 
-TORONTO, CA OCT 29, 2026
+GREENVILLE, N.C., OCTOBER 29, 2026
 
-Deck of Shame, an independent artistic and political expression project, has launched the Deck of Shame: Gaza Genocide Edition, now available at DeckofShame.com and on Amazon.
+The latest ECU Poll of South Carolina’s U.S. Senate race, conducted October 19–24, shows former Republican Senator Darline Graham leading Democratic challenger Annie Andrews by four percentage points among likely voters, 51% to 47%. Another 2% support an independent, minor-party, or write-in candidate. The poll has a credibility interval of ±3.7 percentage points, comparable to a margin of error.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Deck of Shame has launched its Gaza Genocide Edition, a playable card deck identifying and ranking 52 powerful figures its creators say bear significant responsibility for the genocide in Gaza.
-* Inspired by the 2003 “Most Wanted” playing cards, the deck combines political commentary with artwork honoring Hind Rajab to preserve memory, spark conversations, and call attention to accountability.
-* Deck of Shame allocates a portion of proceeds to humanitarian and community initiatives, beginning with the Palestine Children’s Relief Fund and grants supporting student and community education and advocacy.
+Key Takeaways:* Darline Graham leads Annie Andrews 51% to 47% among likely voters in South Carolina’s U.S. Senate contest.
+* The economy, including the cost of living, is the top issue for 54% of likely voters. Border security and immigration ranks second at 14%.
+* Andrews is ahead among independents, 53% to 43%; however, Graham’s 93% to 6% advantage among Republicans is large enough for her to hold a slight lead in the race overall.
 
-[Click image above to view full announcement.](https://ashby-gabriel.reportablenews.com/pr/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+[Click image above to view full announcement.](https://surveyresearch-ecu.reportablenews.com/pr/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-About Deck of Shame
+The Center for Survey Research at East Carolina University conducts nonpartisan public opinion polling on elections, politics, and public policy issues in North Carolina and across the nation.
 
-Deck of Shame is an independent artistic and political expression project created to document culpability, provoke conversation and preserve memory. Its first release, the Gaza Genocide Edition, uses a playing-card format to identify 52 people that bear responsibility through their actions or words for the devastation in Gaza.
+Contacts:Peter Francia252-367-6126franciap@ecu.edu
 
-Deck of Shame allocates 20% of profits to charitable and community giving, including humanitarian assistance for Palestinian children and families and grants supporting student and community-based advocacy and educational initiatives.
+Jonathan Morris252-367-1067morrisj@ecu.edu
 
-Remember. Question. Give. Play. And don’t look away.
-
-Contacts:Paras Shahinfo@deckofshame.com
-
-Source: Ashby & Gabriel
+Source: ECU Center for Survey Research
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://ashby-gabriel.reportablenews.com/pr/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+[Original/Source Press Release](https://surveyresearch-ecu.reportablenews.com/pr/ecu-poll-finds-graham-leading-andrews-by-four-points)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/deck-of-shame-launches-gaza-genocide-edition-card-deck/ecb9fe2fbb99c31f567e9823e884dbec) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecu-poll-graham-leads-andrews-by-4-points-in-sc-senate-race/478d04447429f265a85d7568b0a602b5) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://advos.io/en](https://advos.io/en/ecu-poll-shows-graham-leading-andrews-by-four-points-in-south-carolina-senate-race)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ecu-poll-shows-graham-leading-andrews-by-four-points-in-south-carolina-senate-race)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ecu-poll-shows-graham-leading-andrews-by-four-points-in-south-carolina-senate-race)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/deck-of-shame-launches-gaza-genocide-edition-turning-a-playing-card-deck-into-an-act-of-witness)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/29/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory/)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://advos.io/en](https://advos.io/en/deck-of-shame-launches-gaza-genocide-edition-blending-art-and-activism)
+Pickup - [https://burstable.news](https://burstable.news/news/ecu-poll-graham-holds-four-point-lead-over-andrews-in-south-carolina-senate-race)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ecu-umfrage-graham-liegt-im-senatswahlkampf-in-south-carolina-vier-punkte-vor-andrews)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/encuesta-de-ecu-graham-mantiene-una-ventaja-de-cuatro-puntos-sobre-andrews-en-la-carrera-por-el-senado-de-carolina-del-sur)
 
-Pickup - [https://burstable.news](https://burstable.news/news/deck-of-shame-launches-gaza-genocide-edition-blending-art-and-accountability)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/sondage-ecu-graham-devance-andrews-de-quatre-points-dans-la-course-au-senat-en-caroline-du-sud)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/deck-of-shame-startet-gaza-volkermord-edition-die-kunst-und-verantwortlichkeit-verbindet)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pesquisa-da-ecu-graham-tem-vantagem-de-quatro-pontos-sobre-andrews-na-corrida-ao-senado-da-carolina-do-sul)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/deck-of-shame-lanza-la-edicion-genocidio-en-gaza-combinando-arte-y-rendicion-de-cuentas)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ecu-poll-shows-graham-leading-andrews-by-four-points-in-south-carolina-senate-race)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/deck-of-shame-lance-ledition-genocide-a-gaza-melant-art-et-responsabilite)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/deck-of-shame-lanca-edicao-genocidio-em-gaza-misturando-arte-e-responsabilizacao)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/reportable/ecu-poll-finds-graham-leading-andrews-by-four-points)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/deck-of-shame-launches-gaza-genocide-edition-blending-art-and-accountability)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/deck-of-shames-gaza-genocide-edition-uses-playing-cards-to-name-52-figures-and-fund-relief)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/news/deck-of-shame-launches-gaza-genocide-edition-to-document-culpability-and-preserve-memory)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/deck-of-shame-launches-gaza-genocide-edition-blending-art-and-accountability)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/29/ecu-poll-shows-graham-leading-andrews-by-four-points-in-south-carolina-senate-race/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/29/leanZ63W.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2610/29/pitapico8iLE.webp)

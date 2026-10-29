@@ -1,95 +1,84 @@
-# GVO Captures SuiteWorld 2026 Micro-Vertical Partner of the Year
+# Portugal Pathways Outlines Schengen Travel Rights Under Residence Permits
 
-GVO's PracticeERP Earns Micro-Vertical Partner of the Year Honor at SuiteWorld 2026
+What a Portuguese Residence Permit Gives You: Schengen Access and Its 90-Day Limit
 
- Waunakee, United States - October 29, 2026 / goVirtualOffice, LLC /
+ Estr. da Quinta do Lago, Portugal - October 29, 2026 / Portugal Pathways /
 
- goVirtualOffice (GVO), a NetSuite Solution Provider and the company behind PracticeERP, has been named Micro-Vertical Solution Provider Partner of the Year by Oracle NetSuite. The award was presented at SuiteWorld 2026, held October 25-28 in Las Vegas, marking the second time in three years GVO has received the recognition.
+ LISBON, PORTUGAL, 27 October 2026. Portugal Pathways, an integrated information, introductions and advisory platform supporting international clients with residency and relocation planning in Portugal, has outlined the physical-presence requirements that determine whether holding residency rights in more than one country is workable in practice. Those requirements differ substantially depending on which Portuguese residency route a client pursues.
 
-Oracle NetSuite presents this award to the partner that has demonstrated the most focused effort in building and delivering specialized solutions for a specific industry niche. GVO earned the distinction for PracticeERP, its NetSuite-based operating platform designed for CPA firms. The platform consolidates practice management, time and billing, project accounting, and financial reporting into a single system, giving firm leaders a unified, real-time view of their operations.
+Portugal's Golden Visa residency-by-investment programme ties its presence requirement to permit renewal: seven days in the first year, consecutive or not, and 14 days in each subsequent two-year period - commonly summarised as an average of approximately seven days per year. These figures represent renewal conditions rather than an entitlement to the permit itself. The figures remain subject to legislative change, and renewal is subject to AIMA assessment.
 
-"Being named Micro-Vertical Solution Provider Partner of the Year for the second time in three years is a tremendous honor, and it belongs to our team and to the CPA firms who trust us to help run their practices," said Dirk Shimpach, CPA, founder and CEO of goVirtualOffice. "We're grateful to Oracle NetSuite for a partnership that lets us build something truly purpose-built for accounting firms. PracticeERP exists because we believe firm leaders deserve the same real-time visibility into their own business that they deliver to their clients every day, and we're more committed than ever to helping CPA firms grow, modernize, and spend less time wrestling with disconnected systems."
+Portuguese law sets no minimum stay requirement for the D7 and D8 routes. A separate absence rule applies to temporary residence permits, which may be cancelled where the holder is absent from Portugal without valid reasons for six consecutive months or eight non-consecutive months, counted over the permit's validity period. Both routes are designed for people relocating to Portugal, and the Golden Visa presence figures do not apply to them.
 
-GVO first received this award at SuiteWorld 2024. In the period since, the company became a CPAmerica Preferred Provider, extending PracticeERP access to the association's member firms. GVO is also developing PracticeERP on NetSuite Next, an effort aimed at introducing AI-driven insights and automation into day-to-day firm workflows. The consecutive recognition reflects GVO's sustained concentration on a single vertical, which it serves through four connected brands:
+AIMA states an exception to the absence rule only for the permanent investment permit and does not specify how it applies to the temporary Golden Visa permit. Temporary Golden Visa holders are advised to confirm the applicable absence rules directly with AIMA or a qualified immigration professional before planning extended periods abroad.
 
-* PracticeERP: the NetSuite-based operating platform for CPA firms
-* CPA360: education, community, and advisory resources for CPA firm leaders
-* BOOST: managed application services for ongoing optimization and support
-* GVO consulting: ERP implementation and advisory services on NetSuite and Acumatica
+A Portuguese residence permit provides access to Portugal and visa-free travel within the other Schengen states for short stays - generally up to 90 days in any 180-day period under current rules. Residence, employment and establishment rights in other EU member states remain governed by the laws of those individual countries.
 
-"We used to run the firm on legacy software and a stack of weekly Excel reports. PracticeERP gave us dashboards and real-time data across all our offices, so our people see where things stand every day and we can forecast with confidence. GVO built PracticeERP for firms like ours and they understand how CPA firms actually work," said Tim Moy, CPA, Managing Partner of MBE CPAs.
+Property purchase has not been among Portugal's qualifying Golden Visa investment categories since the end of 2023. Some other programmes, Greece among them, continue to offer property-based routes.
 
-About goVirtualOffice
+Portugal's Nationality Law was revised under Lei Organica n.o 1/2026, in force 19 May 2026. The qualifying residency period for citizenship now differs by nationality and depends on the legislation in force at the time of application. Residency is granted first; eligibility to apply for permanent residency or citizenship is a separate, later and conditional step, subject to meeting all legal requirements and to approval by the Portuguese authorities. For many internationally mobile clients, the renewable residency permit is itself the primary objective.
 
-goVirtualOffice (GVO) is an ERP consulting and implementation firm specializing in NetSuite and Acumatica. Through PracticeERP, CPA360, and BOOST managed services, GVO helps CPA firms and growing businesses modernize operations, improve profitability, and scale with confidence. GVO has team members in Texas, Colorado, and Wisconsin. Learn more at govirtualoffice.com.
+In early October 2026, Minister of the Presidency Antonio Leitao Amaro told parliament's Constitutional Affairs committee that AIMA had processed 6,000 of 46,000 pending Golden Visa applications - approximately 13 per cent - with around 30,000 biometric appointments scheduled. Estimates of waiting times vary: IMI's second-quarter 2026 survey recorded an average of 50.4 months, while practitioners quote 14 to 18 months for new filings. Processing timelines remain subject to government administration and application volumes.
 
-PracticeERP is a trademark of goVirtualOffice, LLC. NetSuite is a registered trademark of Oracle and/or its affiliates.
+"Despite geopolitical issues worldwide, Portugal continues to be stable, safe, and economically resilient. These qualities remain key drivers for individuals and families pursuing a secure and vibrant future in the country," said Paul Stannard, Chairman and Founder of Portugal Pathways.
 
-Media Contact
+Portugal Pathways provides introductions to appropriately qualified regulated professionals for the residency, tax and legal questions that arise when a client lives across more than one jurisdiction. Learn more at portugalpathways.io.
 
-Chrissy Buonincontro Allard
+Portugal Pathways provides general information and introductions and does not offer regulated investment, tax, legal or immigration advice. Residency approval is discretionary and subject to AIMA review and applicable Portuguese law. Tax residency is determined separately from immigration residency according to Portuguese tax law and individual circumstances.
 
-Marketing & Sales Director, goVirtualOffice
+The value of luxury new homes and qualifying investments may rise or fall; past performance is not a reliable indicator of future results. Where investment routes for the Golden Visa are referenced, investments are offered by independent, regulated fund managers; capital is at risk. Qualifying routes, investment thresholds, physical presence requirements and naturalisation timelines are subject to Portuguese legislation and may change. Readers should obtain independent professional advice before making decisions about investment, residency, citizenship, tax residency, luxury new home acquisitions or estate or succession planning.
 
-callard@govirtualoffice.com
+About Portugal PathwaysPortugal Pathways is an integrated information, introductions and advisory platform. The firm has supported hundreds of Golden Visa residency-by-investment applications through its professional network of licensed immigration lawyers and regulated fund managers.
 
-9207230262
+Portugal Pathways discloses its remuneration, including fees or commissions arising from introductions and partner arrangements. Through buyer and investment mandates with more than 250 developers, architects, builders and designers across Portugal, the firm gives clients access to selected new-build, off-plan and off-market luxury new homes. Luxury new home acquisitions are independent of Golden Visa eligibility; the real-estate Golden Visa route closed at the end of 2023.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/0y4mfKKFxSOglISAsydjO1VxItFjGIpUhZYahIM9.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/kNuZRegegzPi3qlCApWX2chsDoqMacXwY1UOw53x.jpg) [](https://govirtualoffice.com) Contact Information:
+Additional services include introductions to professionals for IFICI (Incentivo Fiscal a Investigacao Cientifica e Inovacao, Portugal's Tax Incentive for Scientific Research and Innovation) applications, a regime with narrower and more targeted eligibility than the closed NHR scheme. Other services include post-NHR long-term planning, private healthcare access, foreign currency exchange, and relocation coordination.
 
- goVirtualOffice, LLC
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/9Ew8zH2aoV8W2YHqPOXUafX636i9SXWmGWzO9HBk.jpg) [](https://www.portugalpathways.io) Contact Information:
+
+ Portugal Pathways
 
  
 
-1021 Quinn Dr #200  Waunakee, WI 53597United States
+Buganvilia plaza,  Estr. da Quinta do Lago, Estr. da Quinta do Lago 8135024Portugal
 
- Chrissy Buonincontro Allard 19207230262 https://govirtualoffice.com 
+ Oakie Britcher +1 00000000 https://www.portugalpathways.io 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/gvo-captures-suiteworld-2026-micro-vertical-partner-of-the-year-453725)
+[Original/Source Press Release](https://mediawiretoday.com/portugal-pathways-outlines-schengen-travel-rights-under-residence-permits-453764)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gvo-s-practiceerp-wins-netsuite-micro-vertical-partner-of-the-year/33f50d8a57e1416cff9e7fc113dba772) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/portugal-golden-visa-presence-rules-and-schengen-access-explained/75746014184a0e0f883172d5fb31cb86) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/29/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp/)
+Pickup - [https://realestatenews.substack.com](https://realestatenews.substack.com/p/75746014184a0e0f883172d5fb31cb86)
 
-Pickup - [https://advos.io/en](https://advos.io/en/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+Pickup - [https://advos.io/en](https://advos.io/en/portugal-pathways-clarifies-schengen-travel-rights-and-residency-presence-rules)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/portugal-pathways-clarifies-schengen-travel-rights-and-presence-rules-for-residence-permit-holders)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/gvo-wins-netsuite-micro-vertical-partner-of-the-year-for-second-time-in-three-years)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/portugal-pathways-clarifies-schengen-travel-rights-and-physical-presence-rules-under-portuguese-residence-permits)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+Pickup - [https://burstable.news](https://burstable.news/news/portugal-pathways-clarifies-schengen-travel-rights-and-physical-presence-rules-for-residence-permit-holders)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/gvo-gana-por-segunda-vez-el-premio-micro-vertical-partner-of-the-year-por-practiceerp)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/portugal-pathways-klart-schengen-reisebestimmungen-und-aufenthaltspflichten-fur-inhaber-von-aufenthaltsgenehmigungen)
 
-Pickup - [https://burstable.news](https://burstable.news/news/gvo-wins-netsuite-micro-vertical-partner-of-the-year-for-second-time-in-three-years)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/portugal-pathways-aclara-los-derechos-de-viaje-schengen-y-las-reglas-de-presencia-fisica-para-titulares-de-permisos-de-residencia)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gvo-gewinnt-zum-zweiten-mal-in-drei-jahren-den-netsuite-micro-vertical-partner-of-the-year-award)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/portugal-pathways-clarifie-les-droits-de-voyage-schengen-et-les-regles-de-presence-physique-pour-les-titulaires-de-permis-de-sejour)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/gvo-gana-el-premio-netsuite-micro-vertical-partner-of-the-year-por-segunda-vez-en-tres-anos)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/portugal-pathways-esclarece-direitos-de-viagem-schengen-e-regras-de-presenca-fisica-para-titulares-de-autorizacao-de-residencia)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/gvo-remporte-pour-la-deuxieme-fois-en-trois-ans-le-prix-netsuite-micro-vertical-partner-of-the-year)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/portugal-pathways-clarifies-schengen-travel-rights-and-physical-presence-rules-for-residence-permit-holders)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/gvo-conquista-premio-de-parceiro-micro-vertical-do-ano-da-netsuite-pela-segunda-vez-em-tres-anos)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/portugal-pathways-clarifies-schengen-travel-rules-for-residence-permit-holders)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/gvo-wins-second-netsuite-micro-vertical-partner-of-the-year-award-for-practiceerp)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-cpa-focused-practiceerp)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-cpa-focused-practiceerp)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/gvo-wins-second-micro-vertical-partner-of-the-year-award-for-practiceerp)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/29/portugal-pathways-clarifies-schengen-travel-rights-and-residency-presence-rules/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/29/noondupG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2610/29/barnDlLb.webp)
