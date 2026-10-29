@@ -1,78 +1,38 @@
-# A Place At Home - North Austin Recognized by Round Rock Chamber with Prestigious Award Nomination
+# Arizona Attorney General Kris Mayes Supports Independent Examination of South32 Hermosa Mining Project Water Impacts
 
-A Place At Home - North Austin has been named a finalist for the Big Boy Hester Small Business of the Year Award in the Round Rock Chamber's 2026 Annual Business Awards. The agency is also a nominee for Best Senior Care Service in the 2026 Best of Round Rock, where it is going for a third consecutive win after taking the title in 2024 and 2025.
+Calabasas Alliance today released a statement from the Office of Arizona Attorney General Kris Mayes acknowledging community concerns regarding groundwater dewatering and water-quality impacts associated with the South32 Hermosa Project, as well as other pollution and public health concerns in Santa Cruz County. The statement follows the submission of background information, data, and letters from community members.
 
- The Chamber chose finalists from dozens of public nominations through a closed committee of community leaders. A Place At Home - North Austin is one of three finalists in the small business category, alongside The Palk Insurance Agency and Stone Stash Coffee. Winners will be announced at the Chamber's 59th Annual Business Awards banquet on January 28, 2027, at Kalahari Resorts & Conventions, where about 600 area business and community leaders are expected.
+ According to the Attorney General’s Office “Attorney General Kris Mayes and her office are closely monitoring community concerns regarding groundwater dewatering and water-quality impacts associated with the South32 Hermosa project in Santa Cruz County. We support a careful, independent examination of all impacts on the water resources of Southern Arizonans so that the appropriate and necessary protections can be achieved.”
 
- "We feature our award on our website and bring it with us to our local events," said Bryan Eisenberg, co-owner of A Place At Home - North Austin. "It's important to hire a home care agency that shows up for their community, and there is no better way to show that than by showing how the community shows up for you in voting for the Round Rock Chamber and Best of Round Rock award.s"
+ The enclosed letter further states: “You are hereby authorized to distribute this statement to others, including the media.”
 
- Owned by senior care expert, Stacey and Bryan Eisenberg, A Place At Home - North Austin provides in-home care for seniors, veterans, and adults with disabilities. Every caregiver is fully background checked. The agency has also been named Provider of Choice and Employer of Choice by Best of Home Care. Beyond direct care, it offers care coordination and senior living placement help, and it works with local nonprofit ShareTheWill on a medical lending closet for veterans, seniors, and people in need.
+ This acknowledgment follows sustained, science-driven work by community members, technical professionals, university and independent researchers who conduct ongoing water and air monitoring programs in the region. Their analyses have identified gaps in the evaluation of long-term dewatering effects, potential contaminant pathways, and cumulative impacts on local aquifers and surface waters. The Calabasas Alliance has consistently emphasized that conclusions about groundwater drawdown, aquifer connectivity, and water quality must be transparent, independently verified, and capable of withstanding rigorous technical and public scrutiny-rather than relying solely on project-sponsored modeling.
 
- Community members can vote for A Place At Home - North Austin in Best Senior Care Service at bestofroundrocktx.com.
+ The attached statement, transmitted in a letter dated October 26, 2026, from William Mundell, Chief Deputy Attorney General, was expressly authorized for public distribution,
 
- About A Place At Home - North Austin A Place At Home - North Austin provides compassionate in-home care in Round Rock, Georgetown, Cedar Park, Leander, Brushy Creek, Liberty Hill, and surrounding North Austin communities. Learn more at aplaceathomenorthaustin.com or call (512) 521-3010. 
+ Independent Review Grounded in Scientific Evidence The Calabasas Alliance views the Attorney General’s statement as recognition that concerns raised through independent data warrant formal examination. The organization maintains that scientific findings regarding dewatering rates, the resulting cone of depression, aquifer impacts, and water quality, including reported antimony and arsenic findings, should be cross-checked against regulatory datasets, peer-reviewed university research, and transparent public data sources. Only this approach provides communities with confidence that decisions rest on the best available science and that necessary protections for land, air and water resources and public health will be secured.
+
+ Statements from Community Leaders Ernie Edwards, a Lake Patagonia resident and President of the “B” Property Owners Association, added:
+
+ “The pending cone of depression from dewatering is a direct threat to residents around Patagonia Lake. High-volume pumping will lower groundwater levels across a wide area, affecting wells, surface flows into the lake and the connected aquifers that supply our community and the Santa Cruz Active Management Area. We need independent hydrologic analysis now, rather than relying solely on South32 consultant models, to understand the full extent of these impacts and ensure effective protections are in place before irreversible drawdown or ground subsidence occurs.”
+
+ “We greatly appreciate the Attorney General’s recognition that community concerns regarding groundwater dewatering, water quality and other pollution risks warrant Independent examination,” said Robin Lucky, President of Calabasas Alliance. “Residents have raised well-documented concerns regarding long-term air and water pollution risks. Massive dewatering will alter aquifer levels for decades, and questions remain regarding arsenic and other heavy metals in wells and the broader impacts in county., Transparent, science-based independent assessments are essential to safeguarding Southern Arizona’s water resources and the health and well-being of our citizens.”
+
+ Lucky added, “These concerns add to Santa Cruz County’s longstanding pollution challenges and associated health risks, including cancer, kidney disease, and autoimmune disorders for a smaller population size. The county has recorded some of the highest PFAS levels detected in drinking water in Arizona, according to EPA and ADEQ reports, which may be associated with the treatment of raw wastewater from Mexico at the Rio Rico wastewater treatment facility. Residents also continue to face poor air quality in Nogales, as documented by the EPA and ADEQ."
+
+ About [Calabasas Alliance](https://www.calabasasalliance.org/) Calabasas Alliance is a grass-roots community-based organization dedicated to protecting land, air and water resources, public health, and quality of life in Santa Cruz County and throughout Southern Arizona. The NGO works in the environmental and public health space through education, community engagement, and advocacy. The organization participates is the principal community partner for the Arizona State University/University of Arizona AirSMART air-quality monitoring program and is a member of the Arizona Department of Environmental Quality Citizen Science Alliance. Recently the organization received a mobile water-testing laboratory through Arizona State University's Water for All program. The Alliance is a stakeholder in University forums on PFAS and participates in the Arizona Rural Water Working Group. The Alliance collaborates with other groups around the state that are striving for similar natural resource protections, all with the health and well-being of their fellow-citizens. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610283113/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
+[Original/Source Press Release](https://newsworthy.ai/news/202610283118/arizona-attorney-general-kris-mayes-supports-independent-examination-of-south32-hermosa-mining-proje)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/a-place-at-home-north-austin-named-finalist-for-chamber-award/0ab5ddab5cf2caa83bbde36ee46fb598) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arizona-ag-backs-independent-review-of-south32-hermosa-water-impacts/bae3a6e6caa61b1542477aa0d6b2a974) 
 
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/a-place-at-home-north-austin-recognized-by-round-rock-chamber-with-prestigious-award-nomination)
-
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/a-place-at-home-north-austin-named-finalist-for-chamber-award-and-best-of-round-rock-nominee)
-
-Pickup - [https://advos.io/en](https://advos.io/en/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/a-place-at-home-north-austin-earns-chamber-award-finalist-spot-and-best-of-round-rock-nomination)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chamber-small-business-award)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/a-place-at-home-north-austin-finalista-del-premio-a-la-pequena-empresa-de-la-camara-de-round-rock)
-
-Pickup - [https://burstable.news](https://burstable.news/news/a-place-at-home-north-austin-named-finalist-for-round-rock-chambers-small-business-of-the-year)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/a-place-at-home-north-austin-ist-finalist-fur-den-preis-small-business-of-the-year-der-round-rock-chamber)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/a-place-at-home-north-austin-finalista-del-premio-pequena-empresa-del-ano-de-la-camara-de-round-rock)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/a-place-at-home-north-austin-finaliste-pour-le-prix-de-la-petite-entreprise-de-lannee-de-la-chambre-de-commerce-de-round-rock)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/a-place-at-home-north-austin-e-finalista-do-premio-small-business-of-the-year-da-round-rock-chamber)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/a-place-at-home-north-austin-earns-chamber-award-nod-eyes-third-best-of-round-rock-win)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/28/tall5zdl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/28/iconNAvr.webp)
