@@ -1,48 +1,42 @@
-# MissionIRNewsBreaks – Hydrofarm Holdings Group, Inc. (NASDAQ: HYFM) Closes $8.3 Million Offering, Eliminates Senior Secured Term Loan
+# NetworkNewsBreaks – Wrap Technologies Inc. (NASDAQ: WRAP) Builds Broader Public Safety Platform Around Integrated Solutions
 
-Hydrofarm (NASDAQ: HYFM) announced the closing of its previously disclosed registered direct offering of 1,599,400 common shares at $0.905 per share and concurrent private placement of 7,611,575 unregistered common shares or pre-funded warrants and 9,210,975 common stock purchase warrants. The transactions generated approximately $8.3 million in gross proceeds before fees and expenses. Chairman and CEO Bill Toler, along with other company officers, directors and their affiliates, participated on the same terms as other investors. Hydrofarm intends to use the net proceeds for general corporate purposes. ThinkEquity served as sole placement agent and advisor.
+Wrap Technologies (NASDAQ: WRAP) is expanding its public safety technology strategy by connecting remote restraint, scenario-based training, evidence management and emerging threat-detection systems into a more integrated offering. Its portfolio includes the BolaWrap 150 restraint device, WRAP Reality virtual reality training simulator and WrapShield platform, which initially focuses on detecting and responding to unmanned aircraft threats. The company recently appointed veteran law enforcement instructor John “Chappy” Chapman as vice president of Training and Missions to oversee a planned four-level instructor credentialing framework, digital learning expansion and broader adoption of its Non-Lethal Response doctrine. WRAP is also developing Wraptor MX, a multi-shot restraint platform, and exploring additional counter-drone capabilities.
 
- Concurrent with the closing, Hydrofarm entered into an agreement to fully satisfy its senior secured term loan through the issuance of 27.5 million shares of Series 1 nonvoting convertible preferred stock and warrants to purchase 27.5 million common shares at $0.78 per share. The transaction eliminated all outstanding obligations under the loan and released the associated liens and security interests. Conversion of the preferred shares and exercise of the lender warrants remain subject to stockholder approval. Following the transactions, Hydrofarm reported that its pro forma stockholders’ equity exceeds Nasdaq’s $2.5 million minimum requirement and stated that it believes it has regained compliance with the exchange’s stockholders’ equity rule.
+ To view the full article, visit https://nnw.fm/rSlvu
 
- To view the full press release, visit https://ibn.fm/AAwWO
+ About Wrap Technologies Inc.
 
- About Hydrofarm Holdings Group, Inc.
+ WRAP Technologies is a global leader in innovative public safety technologies and non-lethal tools, delivering cutting-edge technology with exceptional people to address the complex, modern-day challenges facing public-safety organizations. WRAP’s complete public-safety portfolio includes the non-lethal BolaWrap(R) 150 device, Wrap Reality(R) immersive training platform, WrapVision(TM) body-worn camera system, WrapTactics(TM) training programs, and next-generation C-UAS solutions such as PAN-DA and the 1KC Kinetic Anti-Drone Cassette, all of which support the company’s mission to provide safer, scalable and cost-effective technologies for public safety, defense and critical infrastructure markets.
 
- Hydrofarm is a leading independent manufacturer and distributor of supplies and equipment for controlled environment agriculture, including plant nutrition, growing media, horticultural lighting and climate control solutions, spanning a portfolio of proprietary and select partner brands. The Company manufactures its proprietary plant nutrition and growing media brands at its manufacturing center of excellence in Eugene, Oregon, and, through its logistics services platform, provides third-party warehousing, fulfillment and distribution services across a wide range of industries. For nearly 50 years, Hydrofarm has helped growers make growing easier and more productive. The Company’s mission is to empower growers, farmers and cultivators with products that enable greater quality, efficiency, consistency and speed.
+ For more information about the company, visit www.Wrap.com.
 
- For more information, visit: www.Hydrofarm.com
+ NOTE TO INVESTORS: The latest news and updates relating to WRAP are available in the company’s newsroom at https://nnw.fm/WRAP
 
- About MissionIR
+ About NetworkNewsWire
 
- MissionIR (“MIR”) is a specialized communications platform with a focus on assisting IR firms with syndicated content to enhance the visibility of private and public companies within the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, MIR is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, MIR brings its clients unparalleled recognition and brand awareness.
+ NetworkNewsWire (“NNW”) is a specialized communications platform with a focus on financial news and content distribution for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, NNW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, NNW brings its clients unparalleled recognition and brand awareness. NNW is where breaking news, insightful content and actionable information converge.
 
- MIR is where breaking news, insightful content and actionable information converge.
+ To receive SMS text alerts from NetworkNewsWire, text “STOCKS” to 888-902-4192 (U.S. Mobile Phones Only)
 
- For more information, please visit www.MissionIR.com
+ For more information, please visit https://www.NetworkNewsWire.com
 
- Please see full terms of use and disclaimers on the MissionIR website applicable to all content provided by MIR, wherever published or re-published: https://www.MissionIR.com/Disclaimer
+ Please see full terms of use and disclaimers on the NetworkNewsWire website applicable to all content provided by NNW, wherever published or re-published: https://www.NetworkNewsWire.com/Disclaimer
 
- MissionIRAustin, Texaswww.MissionIR.com512.354.7000 OfficeEditor@MissionIR.com
+ NetworkNewsWireAustin, Texaswww.NetworkNewsWire.com512.354.7000 OfficeEditor@NetworkNewsWire.com
 
- MissionIR is powered by IBN 
+ NetworkNewsWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/mir/missionirnewsbreaks-hydrofarm-holdings-group-inc-nasdaq-hyfm-closes-8-3-million-offering-eliminates-senior-secured-term-loan/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/nnw/networknewsbreaks-wrap-technologies-inc-nasdaq-wrap-builds-broader-public-safety-platform-around-integrated-solutions/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hydrofarm-closes-8-3m-offering-eliminates-senior-secured-term-loan/c4ea4768eef709dcebfa6c0661692c8f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrap-technologies-integrates-public-safety-tech-appoints-training-vp/7bff5604843c905aa65d812b418e3010) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hydrofarm-closes-83-million-offering-eliminates-senior-secured-term-loan)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hydrofarm-closes-83-million-offering-and-eliminates-senior-secured-term-loan-regains-nasdaq-compliance)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hydrofarm-closes-83-million-offering-and-eliminates-senior-secured-term-loan)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/30/takelKQA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2610/30/flaxLMkH.webp)

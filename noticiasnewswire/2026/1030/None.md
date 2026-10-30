@@ -1,91 +1,64 @@
-# Things Can Change So Review Your Medicare Coverage Options: Open Enrollment is Through Dec. 7
+# Remittances Reach Well Beyond Major Cities as Older Users Send Money More Frequently
 
-NEW YORK, NY — October 30, 2026 — (NOTICIAS NEWSWIRE) — Medicare Open Enrollment is your opportunity to give your Medicare plan a check-up. Plans change every year, and now is the time to check if a new plan could be better for you.
+MIAMI, FL — October 30, 2026 — (NOTICIAS NEWSWIRE) — Who sends money to family members from the United States, how often, and where does it go? The 2026 Hispanic Remittances Report, produced by Zapp, a WhatsApp-based money transfer service, examines remittance patterns among U.S. Hispanic senders and their role in household finances across Mexico and Central America.
 
- If you have Medicare, taking the time to review your coverage options each fall is one of the most important health decisions you can make.
+ Digital Remittances Fit the Way People Send Money
 
- Give Your Medicare Plan a Check-up
+ More than 61% of remittances sent to Latin America in 2026 were initiated digitally. Zapp’s data shows that 43.3% of transfers occurred outside the traditional 9 a.m. to 6 p.m. banking window, while 51.4% took place between Friday and Sunday.
 
- * Check your coverage. Ensure your preferred doctors, prescriptions and preferred pharmacies are covered.
-* Check your costs. Look at premiums, deductibles, copays and other out-of-pocket costs.
-* Check for changes. See what will be different in your plan for the coming year.
-* Check your options. Compare plans side by side based on the prescriptions you take. Find the right plan for your health needs and your budget. Make sure your drugs are covered.
+ Users in Their Fifties Send Money More Frequently
 
- Now is the one time you can make changes to your health and prescription drug plans and find a plan that’s better for you. Medicare Open Enrollment is your opportunity to review and compare options and take control of your expenditures and coverage.
+ Zapp users aged 50 to 59 made an average of 10.1 transfers over nine months in 2026, compared with 6.3 among users under 25. Frequency generally peaks among users in their fifties before declining after age 60.
 
- Medicare plans change annually and so does your health. What worked for you last year may be different than what will work best this year. A review of your options can help you secure a plan best fit to your current lifestyle and health needs – while potentially saving you hundreds of dollars on out-of-pocket costs.
+ “Digital adoption is not driven exclusively by younger generations. Our data shows that digital services are also gaining traction among people who have traditionally relied on cash. Age is not necessarily the deciding factor in adoption. Trust is,” says José Luis Orozco, CEO of Zapp.
 
- For instance, a person with Medicare compared drug plans to find the best costs and coverage for their prescriptions, including a blood thinner and a common cholesterol medication. Using medicare.gov, they found the yearly cost for a Medicare drug plan and these prescriptions ranged from $1,356-2,965. By choosing the lowest-cost plan, they saved more than $1,600 while keeping their essential medications covered.
+ Remittances Reach Well Beyond Major Cities
 
- Medicare.gov is the Official Source
+ Zapp recorded transfers to 3,923 destinations across Mexico. The ten destinations with the highest transfer volumes accounted for 17.2% of the total, while 48.8% went to localities outside the top 100.
 
- For all your Open Enrollment needs, Medicare.gov is your official source. It’s the trusted resource to help you navigate Open Enrollment, allowing you to explore and compare every available Medicare health and drug plan available in your area. If you prefer speaking with someone directly, call 1-800-MEDICARE to connect with a team of experts who are available 24/7 to help you review your options and answer any questions about your Medicare coverage.
+ Methodology
 
- To get started, go to Medicare.gov and click on “Find Plans Now.” For the best shopping experience, log in or create a Medicare account. You can easily compare plan costs, side by side, based on the medications you take. Make sure the plan you choose covers your prescription drugs and your doctors.
+ The 2026 Hispanic Remittances Report analyzes Zapp user activity from January through September 2026, alongside official figures from central banks and international organizations and findings from an April 2026 survey of Mexican users in the United States.
 
- Don’t Wait – Open Enrollment Ends Dec. 7
+ About Zapp Zapp is a WhatsApp-based money transfer service that enables users to send money from the United States to Mexico and Central America. It offers a simple, secure, and convenient way to send remittances without visiting a physical location or downloading a separate app. With competitive exchange rates and a user-centric approach, Zapp aims to transform the remittance industry to provide better service to Latin American families.
 
- If you miss the Dec. 7 deadline, you may need to wait a full year before you can make any changes to your coverage. That’s why getting started early is important. Make sure you give yourself enough time to review and compare your options. You’ll want to consider factors like costs, benefits and prescription drug plans.
-
- Medicare Open Enrollment is the perfect time to plan for the future and prioritize your health. Making sure you have a health plan that can support you in your wellness journey is critical, so don’t wait. Start reviewing your Medicare plan options today at Medicare.gov.
-
- Stay Vigilant Against Medicare Fraud
-
- Stay vigilant against Medicare fraud, especially during Medicare Open Enrollment. Scammers take advantage of this time of year; they may pretend to be from Medicare or an insurance company in order to steal your personal information.
-
- Remember that Medicare will never contact you unsolicited. If someone you do not know calls, texts or emails you about Medicare, simply hang up or delete the message. By staying alert, you can help stop fraud before it starts.
-
- If you suspect Medicare fraud, report it immediately to Medicare at Medicare.gov/fraud or at 1-800-MEDICARE. As always, remember to never give out your Medicare Number, Social Security Number or financial information to anyone you don’t know.
-
- Information provided by the U.S. Department of Health & Human Services.
-
- Photos courtesy of Shutterstock Feature Impact Source: Centers for Medicare and Medicaid Services
-
- CONTACT: Sarah Fowler 913-647-0938 sarah.fowler@featureimpact.com 
+ CONTACT: Yaneiza Echezarraga yaneiza@twinmindsmedia.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/things-can-change/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/remittances-reach-well-beyond-major-cities/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/medicare-open-enrollment-give-your-plan-a-check-up-by-dec-7/4d4f8108115115d8d4869586d7739ae6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zapp-report-61-of-remittances-to-latin-america-now-digital/576ddb5c0d63f7a77bfcca67702c4b20) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/30/medicare-open-enrollment-ends-dec-7-reviewing-coverage-can-save-hundreds/)
+Pickup - [https://advos.io/en](https://advos.io/en/digital-remittances-to-latin-america-surge-past-61-as-older-senders-lead-the-way-zapp-report-finds)
 
-Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/medicare-open-enrollment-deadline-looms-why-comparing-plans-now-matters)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/digital-remittances-surge-among-us-hispanics-challenging-age-stereotypes)
 
-Pickup - [https://advos.io/en](https://advos.io/en/medicare-open-enrollment-ends-dec-7-reviewing-coverage-could-save-you-hundreds)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/digital-remittances-to-latin-america-surge-as-older-senders-drive-frequency-and-reach-beyond-major-cities)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/medicare-open-enrollment-ends-dec-7-reviewing-coverage-could-save-hundreds)
+Pickup - [https://burstable.news](https://burstable.news/news/digital-remittances-surge-as-older-users-send-money-more-frequently-report-finds)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/medicare-open-enrollment-ends-dec-7-review-your-plan-to-save-hundreds)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/digitale-ruckuberweisungen-boomen-da-altere-nutzer-haufiger-geld-senden-so-ein-bericht)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/medicare-open-enrollment-ends-dec-7-a-financial-check-up-for-texas-businesses-and-their-employees)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/las-remesas-digitales-aumentan-a-medida-que-los-usuarios-mayores-envian-dinero-con-mas-frecuencia-segun-un-informe)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/finaliza-la-inscripcion-abierta-de-medicare-el-7-de-diciembre-un-chequeo-financiero-para-las-empresas-de-texas-y-sus-empleados)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-transferts-dargent-numeriques-explosent-les-utilisateurs-plus-ages-envoient-de-largent-plus-frequemment-selon-un-rapport)
 
-Pickup - [https://burstable.news](https://burstable.news/news/medicare-open-enrollment-ends-dec-7-review-your-coverage-options-now)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/remessas-digitais-disparam-a-medida-que-usuarios-mais-velhos-enviam-dinheiro-com-mais-frequencia-aponta-relatorio)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/medicare-open-enrollment-endet-am-7-dezember-uberprufen-sie-jetzt-ihre-deckungsoptionen)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/digital-remittances-surge-beyond-major-cities-as-older-users-send-money-more-frequently)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-inscripcion-abierta-de-medicare-termina-el-7-de-diciembre-revise-sus-opciones-de-cobertura-ahora)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/digital-remittances-surge-as-older-users-send-money-more-frequently-zapp-report-finds)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-periode-dinscription-ouverte-a-medicare-se-termine-le-7-decembre-examinez-des-maintenant-vos-options-de-couverture)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/digital-remittances-reach-beyond-major-cities-as-older-users-send-money-more-frequently)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/inscricao-aberta-do-medicare-termina-em-7-de-dezembro-revise-suas-opcoes-de-cobertura-agora)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/medicare-open-enrollment-ends-dec-7-reviewing-coverage-could-save-you-hundreds)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/medicare-open-enrollment-ends-dec-7-reviewing-coverage-options-can-save-hundreds)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/medicare-open-enrollment-ends-dec-7-why-reviewing-your-plan-matters)
-
-Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/medicare-open-enrollment-deadline-looms-comparing-plans-could-save-beneficiaries-over-1600)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/30/digital-remittances-surge-among-older-hispanic-senders-reaching-beyond-major-cities/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/30/kiwi77r_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2610/30/wait4Hyu.webp)
