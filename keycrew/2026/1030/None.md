@@ -1,45 +1,43 @@
-# TechForward Foundation, Co-Founded by Alexander Paykin, to Run NYSBA Tech Summit Startup Competition
+# Aircraft That Land in 150 Feet Could Redraw the Map for Aviation Infrastructure
 
-Paykin chairs one of two NYSBA committees collaborating on the inaugural summit, set for January 2027 in New York City
+Most aviation planning starts from a simple assumption: aircraft need airports, and airports need hundreds of acres. A demonstration flight in downtown Manhattan this month challenged that assumption directly.
 
- NEW YORK, NY – October, 2026 – Alexander Paykin, Esq., founder of Paykin Law, is helping lead the inaugural NYSBA Tech Summit, taking place January 19 through 21, 2027, at the New York Hilton Midtown as part of the New York State Bar Association’s Annual Conference. TechForward Foundation, a nonprofit Paykin co-founded, has received its 501(c)(3) status and will run the summit’s startup competition.
+ Lisa Wright, founder and CEO of Landings, was at the downtown helipad when Electra’s hybrid-electric aircraft flew in from Linden Airport in New Jersey, landed, took off again, circled back, and landed a second time with the Brooklyn Bridge in the background. The aircraft’s typical takeoff and landing distance is about 150 feet. Wright says the company indicated it could be as short as 75 feet.
 
- The summit is a collaboration between two NYSBA committees: the Standing Committee on Technology and the Legal Profession, which Paykin chairs, and the Committee on Artificial Intelligence and Emerging Technologies, chaired by Vivian Wesson. Paykin is helping coordinate the program’s speakers, subjects, schedules, and rooms, and he will also speak at the event.
+ Ultra-Short, Not STOL Electra describes the capability as ultra-short takeoff and landing. Wright says the company’s CEO asked her to use that term rather than STOL, the standard label for short takeoff and landing aircraft. The distinction matters. As Wright relays it, conventional short takeoff aircraft typically need 3,000 to 4,000 feet of runway. An aircraft that needs 150 feet belongs in a different planning category altogether.
 
- The summit will bring together continuing legal education (CLE) courses, an expo of legal technology vendors, a startup competition, and a promptathon. Attendees will have the opportunity to earn 16 MCLE credits, with sessions addressing AI ethics; practical AI use in drafting, writing, legal research, and evidence; tomorrow’s digital courtroom; and technology for solo and small-firm practitioners.
+ “What they proved was that they do not require full airport access,” Wright said.
 
- “Lawyers should leave a technology conference with something they can use Monday morning,” said Paykin. “That’s our goal for the NYSBA Tech Summit: practical tools, informed judgment, and better ways to serve our clients.”
+ Electra calls the concept direct aviation: flying people and goods closer to where they actually need to go, rather than to the nearest airport with a long enough runway.
 
- Paykin regularly speaks and teaches on legal technology and artificial intelligence. He previewed what attendees can expect from the summit in the Fall 2026 issue of the NYSBA Journal.
+ The Land Question For real estate, the runway length is the headline. Even small airports occupy significant land. Wright has worked with a small upstate New York airport that covers about 420 acres, yet its runway is too short for most traditional aircraft. Larger airports can run to well over 1,000 acres.
 
- A Startup Competition Run by TechForward Foundation
+ Purpose-built electric aviation sites operate at a different scale. Even the largest vertiport sites Wright plans run 12 to 20 acres, and smaller sites need far less. An aircraft that can land in 150 feet fits comfortably within that kind of footprint, which opens up parcels that would never have been considered for aviation use.
 
- TechForward Foundation was created to encourage the legal profession to embrace new technology while helping startups break into the legal industry. At the Tech Summit, the foundation will host the TechForward Startup Competition, which will showcase new ideas and emerging solutions for legal practice.
+ Range Changes the Network Short landing distance is only part of the story. Range matters just as much, particularly for rural networks. Many vertical takeoff aircraft currently fly roughly 30 to 70 miles on a charge. Aircraft like Electra’s are designed to travel considerably farther.
 
- “The best legal technology starts with a problem worth solving,” said Paykin. “Through TechForward Foundation’s startup competition, we’re connecting innovators with practicing lawyers to help turn promising ideas into tools that strengthen legal practice and expand access to justice.”
+ “They have an incredible range and will be able to access our remote locations,” Wright said. That combination makes them a natural fit for places where distances are long and airports are scarce.
 
- Registration for the Tech Summit is available through the NYSBA Annual Conference 2027 registration page.
+ Wright says Landings planned for this from the start: two of the company’s four prototype site designs have always included ultra-short landing strips for aircraft of this kind. “They’re very much a part of the expected traffic on the Landings networks,” she said.
 
- About Paykin Law
+ What It Means for Property Evaluation As ultra-short aircraft move toward service, the criteria for an aviation-ready property are broadening. A site no longer has to accommodate only a vertical landing pad or a full runway. A clear, well-oriented strip of a few hundred feet, with safe approach paths, may be enough to serve a different class of aircraft.
 
- Paykin Law is a New York law firm founded by Alexander Paykin, Esq. The firm represents clients in real estate transactions, real estate litigation, commercial litigation, foreclosure and foreclosure defense, landlord-tenant matters, and co-op and condo matters across New York City, Long Island, and Westchester. Known for its technology-forward approach to legal practice, the firm has offices in Manhattan and Floral Park, New York. Learn more at paykinlaw.net.
+ That widens the pool of potential landing sites to include commercial and rural parcels that traditional aviation would have passed over entirely.
 
- About TechForward Foundation
+ The demonstration was not commercial service, and Electra, like other manufacturers, still has certification steps ahead. But a hybrid-electric aircraft landing on a Manhattan helipad shows how much smaller the ground footprint of aviation could become.
 
- TechForward Foundation is a 501(c)(3) nonprofit co-founded by Alexander Paykin, Esq. The foundation encourages the adoption of new technology in the legal profession and helps legal technology startups break into the industry. It runs the TechForward Startup Competition at the NYSBA Tech Summit. Learn more at techforward.nyc.
+ About Landings: Landings is building North America’s first comprehensive network of vertiport landing and charging infrastructure for electric aircraft, with a planned network of 2,000+ rural locations. Founded by architect and energy management expert Lisa Wright, the company takes an infrastructure-first, asset-light approach through revenue-sharing partnerships with commercial property owners.
 
- Media Contact:Janine RodriguesKeyCrew Mediajanine@keycrew.co
-
- This release is for informational purposes only and does not constitute legal advice or a solicitation for legal services.
+ This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/techforward-foundation-co-founded-by-alexander-paykin-to-run-nysba-tech-summit-startup-competition/)
+[Original/Source Press Release](https://keycrew.co/journal/aircraft-that-land-in-150-feet-could-redraw-the-map-for-aviation-infrastructure/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/paykin-leads-inaugural-nysba-tech-summit-for-legal-innovation/8607c00743477f3b8ad6be31b59a05ed) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electra-s-150-foot-landing-could-redefine-aviation-real-estate/575ca6d772ee154ea3850d5b0151797e) 
 
  
 
@@ -47,4 +45,4 @@ Paykin chairs one of two NYSBA committees collaborating on the inaugural summit,
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/30/joltVAM3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2610/30/eachsvpa.webp)
