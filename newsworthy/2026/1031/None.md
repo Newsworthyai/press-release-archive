@@ -1,82 +1,86 @@
-# California AB 1965: Medical Marijuana Card California Explains New Cannabis Testing Rules
+# Hill Country Telephone Co-op Backs Its Students, From Friday Night Lights to Venture Fest
 
-Medical Marijuana Card California announces that patients in California will benefit from enhanced access to product testing information, thanks to Assembly Bill 1965. This newly enacted law, which focuses on cannabis laboratory standards, product transparency, and regulatory oversight, was signed on September 27, 2026. It amends Sections 26070, 26100, and 26104 of the California Business and Professions Code.
+On the episode of The Building Texas Show titled How Texas Youth Are Changing The Game at VentureFest, host Justin McKenzie visits Ingram to talk with Madysen McDonald of Hill Country Telephone Cooperative (HCTC) about how a rural telephone co-op shows up for the students in its footprint, from the football stands to the pitch stage. The conversation is also on YouTube.
 
- The legislation expands the authority of the California Department of Cannabis Control (DCC) to oversee cannabis product testing and establishes requirements for retailers to provide customers with laboratory testing documentation.
+ McDonald says HCTC decided the time was right to give $10,000 to each of the 26 schools across the regions it serves. "There's a lot of communities right now that need it," she says. HCTC is "really excited to see how they can use that money to help them and help their students."
 
- Although the law does not change medical marijuana recommendation eligibility, its product transparency provisions are relevant to patients purchasing cannabis from licensed retailers.
+ On Friday nights, HCTC sets up a tent near the ticket gate at games such as Comfort vs. Ingram and Mason vs. Junction, handing out trinkets for fans on both sides and giving away HCTC prizes. McDonald says the kids are especially excited to visit. "They come up to us all the time and they say, 'Hey, my parents have HCTC. We love you,'" she says. HCTC tries, she adds, to connect with young fans on their level and support members' kids as much as it can.
 
- Before January 1: How California Cannabis Testing Works California already requires regulated cannabis products to undergo laboratory testing before entering the licensed retail market.
+ Those same students are the ones McKenzie expected to see on stage at Hill Country Venture Fest in Mason, where he was emcee. He says pitching a business in front of hundreds of people builds resilience. McDonald shares the excitement: "I can't wait to see how these kids' brains are working."
 
- According to the DCC's official cannabis testing guidance, licensed laboratories examine cannabis products for:
+ The episode also covers what HCTC provides across a service area that runs from Ingram to Fredericksburg and out to Big Lake, including Mason, Sonora, Junction and El Dorado. The co-op started with landline service and expanded into fiber and fixed wireless, which reaches ranch properties where running fiber from the gate is not practical. McKenzie notes that a landline can still matter when cell service goes down and someone needs to call 911. New residents can learn more at HCTC.net, call 830-367-5333, or visit local offices in Sonora, Mason and Junction.
 
- * Cannabinoid concentrations, including THC and CBD;
-* Residual pesticides and processing chemicals;
-* Heavy metals and microbial impurities;
-* Mycotoxins and other regulated contaminants; and
-* Moisture content and foreign materials.
+ For McDonald, the co-op difference is personal. HCTC employees live in the communities they serve, so members see them at the grocery store and at T-ball games. The best way to give back to HCTC, she says, is to show up at its events and stay connected through its Facebook, Instagram and TikTok pages. McKenzie closes on the cooperative spirit: when the business is local, the money goes back into the community's kids, teams and events like Hill Country Venture Fest.
 
- Testing laboratories document their findings through Certificates of Analysis (COAs), which identify testing results and whether a product batch meets applicable requirements.
+ Watch or listen to the full conversation on The Building Texas Show episode page.
 
- Under the existing testing framework, laboratory reports play an important role in documenting cannabis product compliance.
-
- Legal Requirement for Customer Access to Laboratory Reports Starting January 1, 2027, AB 1965 will mandate that licensed retailers and other businesses authorized for retail cannabis sales provide the Certificate of Analysis upon customer request. This initiative offers medical cannabis patients improved access to laboratory information about potential products. Medical Marijuana Card California is committed to helping patients understand these changes and their implications.
-
- A COA can help consumers review cannabinoid concentrations and testing results for substances such as pesticides, heavy metals, and microbial contaminants.
-
- However, a laboratory report does not establish whether a particular cannabis product is medically appropriate for an individual patient.
-
- State Regulators Gain Additional Testing Oversight AB 1965 also authorizes the Department of Cannabis Control to obtain or access cannabis products offered for retail sale for independent, off-the-shelf laboratory testing.
-
- The law mandates performance testing to ensure consistency across facilities, including retesting and laboratory procedure improvements.
-
- These provisions build upon California's existing cannabis quality assurance framework.
-
- The DCC's cannabis laws and regulations provide further information about the regulatory requirements governing licensed cannabis businesses.
-
- Does AB 1965 Change Medical Marijuana Card Requirements? AB 1965 primarily concerns cannabis product testing and retail transparency. It does not introduce new medical marijuana card eligibility requirements or replace the physician recommendation process.
-
- As patients review the upcoming testing requirements, Medical Marijuana Card California emphasizes the importance of understanding the difference between medical cannabis recommendations, county-issued identification cards, and product testing regulations.
-
- Under California's existing system, eligible patients may obtain medical cannabis recommendations from qualified physicians. The state's Medical Marijuana Identification Card Program is a separate, voluntary program administered through county health departments.
-
- According to the California Department of Public Health's official MMIC guidance, applicants seeking a county-issued medical marijuana identification card must provide documentation that includes a physician's medical recommendation, proof of identity, and proof of residency.
-
- Do not confuse online physician recommendations with government-issued ID cards.
-
- What California Medical Cannabis Patients Should Do Before January 1 Patients preparing for the upcoming requirements can take several practical steps:
-
- 1. Understand Laboratory Reports: Learn how Certificates of Analysis document cannabinoid concentrations and regulated contaminant testing.
-
- 2. Verify Retailer Licensing: Before purchasing cannabis products, use the DCC's official license search to confirm that a cannabis retailer holds an appropriate state license.
-
- 3. Request Product Testing Information: Once the new requirement takes effect, patients can request the associated Certificate of Analysis from licensed retailers.
-
- 4. Review Medical Documentation: Patients using medicinal cannabis should keep applicable physician recommendations and other required documentation current.
-
- 5. Follow Official Regulatory Updates: Monitor the California Department of Cannabis Control and California Department of Public Health for updated guidance.
-
- The new requirements are designed to strengthen product testing oversight and transparency. They should not be interpreted as changes to individual medical eligibility or physician certification standards.
-
- This advisory provides general educational information, not medical or legal advice. Patients should verify current requirements through California government agencies and consult qualified healthcare or legal professionals when appropriate.
-
- Media Contact Medical Marijuana Card CaliforniaWebsite: https://medicalmarijuanacardcalifornia.com/Email: Email ContactPhone: +1 213 281 5658 
+ About The Building Texas ShowThe Building Texas Show, hosted by Justin McKenzie, tells the stories of the founders, community leaders and projects shaping Texas, from economic development and small business to conservation and education. New episodes publish weekly on YouTube and all major podcast platforms, with highlights on Facebook, Instagram and LinkedIn at @thebuildingtexasshow. Watch, listen and subscribe at https://www.buildingtexasshow.com and https://www.youtube.com/@thebuildingtexasshow. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202610313125/california-ab-1965-medical-marijuana-card-california-explains-new-cannabis-testing-rules)
+[Original/Source Press Release](https://newsworthy.ai/news/202610313001/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/california-ab-1965-expands-cannabis-testing-transparency-for-patients/8d71b8c8a74bc185d2477a9d04ab6bc5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hctc-gives-10k-to-26-schools-backs-texas-youth-at-venturefest/ade05d82f076da7a500386dca58b3bd3) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/california-ab-1965-medical-marijuana-card-california-explains-new-cannabis-testing-rules)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/california-ab-1965-medical-marijuana-card-california-explains-new-cannabis-testing-rules)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/hill-country-telephone-co-op-backs-its-students-from-friday-night-lights-to-venture-fest)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/10/31/hill-country-telephone-cooperative-gives-10000-to-each-of-26-schools/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/hill-country-telephone-cooperative-gives-10000-to-each-of-26-schools-across-its-rural-texas-service-area)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hill-country-telephone-cooperative-invests-260000-in-local-schools-and-supports-student-entrepreneurs)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hill-country-telephone-cooperative-invests-260000-in-local-schools-and-backs-student-ventures)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/hill-country-telephone-cooperative-invests-10000-in-each-of-26-local-schools)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/hill-country-telephone-cooperative-invierte-10000-en-cada-una-de-las-26-escuelas-locales)
+
+Pickup - [https://burstable.news](https://burstable.news/news/hill-country-telephone-cooperative-invests-260000-in-local-schools-and-community-events)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hill-country-telephone-cooperative-investiert-260000-us-dollar-in-lokale-schulen-und-gemeindeveranstaltungen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hill-country-telephone-cooperative-invierte-260000-en-escuelas-locales-y-eventos-comunitarios)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hill-country-telephone-cooperative-investit-260-000-dans-les-ecoles-locales-et-les-evenements-communautaires)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/cooperativa-telefonica-hill-country-investe-us-260-mil-em-escolas-locais-e-eventos-comunitarios)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hill-country-telephone-cooperative-invests-260000-in-local-schools-and-community-events)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/hill-country-telephone-cooperative-invests-260000-in-local-schools-and-backs-student-entrepreneurs)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/hill-country-telephone-cooperative-invests-10000-in-each-of-26-schools-champions-youth-at-venturefest)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/31/bestHT3u.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2610/31/dashLVSq.webp)
