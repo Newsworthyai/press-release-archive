@@ -1,27 +1,58 @@
-# Why 60-70% of Roof Claims Get Denied, and How Texas Homeowners Fight Back
+# Myq Kaplan Takes “Mission: Idaho / Montana: Impossible” on Tour
 
-The latest episode of The Building Texas Show, titled Your Roofer Showed Up After the Storm. That's the Problem, published September 15, 2026, features host Justin McKenzie sitting down with Jasper Shin of Texas Roof Guardians on the floor of the San Antonio Home and Garden Show. The conversation lands as San Antonio absorbs the aftermath of five hail storms in a single year and Hill Country homeowners rediscover leaks after historic rains. At the center of the discussion: why 60 to 70 percent of roof insurance claims get denied, and what Texas homeowners can do before they ever pick up the phone to their carrier.
+Comedian Myq Kaplan is embarking on a four-city stand-up tour through Montana and Idaho, November 12-15, with a mission that may or may not be impossible: making people laugh, think, and occasionally reconsider everything they thought they understood about the universe.
 
- Shin walks listeners through the mechanics of a modern roof claim and the traps that quietly cost homeowners thousands. Topic threads include:
+ Unofficially dubbed “Mission: Idaho / Montana: Impossible,” the tour brings Kaplan's distinctive blend of rapid-fire wordplay, philosophical observations and unexpected comedic connections to audiences across two states in four consecutive days.
 
- * The full-property inspection covering windows, screens, gutters, siding and fences, not just shingles
-* The three-reinspection rule most homeowners never learn they have
-* Xactimate supplements and how to force fair-market pricing from an adjuster
-* The mortgage-company check split that stalls repairs
-* Why installing solar on a roof older than seven years is, in Shin's words, asking for leaks
+ Kaplan has appeared on The Tonight Show, Conan, Late Show with David Letterman, The Late Late Show with James Corden, Late Night with Seth Meyers, Comedy Central, Last Comic Standing and America's Got Talent. His comedy explores everything from relationships and language to spirituality, human behavior and the strange business of being alive.
 
- Shin is blunt about the incentive structure homeowners are up against. "The insurance is incentivized to not pay you to say you don't have damage," he tells McKenzie, adding that the average claim file is missing $3,000 to $5,000 in legitimate damages. He describes cases where supplements have added $10,000, $15,000, even $30,000 to approved claims. He also warns homeowners about a single innocent question from a carrier: "Well, why did you wait?" Answer it wrong, Shin explains, and insurers can invoke the mitigation clause buried in most policies and deny the claim for negligence before an adjuster ever climbs a ladder.
+ The four performances include an appearance at the Helena Comedy Festival, presented by 302 Comedy.
 
- The episode goes deep on the storm-chaser problem plaguing Texas metros from San Antonio and Austin to Dallas and Houston. Shin explains why Texas Roof Guardians chose to stay local rather than chase four-inch hail in Chicago, Montana and the Carolinas, and how homeowners can validate a contractor through GAF, Owens Corning and Atlas certifications, a legitimate Google Business Profile, and Better Business Bureau standing. He details a Stone Oak client whose insurer quietly converted her policy at the 10-year mark, leaving her $15,000 short on a $25,000 replacement, and outlines the company's free policy review, free biannual inspection subscription, and white-glove service from Kerrville to Seguin, up and down I-35, and into Pearsall, Uvalde and Victoria.
+ Four Cities. Four Shows. One Comedian. Several Possible Interpretations of Reality. Kaplan's November itinerary includes:
 
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the operators, tradespeople and entrepreneurs shaping Texas communities. Each episode digs into the practical realities of building, protecting and growing a home or business in the Lone Star State, with candid conversations that arm listeners with information they can act on. This episode is available now wherever podcasts are heard, and at txroofguardians.com or 726-244-5844 for a free policy review. 
+ * Thursday, November 12: The Roxy Theater, Missoula, Montana, 8 PM.
+* Friday, November 13: Panida Little Theater, Sandpoint, Idaho, 7 PM.
+* Saturday, November 14: The Mill, Helena, Montana, 8 PM, as part of the Helena Comedy Festival.
+* Sunday, November 15: The Comedy Lounge, Boise, Idaho, 2 PM.
+
+ While the tour's unofficial title borrows from the language of action movies, audiences shouldn't expect helicopter chases, international espionage or elaborate disguises. They can, however, expect a comedian who can travel from an ordinary observation to an existential question and back again, sometimes within the same sentence.
+
+ A Different Kind of Stand-Up Experience Over more than two decades of performing, Kaplan has built a comedy career around curiosity, intelligence and the willingness to examine familiar ideas from unfamiliar angles.
+
+ His material often moves between the personal and the philosophical, exploring relationships, consciousness, language and the contradictions that make human beings both fascinating and ridiculous.
+
+ Kaplan's latest hour-long comedy special, Rini, premiered on YouTube in November 2025. Developed with his partner, Rini, the special followed a critically acclaimed run at the Edinburgh Fringe Festival and continues his exploration of love, connection and the humor found in everyday existence.
+
+ His comedy catalog also includes the Amazon special Small, Dork, and Handsome, the Dry Bar Comedy special Live From the Universe, and several stand-up albums.
+
+ His album A.K.A. debuted at number one on the iTunes comedy charts, while his debut album Vegan Mind Meld ranked among iTunes' top 10 comedy albums of its release year.
+
+ His work has also appeared beyond the stage through his podcasts The Faucet and Broccoli and Ice Cream, and his illustrated joke book Heart Brain Art Train, created with artist Ramin Nazer.
+
+ Comedy Worth Traveling For The November performances offer audiences in Montana and Idaho an opportunity to see a nationally recognized comedian in intimate theater and comedy club settings.
+
+ The Helena performance will be part of the Helena Comedy Festival, which brings stand-up performers together for several days of comedy across the city.
+
+ For anyone familiar with Kaplan's television appearances, albums or specials, these shows offer the opportunity to experience his comedy in person. For newcomers, the tour provides four chances to discover why an ordinary sentence can become something entirely unexpected in Kaplan's hands.
+
+ And while “Mission: Idaho / Montana: Impossible” remains an unofficial title, the mission itself is straightforward: visit four cities, tell jokes, make people laugh, and perhaps leave a few audience members thinking about something they hadn't considered before.
+
+ Tickets and Tour Information Fans can find additional information about Kaplan, his comedy specials and upcoming performances at MyqKaplan.com.
+
+ Tickets and event information are available through the participating venues and event organizers. Show schedules and availability are subject to change. More show and ticket info on Insta!
+
+ About Myq Kaplan Myq Kaplan is a nationally touring stand-up comedian whose credits include The Tonight Show, Conan, Late Show with David Letterman, The Late Late Show with James Corden, Late Night with Seth Meyers, Comedy Central, Last Comic Standing and America's Got Talent.
+
+ Known for his rapid-fire wordplay, intellectual humor and philosophical perspective, Kaplan has released multiple comedy albums and specials, including Rini, Small, Dork, and Handsome and Live From the Universe.
+
+ Learn more at www.myqkaplan.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611032938/why-60-70percent-of-roof-claims-get-denied-and-how-texas-homeowners-fight-back)
+[Original/Source Press Release](https://newsworthy.ai/news/202611033128/myq-kaplan-takes-mission-idaho-montana-impossible-on-tour)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-roofer-exposes-why-most-storm-claims-get-denied/a05b4d26d40a4f418b01e2496c6ea50f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/myq-kaplan-s-4-city-comedy-mission-idaho-montana-impossible/c722c2a371fb5ead6e15fc9c7af6ef5b) 
 
  
 
@@ -29,4 +60,4 @@ The latest episode of The Building Texas Show, titled Your Roofer Showed Up Afte
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/3/veil5shC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/3/airyjP5A.webp)
