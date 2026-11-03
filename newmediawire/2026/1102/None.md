@@ -1,76 +1,39 @@
-# From Silver Sands To Carangas: Analyst Site Visit Highlights New Pacific Metals' Development Potential
+# PNE Sells Another Photovoltaic Project in South Africa
 
-By Meg Flippin, Benzinga
+* The project has a capacity of 250 MW
+* Another success in the dynamic South African market
 
- DETROIT, MICHIGAN - November 2, 2026 (NEWMEDIAWIRE) - New Pacific Metals Corp. (NYSE: NEWP) (TSX.NUAG), the Vancouver, British Columbia mining exploration and development company with two projects in Bolivia, is getting positive reviews after visits from analysts to the miner’s two projects.
+ CUXHAVEN, GERMANY - November 2, 2026 (NEWMEDIAWIRE) - The PNE Group is continuing its successful project development activities in South Africa. The company has recently concluded the sale of another large photovoltaic (PV) project, located in the Free State province, with a planned nominal capacity of 250 MW, to a major South African independent power producer.
 
- ![](http://newmediawire.s3.amazonaws.com/6ae88c9fda846f1970288f72_1)
+ PNE South Africa will continue to develop the project following the sale by providing project development support to the investor through to Financial Close.
 
- Analysts from BMO Capital Markets, Roth Capital Partners and ATB Cormark Capital Markets are optimistic about New Pacific Metals’ prospects in Bolivia, with BMO raising its target price after the visit. The company operates Silver Sands and is currently in the Pre-Feasibility Study (PFS) phase, with the potential to produce between 12 million and 15 million ounces of silver annually. The mine is moving from the discovery phase toward development, potentially becoming an important source of global silver as the world looks for the next generation of production.
+ “With the sale of this strategic, large scale PV project we are continuing our successful project development activities in South Africa. The transaction demonstrates that our local teams are able to develop attractive projects in international growth markets and successfully market them. At the same time, we remain involved in the project and contribute our expertise to its further development,” says Roland Stanze, COO of PNE AG. “The transaction also underlines our ability to continuously realise value from our extensive project pipeline and to sell projects at the appropriate time.”
 
- Then there’s Carangas, which features an updated Preliminary Economic Assessment (PEA), with the potential to produce up to 15.5 million ounces of silver annually during its initial high-grade phase. It is currently undergoing a 30,000-metre drill campaign.
+ South Africa is an important international market for PNE. As of June 2026, the PNE Group’s project pipeline in the country comprised around 2,000 MW of PV and around 2,800 MW of wind energy.
 
- Bolivia is not only home to vast sources of undeveloped silver and gold, but the new government is courting foreign investment and mining partnerships, a positive for the company’s prospects. It also doesn’t hurt that thanks to electric vehicles, AI data centers and green energy, demand for silver continues to outstrip supply. So much that 2025 marked the fifth consecutive year in which a supply/demand imbalance existed.
+ About the PNE Group
 
- Analysts Getting Bullish?
+ The internationally operating PNE Group is listed in the SDAX. For more than 30 years, it has been one of the most experienced project developers in the area of onshore and offshore wind farms. The focus is on the development of wind energy and photovoltaic projects worldwide as well as on power generation with its own wind farms. Its portfolio covers all project planning phases, from site investigation, permitting procedures and financing through to construction, operation and repowering. As a Clean Energy Solutions Provider, the PNE Group also offers services for the entire life cycle of wind farms and photovoltaic power plants, as well as battery storage solutions for more efficient use of renewable energies.
 
- That dynamic piqued some interest from the financial markets in New Pacific Metals, and after the recent site visits, prompted bullish commentary.
+ Your contact persons:PNE AGAlexander LennemannHead of Corporate CommunicationsTel: +49 47 21 7 18 – 453E-mail: [alexander.lennemann@pnegroup.com](mailto:alexander.lennemann@pnegroup.com) PNE AGHead of Investor RelationsChristopher RodlerTel: +49 40 879 33 – 114E-mail: [christopher.rodler@pnegroup.com](mailto:christopher.rodler@pnegroup.com) 
 
- Take BMO Capital Markets for starters. BMO upped its price target on New Pacific Metals to $12 from $8.82 after visiting the company’s mines last week. Analyst Kevin O’Halloran said he was encouraged by the momentum he saw. At Carangas, the analyst pointed to a framework agreement with the local community that was signed earlier this year, and the project's Administrative Mining Contracts that the government is expected to sign by year-end. As for Silver Sands, the analyst said he was encouraged by continued progress with the community to advance development.
+ 
 
- “New Pacific's two flagship projects have made meaningful progress over the past two years, coinciding with a political shift in the country that appears significantly more receptive to private investment in natural resources projects,” wrote O’Halloran. “Together, these projects represent meaningful silver production of over 27Mozpa, and we see valuation upside for NUAG shares as they are advanced. Our target increases to $12.”
-
- BMO wasn’t the only financial markets firm to express optimism about both projects. Beyond that, Roth Capital Partners analysts walked away from their site visit suggesting there could be further catalysts to watch for. “There appears to be significant regional exploration potential that could provide positive catalysts for New Pacific in the quarters ahead,” wrote Roth analyst Joe Reagor, who, with a team, also visited both the Silver Sands and Carangas mines in October. The analyst said at Carangas, New Pacific Metals had identified a number of exploration targets outside the existing resource. What’s more, the company had three drills operating at the time of the visit that could be sources of future catalysts for the company. Roth has a buy rating on the stock.
-
- As for Silver Sands, the Roth analysts said that while the company has to sign agreements with local communities, it shouldn’t impact the project’s development. “None of these challenges should prevent the development of these assets as they fall within the normal scope of South American mine development, in our view,” wrote the analysts.
-
- Among Best Undeveloped Assets Globally, Says This Capital Markets Firm
-
- Meanwhile, the analysts at ATB Cormark Capital Markets said they walked away from their site visit with further conviction that the two projects are among the “best undeveloped silver deposits globally.” The analysts said they are confident the miner will benefit from the ongoing changes in Bolivian politics, including the removal of widespread roadblocks due to citizen protests against government policies earlier this year. “We anticipate further positive headlines in the coming months from New Pacific Metals related to permitting/political developments, which we see as the key to de-risking the two projects and driving a further re-rating of the stock,” wrote the analysts, who have an outperform rating on the stock.
-
- Some of the potential positive catalysts include the restructuring of the Ministry of Mining and Metallurgy by the current government in an effort to promote investment and development of new mining projects and the drafting of new mining regulations aimed at attracting additional foreign capital. What’s more, the financial institution said the government has shown an interest in prioritizing tier-1 silver projects, which favors New Pacific Metals.
-
- “Combined, New Pacific Metals’ projects could produce nearly 20 million ounces per year of silver, enough to move the needle for any large primary-silver producer,” wrote the analysts. “Both projects are being advanced simultaneously, each stacking up with the best silver projects globally and the combined production potential makes New Pacific Metals a clear takeout target in our view if its projects are advanced through permitting.”
-
- Bolivia is home to a vast resource of untapped silver that New Pacific Metals has positioned itself to seek to capitalize on. The company’s two mining projects are building momentum, and Wall Street seems to be starting to take notice. To learn more about New Pacific Metals and its two mining projects in Bolivia, click here.
-
- Featured image from Shutterstock.
-
- This content was originally published on Benzinga. Read further disclosures here.
-
- This post contains sponsored content and was created in collaboration with a third-party partner. Benzinga is a publisher and does not provide personalized investment advice or act as a broker or dealer. This content is for informational purposes only and is not intended to be investing advice or an offer or solicitation to buy or sell any security.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/from-silver-sands-to-carangas-analyst-site-visit-highlights-new-pacific-metals-development-potential-7091011)
+[Original/Source Press Release](https://www.newmediawire.com/news/pne-sells-another-photovoltaic-project-in-south-africa-7091022)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/analysts-bullish-on-new-pacific-metals-after-bolivia-site-visits/7dbc011642a8c2b5c6b13be33cc92d1a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pne-sells-250-mw-pv-project-in-south-africa/91a04d1fcecaaa64ff55c6803c371261) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/analyst-site-visits-to-new-pacific-metals-bolivian-silver-projects-spark-bullish-outlook-and-raised-targets)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/analyst-site-visits-boost-new-pacific-metals-development-prospects-in-bolivia)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/analyst-site-visits-to-new-pacific-metals-bolivian-silver-projects-signal-development-momentum)
-
-Pickup - [https://burstable.news](https://burstable.news/news/analyst-site-visits-bolster-new-pacific-metals-development-prospects-in-bolivia)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/las-visitas-de-analistas-a-los-sitios-refuerzan-las-perspectivas-de-desarrollo-de-new-pacific-metals-en-bolivia)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-visites-de-sites-par-les-analystes-renforcent-les-perspectives-de-developpement-de-new-pacific-metals-en-bolivie)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/analyst-site-visits-to-new-pacific-metals-bolivian-silver-projects-signal-development-momentum)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/analyst-site-visits-boost-new-pacific-metals-development-prospects-in-bolivia)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/02/analyst-site-visits-to-new-pacific-metals-bolivian-silver-projects-draw-bullish-calls-and-a-raised-price-target/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/2/eachOeG2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/2/fine3QJy.webp)

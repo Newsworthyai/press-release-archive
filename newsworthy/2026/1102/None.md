@@ -1,31 +1,47 @@
-# NPI Names Former Walmart Executive Hemant Agrahari President
+# Texas County Judges Get a Waste-to-Energy Pitch From LOCOAL
 
-Nutritional Products International (NPI), the Boca Raton-based global brand management and distribution company, today announced the appointment of former Walmart executive Hemant Agrahari as President. Agrahari most recently served as Director of Sourcing at Walmart's Bentonville, Arkansas headquarters, where he worked within the retailer's Health & Wellness sourcing organization.
+BOERNE, Texas - Across Texas, mulch, storm debris and old tires pile up at sites most drivers never see. On a December 2025 episode of The Building Texas Show, LOCOAL co-founder and CEO Miles Murray made a direct pitch to the local officials who manage those piles: turn them into power instead.
 
- As President, Agrahari will lead NPI's retail strategy and brand onboarding, working with the domestic and international health and wellness brands NPI represents to prepare them for retail opportunities and help secure placement with leading U.S. retailers.
+ "If you're a county judge somewhere in Texas that wants to be innovative and get rid of your mulch, get rid of your tires, get rid of really that conversation about the combustible wood pile over here, this is a product that you should be thinking about, talking about, getting to know," Murray told host Justin McKenzie.
 
- NPI Founder and CEO Mitch Gould will continue to oversee the company's long-term strategic direction and retail industry relationships, working alongside Agrahari to expand NPI's reach and capabilities.
+ Murray said the piles often sit a couple of miles off the interstate, out of view, and that the mulch market is close to saturated, so most of the material ends up in large piles that sit for long stretches. In dry seasons, he said, those piles become a fire risk.
 
- "I've known Hemant for some time now, and I'm very excited for him to join Nutritional Products International and take our company to the next level," said Mitch Gould, Founder and CEO of NPI. "He spent years on the buy side at Walmart headquarters, and he knows exactly what a buyer needs to see. That perspective is going to be a tremendous advantage for every brand we represent."
+ "These become fire hazards … They can be accelerants to very large wildfires that we've seen in the last decade," Murray said.
 
- Agrahari brings more than 15 years of experience across the pharmaceutical, health and wellness, and mass-retail sourcing industries. At Walmart Sourcing, he rose from Senior Manager of Health & Wellness Sourcing to Director of Sourcing, evaluating suppliers, negotiating programs, and helping shape how nutritional products reach Walmart shelves and customers.
+ Fire officials share the concern. The Houston Fire Department's fire safety standard for wood waste processors states that "wood chipping, hogging, composting and mulching operations and storage create a significant fire hazard and are rated as a very high hazard."
 
- Before Walmart, he spent five years in Accenture's management consulting practice advising clients on sourcing, procurement, and supply chain strategy. He began his career in supply chain and strategic sourcing roles at leading pharmaceutical companies, including Dr. Reddy's Laboratories, Hikal Ltd, and Novartis Healthcare. A chemical engineer by training, he holds a Bachelor of Technology in Chemical Engineering from the Indian Institute of Technology (BHU), Varanasi.
+ From an Air Force research contract to a Houston plant
 
- "I've seen thousands of brands come across a buyer's desk, and the ones that succeed are the ones that arrive prepared," said Agrahari. "NPI has spent decades getting brands ready for retail and getting them on the shelf. I'm excited to join Mitch and the team and help our clients grow at Walmart and across every major retail channel."
+ LOCOAL developed its waste-to-energy system with support from the U.S. Air Force through the federal Small Business Innovation Research (SBIR) program. Federal SBIR records list Air Force Phase I and Phase II awards to the company, which describes itself as seed-funded by an AFWERX contract.
 
- NPI's Evolution of Distribution® model gives brands a single outsourced team for sales, retail distribution, logistics, regulatory support, Amazon, and marketing, built on long-standing experience working with major U.S. retailers, including Walmart, Costco, GNC, CVS, Walgreens, Amazon, and Vitamin Shoppe.
+ "We developed this technology under the U.S. Air Force Small Business and Innovation Research Program," Murray said. "Once we're finished with the commissioning process, we'll be considered a phase three where you can directly procure our technology as a federal entity."
 
- Agrahari's appointment strengthens NPI's leadership team by bringing direct experience from the retail sourcing side of the business, complementing the company's established expertise in helping consumer brands navigate the complexities of entering and expanding in the U.S. marketplace.
+ LOCOAL's first commercial unit is installed in Houston. The system uses pyrolysis, heating wood waste without oxygen, to produce electricity and a high-purity carbon product, and Murray said the company is also moving into rubber from tires.
 
- About [Nutritional Products International](https://www.nutricompany.com/) Nutritional Products International (NPI) is a global brand management and distribution company based in Boca Raton, Florida. Founded by retail industry veteran Mitch Gould, NPI helps domestic and international health, wellness, sports nutrition, and personal care brands enter and expand in the U.S. marketplace. Through its proprietary Evolution of Distribution® platform, NPI provides an integrated approach to retail sales, distribution, logistics, regulatory support, and marketing. Gould brings decades of experience working with major U.S. retailers, including Walmart, Costco, CVS, Walgreens, GNC, and Amazon. For more information, visit nutricompany.com. 
+ The unit is built to travel. "It's a 50-foot system that is basically your maximum flatbed sized module that can be transported," Murray said. "You could show up with eight flatbed trucks and within a couple of weeks you've got yourself a power plant that can move about 50 tons of material per system per day."
+
+ Waste as a public good
+
+ Murray framed the work as a way to make landfills obsolete.
+
+ "So what would normally be a cost to somebody, we've turned into a revenue stream," he said.
+
+ He also addressed skepticism about carbon markets, arguing that LOCOAL tracks its carbon from where the waste starts to where it ends up. "When you hear about things like carbon credits and people are like that's a bunch of hocus pocus … it is whenever you're measuring it from a helicopter over the Amazon," he said.
+
+ The conversation marks Murray's third appearance on The Building Texas Show, following episodes in 2023 and 2024.
+
+ County leaders, fire officials and anyone managing a waste pile can watch the full episode on YouTube, find more Texas stories at buildingtexasshow.com and learn more about the technology at locoal.com.
+
+ About The Building Texas Show
+
+ The Building Texas Show, hosted by Justin McKenzie, tells the stories of the founders, community leaders and projects shaping Texas, from economic development and small business to conservation and education. New episodes publish weekly on YouTube and all major podcast platforms, with highlights on Facebook, Instagram and LinkedIn at @thebuildingtexasshow. Watch, listen and subscribe at www.buildingtexasshow.com and https://www.youtube.com/@thebuildingtexasshow. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611023126/npi-names-former-walmart-executive-hemant-agrahari-president)
+[Original/Source Press Release](https://newsworthy.ai/news/202611023107/texas-county-judges-get-a-waste-to-energy-pitch-from-locoal)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/npi-appoints-former-walmart-sourcing-exec-hemant-agrahari-as-president/9a87a0d5eb74c2787e4ac4bb80a3f4aa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/locoal-pitches-waste-to-energy-to-texas-counties/adfb38d6f0dcd42600299b56fdcc38f1) 
 
  
 
@@ -33,4 +49,4 @@ Nutritional Products International (NPI), the Boca Raton-based global brand mana
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/2/knobimU0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/2/arch9qiQ.webp)

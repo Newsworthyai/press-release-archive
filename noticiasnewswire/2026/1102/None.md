@@ -1,110 +1,58 @@
-# Spain's Marc Paré Rico Wins the Aloha Classic and Strengthens His Lead in the Fight for the Windsurfing World Title in Hawaii
+# Pure Flix Familia Launches Novelitas™, a Vertical Microdrama Channel Celebrating Faith, Family, and Latino Culture
 
-HO’OKIPA, HI — November 2, 2026 — (NOTICIAS NEWSWIRE) — Spain’s Marc Paré Rico has taken another step toward defending his world title after winning the Aloha Classic in Hawaii, in a tight final against several former champions of the event.
+NEW YORK, NY — November 2, 2026 — (NOTICIAS NEWSWIRE) — Pure Flix Familia, the streaming service for Latino audiences recently launched by Great American Media, today expands its programming with the debut of Novelitas™, a channel dedicated to microdramas with heartfelt stories rooted in faith, family, love and Latino culture.
 
- In its 43rd edition, the Aloha Classic is the most prestigious event in wave windsurfing: the stage where the world’s best riders create, perfect and showcase the sport’s most spectacular maneuvers. Competitors use the waves as launch ramps to execute aerials and rotations, which are scored by a panel of judges, similar to surfing.
+ Leading the launch is Alquilé Un Novio Para Navidad (I Rented a Boyfriend for Christmas), an original Spanish-language Christmas romantic comedy. Produced in Ecuador by Minivela in collaboration with Red Minds Films, the original series combines romance, Christmas traditions and faith themes in a vertical format designed to be watched on a cell phone.
 
- Paré Rico won his first world title in 2025. This season he has consolidated his lead thanks to extraordinary results in his home conditions in the Canary Islands. He now heads into the final event of the season in Chile (November 14–29) with a 6,410-point lead, where the 2026 world title will be decided.
+ Novelitas™ premieres with three Minivela productions debuting on the Pure Flix Familia streaming service. The channel brings faith- and family-centered content to the growing microdrama genre.
 
- Champions fall while Paré Rico stays calm
+ “Novelitas expands our commitment to Latino families with stories that reflect their culture, traditions and faith,” said Bill Abbott, president and CEO of Great American Media. “Through our alliance with Minivela, we bring that commitment to a format designed for the cell phone that offers audiences another way to enjoy uplifting entertainment.”
 
- Paré Rico extended his lead by staying focused while two of the sport’s most decorated champions were eliminated. Germany’s Philip Köster, world No. 2 and five-time world wave champion, fell in the quarterfinals. His elimination came in imposing four-to-five-meter waves, in a four-man heat in which only the top two advanced.
+ “Latino culture offers a great wealth of stories about love, family and belonging,” said Manny Ruiz, CEO of Minivela. “With these three productions, we bring those connections to the vertical storytelling format, led by a Christmas romantic comedy that puts faith and family at the center.”
 
- Brazil’s Marcilio Browne, a four-time world wave champion and world No. 3, followed him out in the semifinals, eliminated in a heat won by Paré Rico.
+ Novelitas™ highlights sincere emotions, authentic relationships and character development. By focusing on faith and family, it allows the pace and duration of the episodes to respond to the emotional needs of each story.
 
- For a rider who won his first world title just a year ago, beating opponents who have nine world titles between them was a real statement of intent.
+ The result is a different kind of vertical entertainment: stories that remain captivating and perfect for binge-watching, while also allowing audiences to connect more deeply with themes such as love, forgiveness, cultural identity, family relationships and faith.
 
- In tricky, shifting conditions that surprised even some of Maui’s best local riders, Paré Rico was flawless in that semifinal. He made the most of every section of the wave, combining aerials, a full 360-degree turn on the wave face and a goiter, a backward rotation initiated from the top of the wave. He won the heat with a score of 13.82.
+ Novelitas™ is available on Pure Flix Familia at pureflixfamilia.com. Subscribe for $4.99 a month or $49.99 a year and enjoy heartfelt stories that celebrate faith, family and Latino culture.
 
- “At the start of this season I wasn’t sure I’d be able to put myself in a position to win another world title. It’s really exciting, but I try not to think about the title. All I want is to sail as well as I can and show what I’m capable of. Although my goal was to reach the Aloha Classic final.” – Marc Paré Rico
+ The Novelitas™ premiere lineup
 
- In the final, Paré Rico recovered from several early falls with a clean 360 on the wave and then brought the crowd to its feet with a perfectly executed air taka and a powerful hit against the lip. Those maneuvers put him ahead in the final minutes, a lead he held to win by just 0.05 points.
+ Alquilé Un Novio Para Navidad
 
- “I still can’t believe it. My goal all season was to reach the final here. I’ve always felt this is the event I find hardest. It’s incredible to have won.” – Marc Paré Rico
+ When Sofía faces another Christmas full of awkward questions about her love life, she recruits a charming resort waiter to pose as her successful boyfriend. But as her elaborate Christmas charade unfolds, unexpected feelings threaten to turn a fake romance into something very real. Produced in Ecuador with Red Minds Films, this heartfelt Spanish-language Christmas romantic comedy combines romance, humor, faith and the importance of family.
 
- A new challenger from Maui
+ Cholita Takes L.A.
 
- The main threat to Paré Rico’s title defense now comes from Bernd Roediger, who grew up on Maui and was competing in his home conditions.
+ A fearless Bolivian fashionista and lucha libre queen travels to Los Angeles to reunite with her ailing Mexican-American grandmother. Along the way, she clashes with a feisty group of local Cholas, discovers an unexpected romance and learns that staying true to her roots can be her greatest strength. Created by Manny Ruiz and produced by Minivela in collaboration with Chicano Hollywood, this colorful bilingual story celebrates cultural identity, family and belonging.
 
- Roediger, winner of the Maui Pro earlier this season, posted the best score of the semifinals (14.90) thanks to a series of aerials with modified rotations and powerful turns on the wave.
+ Sabrina
 
- In the final he led for much of the heat and earned the best single-wave score, a seven-point taka on a large set wave, before finishing second with 13.40 points.
+ When 15-year-old Sabrina resists her family’s plans to throw her an elaborate quinceañera, she finds herself caught between tradition and her desire to define her own identity. As her mother and sister insist on the celebration they never had, her father struggles to accept that his daughter is growing up. With family tensions rising and a long-held secret about to come to light, Sabrina discovers that becoming a woman is about much more than turning fifteen.
 
- Roediger moves up to third in the rankings, 7,500 points behind Paré Rico. He is expected to discard a low 2,500-point result from a lower-tier event in Puerto Rico. That means he can still be crowned world champion if he wins in Chile and Paré Rico finishes outside the top five.
+ Expanding the possibilities of vertical entertainment
 
- Spanish victory in the junior division
+ The launch of Novelitas™ marks another milestone in Pure Flix Familia’s mission to offer an ever-growing selection of wholesome, culturally authentic entertainment for Latino audiences, while creating new opportunities for filmmakers and storytellers who want to bring faith- and family-centered stories to a rapidly growing entertainment format.
 
- Spain’s Javier Escribano Toribio, the 2025 boys’ junior world wave champion, won the Junior Boys division in Hawaii, ahead of Greece’s Jason Papanikolaou and France’s Raphael Dumesnil.
+ As the channel grows, Novelitas™ seeks to demonstrate that the future of microdramas can include not only romance and suspense, but also uplifting, emotionally resonant stories that celebrate the values, relationships and traditions that matter most to families.
 
- A sport in transformation
+ About Great American Media
 
- Paré Rico’s title defense comes in a season of major changes to the structure of professional windsurfing.
+ Great American Media is a leader in faith and family entertainment and one of the fastest-growing entertainment networks on television. Great American Media is home to a growing portfolio of entertainment brands that celebrate faith, family and country, including Great American Family, the flagship linear network with original Christmas movies, romantic comedies and beloved series; Great American Pure Flix, a leading faith and family streaming service; Great American Faith & Living, the companion unscripted programming network; GFam+, an app that lets viewers watch content anytime, anywhere; and Pure Flix Familia, a Spanish-language streaming service with original and curated entertainment that celebrates Latino culture, faith and family traditions. Established in June 2021 by Bill Abbott and a group of U.S.-based family offices, Great American Media reaches audiences through cable television, streaming services, YouTube TV and the GFam+ app. Across its growing portfolio, the company offers original movies and series and family-friendly programming, connecting audiences with uplifting entertainment rooted in faith, family and country.
 
- Earlier this year, the two rival professional windsurfing circuits — the established Professional Windsurfing Association and the independently operated International Windsurfing Tour — merged to create a single circuit: the World Windsurf Tour.
-
- Since then, the unified circuit has expanded beyond its traditional European base, adding events in Hawaii, Fiji, Australia and Chile.
-
- A new five-star competition system means all events now count toward the world ranking. The addition of new destinations and more opportunities to earn points has opened the title race to new contenders.
-
- “Unifying the sport under a single circuit was aimed at giving all riders a fair opportunity to fight for the world title. This season, both titles will be decided at the last event, with new contenders in the mix. That’s exactly what we were looking for with the unification.” – Simeon Glasson, World Windsurf Tour director.
-
- The women’s world title will also be decided at the final event
-
- The women’s world title will also be settled in Chile.
-
- France’s Marine Hunter won in Hawaii and sits just 15 points behind Germany’s Lina Erpenstein, who finished second. Germany’s Maria Behrens took third and remains mathematically in contention for the title.
-
- Aloha Classic results
-
- Position Men’s Pro Women’s Pro1 Marc Paré Rico (Spain) Marine Hunter (France)2 Bernd Roediger (USA) Lina Erpenstein (Germany)3 Antoine Martin (Guadeloupe) Maria Behrens (Germany)4 Morgan Noireaux (USA) Angela Cochrane (USA) World ranking with one event remaining
-
- Position Men Points Women Points1 Marc Paré Rico (Spain) 34,500 Lina Erpenstein (Germany) 30,2552 Philip Köster (Germany) 28,090 Marine Hunter (France) 30,2403 Bernd Roediger (USA) 27,000 Maria Behrens (Germany) 27,970 Event information Event: Aloha Classic – World Windsurf Tour Location: Ho’okipa Beach Park, Maui, Hawaii, USA Dates: October 19–30, 2026 Where to watch: Replays and live broadcasts at worldwindsurftour.com Next event: Grand Final, Chile – November 14–29, 2026
-
- About the World Windsurf Tour The World Windsurf Tour was created in 2026 after the merger of the Professional Windsurfing Association and the International Windsurfing Tour. It is the sport’s international professional circuit and encompasses the wave, slalom, foil and freestyle disciplines.
-
- The 2026 World Wave Tour consists of 10 four- and five-star events held in Australia, Chile, Fiji, France, Germany, Hawaii, Scotland and Spain.
-
- Rankings and live broadcasts: worldwindsurftour.com.
-
- Photographs
-
- High-resolution images: https://worldwindsurftour.com/events/the-aloha-classic-hawaii-usa/photos Photo credit: Fish Bowl Diaries.
-
- CONTACT: Jane Seman PR Officer +61 408 909 643 media@windsurftour.com 
+ CONTACT: Victoria Quevedo 512-537-1414 media@crosswindpr.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/marc-pare-rico-gana-el-aloha-classic/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/pure-flix-familia-lanza-novelitas/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pare-rico-wins-aloha-classic-edges-closer-to-world-title/1b860ae7d14f5bb92892cc200cb63b04) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pure-flix-familia-launches-novelitastm-microdrama-channel/f15903e0d3b20ac43f3259ea4058a8d7) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/02/marc-pare-rico-wins-aloha-classic-tightens-grip-on-world-title-as-unified-tour-reshapes-sport/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/marc-pare-rico-wins-aloha-classic-tightens-grip-on-windsurfing-world-title)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/marc-pare-rico-wins-aloha-classic-extends-world-title-lead)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/marc-pare-rico-wins-aloha-classic-extends-world-title-lead-ahead-of-chile-final)
-
-Pickup - [https://burstable.news](https://burstable.news/news/marc-pare-rico-wins-aloha-classic-extends-world-title-lead)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/marc-pare-rico-gewinnt-aloha-classic-und-baut-fuhrung-in-der-weltmeisterschaft-aus)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/marc-pare-rico-gana-el-aloha-classic-y-amplia-su-liderato-en-el-titulo-mundial)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/marc-pare-rico-remporte-laloha-classic-et-conforte-sa-place-de-leader-mondial)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/marc-pare-rico-vence-o-aloha-classic-e-amplia-a-lideranca-no-titulo-mundial)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/marc-pare-rico-wins-aloha-classic-tightens-grip-on-world-title-as-unified-tour-reshapes-windsurfing)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/marc-pare-rico-wins-aloha-classic-tightens-grip-on-world-wave-title-ahead-of-chile-final)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/2/irisS0qt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/2/quitFkT6.webp)
