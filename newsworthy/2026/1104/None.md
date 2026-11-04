@@ -1,31 +1,43 @@
-# Kitchen Remodeling in Delray Beach: KMR Enterprises on Cutting 4 to 8 Weeks Off the Permit
+# Wellness Index Report Names Three "Builders of Healthspan" in October 2026 Issue: "Built to Last: The Engineering of Healthspan"
 
-Kitchen remodeling in Delray Beach takes longer than most homeowners plan for, and the reason is usually the permit, not the cabinets. That is the main point KMR Enterprises, a Florida certified general contractor (CGC1520685) based in Delray Beach and in business since 1992, makes in its answers to the questions homeowners ask most before a kitchen remodel. The company's full planning guide is at https://www.kmr-gc.com/kitchen-remodeling-planning-guide-delray-beach/
+Today, Wellness Eternal unveils the October 2026 Wellness Index Report, 'Built to Last: The Engineering of Healthspan.' This month's issue looks at the growing shift from hoping for a longer, healthier life to engineering one. The report highlights three experts from The Wellness Index Report Podcast, each addressing a unique aspect of the aging process.
 
- What should a homeowner decide first on a kitchen remodel in Delray Beach? The layout, because two questions drive the price more than anything else: whether any walls are moving, and whether appliances are being relocated or added. Moving an appliance can mean new electrical and plumbing plus trenching and repairing the concrete slab, which are among the most expensive items in a kitchen. Once the layout is settled, cabinet style, countertops and appliances can be chosen and priced.
+ The report comes the same month as World Menopause Day (October 18). The report delves into whether aging occurs in distinct phases and how we might proactively design for future stages.
 
- "The more information we have the better, because with more precise information and details we can create a more accurate budget," said Kris Schlembach, owner of KMR Enterprises. "Major questions that would have the greatest effect on price are related mostly to: Are we moving any walls? Are we relocating or adding appliances that would require electrical and plumbing as well as concrete trenching and repair?"
+ Featured in the October 2026 Report Dr. Steven A. Garan, PhD, UC Berkeley CREA (Aging Science & Healthspan)
 
- What do homeowners most often leave out of a Delray Beach kitchen budget? Time for the building permit. A permitted kitchen needs plans, licensed subcontractors and permit fees, and approval typically takes 6 to 8 weeks or longer. KMR recommends that homeowners consider a private provider, a licensed third party allowed under Florida law to handle plan review and inspections. For a typical kitchen it adds about $1,500 and can save 4 to 8 weeks on overall completion.
+ Dr. Garan is the Director of Bioinformatics at the Center for Research & Education on Aging (CREA) at the University of California, Berkeley, and a researcher at Lawrence Berkeley National Laboratory. He coined the word "phenomics" and played a major role in developing the Automated Imaging Microscope System (AIMS). His work centers on the hypothalamus, which he sees as the brain's master clock for life's biggest milestones, from adolescence to menopause. On the podcast, he explained why he sees aging as a program driven by the brain rather than simple wear and tear.
 
- "At KMR, we recommend paying a little extra to hire a private provider to handle the permit approvals and inspections," Schlembach said. "For a typical kitchen, this would add around ",500 but would save 4 to 8 weeks on the overall completion."
+ John Whitman, Nexus Health (Precision Medicine & AI)
 
- How much does a kitchen remodel cost in Delray Beach in 2026? It depends on the scope. KMR can do a small kitchen for as little as about $15,000 and has completed kitchens from roughly $20,000 to more than $300,000. Beyond layout and materials, cost goes up with harder access: upper floors in condo buildings, elevator scheduling and limited parking all add time and money. KMR prices each option separately, from a budget version up to the full wish list, so homeowners can decide which items are worth it to them.
+ Whitman, Co-Founder and Chief Innovation Officer of Nexus Health, spent more than a decade building systems where failure was not an option, including his role as Principal Systems Engineer at SpaceX, where he built infrastructure for launch systems, the Starlink network and Starbase. Nexus Health brings DNA, lab results and intake data together so clinicians can see how the clues connect across the body. Every finding comes with its reasoning, and nothing reaches a patient without clinician review. The platform is HIPAA compliant and SOC 2 Type 2, with zero data mining.
 
- "We can help make suggestions to keep a project in your budget and provide multiple price options for everything from a budget friendly option up to including your wishlist," Schlembach said. "We will even break down the price of each option separately so the customer can decide which things are worth it to them."
+ David Horinek, Celliant (Infrared Textiles & Materials Science)
 
- Can impact windows be handled in the same kitchen project? Yes. KMR's window installers typically work under the company's main permit, so the windows are scheduled and inspected as part of the same job. Homeowners who prefer to hire a window company directly can do that, and KMR will recommend companies it trusts.
+ Horinek is the inventor of Celliant, the mineral-infused textile technology that captures the body's own heat and returns it as infrared energy, and co-founder of Hologenix. The idea began in the 1990s while he was looking for a way to support his grandmother's mobility. In 2002 he and Seth Casden founded Hologenix, and Celliant is now woven into apparel, bedding and recovery products from brands around the world. His conversation with Lindsay O'Neill-O'Keefe arrives on The Wellness Index Report Podcast in November.
 
- KMR Enterprises designs, permits and builds kitchens under one contract and holds a 4.9-star rating on Google from more than 75 homeowner reviews. It was named Best of Houzz for Service in 2019 and 2023. Its kitchen remodeling services are at https://www.kmr-gc.com/residential-construction-services/kitchen-remodeling/
+ Three Trends Shaping Healthspan The report identifies three signals in wellness this month:
 
- About KMR Enterprises KMR Enterprises is a design-build general contractor in Delray Beach, Florida, serving Palm Beach County since 1992. One team designs, permits and builds kitchen and bathroom remodels, whole-home renovations, home additions, custom homes and commercial build-outs. Florida Certified General Contractor CGC1520685 and Certified Roofing Contractor CCC1331167. KMR Enterprises, 4634 Wildwood Dr, Delray Beach, FL 33445, (561) 288-5000, https://www.kmr-gc.com 
+ 1. Aging as a program, not just wear and tear. Research is moving toward the brain and the hormones it governs, along with why aging appears to speed up in midlife and during menopause.
+2. AI that connects the dots. Precision health is moving toward AI that reasons across genetics, labs and history, with explainable findings and the clinician in control.
+3. Wellness woven into everyday life. Consumers are embracing products that work quietly in the background, from sleepwear and bedding to recovery apparel.
+
+ Profiles for each featured expert are now available on the Wellness Index, enabling the public to explore their work, leave reviews, and view upcoming events.
+
+ The full October 2026 Wellness Index Report is available at: https://www.wellnessindexreport.com/indexreports/wellness-index-report-october-2026
+
+ About the [Wellness Index Report](https://www.wellnessindexreport.com/) The Wellness Index Report is a monthly publication from Wellness Eternal that highlights the people, companies and ideas shaping biohacking, longevity and wellness. Each issue features guests from The Wellness Index Report Podcast, hosted by Lindsay O'Neill-O'Keefe. Learn more at https://www.wellnessindexreport.com.
+
+ About [Wellness Eternal](https://www.wellnessindexreport.com/) Wellness Eternal LLC connects people with trusted companies and experts in biohacking, longevity and wellness through the Wellness Index, The Wellness Index Report and The Wellness Index Report Podcast.
+
+ Media Contact Lindsay O'Neill-O'KeefeWellness EternalEmail Contact 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611043133/kitchen-remodeling-in-delray-beach-kmr-enterprises-on-cutting-4-to-8-weeks-off-the-permit)
+[Original/Source Press Release](https://newsworthy.ai/news/202611043132/wellness-index-report-names-three-builders-of-healthspan-in-october-2026-issue-built-to-last-the-engineering-of-healthspan)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kmr-permit-delays-top-kitchen-remodel-surprises/00beabcd897cf347d5f1f9d4c552a521) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-eternal-s-october-report-engineering-healthspan/f034647258bfc8177e5d3956da05ab55) 
 
  
 
@@ -33,4 +45,4 @@ Kitchen remodeling in Delray Beach takes longer than most homeowners plan for, a
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/4/kitese8U.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/4/pendwpHj.webp)
