@@ -1,52 +1,82 @@
-# 124 Hudson Street, New York City – A Tribeca Loft a Designer Made for Herself
+# New Data, Old Habits, Same Results: Why Sales Tech Drops Off a Cliff
 
-Interior designer Sharon Rembaum rebuilt this 2,100-square-foot condominium down to the joists as her own home.
+Most sales teams know the pattern. A company buys a new data platform, logins spike, and then usage quietly falls off. Results look the same as before, and the conversation turns to whether the tool was worth it.
 
- Tribeca has no shortage of handsome renovated lofts. Sellers and developers, though, often finish them with the next buyer in mind, choosing what will read well on a tour and photograph well on the way to market.
+ Mike Simon knows that pattern from the vendor’s side. He is the founder and CEO of AgentBrief, a platform built for title, escrow, insurance, and home warranty professionals who grow their business through relationships with real estate agents. AgentBrief tracks real estate activity 24/7 and alerts users the moment an agent they follow has new business, along with an AI-crafted message they can edit and send.
 
- The residence on the third floor of 124 Hudson Street #3B started from a different premise. Interior designer Sharon Rembaum, whose work has appeared in Architectural Digest, ELLE Decor, and House Beautiful, rebuilt it as her own home. “It was not designed and created for resale,” says Sophie Ravet of Brown Harris Stevens, who holds the listing. “It was for herself.”
+ In AgentBrief’s early days, Simon used to watch the drop-off play out with new customers. “You see massive interest. People get really excited. You see very, very high early engagement. And then it drops off a cliff,” he said. The product, modeled on familiar social media apps, was easy to learn. What people hadn’t done was change how they worked once they had it.
 
- The result is a two-bedroom condominium of nearly 2,100 square feet beneath 10-foot ceilings, with a separate den and room to entertain. Ravet, who has lived and sold homes in Tribeca for 21 years, draws a firm line between a beautifully renovated apartment and a home built on a designer’s personal vision. That distinction raises a fair question: what, specifically, does a designer do differently when the client is herself?
+ A Sports Car Driven Like a Minivan The habit behind the drop-off is common across sales technology: reps keep doing what they did before, only now inside a new interface. Simon compares it to buying a sports car and driving it like a family van. “Why would you buy this souped-up sports car and try and use it like a minivan?”
 
- What She Removed, What She Kept The answer starts with how far Rembaum went. The apartment still carried the original finishes from the building’s completion in 2000, and she took it down to the joists. She put in a new kitchen, new bathrooms, and new ceilings fitted with a soundproofing system. She also designed the lighting from scratch, in layers, a step Ravet says many architects overlook.
+ When results don’t change, the blame lands on the tool. “They blame the data, they blame the technology, and they make excuses that the data and the technology are wrong, that it doesn’t fit their needs,” Simon said. “And then they revert back to old habits.”
 
- Just as telling is what Rembaum left alone. The scale of the rooms and the height of the ceilings drew her to the apartment in the first place, so she preserved both and kept the plumbing where it was. Rather than move walls, she enlarged closets and built storage into nearly every surface, a real luxury in Manhattan. “She really utilized every single inch of the space in an intelligent, thoughtful, deliberate way,” Ravet says. Even the doors reflect that thinking. Rembaum swapped the original short doors for taller ones that carry the eye up to the 10-foot ceilings.
+ Teaching the Why, Not the How AgentBrief’s answer was to stop centering training on buttons and features. “This is why we decided to continually offer not how-to training, but why training,” Simon said. “Why are you using this? What do you have to be thinking differently when you’re using this product to make it successful for you?”
 
- Visitors notice the results in the small things. Since the listing came on the market, Ravet says, buyers have responded most to the choice of finishes and the precision of their execution, down to the door handles and hinges. “The more you look at it, the more you appreciate all the details,” she says.
+ The why comes down to three things: timing, relevance, and relationship building. The alerts handle timing, so a rep hears about an opportunity as it happens. The message attached to each alert handles relevance, giving the rep a real reason to reach out instead of a cold call, which Simon said “is going to give you horrendous results.”
 
- Room by Room Those details gather in the rooms where daily life happens. The living room, whose scale Ravet singles out, centers on a gas fireplace with a new firebox and hearthstone. Around it, Rembaum designed floating shelves and built-in cabinetry that conceal the television, solving a problem most living rooms simply tolerate. Limewashed walls and flangeless square recessed lights give the room a warm, clean finish. “It’s hard to find such generous proportions with this level of intimacy and warmth,” Ravet says.
+ The third piece stays with the rep, by design. “You must not rely on technology to do the one thing that you are skilled as a human being, which is to develop a relationship with somebody else,” Simon said. “Technology will never do that for you.”
 
- The open kitchen carries the same care into its materials. Calacatta marble covers the countertops and backsplash, an oak island sits on a bronze toe-kick, and a custom bronze hood and Sun Valley Bronze hardware complete the palette. Gaggenau supplies the cooktop, refrigerator, and ovens, and a dedicated closet holds the laundry.
+ That is the new habit: reach out when an agent has a reason to hear from you, then do the part of the work only a person can do.
 
- The private rooms follow suit. In the primary bedroom, a full wall of bespoke millwork holds drawers and shelving fitted with horn hardware, and a walk-in closet adds storage. A custom pocket door opens to a primary bath with marble, custom cabinetry, Waterworks fixtures, radiant floor heating, and heated towel racks. The second bedroom matches the first in scale, and its bath pairs marble with Ann Sacks tile. A bifold door of iron and brass, also of Rembaum’s design, closes off a separate den that works as an office or a guest room, and the layout could accommodate a third bedroom.
+ Habit Problem or Data Problem? When a team stops seeing results, Simon separates two very different causes. Sometimes the data is the issue. “I make no representations that real estate data is perfect because it is an imperfect science,” he said. A feature called See Something, Say Something lets users flag a problem in one click, with a screenshot attached, so the team can fix it. That fix, Simon said, is “very different than getting somebody to adopt a new process to how they use it.”
 
- Small Building, Wide Street The building around the apartment puts the same priority on space over spectacle. 124 Hudson Street holds only 26 residences, nearly all of them large, and 3B is one of the smallest. Ravet, who has now sold three apartments in the building, says buyers at this level prefer neighbors whose homes are comparably sized, since that supports values across the building. In place of amenities, the condominium offers service: a full-time doorman, a live-in superintendent, and a landscaped interior garden. With gyms all over the neighborhood, Ravet says, buyers in this price range rarely miss the rest.
+ To find out which problem a team has, he asks the manager: “What do you really want your salespeople to be doing? And why aren’t they doing it?” Then he pulls the usage report. “Numbers don’t lie,” he said. He reads it as three problems, each more costly than the last:
 
- Hudson Street itself supplies the apartment’s light. The residence faces west, and because the street runs unusually wide, direct sun reaches the rooms from about 1:30 in the afternoon, especially in winter, when the sun sits lower. In the morning, a limestone façade across the street reflects light back through the tall windows. The neighborhood’s height limits help protect that light over time. The building isn’t a landmark, Ravet notes, but it sits within a historic district, where a new tower can’t simply rise next door.
+ 1. Reps aren’t logging in.
+2. Reps log in but don’t follow enough agents for the platform to surface opportunities.
+3. Reps receive alerts but don’t respond. Simon calls this “the worst problem of all,” because “that means all of these opportunities are going to waste.”
 
- Dining and Entertaining Outside the door, Tribeca strikes the same balance of quiet and warmth that defines the apartment. The neighborhood has changed over the past two decades, but Ravet says it has held on to its character. Longtime institutions such as Walker’s and Bubby’s still sit around the corner, and unlike SoHo, Tribeca never became a shopping destination, with the crowds that come with one. “It’s quiet, but it’s not desolate,” she says. “And it is incredibly charming.”
+ In Simon’s experience, the reps who respond to alerts most often tend to be the ones the manager already considers top producers. The report makes the habit gap visible.
 
- That character of the neighborhood shapes how residents socialize. People rarely come to Tribeca to party, Ravet says, but its concentration of fine restaurants keeps residents dining close to home. The size of the neighborhood’s lofts matters, too. With room to entertain, Tribeca residents host at home far more often than people in neighborhoods of smaller apartments, such as the East Village. To the west, Hudson River Park has remade the waterfront over the past 20 years, linking Tribeca to the West Village and West Chelsea, with each stretch shaped to the neighborhood beside it.
+ Consistency Is How the New Habit Sticks The drop-off at the start of this article is what happens when a new tool gets used now and then while the old routine stays the default. A habit only changes when the new behavior is repeated until it becomes routine. That is why Simon treats consistency as the deciding factor. “It’s not just using it the right way; it’s using it the right way consistently,” he said.
 
- Rembaum built the apartment to live in, not to sell, and she chose every finish with the long run in mind. “It will age beautifully,” Ravet says, “because it doesn’t follow any trends.”
+ It is also why customers who ask how many new orders AgentBrief will bring them sometimes get a surprising answer: without consistent action on the alerts, none, no matter how good the data is. “Your job is to sell your product,” Simon said. “My job is to tell you the people who want to buy it and when they want to buy it before anybody else.” That holds whether the product is title and escrow services, homeowners insurance, or a home warranty.
 
- About the Expert: Sophie Ravet is a Licensed Associate Real Estate Broker with Brown Harris Stevens in New York, where she focuses on residential sales in Tribeca.
+ For any team about to buy its next platform, the question worth asking first isn’t what the tool can do. It’s what the team will do differently every day once it has it. New data on top of old habits brings the same results. New habits, practiced consistently, change them.
 
- This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions.
+ About AgentBrief: AgentBrief tracks real estate activity 24/7 and delivers real-time alerts, production data, and AI-crafted messages that help title, escrow, mortgage, insurance, and home warranty professionals reach real estate agents at the right moment, with the right context.
+
+ Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/124-hudson-street-new-york-city-a-tribeca-loft-a-designer-made-for-herself/)
+[Original/Source Press Release](https://keycrew.co/journal/new-data-old-habits-same-results-why-sales-tech-drops-off-a-cliff/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/designer-sharon-rembaum-lists-her-personal-tribeca-condo-at-124-hudson-street/3fb3e1968189aa482c767408439b08d9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agentbrief-ceo-why-sales-tech-fails-without-new-habits/6f1c932426e3790e8b9db6ea3b20021e) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/sales-tech-fails-when-old-habits-outlast-new-tools-agentbrief-ceo-says)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/why-sales-tech-fails-without-new-habits-not-better-data)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/sales-tech-adoption-fails-without-habit-change-agentbrief-ceo-says)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/agentbrief-ceo-sales-tech-adoption-fails-without-new-habits-not-better-data)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ceo-de-agentbrief-la-adopcion-de-tecnologia-de-ventas-fracasa-sin-nuevos-habitos-no-por-falta-de-mejores-datos)
+
+Pickup - [https://burstable.news](https://burstable.news/news/agentbrief-ceo-sales-tech-fails-without-new-habits-not-better-data)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/agentbrief-ceo-sales-tech-scheitert-an-alten-gewohnheiten-nicht-an-besseren-daten)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ceo-de-agentbrief-la-tecnologia-de-ventas-fracasa-sin-nuevos-habitos-no-por-falta-de-mejores-datos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-pdg-dagentbrief-les-technologies-de-vente-echouent-sans-nouvelles-habitudes-pas-sans-meilleures-donnees)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ceo-da-agentbrief-a-tecnologia-de-vendas-falha-sem-novos-habitos-nao-por-falta-de-melhores-dados)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/sales-tech-adoption-fails-without-habit-change-agentbrief-ceo-says)
+
+Pickup - [https://news.salesnexus.com/sales-news](https://news.salesnexus.com/sales-news/why-sales-tech-fails-without-habit-change-agentbrief-ceo-on-the-adoption-gap)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/03/sales-tech-adoption-falters-when-habits-dont-change-agentbrief-ceo-says/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/3/harpwYQM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/3/epic_HIM.webp)
