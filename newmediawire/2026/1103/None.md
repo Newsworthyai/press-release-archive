@@ -1,18 +1,36 @@
-# AEVIS VICTORIA SA Swiss Medical Network Extends Its CHF 150 Million Syndicated Credit Facility
+# Helvetia Asset Management Ltd Adopts a Unified Market Presence
 
-FRIBOURG, SWITZERLAND - November 3, 2026 (NEWMEDIAWIRE) - AEVIS VICTORIA SA (AEVIS) announces that its subsidiary Swiss Medical Network SA signed an amendment to extend its CHF 150 million syndicated credit facility with a consortium of nine Swiss banks, led by UBS Switzerland AG as arranger and agent.
+BASEL, SWITZERLAND - November 3, 2026 (NEWMEDIAWIRE) - As the integration of the Helvetia Baloise Group continues to progress rapidly, Baloise Asset Management Ltd has been renamed Helvetia Asset Management Ltd (HAM) and now operates under the Helvetia Group brand. With over CHF 100 billion in assets under management, the Helvetia Baloise Group’s Asset Management division is one of Switzerland’s largest insurance asset managers. It also ranks among the country’s top five real estate investment managers. It manages or advises approximately CHF 20 billion in real estate assets.
 
- The maturity date of the facility, originally set for 25 April 2027, has been extended to 25 April 2028, with an option to extend it for a further year. All other terms and conditions of the facility remain unchanged.
+“By establishing a unified market presence, we are bringing together the extensive experience and complementary strengths of both organisations. This enables us to offer our clients a broader range of investment solutions and support them in achieving their long-term investment objectives,” states André Keller, Group Chief Investment Officer (GCIO).
 
- Thanks to improved profitability and a reduction in net debt, Swiss Medical Network has also benefited, since 30 September 2026, from a 100-basis-point reduction in the applicable margin, which is linked to the net debt/EBITDA ratio.
+Another major step in the integration processFollowing the completion of the merger of the Helvetia Baloise Group’s two asset management companies at the start of July 2026, the renaming of the existing entity Baloise Asset Management Ltd to Helvetia Asset Management Ltd marks another important milestone in the integration by establishing a unified market presence. With more than CHF 100 billion in assets under management, the Helvetia Baloise Group’s Asset Management division ranks among Switzerland’s largest insurance asset managers.
 
- “The early extension of this facility by the entire banking syndicate confirms the banks’ confidence in Swiss Medical Network’s operational and financial trajectory,” says Michel Keusch, CFO of AEVIS.
+ Among Switzerland’s top 5 real estate investment managersThe Helvetia Baloise Group’s Asset Management division manages or advises approximately CHF 20 billion in real estate assets for internal and external clients. This places us among the five largest real estate investment managers in Switzerland. We cover the entire real estate value chain – from development and construction to property management and the management of entire real estate portfolios. Our portfolio is complemented by a range of mortgage investment solutions.
 
- For further information:AEVIS VICTORIA SA Media and Investor Relations: c/o Dynamics Group, ZurichMarion Schihin, msc@dynamicsgroup.ch, +41 79 705 88 15
+ Broad range of specialised investment solutions for third-party clientsThe Helvetia Baloise Group has more than 160 years of experience in managing insurance assets. Building on this expertise, Helvetia Asset Management Ltd offers pension funds, insurance companies and other institutional investors access to a broad range of investment capabilities and solutions. These include multi-asset strategies, real estate, mortgages and private markets in particular.
 
- About Swiss Medical Network Swiss Medical Network is one of Switzerland's two leading private clinic and hospital groups. With a nationwide network of 19 clinics and hospitals, 80 outpatient centres and 22 eye clinics, the group covers a comprehensive range of medical services and offers patients access to high-quality care in 16 cantons. Swiss Medical Network is a pioneer in integrated care. With its VIVA healthcare plan and regional care networks, the group promotes coordinated, patient-centred treatment, setting new standards in Swiss healthcare. Swiss Medical Network Holding is majority-owned by AEVIS VICTORIA SA, which is listed on the SIX Swiss Exchange. www.swissmedical.net.
+ Through the Group-wide collaboration between insurance, banking and asset management in the area of pensions and assets, private clients also benefit from our investment expertise to support their individual retirement planning.
 
- AEVIS VICTORIA SA - Investing for a better lifeAEVIS VICTORIA SA invests in healthcare, hospitality & lifestyle and infrastructure. AEVIS’s main shareholdings are Swiss Medical Network Holding SA (76.3%, directly and indirectly), the only Swiss private network of hospitals present in the country’s three main language regions, MRH Switzerland AG, a luxury hotel group managing eleven hotels in Switzerland and abroad, Infracore SA (22.6%, directly and indirectly), a listed real estate company (INFRAC.SW) dedicated to healthcare-related infrastructure, Swiss Hotel Properties SA, a hospitality real estate division, and NESCENS SA, a brand dedicated to better aging. AEVIS is listed on the Swiss Reporting Standard of the SIX Swiss Exchange (AEVS.SW). www.aevis.com
+ Investment funds renamed As part of the move towards a unified market presence for the Helvetia Baloise Group’s Asset Management division, numerous investment funds have also been renamed. More information is available via the following link: https://www.helvetia-asset-management.com/
+
+Further information
+
+ * www.helvetia-asset-management.com
+
+ MediaCorporate CommunicationsPhone: +41 58 280 70 05[media.relations@helvetia-baloise.com](mailto:media.relations@helvetia-baloise.com) AnalystsInvestor RelationsPhone: +41 (0)58 280 89 91investor.relations@helvetia-baloise.com
+
+ About Helvetia Asset Management Ltd Helvetia Asset Management Ltd (HAM) is responsible for managing the investment portfolios of the Helvetia Baloise Group and of institutional clients, in particular pension funds and collective foundations. With over CHF 100 billion in assets under management, the Helvetia Baloise Group’s Asset Management division is one of Switzerland’s largest insurance asset managers. It also ranks among the country’s top five real estate investment managers. It manages or advises approximately CHF 20 billion in real estate assets on behalf of clients.
+
+ The Helvetia Baloise Group’s Asset Management division offers a broad range of investment capabilities and solutions. These include multi asset strategies, real estate and private markets in particular. Private clients also benefit from our investment expertise as part of the Group-wide collaboration approach towards comprehensive pension planning.
+
+Data protection noticeWe process your contact details (provided by you or obtained from publicly available sources such as media directories) for the purpose of distributing our media releases and investor relations information. The legal basis for processing is our legitimate interest in providing relevant information to media representatives and analysts. You can unsubscribe from the newsletter at any time via the link at the end of this notice. Your details will then be removed from our mailing list. If you have any questions regarding data protection, please contact: datenschutz@helvetia-baloise.ch. Further information can be found in our Privacy Policy at www.helvetia-baloise.com/datenschutz.
+
+ DisclaimerThe information contained herein does not constitute an invitation or offer to buy or sell securities or related financial instruments. Before investing in any product, please read the current legal documentation relating to that product carefully and thoroughly. Some products mentioned on the Helvetia Asset Management Ltd website may not be approved for sale in all jurisdictions or to certain categories of investors and may not be offered, sold or supplied in the United States.
+
+ Helvetia Asset Management Ltd accepts no liability for any loss or damage, including loss of profit or other direct or consequential damages, arising from the use of or reliance on this information.
+
+ Past performance is not a reliable indicator of future results. The value of investments and any income derived from them may rise or fall and is not guaranteed. You may not recover the full amount invested. Exchange rate fluctuations may cause the value of the investment to rise or fall. Fluctuations in value may be particularly pronounced in funds with high volatility, and the value of an investment may fall suddenly and significantly. This information is not legally binding.
 
  
 
@@ -24,15 +42,45 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aevis-victoria-sa-swiss-medical-network-extends-its-chf-150-million-syndicated-credit-facility-7091054)
+[Original/Source Press Release](https://www.newmediawire.com/news/helvetia-asset-management-ltd-adopts-a-unified-market-presence-7091058)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/swiss-medical-network-extends-chf-150m-credit-facility-to-2028/8b9ca95bd32b685b6e8e106822aba5ee) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helvetia-baloise-renames-asset-manager-unifies-brand/cecf0947b7ebee1a5f3db2c7c33b6bd7) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/03/helvetia-asset-management-ltd-launches-unified-brand-after-baloise-renaming/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/helvetia-baloise-groups-asset-management-unit-rebrands-as-helvetia-asset-management-ltd)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/helvetia-asset-management-ltd-adopts-unified-market-presence-after-baloise-renaming)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/helvetia-asset-management-ltd-unveils-unified-brand-following-baloise-merger)
+
+Pickup - [https://burstable.news](https://burstable.news/news/helvetia-asset-management-ltd-launches-unified-brand-after-baloise-renaming)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/helvetia-asset-management-ltd-fuhrt-nach-umbenennung-von-baloise-ein-einheitliches-markenbild-ein)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/helvetia-asset-management-ltd-lanza-una-marca-unificada-tras-el-cambio-de-nombre-de-baloise)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/helvetia-asset-management-ltd-lance-une-marque-unifiee-apres-le-changement-de-nom-de-baloise)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/helvetia-asset-management-ltd-lanca-marca-unificada-apos-renomeacao-da-baloise)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/helvetia-asset-management-ltd-rebrands-to-unify-market-presence-creating-swiss-investment-powerhouse)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/helvetia-asset-management-ltd-unveils-unified-brand-following-baloise-merger)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/helvetia-asset-management-ltd-adopts-unified-market-presence-after-baloise-renaming)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/helvetia-asset-management-ltd-launches-unified-brand-following-baloise-integration)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/helvetia-asset-management-ltd-launches-unified-market-presence-after-baloise-renaming)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/helvetia-asset-management-ltd-launches-unified-brand-after-baloise-renaming)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/3/seekUMDr.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/3/keepPaxw.webp)
