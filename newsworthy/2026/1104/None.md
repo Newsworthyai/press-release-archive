@@ -1,90 +1,36 @@
-# Fredericksburg Banker: Big-Bank Deposits Fund New York, Not the Hill Country
+# Kitchen Remodeling in Delray Beach: KMR Enterprises on Cutting 4 to 8 Weeks Off the Permit
 
-The latest episode of The Building Texas Show, titled Why Your Money Might Be Leaving Texas (And Where It Goes), hosted by Justin McKenzie, lands October 21, 2026 with a pointed look at where Hill Country deposits actually end up. McKenzie sits down in Fredericksburg with John Wells, Market President for Texas Regional Bank, to unpack a timely question for Texas savers and small-business owners: when community money flows into national banks, does any of it come back home? The conversation also tracks Fredericksburg's rapid evolution into a national destination without losing its Texas identity.
+Kitchen remodeling in Delray Beach takes longer than most homeowners plan for, and the reason is usually the permit, not the cabinets. That is the main point KMR Enterprises, a Florida certified general contractor (CGC1520685) based in Delray Beach and in business since 1992, makes in its answers to the questions homeowners ask most before a kitchen remodel. The company's full planning guide is at https://www.kmr-gc.com/kitchen-remodeling-planning-guide-delray-beach/
 
- Listeners get a wide-angle view of the forces reshaping Fredericksburg and the surrounding Hill Country. Topic threads include:
+ What should a homeowner decide first on a kitchen remodel in Delray Beach? The layout, because two questions drive the price more than anything else: whether any walls are moving, and whether appliances are being relocated or added. Moving an appliance can mean new electrical and plumbing plus trenching and repairing the concrete slab, which are among the most expensive items in a kitchen. Once the layout is settled, cabinet style, countertops and appliances can be chosen and priced.
 
- * The arrival of the Waldorf Astoria and what it says about tourism-led growth beyond peaches, antiques, and German heritage.
-* Relationship banking versus rate shopping, and why the best operators keep an attorney, a CPA, and a banker on speed dial.
-* Fredericksburg ISD's incubator and CTE programs, the Chamber's role under Jim McCulla, and the fight against Hill Country brain drain.
+ "The more information we have the better, because with more precise information and details we can create a more accurate budget," said Kris Schlembach, owner of KMR Enterprises. "Major questions that would have the greatest effect on price are related mostly to: Are we moving any walls? Are we relocating or adding appliances that would require electrical and plumbing as well as concrete trenching and repair?"
 
- Wells, who started on the frontline at Chase before stops at the former Compass Bank and a five-year run building Texas Regional Bank's Fredericksburg market, draws a hard line between national and community institutions.
+ What do homeowners most often leave out of a Delray Beach kitchen budget? Time for the building permit. A permitted kitchen needs plans, licensed subcontractors and permit fees, and approval typically takes 6 to 8 weeks or longer. KMR recommends that homeowners consider a private provider, a licensed third party allowed under Florida law to handle plan review and inspections. For a typical kitchen it adds about $1,500 and can save 4 to 8 weeks on overall completion.
 
- Nothing against the big banks, the big national banks, but all that money, all the deposits that are going into those banks are going straight to New York. They are going to these giant loans in Chicago and New York and L.A., and they're not being reinvested here in the community. He contrasts that with community lenders like Texas Regional Bank and Security State Bank, which, he says, put earnings back to work locally.
+ "At KMR, we recommend paying a little extra to hire a private provider to handle the permit approvals and inspections," Schlembach said. "For a typical kitchen, this would add around ",500 but would save 4 to 8 weeks on the overall completion."
 
- The episode digs into how that reinvestment shows up on the ground. Wells credits Dan Kemp and David Pedragon of Security State Bank as servant leaders who helped fund the Fredericksburg High School incubator, and he points to Little League jerseys stamped with hometown bank logos as a visible test of who actually backs the community. He and McKenzie also discuss his wife's work as sales director at Insight Gallery, the influx of remote executives from Austin and San Francisco, and the housing-affordability gap that still constrains young families. Wells, incoming chair of the Fredericksburg Chamber of Commerce, previews student pitches heading to the Texas Venture Fest in Mason.
+ How much does a kitchen remodel cost in Delray Beach in 2026? It depends on the scope. KMR can do a small kitchen for as little as about $15,000 and has completed kitchens from roughly $20,000 to more than $300,000. Beyond layout and materials, cost goes up with harder access: upper floors in condo buildings, elevator scheduling and limited parking all add time and money. KMR prices each option separately, from a budget version up to the full wish list, so homeowners can decide which items are worth it to them.
 
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the founders, operators, bankers, educators, and civic leaders shaping the Texas economy from the Hill Country to the coast. Each weekly episode blends on-the-ground reporting with candid conversation about entrepreneurship, community building, and the people putting capital and ideas to work across the state. The new episode is available now on YouTube, Facebook, Instagram, LinkedIn, and all major podcast platforms. 
+ "We can help make suggestions to keep a project in your budget and provide multiple price options for everything from a budget friendly option up to including your wishlist," Schlembach said. "We will even break down the price of each option separately so the customer can decide which things are worth it to them."
+
+ Can impact windows be handled in the same kitchen project? Yes. KMR's window installers typically work under the company's main permit, so the windows are scheduled and inspected as part of the same job. Homeowners who prefer to hire a window company directly can do that, and KMR will recommend companies it trusts.
+
+ KMR Enterprises designs, permits and builds kitchens under one contract and holds a 4.9-star rating on Google from more than 75 homeowner reviews. It was named Best of Houzz for Service in 2019 and 2023. Its kitchen remodeling services are at https://www.kmr-gc.com/residential-construction-services/kitchen-remodeling/
+
+ About KMR Enterprises KMR Enterprises is a design-build general contractor in Delray Beach, Florida, serving Palm Beach County since 1992. One team designs, permits and builds kitchen and bathroom remodels, whole-home renovations, home additions, custom homes and commercial build-outs. Florida Certified General Contractor CGC1520685 and Certified Roofing Contractor CCC1331167. KMR Enterprises, 4634 Wildwood Dr, Delray Beach, FL 33445, (561) 288-5000, https://www.kmr-gc.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611043079/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
+[Original/Source Press Release](https://newsworthy.ai/news/202611043133/kitchen-remodeling-in-delray-beach-kmr-enterprises-on-cutting-4-to-8-weeks-off-the-permit)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/why-your-money-might-be-leaving-texas-new-podcast-exposes-deposit-drain/838d27e97c8b8207e7e8c80f4de1955a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kmr-permit-delays-top-kitchen-remodel-surprises/00beabcd897cf347d5f1f9d4c552a521) 
 
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/03/fredericksburg-banker-warns-big-bank-deposits-leave-texas-urges-local-reinvestment/)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://advos.io/en](https://advos.io/en/fredericksburg-banker-warns-local-deposits-flow-to-new-york-not-the-hill-country)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/fredericksburg-banker-local-deposits-fuel-hill-country-growth-not-big-city-loans)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/banquero-de-fredericksburg-los-depositos-locales-impulsan-el-crecimiento-de-hill-country-no-los-prestamos-de-las-grandes-ciudades)
-
-Pickup - [https://burstable.news](https://burstable.news/news/fredericksburg-banker-warns-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/banker-aus-fredericksburg-warnt-einlagen-bei-grossbanken-finanzieren-new-york-nicht-das-hill-country)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/banquero-de-fredericksburg-advierte-que-los-depositos-de-los-grandes-bancos-financian-nueva-york-no-el-hill-country)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/un-banquier-de-fredericksburg-previent-que-les-depots-des-grandes-banques-financent-new-york-pas-le-hill-country)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/banqueiro-de-fredericksburg-alerta-que-depositos-em-grandes-bancos-financiam-nova-york-nao-a-regiao-de-hill-country)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fredericksburg-banker-warns-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/fredericksburg-banker-warns-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/fredericksburg-banker-warns-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://fishervista.com/en](https://fishervista.com/en/fredericksburg-banker-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/news/fredericksburg-banker-warns-big-bank-deposits-fund-new-york-not-the-hill-country)
-
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/where-does-hill-country-money-go-new-episode-asks-if-local-deposits-stay-local)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/3/gleertzV.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/4/kitese8U.webp)
