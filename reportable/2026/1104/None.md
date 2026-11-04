@@ -1,37 +1,27 @@
-# Wellness Index Report Names Three "Builders of Healthspan" in October 2026 Issue: "Built to Last: The Engineering of Healthspan"
+# UGI System Upgrade Project Scheduled to Begin Next Week in Wilkes-Barre
 
-Valhalla, NY, November 4, 2026
+FOR IMMEDIATE RELEASE - NOVEMBER 4, 2026
 
-Today, Wellness Eternal unveils the October 2026 Wellness Index Report, 'Built to Last: The Engineering of Healthspan.' This month's issue looks at the growing shift from hoping for a longer, healthier life to engineering one. The report highlights three experts from The Wellness Index Report Podcast, each addressing a unique aspect of the aging process.
+UGI Utilities is set to begin a system upgrade project on Monday, November 9, 2026, in Wilkes-Barre. The natural gas main replacement is part of UGI’s commitment to provide safe and reliable service and is an opportunity for residents and businesses along the project route to convert to natural gas.
 
 To view the full announcement, including downloadable images, bios, and more, click here.
 
-Key Takeaways:* Wellness Eternal releases the October 2026 Wellness Index Report, which explores engineering healthspan, examines whether aging occurs in phases, and coincides with World Menopause Day.
-* The report features Dr. Steven A. Garan on brain-driven aging, John Whitman and Nexus Health on clinician-reviewed, privacy-focused precision health AI, and David Horinek on Celliant infrared textile technology.
-* It identifies three trends shaping healthspan: aging as a brain-governed program that speeds up in midlife and menopause, AI that connects genetics, labs, and history with explainable findings under clinician control, and wellness embedded in everyday products like sleepwear, bedding, and recovery apparel.
+[Click image above to view full announcement.](https://ugi.reportablenews.com/pr/ugi-system-upgrade-project-scheduled-to-begin-next-week-in-wilkes-barre)
 
-[Click image above to view full announcement.](https://newsworthy.reportablenews.com/pr/wellness-index-report-names-three-builders-of-healthspan-in-october-2026-issue-built-to-last-the-engineering-of-healthspan)
+UGI Utilities, Inc. is a natural gas and electric utility company that serves more than 760,000 customers. Additional information about UGI Utilities, Inc. is available at www.ugi.com.
 
-About the Wellness Index Report
+Contacts:John Mason(610) 334-7135jmason@ugi.com
 
-The Wellness Index Report is a monthly publication from Wellness Eternal that highlights the people, companies and ideas shaping biohacking, longevity and wellness. Each issue features guests from The Wellness Index Report Podcast, hosted by Lindsay O'Neill-O'Keefe. Learn more at https://www.wellnessindexreport.com.
-
-About Wellness Eternal
-
-Wellness Eternal LLC connects people with trusted companies and experts in biohacking, longevity and wellness through the Wellness Index, The Wellness Index Report and The Wellness Index Report Podcast.
-
-Contacts:Wellness Eternal — PR Team914-846-9444we@wellnesseternal.com
-
-Source: Newsworthy.ai
+Source: UGI Utilities
 
 Distributed by: Reportable, Inc. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.reportablenews.com/pr/wellness-index-report-names-three-builders-of-healthspan-in-october-2026-issue-built-to-last-the-engineering-of-healthspan)
+[Original/Source Press Release](https://ugi.reportablenews.com/pr/ugi-system-upgrade-project-scheduled-to-begin-next-week-in-wilkes-barre)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wellness-eternal-s-october-report-engineering-healthspan/94c4dd41f9dddce696557d3717d98d82) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ugi-to-start-natural-gas-main-upgrade-in-wilkes-barre/c55430fdfdac11fc3771a9b94e2bb854) 
 
  
 
@@ -39,4 +29,4 @@ Distributed by: Reportable, Inc.
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2611/4/islevj_m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/2611/4/cake1Jmu.webp)
