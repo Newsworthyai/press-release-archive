@@ -1,46 +1,93 @@
-# Angkor Resources Announces Closing of Financing $3,500,000
+# Fans Can Learn Lifesaving CPR Skills at National Women's Soccer League Championship 5K
 
-GRANDE PRAIRIE, ALBERTA - November 5, 2026 (NEWMEDIAWIRE) - Angkor Resources Corp. ("Angkor") is pleased to announce that it closed the previously announced non-brokered private placement of units (“Units”) with Sorbie Bornholm LP ("Sorbie") for gross proceeds of $3.5M. The Units consist of: (a) 14,000,000 common share (the "Common Share") at an issuance price of $0.25; and (b) 2,870,000 warrants (the "Warrants") entitling Sorbie to acquire additional Common Shares at a fixed exercise price of $0.32 with a maturity date of 3 years; and (c) 11,130,000 additional warrants (the “Additional Warrants”) entitling Sorbie to acquire additional Common Shares at an exercise price that is a 5% premium to the volume weighted average price of the Common Shares for the preceding 20 consecutive trading days ("VWAP"). The Additional Warrants will be issued in monthly tranches over a period of 24 months and have a maturity date of 3 years.
+DALLAS - November 5, 2026 (NEWMEDIAWIRE) - Nearly 9 in 10 people who experience cardiac arrest outside a hospital do not survive, according to the American Heart Association, yet immediate CPR can double or even triple a person's chance of survival. During National Women's Soccer League (NWSL) Championship Weekend, the American Heart Association, devoted to changing the future to a world of healthier lives for all, will help fans learn Hands-Only CPR at the inaugural NWSL Championship 5K presented by CVS Health, giving more people the skills and confidence to act in a cardiac emergency.
 
- The aggregate subscription proceeds for the Units have been deposited by Sorbie under an ISDA Credit Support Annex in the form of a portfolio of UK government bonds with a fair market value of not less than $3.5M. The parties have also entered into a Sharing Agreement (the “Sharing Agreement”) and a Securities Escrow Agreement (the “Escrow Agreement”) pursuant to which the Common Shares have been deposited in escrow with Olympia Trust Company. The terms of the Sharing Agreement and Escrow Agreement provide that each of the following will occur in 24 equal monthly tranches starting 30 days from the closing date:
+ ![](https://iprsoftwaremedia.com/67/files/20235/AHA%20Nation%20of%20Lifesavers%20logo.jpg)
 
- 1. The subscription proceeds will be released to Angkor, subject to the terms of the Sharing Agreement (see below);
-2. The Common Shares will be released to Sorbie; and
-3. The Additional Warrants will be issued to Sorbie
+ The NWSL Championship 5K will take place Nov. 21 at The Wharf in Washington, D.C., bringing together runners, soccer fans and supporters from across the country as part of the league’s Championship Weekend festivities. The American Heart Association will provide Hands-Only CPR education designed to help more people recognize the signs of cardiac arrest and understand how quick action can help save a life.
 
- The Sharing Agreement also provides that Angkor’s economic interest at the time of each monthly settlement will be measured against a benchmark price of $0.3144 (the "Benchmark Price"). If at the time of settlement, the VWAP is less than the Benchmark Price, Angkor will receive less than 100% of the monthly release amount on a pro-rata basis and if the VWAP is greater than the Benchmark Price, then Angkor shall receive more than 100% of the monthly release amount, on a pro-rata basis. There is no upper limit on the additional proceeds that Angkor is entitled to receive at the time of each monthly settlement, but the maximum number of Common Shares that Sorbie is entitled to receive at the time of each monthly settlement is fixed.
+ The CPR awareness activation at the 5K builds on the NWSL's growing commitment to heart health through its formal collaboration with the American Heart Association. Together, the organizations have provided CPR and automated external defibrillator (AED) education to professional players, coaches and staff across all 16 clubs, making the NWSL the first American professional sports league to offer CPR training leaguewide.
 
- Angkor has paid Sorbie a corporate finance fee of $210,000 in connection with the private placement in the form of the following securities: (a) 840,000 Common Shares at a fixed issuance price of $0.25, which shares will be deposited into escrow and shall be subject to the terms of the Escrow Agreement; and (b) 840,000 warrants exercisable at $0.32 and an expiry date of 3 years. All Warrants and Additional Warrants include an equity blocker prohibiting exercise if such exercise will result in Sorbie's total ownership of the Common Shares to be greater than 9.99% of the issued and outstanding Common Shares.
+ Led by Angel City FC defender and cardiac arrest survivor Savy King, player ambassadors across the league encourage fans to learn Hands-Only CPR, understand the importance of AEDs and take charge of their heart health.
 
- Angkor also paid a finder’s fee to an arm’s length party in connection with the private placement consisting of: (a) a cash fee of $175,000 payable in monthly tranches over a period of 24 months; and (b) an issuance of 700,000 finder warrants exercisable at $0.32 which will vest in equal monthly tranches over a period of 24 months and will have an expiry date of 3 years.
+ "Most people who experience cardiac arrest outside a hospital depend on someone nearby to take action before medical help arrives," said Nancy Brown, chief executive officer of the American Heart Association. "NWSL Championship Weekend gives the American Heart Association an opportunity to help more people learn Hands-Only CPR and gain the confidence to act when every second counts."
 
- About Angkor Resources Corp.
+ The American Heart Association’s CPR experience is a component part of the Association’s comprehensive Nation of Lifesavers™ movement, whose overall aim is to double the survival rates of cardiac arrest by the year 2030. Through Hands-Only CPR education, the movement helps drive awareness while prompting more people to gain the skills and confidence to take action during a cardiac emergency.
 
- Angkor Resources Corp. is a Canadian public company engaged in the exploration and development of mineral and hydrocarbon opportunities in Cambodia and other strategic jurisdictions.
+ The American Heart Association is the worldwide leader in resuscitation science, education and training, and publishes the official scientific guidelines for CPR. Hands-Only CPR, also known as compression-only CPR, can be effective in the first few minutes after a teen or adult experiences cardiac arrest and is a skill everyone everywhere can learn. It is as simple as calling 911 and pushing hard and fast in the center of the chest.
 
- Forward-Looking Information
+ The American Heart Association has been identified by the Annenberg Public Policy Center as the most trusted public health information source after an individual’s personal health care provider - more than 8 in 10 (82%) U.S. adults say they are confident in the American Heart Association to provide trustworthy information related to public health.
 
- This news release contains forward-looking information within the meaning of applicable Canadian securities legislation. Forward-looking statements include, but are not limited to, statements regarding the proposed private placement, the execution of definitive agreements, receipt of regulatory approvals, completion of the proposed transaction, the anticipated sharing agreement, the expected use of proceeds, and future business objectives. Forward-looking statements are based on management's current expectations and assumptions and are subject to numerous risks and uncertainties, including the ability to negotiate definitive agreements, obtain TSXV acceptance, satisfy closing conditions, market conditions, financing risks, and other risks disclosed in the Company's public filings. Actual results may differ materially from those expressed or implied by such forward-looking statements. Readers are cautioned not to place undue reliance on forward-looking information. The Company undertakes no obligation to update any forward-looking statements except as required by applicable securities laws.
+ At the NWSL Championship 5K, fans can visit the American Heart Association CPR experience to practice Hands-Only CPR, learn how to recognize cardiac arrest and become part of the Nation of Lifesavers movement. To learn more, visit www.heart.org/nation.
 
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this news release.
+ Additional Resources:
 
- CONTACT: Delayne Weeks - CEOEmail:- info@angkorresources.comWebsite:angkorresources.comTelephone: +1 (780) 831-8722
+ * Bystander CPR | Bystander CPR Infographic (PDF)
+* Hands-Only CPR Resources
+* Hands-Only CPR vs CPR with Breaths
+* Cardiac Arrest vs. Heart Attack
+* Reducing Disparities for Out-of-Hospital Cardiac Arrest – Community Toolkit: English and Spanish versions available
+* Take 90 seconds to learn how to save a life at www.heart.org/HandsOnlyCPR.
 
- Please follow @AngkorResources on LinkedIn, Facebook, Twitter, Instagram and YouTube.
+ About the American Heart Association
+
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
+
+ For Media Inquiries:
+
+ American Heart Association: Hannah Blackwell, Hannah.Blackwell@heart.org
+
+ For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/angkor-resources-announces-closing-of-financing-3-500-000-7091097)
+[Original/Source Press Release](https://www.newmediawire.com/news/fans-can-learn-lifesaving-cpr-skills-at-national-women-s-soccer-league-championship-5k-7091100)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/angkor-resources-closes-3-5m-private-placement-with-sorbie/c2148e4d5f765be0b0d7ed48736425e1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-and-nwsl-team-up-to-teach-cpr-at-championship-5k/8e996334a8bcd7774964fdae9a002684) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/05/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival/)
+
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/nwsl-and-american-heart-association-bring-hands-only-cpr-training-to-inaugural-championship-5k)
+
+Pickup - [https://advos.io/en](https://advos.io/en/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival-rates)
+
+Pickup - [https://news.arlingtoncountystar.com/northern-va-news](https://news.arlingtoncountystar.com/northern-va-news/nwsl-championship-5k-to-offer-hands-only-cpr-training-at-the-wharf)
+
+Pickup - [https://news.baltimorenewsdaily.com/curated](https://news.baltimorenewsdaily.com/curated/nwsl-championship-5k-to-offer-hands-only-cpr-training-expanding-leagues-life-saving-legacy)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-heart-association-brings-hands-only-cpr-training-to-nwsl-championship-weekend)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-american-heart-association-lleva-la-capacitacion-en-rcp-solo-con-las-manos-al-fin-de-semana-del-campeonato-de-la-nwsl)
+
+Pickup - [https://burstable.news](https://burstable.news/news/american-heart-association-brings-hands-only-cpr-training-to-nwsl-championship-5k)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/american-heart-association-bringt-hands-only-cpr-schulung-zum-nwsl-championship-5k)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-american-heart-association-lleva-la-capacitacion-en-rcp-solo-con-las-manos-al-5k-del-campeonato-de-la-nwsl)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/lamerican-heart-association-propose-une-formation-a-la-rcp-par-compressions-thoraciques-lors-du-5-km-du-championnat-nwsl)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/american-heart-association-leva-treinamento-de-rcp-somente-com-as-maos-ao-5k-do-campeonato-da-nwsl)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival-rates)
+
+Pickup - [https://news.districtofcolumbia.com/curated](https://news.districtofcolumbia.com/curated/nwsl-championship-5k-to-offer-hands-only-cpr-training-advancing-goal-to-double-cardiac-arrest-survival-by-2030)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/nwsl-championship-5k-to-offer-hands-only-cpr-training-aiming-to-boost-cardiac-arrest-survival-rates)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/5/boldGilp.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/5/poemPTQe.webp)

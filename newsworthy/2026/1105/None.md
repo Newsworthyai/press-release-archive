@@ -1,56 +1,76 @@
-# AgeReverse Launches New Online Store to Expand U.S. Access
+# PRSA Colorado Honors State’s Top Communications Work with 2026 Gold Pick Awards
 
-AgeReverse, a Canadian longevity company focused on healthy aging and cellular vitality, today announced the launch of AgeReverseLongevity.com, a new branded online store designed to provide U.S. consumers with direct access to its growing range of science-driven healthy aging products.
+From advancing healthcare and education to strengthening communities and helping businesses connect with consumers, Colorado’s public relations professionals are making an impact. The Colorado Chapter of the Public Relations Society of America (PRSA Colorado) recognized that work through its 2026 Gold Pick Awards, honoring outstanding communications campaigns, agencies and professionals across the state.
 
- The launch marks another step in AgeReverse's U.S. expansion strategy, complementing the company's recent retail availability through Amazon and One Lavi. Unlike third-party retail channels, the new online store brings AgeReverse products, educational information and the company's broader approach to longevity together in one dedicated destination.
+ Established in 1966, the Gold Pick Awards recognize excellence in strategic planning, creativity, execution and measurable results. This year’s winners represent corporations, public relations agencies, universities, healthcare organizations, nonprofits and government agencies.
 
- "Launching our own online store is an important milestone because it gives us a direct connection with consumers who want to learn more about healthy aging and the science behind our products," said Kubi Turkmen, Founder and CEO of AgeReverse. "We want to make it easier for people to explore our approach, understand the products we are developing and make informed decisions about their wellness routines."
+ Top Awards and Notable Winners The Grand Gold Pick Award, recognizing exceptional achievement among the year’s entries, went to Genus for PRRS-Resistant Pig Website: PIC Leverages Digital Platform to Drive Awareness. The project also earned a Gold Pick Award in the Digital Platform category.
 
- More Than a Shopping Destination The new website introduces consumers to AgeReverse's science-first philosophy, which centers on the 12 Hallmarks of Aging, a scientific framework describing interconnected biological processes associated with aging.
+ SchroderHaus Marketing Communications received the Gold Pick Award for Best Agency - Boutique/Small, recognizing the agency’s excellence. The agency also earned awards for influencer marketing and social media campaigns.
 
- The store currently features three purchasing options:
+ Other organizations recognized for outstanding communications work included:
 
- * RESURGE: The company's flagship 90-capsule longevity formulation, designed around the 12 Hallmarks of Aging and combining multiple ingredients into a simplified three-capsule daily regimen.
-* BioAge Test: A biological age testing option intended to help consumers explore how biological age differs from chronological age and gain additional insight into healthy aging.
-* RESURGE and BioAge Test Six-Month Package: A combined offering that includes six bottles of RESURGE and two BioAge Tests, bringing daily nutritional wellness and biological age testing together in one package.
+ * Children’s Hospital Colorado, for media relations surrounding the region’s first pediatric heart and liver dual-organ transplant.
+* University of Colorado, for communications highlighting scientific research and university initiatives.
+* Colorado State University, for storytelling connecting Master Gardeners and students who are blind.
+* Denver Public Schools Foundation, for its Achieve Gala celebrating student leadership and achievement.
+* CIG Public Relations, for communications supporting the Colfax Bus Rapid Transit project.
+* Linhart Public Relations, for campaigns supporting consumer education, business growth and community engagement.
+* SideCar Public Relations, for campaigns highlighting Denver development, housing and community revitalization.
 
- In addition to product information, the website provides educational resources explaining the 12 Hallmarks of Aging, ingredients used in RESURGE and the company's broader philosophy toward healthy aging.
+ Honoring Colorado’s Public Relations Leaders PRSA Colorado also recognized individuals and teams for their professional achievements and contributions to the industry. Special award honorees included:
 
- Building a Comprehensive Approach to Healthy Aging AgeReverse developed RESURGE as the internal wellness component of a broader product strategy that addresses both internal health and external skin aging.
+ * Wendy Manitta Holmes, APR - Swede Johnson Lifetime Achievement Award
+* Tim Carroll, APR - Sharon Linhart Public Relations Person of the Year
+* Jaclyn Allen - Media Professional of the Year
+* Dani Sturges - Joe Fuentes Rookie of the Year
+* Danielle Moore - Jane Dvorak Mentor of the Year
+* Quinn Kelsey - Ayers Chapter Service Award
+* CIG Public Relations - PR Team of the Year
 
- The formulation includes ingredients such as NMN, Resveratrol, Quercetin, Fisetin, CoQ10, Astragalus Extract, Hyaluronic Acid, Aronia Extract and Noni Berry. Manufactured in GMP-certified facilities in Ontario, Canada, RESURGE is registered as a Natural Health Product with Health Canada under NPN 80130202.
+ Complete List of Winners
 
- Beyond RESURGE and biological age testing, AgeReverse is developing additional products intended to complement its approach to healthy aging, including daily skincare products, professional mesotherapy formulations and non-invasive aesthetic technologies.
+ The complete list of 2026 Gold Pick Award winners and special award honorees is available on the PRSA Colorado website: https://prsacolorado.org/PRSA_Colorado_Awards
 
- "Our vision is to build a complete range of healthy aging solutions that work together," Turkmen added. "The new online store gives us a place to bring that vision to life, beginning with RESURGE and biological age testing while introducing consumers to the broader direction of the AgeReverse brand."
+ The 2026 Gold Pick Awards were presented and produced by SideCar Public Relations, with additional support from PRSA Colorado’s annual platinum sponsor, Linhart Public Relations.
 
- Continuing U.S. Expansion The launch of AgeReverseLongevity.com follows several recent milestones for the company, including the introduction of RESURGE on Amazon, its expansion onto OneLavi.com and participation in the ECRM Vitamin, Weight Management & Sports Nutrition Session in Palm Beach Gardens, Florida.
+ About PRSA Colorado Founded in 1957, PRSA Colorado advances the public relations profession through professional development, networking, ethical practices and leadership opportunities. The chapter serves communications professionals across Colorado’s corporate, agency, nonprofit, government and education sectors. Learn more at https://prsacolorado.org
 
- Together, these developments reflect AgeReverse's strategy to build consumer awareness, expand retail access and establish a long-term presence in the United States.
-
- RESURGE is now available on OneLavi.com and Amazon.
-
- Visit the AgeReverse Website and follow the company on Instagram and LinkedIn.
-
- About [AgeReverse](https://agereverselongevity.com/) AgeReverse is a Canada-based longevity wellness company focused on developing science-driven products designed to support healthy aging and cellular vitality. Founded by Kubi Turkmen, who has more than 30 years of experience in anti-aging innovation, the company’s approach combines longevity research, telomere science, and wellness innovation to create comprehensive healthy aging solutions. The company’s expanding AgeReverse platform includes longevity supplements and other wellness technologies designed to support multiple biological pathways associated with aging and long-term vitality. Products are manufactured in GMP-certified facilities in Ontario, Canada. Learn more at the company’s website.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ Media Contact:Nate HaasPresidentPRSA ColoradoEmail Contact970-673-7494 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611053141/agereverse-launches-new-online-store-to-expand-us-access)
+[Original/Source Press Release](https://newsworthy.ai/news/202611053139/prsa-colorado-honors-states-top-communications-work-with-2026-gold-pick-awards)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/agereverse-launches-u-s-online-store-for-longevity-products/8dc400d94ab7dde3b059d8e562151b51) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prsa-colorado-unveils-2026-gold-pick-award-winners/9150dea5ab1adb095460f91a586a6639) 
 
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/agereverse-launches-new-online-store-to-expand-us-access)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/prsa-colorado-honors-states-top-communications-work-with-2026-gold-pick-awards)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/agereverse-launches-new-online-store-to-expand-us-access)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/prsa-colorado-honors-states-top-communications-work-with-2026-gold-pick-awards)
+
+Pickup - [https://advos.io/en](https://advos.io/en/prsa-colorados-2026-gold-pick-awards-recognize-top-communications-work)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/prsa-colorados-2026-gold-pick-awards-recognize-states-top-communications-work)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/prsa-colorados-2026-gold-pick-awards-highlight-excellence-in-public-relations)
+
+Pickup - [https://burstable.news](https://burstable.news/news/prsa-colorado-announces-2026-gold-pick-award-winners-honoring-top-communications-work)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/prsa-colorado-gibt-die-gewinner-der-gold-pick-awards-2026-bekannt-und-ehrt-herausragende-kommunikationsarbeit)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/prsa-colorado-anuncia-los-ganadores-de-los-premios-gold-pick-2026-honrando-el-mejor-trabajo-en-comunicaciones)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/prsa-colorado-annonce-les-laureats-des-gold-pick-awards-2026-recompensant-les-meilleures-realisations-en-communication)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/prsa-colorado-anuncia-vencedores-do-premio-gold-pick-2026-homenageando-os-melhores-trabalhos-de-comunicacao)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/prsa-colorado-gold-pick-awards-highlight-strategic-communications-impact-across-the-state)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/5/voltURgP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/5/file5fdP.webp)
