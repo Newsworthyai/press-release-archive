@@ -1,78 +1,62 @@
-# The Steam Team Offers 24/7 Restoration From Two Austin Locations
+# Transferable Value Index: 1 in 6 Durable Businesses Still Runs Through Its Owner
 
-The Steam Team Covers Water Damage, Carpet, and Air Duct Cleaning Across Central Texas
+Built to Last and Still Run by the Owner: What 121 Businesses Show About People Decisions
 
- Austin, United States - November 6, 2026 / Rug Cleaning and Water Damage Professionals /
+ Omaha, United States - November 6, 2026 / The McFarland Group /
 
- The Steam Team Marks 40 Years of Cleaning and Restoration Service Across Central TexasThe Steam Team, operating from two Austin locations, is marking more than four decades of continuous service to Central Texas residential and commercial property owners. The milestone reflects the company's sustained presence in the region since 1983 and underscores a full-service operation built around 24/7 emergency response, certified deep-cleaning, and restoration work covering water damage, mold, and structural recovery.
+ The McFarland Group has published the second issue of the Transferable Value Index, its quarterly measure of how closely held businesses hold up without their owners. The issue, "A Good Business That Still Runs Through You," reports on 121 assessments submitted from May through September 2026 and opens with a letter from Founder Byron McFarland.
 
-Four Decades of Emergency Response and RestorationA central component of The Steam Team's offerings is its water damage restoration Austin service, available around the clock every day of the year. The company responds to flooding, burst pipes, and storm-related water intrusion at both residential and commercial properties, coordinating extraction, drying, and structural restoration through a single-provider process. Mold remediation is also part of the restoration side of the business, addressing a condition that frequently develops when moisture is not fully controlled following a water event.
+The Index scores each business on two dimensions. Business Durability covers earnings consistency, customer diversification, financial visibility, systems, workforce and resilience to disruption. Owner Independence covers whether new business, client relationships, operations, direction, financial decisions and people decisions depend on one person. Across the cohort the two dimensions correlate at 0.57, sharing about a third of their variation. A business can grow a great deal sturdier while its owner stays just as central to it.
 
-The 24/7 availability structure means emergency calls are handled outside standard business hours - a practical consideration for property owners facing sudden flooding or pipe failures at any time of day or night. Operating from two Austin locations allows the company to cover a broad service area across Central Texas and reach calls with reduced travel time.
+One in six businesses, 19 of the 121, falls in the category the Index calls Owner-Dependent Success. These companies score close to the top bracket on durability, 20.5 against 22.0 out of 30, and trail it by eight points on independence, 14.6 against 22.8.
 
-Certified Carpet and Fine Rug Cleaning ServicesAlongside restoration work, The Steam Team provides carpet cleaning Austin TX property owners access through certified technicians. The cleaning side of the business extends to in-plant fine rug cleaning, which involves transporting delicate or high-value rugs to a controlled facility rather than cleaning them on-site. This method accommodates materials and construction types that require more careful handling than standard wall-to-wall carpet installations.
+The sharpest divide is over people decisions. Six in ten owners say their team closes most new business and holds the customer relationships. Fewer than half say their managers handle hiring, pay and terminations for their own teams, and 22 percent say they are personally involved in most people decisions, down to front-line roles. No other question in the Index draws that many owners to its most hands-on answer.
 
-Tile and grout cleaning rounds out the hard-surface offering, addressing a category that typically requires specialized equipment given the porous nature of grout lines. The combination of carpet, rug, and hard-surface cleaning allows the company to service multiple floor types within a single property visit.
+The answer to that one question tracks closely with the rest of the score. Where managers make their own teams' people decisions, businesses average 74 out of 100 on the other eleven questions, and none falls in the Owner-Run category. Where the owner stays personally involved, the average is 56 and nearly half are Owner-Run. Among the Owner-Dependent Success businesses, 68 percent of owners remain personally involved in people decisions, compared with 10 percent in the top bracket.
 
-Commercial Air Duct Cleaning and Indoor Air QualityThe company also provides air duct cleaning Austin businesses and homeowners use to address particulate accumulation in HVAC systems. Over time, ductwork collects dust, debris, and allergens that circulate through interior spaces with each heating and cooling cycle. Commercial properties, where HVAC systems typically operate at greater capacity and serve larger occupied areas, represent a significant portion of the air duct cleaning work The Steam Team performs.
+"Building a durable business rewards involvement: your judgment, your relationships, your standards, stamped on everything," said Byron McFarland, Founder of The McFarland Group. "Building an independent one requires the opposite: removing your judgment, your relationships, your standards from the machinery, one piece at a time, on purpose. Nobody does the second by accident. You have to mean it."
 
-The commercial scope of the business spans cleaning and restoration categories, with services structured to meet the scale and compliance expectations that commercial property managers and business operators commonly require.
+The finding carries into a sale. In due diligence, a buyer asks who handles terminations, because the answer shows where responsibility sits. When the answer is still the owner, the leadership team has never made the hardest call in the building. The issue's recommendation for most owners is to start with people decisions and hand them to the managers who will own them after the ownership transition.
 
-About The Steam TeamThe Steam Team is a full-service cleaning and restoration company based in Austin, Texas, with two locations serving the Central Texas region. Since 1983, the company has provided water damage restoration Austin-wide on a 24/7 emergency basis, along with certified carpet cleaning Austin TX residents and businesses rely on. Services also include mold remediation, in-plant fine rug cleaning, tile and grout cleaning, and air duct cleaning Austin commercial and residential properties use to maintain indoor air quality.
+As in the inaugural issue published in August, the question of who decides what the business does next scores lowest of the twelve on average, at 2.78 on a five-point scale.
 
-Learn more at Rug Cleaning and Water Damage Professionals
+The full issue, including McFarland's letter, a map of all 121 businesses and the complete question-by-question breakdown, is free to download without a form at https://www.themcfarlandgroup.com/blog/a-good-business-that-still-runs-through-you. The Transferable Value Index assessment is free at transferablevalueindex.com. It takes about four minutes and returns a score on both dimensions and a placement in one of four categories.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/DE596Ju61oPQEuz0ib6qRwhZ7n4z1LCFvyVZAlnL.jpg) [](https://www.thesteamteam.com) Contact Information:
+Methodology
 
- Rug Cleaning and Water Damage Professionals
+The findings reflect 121 assessments submitted to the Transferable Value Index from May 2 through September 29, 2026, reached through The McFarland Group's network, partner coaches and industry events. Test submissions were removed and repeat takers counted once. Each of the twelve questions is scored 1 to 5. Each dimension is reported out of 30 and the combined Index out of 100. Owners who take the Index are already thinking about an ownership transition, and the shares should be read in that light.
+
+About The McFarland Group
+
+The McFarland Group is an advisory firm based in Omaha, Nebraska, founded by Byron McFarland. The firm has guided over $3 billion in business value through more than 200 ownership transitions over two decades. It works with owners of closely held businesses on M&A advisory, selling a business to management, and performance equity compensation for key leaders. The firm's guiding idea is simple: Go Boldly. Learn more at themcfarlandgroup.com.
+
+About the Transferable Value Index
+
+The Transferable Value Index is The McFarland Group's quarterly measure of how closely held businesses hold up without their owners. Twelve questions score a company on Business Durability and Owner Independence and place it in one of four categories. The assessment is free and takes about four minutes. Learn more at transferablevalueindex.com.
+
+Media contact: Alex McFarland · admin@themcfarlandgroup.com · (402) 891-2300 · 4601 Catalyst Court, Suite 3055, Omaha, NE 68106
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rx4TBbjiHBtyb9yqV8gvV3M8lmtNHxoyUTR9DJUv.png) [](https://www.themcfarlandgroup.com) Contact Information:
+
+ The McFarland Group
 
  
 
-9901 Burnet Rd.  Austin, TX 78758United States
+4601 Catalyst Court, Suite 3055  Omaha, NE 68106United States
 
- The Steam Team +1-512-451-8326 https://www.thesteamteam.com 
+ Alex McFarland +1-402-891-2300 https://www.themcfarlandgroup.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/the-steam-team-offers-247-restoration-from-two-austin-locations-454480)
+[Original/Source Press Release](https://mediawiretoday.com/transferable-value-index-1-in-6-durable-businesses-still-runs-through-its-owner-454687)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-steam-team-marks-40-years-of-cleaning-and-restoration-in-central-texas/b8db430276919ea9ae4c9e6971f95482) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-index-reveals-owner-dependence-hinges-on-people-decisions/98507677dc65fadcedd6e4cab74ce881) 
 
-
-Pickup - [https://x.com](https://twitter.com/i/status/2118511426054549660)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/05/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-across-central-texas/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/the-steam-team-marks-40-years-of-round-the-clock-restoration-across-central-texas)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-services-in-austin)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-across-central-texas)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/the-steam-team-marks-40-years-of-cleaning-and-restoration-service-across-central-texas)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/the-steam-team-celebra-40-anos-de-servicio-de-limpieza-y-restauracion-en-todo-el-centro-de-texas)
-
-Pickup - [https://burstable.news](https://burstable.news/news/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-across-central-texas)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/das-steam-team-feiert-40-jahre-247-restaurierung-und-reinigung-in-zentraltexas)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/the-steam-team-celebra-40-anos-de-restauracion-y-limpieza-247-en-todo-el-centro-de-texas)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/the-steam-team-celebre-40-ans-de-restauration-et-de-nettoyage-24h24-et-7j7-dans-le-centre-du-texas)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/a-steam-team-celebra-40-anos-de-restauracao-e-limpeza-24-horas-por-dia-em-toda-a-regiao-central-do-texas)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-across-central-texas)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/the-steam-team-marks-40-years-of-247-restoration-and-cleaning-across-central-texas)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/the-steam-team-marks-40-years-of-cleaning-and-restoration-service-across-central-texas)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/chipzzf8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/linepstR.webp)
