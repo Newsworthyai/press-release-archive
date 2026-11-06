@@ -1,62 +1,64 @@
-# Transferable Value Index: 1 in 6 Durable Businesses Still Runs Through Its Owner
+# Invisalign for Teens Explained by Huntersville Orthodontist
 
-Built to Last and Still Run by the Owner: What 121 Businesses Show About People Decisions
+NC Tooth Docs Orthodontist Dr. Jonathan Wells Explains Invisalign for Teens in Huntersville NC
 
- Omaha, United States - November 6, 2026 / The McFarland Group /
+ Harrisburg, United States - November 6, 2026 / NC Tooth Docs - Harrisburg Kids Dentistry /
 
- The McFarland Group has published the second issue of the Transferable Value Index, its quarterly measure of how closely held businesses hold up without their owners. The issue, "A Good Business That Still Runs Through You," reports on 121 assessments submitted from May through September 2026 and opens with a letter from Founder Byron McFarland.
+ NC Tooth Docs orthodontist Dr. Jonathan Wells has released a detailed explanation of how Invisalign works for teenage patients, addressing the practical questions that parents in Huntersville, Cornelius, and Davidson most commonly raise before starting treatment. The guidance covers clear aligner mechanics, daily wear requirements, eating habits, sports participation, school schedules, check-in appointments, and what happens after treatment ends.
 
-The Index scores each business on two dimensions. Business Durability covers earnings consistency, customer diversification, financial visibility, systems, workforce and resilience to disruption. Owner Independence covers whether new business, client relationships, operations, direction, financial decisions and people decisions depend on one person. Across the cohort the two dimensions correlate at 0.57, sharing about a third of their variation. A business can grow a great deal sturdier while its owner stays just as central to it.
+How Clear Aligners Address Common Teen Orthodontic Issues
 
-One in six businesses, 19 of the 121, falls in the category the Index calls Owner-Dependent Success. These companies score close to the top bracket on durability, 20.5 against 22.0 out of 30, and trail it by eight points on independence, 14.6 against 22.8.
+Invisalign uses a series of custom-fabricated, removable clear plastic trays to shift teeth gradually into alignment. Dr. Jonathan Wells, who sees patients at NC Tooth Docs offices in Huntersville, Harrisburg, and Mooresville, NC, explains that the system is designed to treat the same range of issues that traditional braces address - including crowding, spacing between teeth, and various bite problems such as overbites, underbites, and crossbites.
 
-The sharpest divide is over people decisions. Six in ten owners say their team closes most new business and holds the customer relationships. Fewer than half say their managers handle hiring, pay and terminations for their own teams, and 22 percent say they are personally involved in most people decisions, down to front-line roles. No other question in the Index draws that many owners to its most hands-on answer.
+Each set of aligners is worn for a prescribed period before the patient moves to the next set in the series. Consistent wear, typically around 20 to 22 hours per day, is central to keeping treatment on schedule. Unlike braces, the trays are removed for eating and drinking anything other than water, which eliminates the dietary restrictions that accompany fixed metal brackets.
 
-The answer to that one question tracks closely with the rest of the score. Where managers make their own teams' people decisions, businesses average 74 out of 100 on the other eleven questions, and none falls in the Owner-Run category. Where the owner stays personally involved, the average is 56 and nearly half are Owner-Run. Among the Owner-Dependent Success businesses, 68 percent of owners remain personally involved in people decisions, compared with 10 percent in the top bracket.
+One feature specific to Invisalign for teens is the inclusion of compliance indicators - small blue dots built into the aligner material that fade with wear. These indicators give both parents and the orthodontic team a way to gauge whether a teen is actually wearing the trays for the required number of hours each day, providing an objective measure beyond self-reporting.
 
-"Building a durable business rewards involvement: your judgment, your relationships, your standards, stamped on everything," said Byron McFarland, Founder of The McFarland Group. "Building an independent one requires the opposite: removing your judgment, your relationships, your standards from the machinery, one piece at a time, on purpose. Nobody does the second by accident. You have to mean it."
+Practical Considerations for School Days and Sports
 
-The finding carries into a sale. In due diligence, a buyer asks who handles terminations, because the answer shows where responsibility sits. When the answer is still the owner, the leadership team has never made the hardest call in the building. The issue's recommendation for most owners is to start with people decisions and hand them to the managers who will own them after the ownership transition.
+For families considering invisalign for teens in huntersville nc, Dr. Wells addresses how the aligners fit into a typical school day. Because the trays are clear and closely fitted to the teeth, most teens report that classmates and teachers do not notice them during the school day. The aligners are removed at lunch, then reinserted, which requires the student to carry a case and maintain basic hygiene between meals.
 
-As in the inaugural issue published in August, the question of who decides what the business does next scores lowest of the twelve on average, at 2.78 on a five-point scale.
+Sports participation is another area where clear aligners differ meaningfully from braces. Teen athletes can remove the aligners and wear a standard mouthguard during contact sports without the brackets and wires that complicate mouthguard use with traditional braces. Dr. Wells recommends reinserting the aligners as soon as the activity ends to maintain the daily wear total.
 
-The full issue, including McFarland's letter, a map of all 121 businesses and the complete question-by-question breakdown, is free to download without a form at https://www.themcfarlandgroup.com/blog/a-good-business-that-still-runs-through-you. The Transferable Value Index assessment is free at transferablevalueindex.com. It takes about four minutes and returns a score on both dimensions and a placement in one of four categories.
+Check-In Appointments and the Role of Retainers
 
-Methodology
+Throughout Invisalign treatment, patients return to NC Tooth Docs for periodic check-in appointments. These visits allow Dr. Wells and his team to monitor tooth movement, assess compliance using the indicator dots, and distribute the next sets of aligners. The intervals between appointments can be spaced out further than those required by traditional braces in some cases, which can reduce disruptions to school and work schedules.
 
-The findings reflect 121 assessments submitted to the Transferable Value Index from May 2 through September 29, 2026, reached through The McFarland Group's network, partner coaches and industry events. Test submissions were removed and repeat takers counted once. Each of the twelve questions is scored 1 to 5. Each dimension is reported out of 30 and the combined Index out of 100. Owners who take the Index are already thinking about an ownership transition, and the shares should be read in that light.
+When the active aligner series is complete, retainer wear becomes the next phase. Dr. Wells emphasizes that retainers are not optional - teeth continue to have a natural tendency to shift after orthodontic movement, and consistent retainer use is what maintains the corrected position over time. Teens transitioning out of active treatment receive guidance on retainer type, wear schedule, and care.
 
-About The McFarland Group
+About NC Tooth Docs
 
-The McFarland Group is an advisory firm based in Omaha, Nebraska, founded by Byron McFarland. The firm has guided over $3 billion in business value through more than 200 ownership transitions over two decades. It works with owners of closely held businesses on M&A advisory, selling a business to management, and performance equity compensation for key leaders. The firm's guiding idea is simple: Go Boldly. Learn more at themcfarlandgroup.com.
+NC Tooth Docs is an orthodontics and pediatric dentistry practice with offices in Huntersville, Harrisburg, and Mooresville, NC. The practice provides orthodontic care for children and teens, including invisalign huntersville nc and traditional braces, alongside pediatric dental services. Families seeking an orthodontist in huntersville nc can reach NC Tooth Docs by calling (704) 456-9166. Dr. Jonathan Wells leads orthodontic treatment across the practice locations and is known to patients as Dr. J.
 
-About the Transferable Value Index
+Learn more at NC Tooth Docs
 
-The Transferable Value Index is The McFarland Group's quarterly measure of how closely held businesses hold up without their owners. Twelve questions score a company on Business Durability and Owner Independence and place it in one of four categories. The assessment is free and takes about four minutes. Learn more at transferablevalueindex.com.
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/435YjTB3HOcE6BaTkHd0Wah3GkyuhdwZKBO20Ism.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/STgsC2e6i4DG1tw6s7R1ku5ul4Nt99nb2eeJVCLS.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/PkSrbayfYbnKhFC0g25wZ2JevCgIq3TKpAEVfaGW.jpg) [](https://nctoothdocs.com) Contact Information:
 
-Media contact: Alex McFarland · admin@themcfarlandgroup.com · (402) 891-2300 · 4601 Catalyst Court, Suite 3055, Omaha, NE 68106
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/rx4TBbjiHBtyb9yqV8gvV3M8lmtNHxoyUTR9DJUv.png) [](https://www.themcfarlandgroup.com) Contact Information:
-
- The McFarland Group
+ NC Tooth Docs - Harrisburg Kids Dentistry
 
  
 
-4601 Catalyst Court, Suite 3055  Omaha, NE 68106United States
+4079 Harris Square Dr  Harrisburg, NC 28075United States
 
- Alex McFarland +1-402-891-2300 https://www.themcfarlandgroup.com 
+ Lauren G (704) 456-9166 https://nctoothdocs.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/transferable-value-index-1-in-6-durable-businesses-still-runs-through-its-owner-454687)
+[Original/Source Press Release](https://mediawiretoday.com/invisalign-for-teens-explained-by-huntersville-orthodontist-454584)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-index-reveals-owner-dependence-hinges-on-people-decisions/98507677dc65fadcedd6e4cab74ce881) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-jonathan-wells-explains-invisalign-for-teens-in-huntersville/8fd6200015e873b1172b2dea31c7bf44) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/huntersville-orthodontist-explains-invisalign-for-teens-as-parents-seek-clarity-on-clear-aligner-treatment)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/huntersville-orthodontist-details-how-invisalign-treats-teen-orthodontic-issues)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/huntersville-orthodontist-details-invisalign-for-teens)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/linepstR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/epicH1Zz.webp)
