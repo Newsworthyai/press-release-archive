@@ -1,101 +1,68 @@
-# Verizon Makes The Holidays Simple with Our Best Deals and Rewards Just for Being a Customer
+# reVolver Podcasts Expands Sports Lineup with La Sacó del Estadio, Bringing U.S. Major Leagues Closer to Latino Fans
 
-NEW YORK, NY — November 5, 2026 — (NOTICIAS NEWSWIRE) — Verizon is making holiday shopping simple with incredible deals and exclusive rewards designed to delight. Starting today, November 5, and running throughout the holiday season, customers can unwrap amazing savings on the hottest tech, plus access an exclusive lineup of giveaways, events and once-in-a-lifetime experiences, only for Verizon customers.
+DALLAS, TX — November 5, 2026 — (NOTICIAS NEWSWIRE) — reVolver Podcasts, a leading multicultural podcast network, today announced the addition of La Sacó del Estadio, a Spanish-language sports podcast that brings Latino audiences closer to the biggest stories, personalities and competitions across American professional sports and international soccer. Hosted by Andrés Nieto Molina, Danny Marulanda and Kenneth Garay, the program expands reVolver’s sports programming with daily coverage and commentary designed for passionate Spanish-speaking fans.
 
- Unwrap the gift of new devices with Simplicity
+ Produced from Bristol, Connecticut, La Sacó del Estadio delivers sports news, analysis and storytelling focused on the National Football League (NFL), National Basketball Association (NBA), Major League Baseball (MLB), Major League Soccer (MLS) and international soccer. The program explores the stories behind the games, connecting audiences with the athletes, teams, rivalries and developments shaping the sports world.
 
- New and existing customers who switch or add-a-line on Simplicity can get the latest Apple, Google, Motorola and Samsung phones with no trade-in needed. And, when you purchase your phone on a 36-month device payment plan, you can get a smartwatch and earbuds on us:
+ “Sports have an extraordinary ability to connect people across cultures, generations and borders, and Latino fans are an increasingly important part of that conversation,” said Jack Hobbs, president of reVolver Podcasts. “La Sacó del Estadio brings an engaging approach to sports storytelling, combining knowledge of the major U.S. leagues with the passion Hispanic audiences have for sports. We are excited to welcome Andrés, Danny and Kenneth to our network and expand the choices available to Spanish-speaking sports fans.”
 
- * Get iPhone 18 Pro and receive Apple Watch SE3 and AirPods 5 on us with a new line on a $7.50/mo watch plan (for 36 mos, plus taxes/fees; 0% APR. Add’l terms apply.)
-* Get the Galaxy S26 Ultra and receive a Watch9 and Buds4 on us with a new line on a $7.50/mo watch plan (for 36 mos, plus taxes/fees; 0% APR. Add’l terms apply.)
-* Get the Pixel 11 Pro XL and receive a Pixel Watch 5 and Pixel Buds 2a on us with a new line on a $7.50/mo watch plan (for 36 mos, plus taxes/fees; 0% APR. Add’l terms apply.)
-* Get the motorola razr+ 2026 and receive a moto watch ultra and moto buds 2 plus on us with a new line on a $7.50/mo watch plan (for 36 mos, plus taxes/fees ; 0% APR. Add’l terms apply.)
+ For generations, soccer has been a defining part of sports culture throughout Latin America. Today, Latino audiences are also following American professional leagues with growing enthusiasm, creating opportunities for Spanish-language sports programming that connects these different sporting traditions.
 
- Plus, with Verizon Loyalty, customers pay zero activation and upgrade fees, saving up to $40 per device so you can get the latest tech without the extra costs.
+ From NFL Sundays and NBA rivalries to MLB’s Latino stars, MLS competition and the biggest moments in international soccer, La Sacó del Estadio reflects the increasingly interconnected world of sports. Its coverage helps audiences follow the leagues they love while discovering the personalities and stories that make each competition distinctive.
 
- Fa la la Verizon Home Internet for All
+ The program is hosted by Andrés Nieto Molina, Danny Marulanda and Kenneth Garay, whose storytelling and commentary offer listeners a Spanish-language perspective on major sporting events. With new episodes released Monday through Saturday, La Sacó del Estadio provides regular coverage of the news and conversations driving the sports calendar.
 
- Check out our best offer ever on select home internet plans:
+ “The way Latino audiences consume sports has changed dramatically,” Hobbs added. “Fans want more than scores and highlights. They want context, personality and conversations that reflect their passion for the game. Podcasting gives us an opportunity to bring that experience to listeners wherever they are, whether they are following their favorite soccer club or discovering a new American sports league.”
 
- * Customers who sign up for a select Fios, Frontier or 5G Home internet plan can get two months on us, plus either a Samsung 43″ TV and Soundbar bundle on us or $200 toward gift cards for holiday shopping from Target, Macy’s, Nordstrom, HomeGoods and Sephora.
+ The addition of La Sacó del Estadio further strengthens reVolver Podcasts’ sports lineup and its commitment to delivering programming that reflects the evolving interests of Latino audiences. By combining established sports traditions with coverage of major U.S. leagues, the network continues to expand its range of Spanish-language audio entertainment and information.
 
- Loyalty you’ll love In addition to saving on activation and upgrade fees, Verizon Loyalty members enjoy 3% cash back in Verizon Dollars and exclusive Verizon Shine rewards – including weekly sweepstakes for once-in-a-lifetime experiences, daily drops, and access to top tickets and presales in the My Verizon app.
+ reVolver Podcasts recently expanded its distribution through a strategic partnership with Claro USA, bringing its podcast catalog to Claro Música Pulso, an entertainment platform serving more than 500,000 subscribers with music, podcasts, radio, video and other multimedia experiences.
 
- Enter to win these Verizon Shine Epic Wins dropping in November:
+ reVolver content is available free to listeners across major platforms, including Apple Podcasts, Spotify, Pandora, Deezer, the iHeartRadio app, Amazon Music, the reVolver Podcasts App via the Samsung Galaxy Store, Roku streaming devices and at www.revolverpodcasts.com.
 
- * Nov. 9 | Hit a Jonas Brothers show and hang with Joe: Hang out with Joe Jonas before you watch the Jonas Brothers show in New York.
-* Nov. 16 | NHL Winter Classic Utah Apres-Ski Trip: Hit the slopes and enjoy an après-ski experience with NHL talent at the NHL Winter Classic.
-* Nov. 23 | VIP NFC Championship Experience: Head to the NFC Championship game for a VIP experience and enjoy tickets to the game and exclusive behind-the-scenes field access.
+ La Sacó del Estadio is a Spanish-language daily sports podcast hosted by Andrés Nieto Molina, Danny Marulanda and Kenneth Garay. Produced from Bristol, Connecticut, the program covers the NFL, NBA, MLB, MLS and international soccer through sports news, analysis and storytelling. With episodes released Monday through Saturday, La Sacó del Estadio connects Latin American audiences with the major leagues, athletes and stories shaping sports in the United States and around the world.
 
- Throughout December, Verizon Shine will feature themed weeks for gifting, party prep, family fun, everyday magic and New Year’s resolutions:
+ As audiences continue to embrace on-demand audio, reVolver Podcasts has established itself as one of the leading destinations for multicultural podcast content, offering a broad mix of entertainment, news, sports, business, lifestyle, health, and culture programming. The company recently expanded its distribution through a partnership with Claro USA, bringing its podcast catalog to Claro Música Pulso, the newly enhanced entertainment platform that serves more than 500,000 subscribers with music, podcasts, radio, video, and other multimedia experiences. reVolver content is available free to listeners across major platforms, including Apple Podcasts, Spotify, Pandora, Deezer, the iHeartRadio app, Amazon Music, the reVolver Podcasts App via the Samsung Galaxy Store, Roku streaming devices, and at www.revolverpodcasts.com.
 
- * Nov. 30 | Gift Shopping  Epic Win: Tailgate with country star Lainey Wilson and former quarterback Duck Hodges before a Tennessee Titans’ game. Daily Drops: Holiday charging cables.
-* Dec. 7 | Party Prep  Epic Win: Score an exclusive culinary getaway and a cooking class with celebrity chef Alex Guarnaschelli. Daily Drops: Grocery store gift cards and cooking content.
-* Dec. 14 | Everyday Magic  Epic Win: Fly away to Universal Orlando Resort to experience its four incredible theme parks as a VIP. Daily Drops: Premium candles and toy gift cards.
-* Dec. 21 | Family Fun  Epic Win: Enjoy a luxury getaway to NHL All-Star Weekend, paired with NHL team experiences. Daily Drops: Topgolf free play and AMC BOGO movie tickets.
-* Dec. 28 | New Year, New You  Epic Win: Recharge with a premium self-care experience hosted by an actress and renowned hair care entrepreneur. Daily Drops: Wellness gift cards.
+ About reVolver Podcasts reVolver Podcasts is the leading multicultural, audio-on-demand content creator and distributor in the U.S. Home to Erazno y La Chokolata, El Show de Piolín, Panda Show – Picante, and Don Cheto Al Aire, plus more than 70 additional programs spanning sports, music, finance, entertainment, lifestyle, health and wellness, inspiration, news, branded content, and live events, distributed across Apple Podcasts, Spotify, Deezer, Pandora, iHeartRadio app, Amazon Music, also available for download on the reVolver Podcasts App through the Samsung Galaxy Store and on Roku streaming devices and at reVolverPodcasts.com. Through a strategic partnership with Claro USA, reVolver Podcasts also delivers premium podcast content to Claro Música Pulso, expanding its reach to more than 500,000 subscribers across a growing global entertainment ecosystem. For more information about the company, visit www.revolverpodcasts.com.
 
- Best of all, no purchase is required to enter or win. Daily drops via Verizon Shine are available only while supplies last, so be sure to check the My Verizon app and don’t miss out! For more holiday news and deals visit our Holiday Hub.
-
- More Holiday Value For those looking for even more flexibility and no long-term contracts, Verizon’s Value brands, including Total Wireless, Visible and Straight Talk, are delivering seasonal savings backed by Verizon’s best 5G network:
-
- * Total Wireless: Give the gift of a total upgrade with iPhone 17e On Us on the Total ALL ACCESS Plan via Total Edge financing ($0 down, $0/mo for 24 mos. for well-qualified customers). Plus, take advantage of multi-line 5G phone bundles and integrated home wireless savings.
-* Visible: Uncap the ultimate holiday wireless hack with unlimited 5G data starting at $19/mo.
-* Straight Talk: Score major savings on top devices at Walmart and StraightTalk.com – including free 5G phones like the Samsung Galaxy A17 5G and moto g stylus – 2025 on Silver Unlimited plans and higher, as well as deals on the moto g power – 2026 (29.99),iPhone16e(199) and Google Pixel 10a ($199). Plus, get your second month of Fixed Wireless Access (FWA) home internet for free when you purchase one month and a router.
-
- To bring these offers to life, Verizon is launching ‘The Workshop,’ a whimsical new campaign starring Martin Short, Marsai Martin and Megan Stalter as comedic North Pole elves working hard to highlight the brand’s seasonal deals. The holiday spirit continues with two dedicated campaigns for the Latino audience featuring superstar artist Manuel Turizo promoting Verizon’s iPhone deals, and telenovela star Sebastian Rulli in his own Verizon-themed novela for the Simplicity Plan.
-
- Verizon Business customers can explore exclusive holiday offers. And keep checking back – we’ll keep adding more!
-
- This announcement was originally published by Verizon. Read the original press release.
-
- About Verizon Verizon Communications Inc. (NYSE, Nasdaq: VZ) powers and empowers how its millions of customers live, work and play, delivering on their demand for mobility, reliable network connectivity and security. Headquartered in New York City, serving countries worldwide and nearly all of the Fortune 500, Verizon generated revenues of $138.2 billion in 2025. Verizon’s world-class team never stops innovating to meet customers where they are today and equip them for the needs of tomorrow. For more, visit verizon.com or find a retail location at verizon.com/stores.
-
- VERIZON’S ONLINE MEDIA CENTER: News releases, stories, media contacts and other resources are available at verizon.com/news. News releases are also available through an RSS feed. To subscribe, visit www.verizon.com/about/rss-feeds/.
-
- CONTACT: Eli Blumenthal steven.blumenthal@verizon.com Or Caitlin Musch caitlin.musch@verizon.com 
+ CONTACT: revolverpodcast@gmail.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/verizon-makes-the-holidays-simple/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/revolver-podcasts-expands-sports-lineup/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/verizon-unwraps-epic-holiday-deals-and-exclusive-rewards/c3542103f3e99ebee6df1df0e9466ae2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolver-podcasts-adds-spanish-language-sports-show-la-saco-del-estadio/5ebeb3ea6e0750f45f4a81477bf2b937) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/verizons-holiday-play-free-devices-loyalty-perks-and-sweepstakes)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/05/revolver-podcasts-adds-spanish-language-sports-show-la-saco-del-estadio-to-reach-latino-fans/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/verizons-holiday-strategy-loyalty-rewards-and-device-bundles-to-drive-customer-retention)
+Pickup - [https://advos.io/en](https://advos.io/en/revolver-podcasts-adds-spanish-language-sports-show-la-saco-del-estadio-to-reach-latino-fans)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/verizons-holiday-play-free-devices-and-experiences-to-lock-in-loyalty)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/revolver-podcasts-adds-spanish-language-sports-show-to-serve-growing-latino-fan-base)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/verizons-holiday-deals-and-rewards-aim-to-boost-texas-tech-spending)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/revolver-podcasts-adds-spanish-language-sports-show-to-reach-latino-fans-of-us-leagues)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/las-ofertas-y-recompensas-navidenas-de-verizon-buscan-impulsar-el-gasto-tecnologico-en-texas)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/dallas-based-revolver-podcasts-adds-spanish-language-sports-show-to-reach-latino-fans)
 
-Pickup - [https://burstable.news](https://burstable.news/news/verizon-unveils-holiday-deals-with-free-devices-rewards-and-experiences)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/revolver-podcasts-con-sede-en-dallas-anade-un-programa-deportivo-en-espanol-para-llegar-a-los-fanaticos-latinos)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/verizon-prasentiert-feiertagsangebote-mit-gratis-geraten-pramien-und-erlebnissen)
+Pickup - [https://burstable.news](https://burstable.news/news/revolver-podcasts-adds-spanish-language-sports-show-la-saco-del-estadio-to-lineup)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/verizon-presenta-ofertas-navidenas-con-dispositivos-gratis-recompensas-y-experiencias)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/revolver-podcasts-erweitert-sein-programm-um-die-spanischsprachige-sportsendung-la-saco-del-estadio)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/verizon-devoile-ses-offres-de-fetes-avec-des-appareils-gratuits-des-recompenses-et-des-experiences)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/revolver-podcasts-suma-el-programa-deportivo-en-espanol-la-saco-del-estadio-a-su-programacion)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/verizon-revela-ofertas-de-fim-de-ano-com-dispositivos-gratis-recompensas-e-experiencias)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/revolver-podcasts-ajoute-lemission-sportive-en-espagnol-la-saco-del-estadio-a-sa-programmation)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/verizons-holiday-strategy-deals-rewards-and-experiences-to-retain-customers)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/revolver-podcasts-agrega-el-programa-deportivo-en-espanol-la-saco-del-estadio-a-su-programacion)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/verizons-holiday-strategy-free-devices-and-exclusive-experiences-to-lock-in-loyalty)
-
-Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/verizon-rolls-out-holiday-deals-and-loyalty-rewards-for-2026-season)
-
-Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/verizons-holiday-play-free-devices-loyalty-perks-aim-to-lock-in-subscribers)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/05/verizon-rolls-out-holiday-deals-with-free-devices-rewards-for-loyalty-members/)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/revolver-podcasts-adds-spanish-language-sports-show-to-reach-latino-fans-of-us-leagues)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/5/dashFaYk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/5/quizI1Rb.webp)
