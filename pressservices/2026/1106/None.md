@@ -1,60 +1,56 @@
-# Invisalign for Teens in Wichita KS: What Parents Should Know
+# Summit Audit Group Launches UK Office Alongside 4 US Locations
 
-How Invisalign Treatment in Wichita KS Works for Kids and Teens
+Summit Audit Group Brings Single Audits and Nonprofit Audits to Five New Locations
 
- Wichita, United States - November 6, 2026 / Hansen Orthodontics /
+ San Antonio, United States - November 6, 2026 / Summit Advisory /
 
- Hansen Orthodontics, located at 881 N Tyler Rd in Wichita, Kansas, has published a detailed explanation of how Invisalign works for children and teenagers, giving local parents a clearer picture of what the treatment process involves from start to finish. The practice, led by orthodontist Dr. Levi Hansen, outlined the mechanics of clear aligner therapy for younger patients - covering everything from the initial 3D scans to the retainer phase that follows active treatment.
+ Summit Advisory, a San Antonio-based advisory firm, and its specialized sister audit practice, Summit Audit Group, have announced a significant audit firm expansion, opening physical offices in Honolulu, Hawaii; Madison, Wisconsin; Cheyenne, Wyoming; Fort Lauderdale, Florida; and London, England.
 
-How the Process Begins: 3D Scanning and Custom Trays
+The addition of five regional and international offices marks a defined growth phase for the organization. By establishing a physical presence in key domestic commercial markets and an international location in the United Kingdom, Summit Audit Group strengthens its capacity to deliver specialized audit engagements, cross-border financial reviews, and regulatory assurance through locally based personnel supported by national and international infrastructure.
 
-The foundation of invisalign for teens in Wichita KS starts with digital 3D scanning rather than traditional impression molds. These scans capture a precise image of the patient's teeth and jaw, which is then used to fabricate a series of custom-fitted clear aligner trays. Each tray is designed to apply gradual, controlled pressure to shift teeth into a more aligned position over time. This approach allows the treatment plan to be mapped out in advance, so families can have a general sense of the planned movement before trays are ever placed.
+Strategic Footprint Across Key Domestic and Global HubsEach new office addresses the operational requirements of growing enterprises, governmental contractors, and charitable institutions:
 
-The issues that Invisalign treatment commonly addresses in younger patients include tooth crowding, spacing gaps, and bite problems such as overbites, underbites, and crossbites. These are among the most common orthodontic concerns seen in children and adolescents, and clear aligners can be an appropriate option depending on the complexity of each individual case.
+* Honolulu, HI: Anchors practice capabilities across the Pacific, supporting Hawaii-based organizations, public institutions, and grant recipients with on-the-ground compliance oversight.
+* Madison, WI: Strengthens Midwestern operations with expertise in regional commercial audit engagements and nonprofit oversight.
+* Cheyenne, WY: Broadens the Western footprint, serving corporate entities, trusts, and commercial enterprises operating under Wyoming's regulatory frameworks.
+* Fort Lauderdale, FL: Enhances Southeast presence, focusing on Florida's business sector, regional nonprofits, and cross-border commercial ventures.
+* London, England: Establishes a European anchor in a major international financial center, supporting cross-border auditing, international corporate reporting, and multinational governance.
 
-Daily Wear and the Removal Advantage
+Coordinated Structure: Advisory Insight and Independent AuditSummit Audit Group operates as the dedicated audit arm of Summit Advisory, a San Antonio-based advisory firm providing strategic advisory, corporate tax planning, and business consulting services. This coordinated structure allows audit engagements to draw from broad financial expertise while maintaining the independent governance standards required under audit regulations.
 
-One of the most practical aspects of invisalign for kids in Wichita KS is that the trays are removable. Patients are expected to wear their aligners for approximately 22 hours per day, but they can take them out during meals, which eliminates many of the dietary restrictions associated with traditional braces. There are no brackets to worry about breaking from hard or sticky foods, and oral hygiene routines remain largely unchanged since patients brush and floss normally after removing the trays.
+Drawing on over 100 years of collective experience, the combined firms deliver technically rigorous oversight across demanding practice areas, including Federal Uniform Guidance Single Audits, 501(c)(3) nonprofit audits, ERISA and employee benefit plan compliance reviews, and financial statement audits.
 
-For younger patients who participate in sports, the removable nature of clear aligners is particularly relevant. Trays can be taken out during contact sports or physical activities where a mouthguard may be needed, then replaced immediately afterward. Consistency with wear time, however, remains important - the treatment progresses as intended only when aligners are kept in for the recommended daily duration.
+Specialized Federal Single Audits and Nonprofit ComplianceA core specialty of Summit Audit Group's expanding network is Federal Uniform Guidance Single Audits under 2 CFR Part 200, which are mandatory for nonprofit entities, educational bodies, and municipalities expending $750,000 or more annually in federal grants. Positioning auditors in regional offices streamlines fieldwork, board consultations, and documentation protocols for recipients of state and federal awards.
 
-Check-In Visits and What Comes After Treatment
+The firm's nonprofit audits team also advises 501(c)(3) leadership on fund accounting compliance, internal controls, and governance transparency, reducing audit friction across multi-jurisdictional operations.
 
-Throughout invisalign treatment in Wichita KS, patients return to Hansen Orthodontics periodically for check-in appointments. These visits allow Dr. Levi Hansen to monitor progress, confirm that teeth are moving according to the planned sequence, and provide the next set of aligner trays. The frequency of these appointments can be less than what is typically required with traditional braces, though the exact schedule depends on the individual case.
+Executive Commentary"Expanding our physical footprint to Honolulu, Madison, Cheyenne, Fort Lauderdale, and London represents a deliberate alignment of technical rigor and geographic reach," said David Jackson, CEO of Summit Advisory, a San Antonio-based advisory firm. "Whether an entity is managing federal grant compliance in Hawaii, corporate accounting in Florida, or cross-border governance connecting the US and the UK, our global network provides the localized responsiveness and deep audit experience required in today's regulatory climate."
 
-Once the active phase of treatment is complete and the teeth have reached their intended positions, patients transition to wearing retainers. Retainers are a standard part of any orthodontic outcome - they hold teeth in place after the aligners have done their work. Without consistent retainer use, teeth can gradually shift back toward their original positions over time, which is why this final phase is treated as an integral part of the overall plan rather than an optional step.
+About Summit Advisory & Summit Audit GroupSummit Advisory is a San Antonio-based advisory firm specializing in corporate tax strategy, wealth management, and strategic advisory services. Its sister practice, Summit Audit Group, conducts Federal Uniform Guidance Single Audits, 501(c)(3) nonprofit audits, employee benefit plan audits, and commercial financial reviews through an expanding network of offices across the United States and internationally in the United Kingdom.
 
-Hansen Orthodontics serves patients in Wichita and also extends care to families in Goddard and Hutchinson. Parents with questions about whether Invisalign is appropriate for their child or teenager can contact the practice directly at (316) 722-6717.
+For more information, visit Summit Advisory or explore specialized services at Single Audit Practice.
 
-About Hansen Orthodontics
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/wB18JGce2FkPOeT9B1Ni2WXqE4dpb62w4XQ8NA4P.png) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/yVNAi62JyiV46MZFrKy4bMoO0eVfxSozCMFgjplI.png) [](https://summitadvisory.us) Contact Information:
 
-Hansen Orthodontics is an orthodontic practice in Wichita, Kansas, operated by Dr. Levi Hansen. The practice is located at 881 N Tyler Rd, Wichita, KS, and can be reached by phone at (316) 722-6717. In addition to serving the Wichita area, Hansen Orthodontics also sees patients from Goddard and Hutchinson.
-
-Learn more at Hansen Orthodontics
-
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/YcfshU6E6YjIZigan0Ul434t1BD8RNqAF7SmLFA5.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/c2aA9fDHLcm97b5XJtuomnVUhOGXxg4HOco61rFm.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Hvykv6s3jdI4aANw9XF9bVSTO4AIcIjFFANG6Xid.jpg) [](https://smilesbyhansen.com) Contact Information:
-
- Hansen Orthodontics
+ Summit Advisory
 
  
 
-881 N Tyler Rd  Wichita, KS 67212United States
+1350 N Loop 1604 E, 1st Floor  San Antonio, TX 78232United States
 
- Dr. Levi Hansen +13167226717+ https://smilesbyhansen.com 
+ David Jackson +1-260-270-1320 https://summitadvisory.us 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/invisalign-for-teens-in-wichita-ks-what-parents-should-know-454583)
+[Original/Source Press Release](https://mediawiretoday.com/summit-audit-group-launches-uk-office-alongside-4-us-locations-454615)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hansen-orthodontics-explains-invisalign-for-kids-and-teens-in-wichita/a515375b62a3d8ef82663bc7853a832e) 
-
-
-Pickup - [https://x.com](https://twitter.com/i/status/2118788427025940526)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/summit-audit-group-expands-to-five-new-global-offices/96bdeae8bcb45dd55504c2f39666ade0) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/camcbA_G.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/6/riced7ZI.webp)

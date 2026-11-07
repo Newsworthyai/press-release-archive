@@ -1,70 +1,434 @@
-# PCM Encore Announced As Sponsor Of The Benzinga Awards 2026
+# The Marygold Companies Reports Financial Results For First Fiscal Quarter Ended September 30, 2026
 
-DETROIT, MICHIGAN - November 6, 2026 (NEWMEDIAWIRE) - PCM Encore, a technology-forward, independent fiduciary wealth management firm, today announced that it is an official sponsor of the Benzinga Awards 2026, taking place on November 19, 2026. The awards recognize the financial companies, products and platforms that serve customers best across banking, credit cards, crypto, investing, lending, retirement, taxes and more.
+SAN CLEMENTE, CA - November 6, 2026 (NEWMEDIAWIRE) - The Marygold Companies, Inc. (the “Company” or “Marygold”) (NYSE American: MGLD), a global holding firm with a focus on financial services, today reported financial results for its first fiscal quarter ended September 30, 2026.
 
- PCM Encore joins fellow sponsors Direxion, FinancialMarkets.media and Priority Gold in supporting this year's program. The Benzinga Awards bring together leading financial service providers, fintechs and investment firms to celebrate innovation and excellence in serving investors and consumers.
+ Revenue for the three months ended September 30, 2026 rose to $9.4 million, excluding $1.5 million in revenue from the Company’s New Zealand subsidiaries which have been classified as discontinued operations, as compared with $5.2 million for the three months ended September 30, 2025.
 
- The sponsorship comes as PCM Encore marks a major milestone: as of September 2026, the firm has surpassed $2 billion in client assets under management. PCM Encore grew out of the multi-billion-dollar family office of CEO Michael Paulus, a growth investor and entrepreneur with decades of experience building companies.
+ Marygold reported net income from continuing operations of $1.7 million for the most recent fiscal first quarter versus a net loss from continuing operations of $0.5 million in last year’s first quarter. Net income for the fiscal 2027 first quarter amounted to $1.8 million, equal to $0.04 per share, compared with a net loss of $0.4 million, or $0.01 per share, a year ago.
 
- “We built PCM Encore around the standard we wanted for our own family: thoughtful advice, transparency, and a team that brings every part of a client’s financial life together,” said CEO Mike Paulus. “Supporting the Benzinga Awards is a natural extension of that philosophy, and we’re proud to support a program that recognizes innovation and a better experience for investors.”
+ The Company’s balance sheet remained strong at the close of the fiscal 2027 first quarter, with cash and cash equivalents of $4.5 million; total assets of $25.4 million, and total stockholders’ equity of $20.9 million, all improved since the prior fiscal year-end.
 
- PCM Encore serves individuals, trusts and family offices with a personalized, client-first approach. Its specialized team separates financial planning from investment management, matching each client with professionals in retirement planning, tax and estate planning, risk management and investment management.
+ David Neibert, Chief Operations Officer, said, “Revenues and income increased significantly for the first quarter, primarily reflecting the increased activity in energy related ETFs, due in part to the Iran war. Our other non-financial services operations, including discontinued operations in New Zealand, were also profitable during the first quarter. However, our UK investment advisory businesses recorded a net loss of $0.1 million for the quarter as compared with a net loss of $0.4 million for the prior year quarter, showing a significant reduction in expenses associated with the mobile fintech banking app now on pause.
 
- Through its affiliated entity, PCM Tax, clients may also access in-house tax and estate planning, including exit and liquidity planning, tax preparation, entity structuring and tax-efficient asset placement. Clients meeting certain criteria may access family office services without an additional fee.
+ “The Company’s largest operating unit, USCF Investments, delivered strong growth during the first quarter, with revenue nearly doubling to $8.4 million from $4.3 million a year ago. The increase is attributed primarily to the increase in average assets under management, which also nearly doubled to $5.5 billion from $2.9 billion in the prior year quarter. The growth reflected energy price volatility associated with geopolitical events in the Middle East and Eastern Europe, as well as economic uncertainty affecting inventory and demand.”
 
- More information about the Benzinga Awards 2026 is available at benzinga.com/events/fintech-awards/awards-2026.
+ Nicholas Gerber, Chief Executive Officer, added, “During the quarter, the Company announced it had entered into a definitive merger agreement under which funds managed by Madison Dearborn Partners will acquire all of the outstanding shares of The Marygold Companies for $2.00 per share, representing a premium of 100% over the Company’s closing share price on September 24, 2026, the day before the agreement was announced. The transaction is expected to close during the first half of 2027, or earlier, upon satisfaction of a number of closing conditions that are usual and customary for transactions of this nature.”
 
- About PCM Encore
+ Business Units
 
- PCM Encore is a technology-forward, independent fiduciary financial advisor providing comprehensive private wealth management to individuals, trusts and family offices. Founded from the family office of CEO Michael Paulus, the employee-owned, open-architecture firm combines individualized counsel with technology and proprietary investment strategies. Its services include investment and portfolio management, retirement planning, tax and estate planning, family office services, strategic gifting and trust services. Headquartered in Bellevue, Washington, PCM Encore has advisors and investment professionals across the United States. Learn more at encoreinvestment.com.
+ The Company’s USCF Investments subsidiary, https://www.uscfinvestments.com/, acquired in 2016 and based in Walnut Creek, Calif., serves as manager, operator or investment adviser to 16 exchange traded products, structured as limited partnerships or investment trusts that issue shares trading on the NYSE Arca.
 
- PCM Encore, LLC is an SEC-registered investment advisor. Registration with the SEC does not imply a certain level of skill or training. Past performance does not guarantee future results.
+ Gourmet Foods, https://gourmetfoodsltd.co.nz/, acquired in 2015, is a commercial-scale bakery that produces and distributes iconic meat pies and pastries throughout New Zealand under the brand names Pat’s Pantry and Ponsonby Pies. Acquired by Gourmet Foods in 2020, Printstock Products Limited, https://www.printstock.co.nz, is a printer of specialized food wrappers and is located in Napier, New Zealand. These entities are now classified as “Discontinued Operations” in our Condensed Consolidated Financial Statements.
 
- About The Benzinga Awards
+ San Clemente, Calif.-based Original Sprout, www.originalsprout.com, acquired in 2017, produces a full line of hair and skin care products distributed throughout the U.S. and in many regions throughout the world.
 
- The Benzinga Awards recognize the financial companies, products and platforms that serve customers best, across banking, credit cards, crypto, investing, lending, retirement, taxes and more. The 2026 awards take place on November 19, 2026. For details, visit the Benzinga Awards 2026 page.
+ Marygold & Co. (UK) Limited, https://marygoldandco.uk/, was established in the U.K. in 2021 and operates through two U.K.-based investment advisory business units: Marygold & Co Limited (fka/Tiger Financial and Asset Management), acquired in 2022, http://www.tfam.co.uk/, and Step-by-Step Financial Planners, acquired in 2024, https://www.sbsfp.co.uk/, that manage clients’ financial wealth across a diverse product range.
 
- Media ContactBenzingapartnerships@benzinga.com www.benzinga.com
+ About The Marygold Companies, Inc.
+
+ The Marygold Companies, Inc. was founded in 1996 and repositioned as a global holding firm in 2015. The Company currently has operating subsidiaries in financial services, food manufacturing, printing, and beauty products, under the trade names USCF Investments, Marygold & Co., Step-By-Step Financial Planners, Marygold & Co. Limited, Gourmet Foods, Printstock Products, and Original Sprout, respectively. Offices and manufacturing operations are in the U.S., New Zealand, and the U.K. For more information, visit www.themarygoldcompanies.com.
+
+ Forward-Looking Statements
+
+ This press release includes “forward-looking statements” within the meaning of U.S. federal securities laws. Words such as “expect,” “estimate,” “project,” “budget,” “forecast,” “anticipate,” “intend,” “plan,” “may” “will,” “could,” “should” “believes,” “predicts,” “potential,” “continue” and similar expressions are intended to identify such forward-looking statements. Such forward-looking statements, including, but not limited to completion of the transaction under which funds managed by Madison Dearborn Partners will acquire all of the outstanding shares of The Marygold Companies, involve significant risks and uncertainties that could cause the actual results to differ materially from the expected results and, consequently, you should not rely on these forward-looking statements as predictions of future events. Readers should refer to the further detail of the risks disclosed in the Company’s Annual Report on Form 10-K filed with the Securities and Exchange Commission and in the Company’s other filings with the Securities and Exchange Commission. The foregoing list of factors is not exclusive. Readers are cautioned not to place undue reliance upon any forward-looking statements, which speak only as of the date made. Except as required by law, the Company disclaims any obligation to update or publicly announce any revisions to any of the forward-looking statements contained in this press release.
+
+ Media and investors, for more information, contactRoger S. PondelPondelWilkinson310-279-5965rpondel@pondel.com
+
+ Contact the CompanyDavid Neibert, Chief Operations Officer949-218-8542dneibert@themarygoldcompanies.com
+
+ (Financial Tables Follow)
+
+ CONDENSED CONSOLIDATED BALANCE SHEETS(in thousands, except per share data)(unaudited)
+
+ 
+
+September 30,2026
+
+June 30,2026
+
+ ASSETS
+
+ CURRENT ASSETS
+
+ Cash and cash equivalents
+
+$
+
+4,484
+
+$
+
+2,880
+
+ Accounts receivable, net (of which $2,871 and $2,684, respectively, due from related parties)
+
+3,192
+
+2,892
+
+ Inventories
+
+941
+
+1,051
+
+ Prepaid income tax and tax receivable
+
+300
+
+814
+
+ Investments, at fair value
+
+8,109
+
+7,848
+
+ Assets held for sale
+
+2,478
+
+2,517
+
+ Other current assets
+
+567
+
+513
+
+ Total current assets
+
+20,071
+
+18,515
+
+ Operating lease right-of-use assets
+
+304
+
+429
+
+ Deferred tax assets, net
+
+3,599
+
+3,599
+
+ Other assets
+
+1,434
+
+1,436
+
+ Total assets
+
+$
+
+25,408
+
+$
+
+23,979
+
+ LIABILITIES AND STOCKHOLDERS’ EQUITY
+
+ 
+
+ CURRENT LIABILITIES
+
+ Accounts payable and accrued expenses
+
+$
+
+3,377
+
+$
+
+3,364
+
+ Lease liabilities, current portion
+
+232
+
+314
+
+ Liabilities associated with assets held for sale
+
+758
+
+921
+
+ Total current liabilities
+
+4,367
+
+4,599
+
+ Lease liabilities, net of current portion
+
+109
+
+154
+
+ Total liabilities
+
+4,476
+
+4,753
+
+ STOCKHOLDERS’ EQUITY
+
+ Preferred stock, par value $0.001; 50,000 shares authorized Series B: 13 shares issued and outstanding at both September 30, 2026 and June 30, 2026
+
+-
+
+-
+
+ Common stock, $0.001 par value; 900,000 shares authorized; 42,760 and 42,712 shares issued and outstanding at September 30, 2026 and June 30, 2026, respectively
+
+42
+
+42
+
+ Additional paid-in capital
+
+15,359
+
+15,270
+
+ Accumulated other comprehensive (loss) income
+
+(49)
+
+87
+
+ Retained earnings
+
+5,580
+
+3,827
+
+ Total stockholders’ equity
+
+20,932
+
+19,226
+
+ Total liabilities and stockholders’ equity
+
+$
+
+25,408
+
+$
+
+23,979
+
+ 
+
+ 
+
+ 
+
+ CONDENSED CONSOLIDATED STATEMENTS OF OPERATIONS(in thousands, except per share data)(unaudited)
+
+ 
+
+Quarters Ended September 30,
+
+ 
+
+2026
+
+2025
+
+ Revenue
+
+ Fund management - related party
+
+$
+
+8,404
+
+$
+
+4,329
+
+ Beauty products
+
+792
+
+671
+
+ Financial services
+
+160
+
+208
+
+ Revenue
+
+9,356
+
+5,208
+
+ Cost of revenue
+
+403
+
+301
+
+ 
+
+ Gross profit
+
+8,953
+
+4,907
+
+ Operating expense
+
+ Fund operations
+
+2,448
+
+1,525
+
+ Salaries and compensation
+
+2,391
+
+2,330
+
+ General and administrative expense
+
+1,501
+
+1,942
+
+ Marketing and advertising
+
+752
+
+475
+
+ Total operating expenses
+
+7,092
+
+6,272
+
+ Income (loss) from continuing operations
+
+1,861
+
+(1,365)
+
+ Other income:
+
+ Interest and dividend income
+
+88
+
+84
+
+ Other income, net
+
+199
+
+666
+
+ Total other income, net
+
+287
+
+750
+
+ Income (loss) from continuing operations before income taxes
+
+2,148
+
+(615)
+
+ (Provision) benefit from income taxes
+
+(473)
+
+153
+
+ Net income (loss) from continuing operations
+
+1,675
+
+(462)
+
+ Net income from discontinued operations
+
+78
+
+106
+
+ Net income (loss)
+
+$
+
+1,753
+
+$
+
+(356)
+
+ Weighted average shares of common stock
+
+ Basic
+
+42,973
+
+42,959
+
+ Diluted
+
+42,977
+
+42,959
+
+ Net income (loss) from continuing operations per common share – basic and diluted
+
+$
+
+0.04
+
+$
+
+(0.01)
+
+ Net income (loss) per common share – basic and diluted
+
+$
+
+0.04
+
+$
+
+(0.01)
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pcm-encore-announced-as-sponsor-of-the-benzinga-awards-2026-7091134)
+[Original/Source Press Release](https://www.newmediawire.com/news/the-marygold-companies-reports-financial-results-for-first-fiscal-quarter-ended-september-30-2026-7091141)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/pcm-encore-sponsors-benzinga-awards-2026-hits-2b-in-aum/ec05ffa4c83416cb47904ec5be88802e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marygold-q1-revenue-soars-to-9-4m-net-income-hits-1-8m/03022409ffbd6908e115f2efb84167f2) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/06/pcm-encore-sponsors-benzinga-awards-2026-as-assets-surpass-2-billion/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/pcm-encore-sponsors-benzinga-awards-2026-after-surpassing-2-billion-in-client-assets)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pcm-encore-sponsors-benzinga-awards-2026-after-surpassing-2-billion-in-client-assets)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pcm-encore-sponsors-benzinga-awards-2026-after-surpassing-2-billion-in-client-assets)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/pcm-encore-sponsors-benzinga-awards-2026-surpasses-2-billion-in-client-assets-under-management)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/pcm-encore-patrocina-los-premios-benzinga-2026-y-supera-los-2-mil-millones-en-activos-de-clientes-bajo-gestion)
-
-Pickup - [https://burstable.news](https://burstable.news/news/pcm-encore-sponsors-benzinga-awards-2026-as-assets-surpass-2-billion)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/pcm-encore-sponsert-die-benzinga-awards-2026-wahrend-die-vermogenswerte-2-milliarden-us-dollar-uberschreiten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/pcm-encore-patrocina-los-premios-benzinga-2026-mientras-sus-activos-superan-los-2000-millones-de-dolares)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/pcm-encore-sponsorise-les-benzinga-awards-2026-alors-que-ses-actifs-depassent-les-2-milliards-de-dollars)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/pcm-encore-patrocina-o-benzinga-awards-2026-enquanto-seus-ativos-ultrapassam-us-2-bilhoes)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pcm-encore-sponsors-benzinga-awards-2026-as-assets-surpass-2-billion)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/pcm-encore-sponsors-benzinga-awards-2026-marking-2-billion-milestone)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/06/marygold-companies-swings-to-profit-as-uscf-etf-assets-nearly-double/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/6/waithn9d.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/6/fondR34G.webp)
