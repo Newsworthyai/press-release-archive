@@ -1,0 +1,66 @@
+# HKUST President Prof. Nancy IP Receives UNESCO–Equatorial Guinea International Prize for Research in Life Sciences
+
+HONG KONG SAR – [Media OutReach Newswire](https://www.media-outreach.com/) – 7 November 2026 – Prof. Nancy IP, President and The Morningside Professor of Life Science at The Hong Kong University of Science and Technology (HKUST), has been awarded the 2026 UNESCO-Equatorial Guinea International Prize for Research in the Life Sciences in recognition of her pioneering contributions to neuroscience and Alzheimer's disease research. The award ceremony was held on November 6 at UNESCO Headquarters in Paris, France.    In announcing the award, UNESCO recognized Prof. Ip as an internationally renowned neuroscientist whose research has significantly advanced the understanding of brain function and neurodegenerative diseases. It highlighted her team's discoveries of novel biomarkers and genetic risk factors for Alzheimer's disease, the development of an innovative blood-based diagnostic technology that enables earlier detection and monitoring of the disease, and her pioneering advances in gene therapy research that have opened new avenues for the prevention and treatment of neurodegenerative disorders.   Receiving the award in Paris, Prof. Ip expressed her heartfelt gratitude to her research team, collaborators and colleagues, and thanked HKUST for its steadfast support throughout her scientific journey.    Prof. Ip said: "I am deeply honored to receive the UNESCO-Equatorial Guinea International Prize for Research in the Life Sciences. This recognition belongs not only to me, but also to the many talented and dedicated team members, collaborators and colleagues who have contributed to these achievements. It reflects our shared commitment to advancing knowledge, deepening our understanding of Alzheimer's disease, and translating scientific discoveries into meaningful benefits for patients and society."   She added: "Alzheimer's disease is not just a scientific and medical challenge. It is also a deeply human one, profoundly affecting the lives of those living with the disease and their families. Their courage reminds us why our work matters and inspires us to reach higher."   Prof. Ip also emphasized the importance of global scientific collaboration and nurturing future generations of researchers. "Science is a collective endeavor," she said. "Every breakthrough is built on collaboration across disciplines, institutions and borders. As a scientist and university president, I believe we must also empower young researchers by giving them the freedom to pursue their curiosity, the confidence to take intellectual risks, and the support they need to tackle the grand challenges facing humanity."    Breakthrough Contributions to Neuroscience and Alzheimer's Disease Research   Prof. Ip has devoted more than three decades to advancing research on neurodegenerative diseases. To date, she has published over 350 scholarly papers and holds 144 patents. Her pioneering work has significantly deepened scientific understanding of intercellular communication in the nervous system, synaptic signaling, and the molecular mechanisms underlying neurodegenerative diseases. Her research team has also achieved a series of breakthroughs in identifying protein targets associated with these disorders, opening new avenues for their diagnosis and treatment.   Recognizing that Alzheimer's disease research has historically relied heavily on data from Western populations, with Asian populations being relatively underrepresented, Prof. Ip led her team in establishing a large-scale Chinese Alzheimer's disease biobank. By integrating clinical data, neuroimaging information, and multi-omics datasets from Chinese populations, the team successfully identified multiple genetic risk factors prevalent among Chinese individuals. These findings have provided important scientific insights into disease mechanisms and laid a foundation for the development of precision diagnostic and therapeutic strategies.   In recent years, Prof. Ip and her team have made significant advances in the early detection of Alzheimer's disease and the clinical translation of related research. They co-developed a highly accurate, minimally invasive, and efficient blood-based diagnostic test that can aid early detection of Alzheimer's disease and help identify individuals with mild cognitive impairment, thereby supporting timely clinical assessment and intervention planning, as well as the identification of suitable participants for clinical trials. The technology has been adopted by multiple healthcare institutions in Hong Kong and has since been expanded into community settings, helping to inform more effective disease management and risk-reduction strategies. Meanwhile, the team is actively exploring novel gene therapy approaches for familial Alzheimer's disease through gene-editing technologies, with the goal of developing an integrated innovation pipeline spanning early diagnosis to next-generation therapeutics.   An Internationally Acclaimed Scientist   Prof. Ip is President of The Hong Kong University of Science and Technology (HKUST) and concurrently serves as Director of the State Key Laboratory of Nervous System Disorders and Director of the Hong Kong Center for Neurodegenerative Diseases. Prior to joining HKUST, she was a Senior Staff Scientist at Regeneron Pharmaceuticals in the United States. Since joining HKUST, she has held a number of key leadership positions, including Head of the Department of Biochemistry, Dean of Science, and Vice-President for Research and Development, before assuming the presidency of the University in 2022.   Renowned internationally for her scientific achievements and academic leadership, Prof. Ip is an elected member of the Chinese Academy of Sciences, the US National Academy of Sciences, the American Academy of Arts and Sciences, The World Academy of Sciences (TWAS), Academia Europaea, and the Hong Kong Academy of Sciences. Her many honors include the L'Oréal-UNESCO For Women in Science Award, the State Natural Science Award of China (twice), and recognition by Nature as one of China's "Ten Science Stars". She was also appointed Chevalier de l'Ordre National du Mérite by the French Government and awarded both the Silver Bauhinia Star and Bronze Bauhinia Star by the HKSAR Government.   The UNESCO-Equatorial Guinea International Prize for Research in the Life Sciences was established by UNESCO to recognize outstanding scientific achievements that advance human health and improve quality of life. The Prize promotes scientific excellence, international collaboration, and the development of research networks worldwide. This year's prize is shared by three laureates, who jointly receive US$300,000 and an Integración Tribal statuette created by Equatorial Guinean artist Leandro Mbomio Nsue.  Hashtag: #HKUSTThe issuer is solely responsible for the content of this announcement.
+
+About The Hong Kong University of Science and Technology 
+
+ The Hong Kong University of Science and Technology (HKUST) ([https://hkust.edu.hk/](https://hkust.edu.hk/)) is a world-class university renowned for its excellence in innovative education, research, and impactful knowledge transfer. Adopting a holistic and interdisciplinary approach to education, HKUST was ranked 33rd globally and 6th in Asia in the QS World University Rankings 2027 and QS Asia University Rankings 2026, respectively. It was also ranked 20th worldwide in the Times Higher Education Sustainability Impact Ratings 2026, placing first among universities in Hong Kong and the Chinese Mainland for the third consecutive year. Eleven HKUST subjects were ranked among the world's top 50 in the QS World University Rankings by Subject 2026. In addition, HKUSTs Computer Science discipline, which encompasses areas such as artificial intelligence and machine learning, was ranked No. 1 in Hong Kong for the tenth consecutive year in the Times Higher Education World University Rankings by Subject 2026. Its graduates are highly competitive, consistently ranking among the world's top 30 most sought-after employees. In research and entrepreneurship, more than 80% of HKUST's research was rated "world-leading" or "internationally excellent" in the University Grants Committee's Research Assessment Exercise 2020. As of September 2026, HKUST members have founded more than 2,000 active start-ups, including 11 unicorns and 23 successful exits through initial public offerings (IPOs) or mergers and acquisitions (M&A). 
+
+---
+
+[Original/Source Press Release](https://www.media-outreach.com/news/hong-kong-sar/2026/11/07/499998/)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hkust-president-prof-nancy-ip-wins-2026-unesco-equatorial-guinea-prize/d102aebe2dd4131a41788b1ceb4b96a5) 
+
+
+Pickup - [https://advos.io/en](https://advos.io/en/hkust-president-nancy-ip-wins-unesco-equatorial-guinea-prize-for-alzheimers-research)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hkust-president-nancy-ip-wins-unesco-equatorial-guinea-prize-for-alzheimers-research)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hkust-president-prof-nancy-ip-wins-unesco-equatorial-guinea-international-prize-for-alzheimers-research)
+
+Pickup - [https://burstable.news](https://burstable.news/news/hkust-president-prof-nancy-ip-wins-unesco-equatorial-guinea-international-prize-for-alzheimers-research)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hkust-prasidentin-prof-nancy-ip-erhalt-unesco-aquatorialguinea-preis-fur-alzheimer-forschung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-presidenta-de-la-hkust-prof-nancy-ip-gana-el-premio-internacional-unesco-guinea-ecuatorial-por-la-investigacion-sobre-el-alzheimer)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-presidente-de-lhkust-la-professeure-nancy-ip-remporte-le-prix-international-unesco-guinee-equatoriale-pour-la-recherche-sur-la-maladie-dalzheimer)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/presidente-da-hkust-profa-nancy-ip-recebe-premio-internacional-unesco-guine-equatorial-para-a-investigacao-sobre-o-alzheimer)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/hkust-president-prof-nancy-ip-receives-unesco-equatorial-guinea-international-prize-for-research-in-life-sciences)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/07/hkust-president-prof-nancy-ip-wins-unesco-equatorial-guinea-prize-for-alzheimers-research/)
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/7/pitapicolvGd.webp)
