@@ -1,434 +1,128 @@
-# The Marygold Companies Reports Financial Results For First Fiscal Quarter Ended September 30, 2026
+# Kumocast.io Launches Free Live Trading Signals and Price Predictions for Forex, Gold, Oil, Indices and Stocks, Refreshed Every 30 Minutes
 
-SAN CLEMENTE, CA - November 6, 2026 (NEWMEDIAWIRE) - The Marygold Companies, Inc. (the “Company” or “Marygold”) (NYSE American: MGLD), a global holding firm with a focus on financial services, today reported financial results for its first fiscal quarter ended September 30, 2026.
+The new market analysis site turns technical analysis into a clear "market weather" view, with a pivot, two targets and an alternative scenario for every market, plus interactive charts and an open accuracy record
 
- Revenue for the three months ended September 30, 2026 rose to $9.4 million, excluding $1.5 million in revenue from the Company’s New Zealand subsidiaries which have been classified as discontinued operations, as compared with $5.2 million for the three months ended September 30, 2025.
+ BELIZE CITY, BELIZE - November 6, 2026 (NEWMEDIAWIRE) - Kumocast.io launched this week as a free market analysis website that publishes live trading signals, price predictions and forecasts for 50 of the most-followed markets in forex, commodities, stock indices and US equities. Every page is refreshed every 30 minutes with live market data, and each one opens with a single, readable answer to the question most traders ask first: where is this market likely to go next, and at what price does that view stop being valid?
 
- Marygold reported net income from continuing operations of $1.7 million for the most recent fiscal first quarter versus a net loss from continuing operations of $0.5 million in last year’s first quarter. Net income for the fiscal 2027 first quarter amounted to $1.8 million, equal to $0.04 per share, compared with a net loss of $0.4 million, or $0.01 per share, a year ago.
+ ![](http://newmediawire.s3.amazonaws.com/6aee648eda846f1970288fcf_1)
 
- The Company’s balance sheet remained strong at the close of the fiscal 2027 first quarter, with cash and cash equivalents of $4.5 million; total assets of $25.4 million, and total stockholders’ equity of $20.9 million, all improved since the prior fiscal year-end.
+ Kumocast provides access to a wide range of global financial markets, including forex, precious metals, energy commodities, major stock indices and 33 widely traded US stocks.
 
- David Neibert, Chief Operations Officer, said, “Revenues and income increased significantly for the first quarter, primarily reflecting the increased activity in energy related ETFs, due in part to the Iran war. Our other non-financial services operations, including discontinued operations in New Zealand, were also profitable during the first quarter. However, our UK investment advisory businesses recorded a net loss of $0.1 million for the quarter as compared with a net loss of $0.4 million for the prior year quarter, showing a significant reduction in expenses associated with the mobile fintech banking app now on pause.
+ A signal you can read in five seconds
 
- “The Company’s largest operating unit, USCF Investments, delivered strong growth during the first quarter, with revenue nearly doubling to $8.4 million from $4.3 million a year ago. The increase is attributed primarily to the increase in average assets under management, which also nearly doubled to $5.5 billion from $2.9 billion in the prior year quarter. The growth reflected energy price volatility associated with geopolitical events in the Middle East and Eastern Europe, as well as economic uncertainty affecting inventory and demand.”
+ Most price-prediction pages fall into one of two groups. Some are a wall of indicators with no conclusion. Others are a single price target written once and never revisited. Kumocast takes a different approach, modelled on the way professional desks present intraday views.
 
- Nicholas Gerber, Chief Executive Officer, added, “During the quarter, the Company announced it had entered into a definitive merger agreement under which funds managed by Madison Dearborn Partners will acquire all of the outstanding shares of The Marygold Companies for $2.00 per share, representing a premium of 100% over the Company’s closing share price on September 24, 2026, the day before the agreement was announced. The transaction is expected to close during the first half of 2027, or earlier, upon satisfaction of a number of closing conditions that are usual and customary for transactions of this nature.”
+ At the top of every page, next to the live price, a signal card states the site's preference in plain language. A typical reading looks like this: the upside prevails as long as a named level holds as support, with two higher levels as targets. Directly underneath, two clearly separated scenarios show what Kumocast expects if the level holds and what it expects if it breaks. Each target shows its distance from the current price, in pips for currency pairs and in percent for everything else.
 
- Business Units
+ The card offers three time frames – intraday, daily and weekly – so short-term traders and swing traders can compare the near-term view with the bigger picture in one click. Each tab also shows the expected move for that time frame, so readers can judge at a glance whether a setup is worth their attention.
 
- The Company’s USCF Investments subsidiary, https://www.uscfinvestments.com/, acquired in 2016 and based in Walnut Creek, Calif., serves as manager, operator or investment adviser to 16 exchange traded products, structured as limited partnerships or investment trusts that issue shares trading on the NYSE Arca.
+ Because markets move all day, the analysis does too. Every 30 minutes Kumocast re-reads the chart with the latest price and publishes its current view. Levels come from the broader structure of the market – swing highs and lows on the 4-hour and daily charts and classic daily pivot points – rather than from short-lived 30-minute noise. That keeps the levels meaningful while letting the view change as soon as the market really does.
 
- Gourmet Foods, https://gourmetfoodsltd.co.nz/, acquired in 2015, is a commercial-scale bakery that produces and distributes iconic meat pies and pastries throughout New Zealand under the brand names Pat’s Pantry and Ponsonby Pies. Acquired by Gourmet Foods in 2020, Printstock Products Limited, https://www.printstock.co.nz, is a printer of specialized food wrappers and is located in Napier, New Zealand. These entities are now classified as “Discontinued Operations” in our Condensed Consolidated Financial Statements.
+ Built around the gold market and the instruments traders follow most
 
- San Clemente, Calif.-based Original Sprout, www.originalsprout.com, acquired in 2017, produces a full line of hair and skin care products distributed throughout the U.S. and in many regions throughout the world.
+ Gold is a good example of what each page delivers. The gold signal and price prediction for today shows the live XAU/USD price, Kumocast's current preference with its pivot and two targets, the alternative scenario if the pivot breaks, an interactive candlestick chart with those levels drawn on it, and a short written comment explaining the reasoning behind the view. Further down, readers find gold's likely trading range for the next 4 hours, 24 hours and 7 days, a day-by-day weekly outlook, the upcoming economic releases most likely to move the metal, and the latest gold headlines.
 
- Marygold & Co. (UK) Limited, https://marygoldandco.uk/, was established in the U.K. in 2021 and operates through two U.K.-based investment advisory business units: Marygold & Co Limited (fka/Tiger Financial and Asset Management), acquired in 2022, http://www.tfam.co.uk/, and Step-by-Step Financial Planners, acquired in 2024, https://www.sbsfp.co.uk/, that manage clients’ financial wealth across a diverse product range.
+ The same structure applies across every market, so a reader who learns to read one page can read them all. That consistency makes it easy to compare gold with silver, crude oil with the S&P 500, or the euro with the yen.
 
- About The Marygold Companies, Inc.
+ Interactive charts with the levels already drawn
 
- The Marygold Companies, Inc. was founded in 1996 and repositioned as a global holding firm in 2015. The Company currently has operating subsidiaries in financial services, food manufacturing, printing, and beauty products, under the trade names USCF Investments, Marygold & Co., Step-By-Step Financial Planners, Marygold & Co. Limited, Gourmet Foods, Printstock Products, and Original Sprout, respectively. Offices and manufacturing operations are in the U.S., New Zealand, and the U.K. For more information, visit www.themarygoldcompanies.com.
+ Every page includes an interactive candlestick chart that readers can zoom and scroll on desktop and mobile. The chart shows 20- and 50-period moving averages, Bollinger Bands, RSI and MACD, and it draws Kumocast's pivot, targets and alternative level directly on the price, together with an arrow toward the first target. Switching between 30-minute, 4-hour and daily candles also switches the chart to the matching intraday, daily or weekly signal levels.
 
- Forward-Looking Statements
+ Next to the chart, a short comment box explains the view in plain English: where the price sits relative to its moving averages, what RSI and MACD are saying, what would need to happen for the view to change, and which scheduled economic events could cause volatility in the coming days.
 
- This press release includes “forward-looking statements” within the meaning of U.S. federal securities laws. Words such as “expect,” “estimate,” “project,” “budget,” “forecast,” “anticipate,” “intend,” “plan,” “may” “will,” “could,” “should” “believes,” “predicts,” “potential,” “continue” and similar expressions are intended to identify such forward-looking statements. Such forward-looking statements, including, but not limited to completion of the transaction under which funds managed by Madison Dearborn Partners will acquire all of the outstanding shares of The Marygold Companies, involve significant risks and uncertainties that could cause the actual results to differ materially from the expected results and, consequently, you should not rely on these forward-looking statements as predictions of future events. Readers should refer to the further detail of the risks disclosed in the Company’s Annual Report on Form 10-K filed with the Securities and Exchange Commission and in the Company’s other filings with the Securities and Exchange Commission. The foregoing list of factors is not exclusive. Readers are cautioned not to place undue reliance upon any forward-looking statements, which speak only as of the date made. Except as required by law, the Company disclaims any obligation to update or publicly announce any revisions to any of the forward-looking statements contained in this press release.
+ Market weather instead of jargon
 
- Media and investors, for more information, contactRoger S. PondelPondelWilkinson310-279-5965rpondel@pondel.com
+ Kumocast's name and mascot come from the same idea. Kumo – a calm grey tabby whose head is a little cloud – reads the market the way people read the sky. When buyers are in control, the forecast is sunny. When neither side leads, it is cloudy. When sellers take over, Kumo opens an umbrella. When a market is closed, Kumo sleeps until the opening bell. "Kumo" means cloud in Japanese, and traders will recognise it as the name of the cloud in the Ichimoku indicator.
 
- Contact the CompanyDavid Neibert, Chief Operations Officer949-218-8542dneibert@themarygoldcompanies.com
+ The weather view is backed by a transparent mood score from −100 to +100, built from trend and momentum indicators, along with a confidence reading. It gives newer traders an intuitive starting point while experienced traders can go straight to the levels, ranges and indicator dashboard.
 
- (Financial Tables Follow)
+ More than a single prediction
 
- CONDENSED CONSOLIDATED BALANCE SHEETS(in thousands, except per share data)(unaudited)
+ Beyond the signal card and the chart, each Kumocast page brings together information that traders usually have to collect from several sources:
 
- 
+ Support and resistance levels, shown as ceilings and floors above and below the current price.
 
-September 30,2026
+ Statistical price ranges for the next 4 hours, 24 hours and 7 days, which widen the further ahead they look because uncertainty grows with time.
 
-June 30,2026
+ A 7-day forecast with a likely range and a mood for each day.
 
- ASSETS
+ A long-term 2026–2030 outlook with bear, base and bull cases, based on each market's own volatility and a deliberately cautious view of its past trend.
 
- CURRENT ASSETS
+ A buyers-versus-sellers gauge and an hour-by-hour view of the last 12 hours.
 
- Cash and cash equivalents
+ A session breakdown for the Asian, London and New York trading sessions on currency and commodity pages.
 
-$
+ The official exchange close for stocks and indices, shown next to the live price whenever Wall Street or Tokyo is closed.
 
-4,484
+ The latest headlines and the next high-impact economic releases, such as central bank decisions, inflation data and US employment reports.
 
-$
+ An accuracy record anyone can check
 
-2,880
+ Kumocast publishes how its forecasts have performed. Each page replays the site's daily range model over the last 30 finished days, using only the data that was available before each day, and shows how often the next day's close landed inside the predicted range. A well-calibrated one-standard-deviation range should be right about two times out of three, and the page shows the actual result day by day, including the misses. A full methodology page explains every rule behind the signals, levels, ranges and scores.
 
- Accounts receivable, net (of which $2,871 and $2,684, respectively, due from related parties)
+ "Traders don't need another page that shouts a price target and disappears," said Alex Wu, the independent market analyst who designed the Kumocast model. "They need a clear view, the exact level where that view is wrong, and a plan for both outcomes. That's what we put at the top of every page, and we refresh it every 30 minutes because the market doesn't wait. We also show how our ranges have performed, because being honest about uncertainty is part of giving a useful forecast."
 
-3,192
+ Free, simple and built for mobile
 
-2,892
+ Kumocast is free to use and does not require an account or a sign-up. Pages load quickly, work on any phone, and are designed so the key information – the price, the preference, the pivot and the targets – is visible on the first screen without scrolling. Each page shows exactly when it was last updated and when the next update is due, and it says clearly when the main market for an instrument is closed.
 
- Inventories
+ Pages are organised by market type – Forex, Gold & Commodities, Indices and Stocks – with a homepage summary of the markets moving most right now, and each market page links to related markets, such as gold to silver and the US dollar.Responsible by design
 
-941
+ Every signal and forecast on Kumocast is presented as the site's opinion, based on technical analysis and live market data. It is not guaranteed and it is not financial advice. Trading currencies, CFDs, commodities, indices and stocks carries a high level of risk, and leveraged products can lead to losses that exceed the initial deposit. Each page carries a clear risk notice, and a full disclaimer explains the limits of the analysis.
 
-1,051
+ About Kumocast
 
- Prepaid income tax and tax receivable
+ Kumocast is a free market analysis website that publishes live trading signals, price predictions and forecasts for forex, gold and commodities, stock indices and US stocks, refreshed every 30 minutes. Each market page combines a clear signal with a pivot, two targets and an alternative scenario, an interactive chart, statistical price ranges, a 7-day and long-term outlook, and an open accuracy record, all presented as an easy-to-read market weather forecast by Kumo, the site's cloud-headed cat. The Kumocast model was designed by independent market analyst Alex Wu. Learn more at Kumocast.io.
 
-300
+ Disclaimer: The information in this press release is for informational purposes only and does not constitute financial, investment or trading advice. Trading involves a high level of risk and may not be suitable for all investors.
 
-814
+ Media Contact
 
- Investments, at fair value
-
-8,109
-
-7,848
-
- Assets held for sale
-
-2,478
-
-2,517
-
- Other current assets
-
-567
-
-513
-
- Total current assets
-
-20,071
-
-18,515
-
- Operating lease right-of-use assets
-
-304
-
-429
-
- Deferred tax assets, net
-
-3,599
-
-3,599
-
- Other assets
-
-1,434
-
-1,436
-
- Total assets
-
-$
-
-25,408
-
-$
-
-23,979
-
- LIABILITIES AND STOCKHOLDERS’ EQUITY
-
- 
-
- CURRENT LIABILITIES
-
- Accounts payable and accrued expenses
-
-$
-
-3,377
-
-$
-
-3,364
-
- Lease liabilities, current portion
-
-232
-
-314
-
- Liabilities associated with assets held for sale
-
-758
-
-921
-
- Total current liabilities
-
-4,367
-
-4,599
-
- Lease liabilities, net of current portion
-
-109
-
-154
-
- Total liabilities
-
-4,476
-
-4,753
-
- STOCKHOLDERS’ EQUITY
-
- Preferred stock, par value $0.001; 50,000 shares authorized Series B: 13 shares issued and outstanding at both September 30, 2026 and June 30, 2026
-
--
-
--
-
- Common stock, $0.001 par value; 900,000 shares authorized; 42,760 and 42,712 shares issued and outstanding at September 30, 2026 and June 30, 2026, respectively
-
-42
-
-42
-
- Additional paid-in capital
-
-15,359
-
-15,270
-
- Accumulated other comprehensive (loss) income
-
-(49)
-
-87
-
- Retained earnings
-
-5,580
-
-3,827
-
- Total stockholders’ equity
-
-20,932
-
-19,226
-
- Total liabilities and stockholders’ equity
-
-$
-
-25,408
-
-$
-
-23,979
-
- 
-
- 
-
- 
-
- CONDENSED CONSOLIDATED STATEMENTS OF OPERATIONS(in thousands, except per share data)(unaudited)
-
- 
-
-Quarters Ended September 30,
-
- 
-
-2026
-
-2025
-
- Revenue
-
- Fund management - related party
-
-$
-
-8,404
-
-$
-
-4,329
-
- Beauty products
-
-792
-
-671
-
- Financial services
-
-160
-
-208
-
- Revenue
-
-9,356
-
-5,208
-
- Cost of revenue
-
-403
-
-301
-
- 
-
- Gross profit
-
-8,953
-
-4,907
-
- Operating expense
-
- Fund operations
-
-2,448
-
-1,525
-
- Salaries and compensation
-
-2,391
-
-2,330
-
- General and administrative expense
-
-1,501
-
-1,942
-
- Marketing and advertising
-
-752
-
-475
-
- Total operating expenses
-
-7,092
-
-6,272
-
- Income (loss) from continuing operations
-
-1,861
-
-(1,365)
-
- Other income:
-
- Interest and dividend income
-
-88
-
-84
-
- Other income, net
-
-199
-
-666
-
- Total other income, net
-
-287
-
-750
-
- Income (loss) from continuing operations before income taxes
-
-2,148
-
-(615)
-
- (Provision) benefit from income taxes
-
-(473)
-
-153
-
- Net income (loss) from continuing operations
-
-1,675
-
-(462)
-
- Net income from discontinued operations
-
-78
-
-106
-
- Net income (loss)
-
-$
-
-1,753
-
-$
-
-(356)
-
- Weighted average shares of common stock
-
- Basic
-
-42,973
-
-42,959
-
- Diluted
-
-42,977
-
-42,959
-
- Net income (loss) from continuing operations per common share – basic and diluted
-
-$
-
-0.04
-
-$
-
-(0.01)
-
- Net income (loss) per common share – basic and diluted
-
-$
-
-0.04
-
-$
-
-(0.01)
-
- 
+ Company Name: Kumocast Contact Person: Alex Wu Email: alexwu@kumocast.io Website: https://www.kumocast.io/
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-marygold-companies-reports-financial-results-for-first-fiscal-quarter-ended-september-30-2026-7091141)
+[Original/Source Press Release](https://www.newmediawire.com/news/kumocast-io-launches-free-live-trading-signals-and-price-predictions-for-forex-gold-oil-indices-and-stocks-refreshed-every-30-minutes-7091151)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/marygold-q1-revenue-soars-to-9-4m-net-income-hits-1-8m/03022409ffbd6908e115f2efb84167f2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kumocast-io-launches-free-live-trading-signals-for-50-markets/62c0bd83e4d138d327760af7ae33d5f8) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/06/marygold-companies-swings-to-profit-as-uscf-etf-assets-nearly-double/)
+Pickup - [https://x.com](https://twitter.com/i/status/2118867247984758947)
+
+Pickup - [https://x.com](https://twitter.com/i/status/2118867250186694758)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/06/kumocastio-debuts-free-live-trading-signals-refreshed-every-30-minutes/)
+
+Pickup - [https://news.adshealthcare.us](https://news.adshealthcare.us/news/kumocastio-launches-free-live-trading-signals-refreshed-every-30-minutes)
+
+Pickup - [https://advos.io/en](https://advos.io/en/kumocastio-launches-free-live-trading-signals-and-price-predictions-for-50-markets-refreshed-every-30-minutes)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/kumocastio-launches-free-live-trading-signals-refreshed-every-30-minutes)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/kumocastio-launches-free-live-trading-signals-and-price-predictions-refreshed-every-30-minutes)
+
+Pickup - [https://burstable.news](https://burstable.news/news/kumocastio-launches-free-live-trading-signals-refreshed-every-30-minutes)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kumocastio-startet-kostenlose-live-trading-signale-die-alle-30-minuten-aktualisiert-werden)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/kumocastio-lanza-senales-de-trading-en-vivo-gratuitas-que-se-actualizan-cada-30-minutos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/kumocastio-lance-des-signaux-de-trading-en-direct-gratuits-actualises-toutes-les-30-minutes)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/kumocastio-lanca-sinais-de-trading-ao-vivo-gratuitos-atualizados-a-cada-30-minutos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/kumocastio-launches-free-live-trading-signals-refreshed-every-30-minutes)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/kumocastio-launches-free-live-trading-signals-and-price-predictions-refreshed-every-30-minutes)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/kumocastio-launches-free-live-trading-signals-for-forex-gold-and-stocks-refreshed-every-30-minutes)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/6/fondR34G.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/6/plumuGpu.webp)
