@@ -1,84 +1,124 @@
-# Pronghorn Comeback and Screwworm's Return: Inside West Texas Wildlife Fight
+# Super Patch Joins Spartan Race as Official Partner 
+at Spartan Race SLO CAL
 
-The newest episode of the Building Texas Show, hosted by Justin McKenzie and published September 14, 2026, travels to Alpine to sit down with Lalo Gonzalez, chair of the Department of Natural Sciences at Sul Ross State University and a leader at the Borderlands Research Institute (BRI). The conversation zeroes in on one of the state's most urgent conservation stories: the near-collapse and hard-won rebound of the West Texas pronghorn population, and the return of New World screwworm to Texas soil after decades of eradication. It is a timely dispatch from a fragile, rapidly changing landscape.
 
- Listeners get a working tour of BRI's research portfolio and the pressures reshaping the Trans-Pecos. Topic threads covered in the episode include:
+Super Patch, an innovator in drug-free wearable wellness technology, is proud to announce its official partnership with Spartan Race at the 2026 SLO CAL Spartan Trifecta Weekend, taking place November 7-8 at Santa Margarita Ranch in California.
 
- * The 2010-2011 Texas Parks and Wildlife translocation program that moved roughly 1,000 pronghorn from the Panhandle to the Marfa and Marathon grasslands.
-* The return of New World screwworm and what sterile-fly eradication accomplished from the 1960s down to Panama.
-* The first-ever pneumonia outbreaks in Texas desert bighorn sheep, plus work on scaled quail, black bears, mule deer, sandhill cranes, soil health and hydrology.
+ The partnership unites two brands committed to challenging limits, embracing innovation, and empowering individuals to realize their potential.
 
- Gonzalez explains why pronghorn were uniquely vulnerable to fencing and brush encroachment, noting they behave nothing like whitetail deer. "They don't jump fences. They physically can't. They just seem to not like doing it. So any fence is a barrier, pretty much. It's a wall that they don't cross," he tells McKenzie. He credits landowners like Nile Maxwell for opening gates, pulling historic fencing, and lowering bottom wires to knee height (about 18 inches) so pronghorn can slip underneath without disrupting livestock operations, calling private stewards "the best conservationists" in a state that is 95% privately owned.
+ As an Official Partner, Super Patch will introduce Spartan athletes and spectators to two of its innovative wearable products: the BOOST energy patch and VICTORY athletic performance patch. Together, they offer a different approach to energy and athletic performance, designed to complement the preparation, determination and commitment that define the Spartan community.
 
- The episode also digs into New World screwworm, a flesh-eating fly larva that the U.S. pushed south to Panama in the 1960s using sterile-fly technology. Gonzalez notes recent positive cases in Texas livestock and confirmed wildlife cases in northern Mexico that cross the border freely, even as cattle imports have been paused. He connects the dots to other emerging threats: pneumonia now wiping out pockets of desert bighorn sheep (Texas had been the last holdout state), drought comparable to Death Valley in some years, and the steady loss of working landscapes from El Paso to Del Rio. BRI's graduate program, he adds, boasts a 95% job-placement rate at graduation, with millions of acres of West Texas serving as the classroom.
+ Experience Energy to Go Further and Performance to Push Harder. Every Spartan knows that crossing the finish line starts long before race day. It takes preparation, consistency and the energy to keep moving when the course gets tough.
 
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, tells the stories of the founders, community leaders and projects shaping Texas, from economic development and small business to conservation and education. New episodes publish weekly on YouTube and all major podcast platforms, with highlights on Facebook, Instagram and LinkedIn at @thebuildingtexasshow. Watch, listen and subscribe at www.buildingtexasshow.com and https://www.youtube.com/@thebuildingtexasshow. 
+ The Super Patch BOOST energy patch is designed to support up to 24 hours of clean, drug-free energy without caffeine or stimulants.
+
+ Complementing BOOST, the VICTORY athletic performance patch is designed to support strength, power and balance, with benefits lasting up to 24 hours.
+
+ Both products use Super Patch's proprietary Vibrotactile Technology (VTT), featuring tactile patterns designed to interact with sensory receptors in the skin without delivering active drug ingredients.
+
+ Together, BOOST and VICTORY offer athletes complementary options to explore as part of their training, preparation and competition routines.
+
+ “Athletes know that progress is built long before race day,” said Jay Dhaliwal, CEO of Super Patch. “We’re excited to bring the BOOST energy patch and VICTORY athletic performance patch to the Spartan Race and DEKA communities and introduce a different way to think about energy and athletic performance. This partnership connects innovation with individuals striving to challenge themselves and explore their limits.”
+
+ Supporting Elite Achievement at SLO CAL As part of its SLO CAL activation, Super Patch will award a total of $15,000 in cash prizes to the top five male and top five female elite finishers in each of the Sprint (5 km), Super (10 km) and Beast (21 km) races.
+
+ The awards recognize the preparation, dedication and competitive spirit required to perform at the elite level.
+
+ Individual prize amounts and eligibility details will be communicated through the event organizers.
+
+ A Partnership Built Around Pushing Limits The SLO CAL Spartan Trifecta Weekend brings together athletes of different backgrounds and abilities to challenge themselves across rugged terrain, demanding obstacles and three race distances.
+
+ Whether competing for a podium finish, completing a first Spartan race or pursuing a personal milestone, every athlete shares a commitment to testing their limits.
+
+ That shared philosophy is at the heart of the partnership between Super Patch and Spartan Race.
+
+ “We're excited to partner with Super Patch because we share a belief that people are capable of more than they think,” said De Sena. “Spartan is about challenging limits, and Super Patch is bringing a fresh approach to how athletes think about energy and performance. Together, we're creating new opportunities for our community to discover what's possible, both on the course and beyond it.”
+
+ Beyond the Finish Line Throughout the SLO CAL weekend, Super Patch will connect directly with athletes and spectators through on-site product discovery, sampling and athlete-led content.
+
+ Visitors to the Super Patch festival tent will have the opportunity to meet the team, experience the BOOST energy patch and VICTORY athletic performance patch, and learn how Super Patch technology may fit into their broader training and wellness routines.
+
+ While SLO CAL marks an important moment for the partnership, the connection between Super Patch and the Spartan community extends beyond a single race weekend.
+
+ Because athletic achievement isn't built on race day alone. It's built through every training session, every challenge and every decision to keep moving forward.
+
+ About Super Patch Super Patch develops drug-free wearable wellness products using proprietary Vibrotactile Technology (VTT). Its tactile-pattern patches are designed to interact with sensory receptors in the skin and address wellness interests including energy, physical performance, focus, sleep, and pain management.
+
+ Learn more at www.superpatch.com.
+
+ About Spartan Race Spartan Race is an obstacle-course racing brand founded by Joe De Sena, with events that challenge athletes across a range of distances and abilities. Spartan inspires people to push beyond their perceived limits through physical challenges, competition and community.
+
+ Learn more at www.spartan.com.
+
+ Media Contact The Super Patch Company
+
+ Email Contact
+
+ www.superpatch.com 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611072934/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+[Original/Source Press Release](https://newsworthy.ai/news/202611073151/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-pronghorn-comeback-and-screwworm-return-on-building-texas-show/e463827ead888f600b700583f75b96e6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/super-patch-partners-with-spartan-race-as-official-wearable-wellness-provider/935ca7dd950c282f037399bb0b771894) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://advos.io/en](https://advos.io/en/super-patch-partners-with-spartan-race-bringing-drug-free-wearable-tech-to-slo-cal-trifecta-weekend)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/super-patch-partners-with-spartan-race-to-bring-drug-free-wearable-wellness-to-athletes)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/super-patch-partners-with-spartan-race-to-bring-drug-free-wearable-wellness-to-obstacle-course-athletes)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/super-patch-partners-with-spartan-race-bringing-drug-free-wellness-tech-and-15000-in-prizes-to-california)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/super-patch-se-asocia-con-spartan-race-y-lleva-su-tecnologia-de-bienestar-sin-farmacos-y-15000-en-premios-a-california)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://burstable.news](https://burstable.news/news/super-patch-partners-with-spartan-race-to-bring-drug-free-wearable-wellness-to-athletes)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/super-patch-geht-partnerschaft-mit-spartan-race-ein-um-athleten-medikamentenfreie-tragbare-wellness-technologie-zu-bringen)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/super-patch-se-asocia-con-spartan-race-para-llevar-bienestar-portatil-sin-medicamentos-a-los-atletas)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/super-patch-sassocie-a-spartan-race-pour-proposer-aux-athletes-un-bien-etre-portable-sans-medicament)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/super-patch-faz-parceria-com-o-spartan-race-para-levar-bem-estar-vestivel-sem-drogas-aos-atletas)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/super-patch-partners-with-spartan-race-to-bring-drug-free-wearable-tech-to-obstacle-course-athletes)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/07/pronghorn-recovery-and-screwworms-return-a-west-texas-conservation-crossroads/)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/super-patch-partners-with-spartan-race-bringing-drug-free-wellness-patches-and-15000-in-prizes-to-slo-cal)
 
-Pickup - [https://advos.io/en](https://advos.io/en/pronghorn-comeback-and-screwworms-return-inside-west-texas-wildlife-fight)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pronghorn-recovery-and-screwworms-return-a-west-texas-conservation-crossroads)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pronghorn-recovery-and-screwworm-return-highlight-fragile-west-texas-balance)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/west-texas-pronghorn-recovery-and-screwworm-return-highlighted-on-building-texas-show)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-recuperacion-del-berrendo-en-el-oeste-de-texas-y-el-regreso-de-la-mosca-gusano-barrenador-destacan-en-el-programa-building-texas-show)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://burstable.news](https://burstable.news/news/pronghorn-recovery-and-screwworms-return-a-west-texas-conservation-battle)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/gabelbock-erholung-und-die-ruckkehr-der-neuwelt-schraubenwurmfliege-ein-naturschutzkampf-in-west-texas)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-recuperacion-del-berrendo-y-el-regreso-de-la-mosca-gusanera-una-batalla-de-conservacion-en-el-oeste-de-texas)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-retablissement-de-lantilope-damerique-et-le-retour-de-la-lucilie-bouchere-une-bataille-de-conservation-dans-louest-du-texas)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/recuperacao-do-antilocapra-e-o-retorno-da-mosca-da-bicheira-uma-batalha-de-conservacao-no-oeste-do-texas)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pronghorn-recovery-and-screwworm-return-highlight-fragile-west-texas-balance)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/super-patch-joins-spartan-race-as-official-partner-at-spartan-race-slo-cal)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/pronghorn-recovery-and-screwworms-return-why-west-texas-wildlife-hangs-in-the-balance)
-
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/texas-screwworm-returns-as-pronghorn-make-a-comeback-a-conversation-with-lalo-gonzalez)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/07/super-patch-partners-with-spartan-race-to-bring-drug-free-wearable-wellness-to-obstacle-athletes/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/7/iris4YEO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/7/pondf4Qc.webp)
