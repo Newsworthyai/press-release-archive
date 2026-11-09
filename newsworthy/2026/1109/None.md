@@ -1,47 +1,82 @@
-# Certified-PEP Expands B2B Research Supply with Wholesale Program
+# Suhail Arastu: San Antonio Culture Is the City's Irreplaceable Asset
 
+The September 28, 2026 episode of The Building Texas Show, titled San Antonio Culture: Why It Matters More Than You Think, hosted by Justin McKenzie, brings listeners inside a timely conversation about why arts, heritage and sister-city diplomacy belong at the center of San Antonio's economic story. Guest Suhail Arastu of Musical Bridges Around the World joins as the city works through a tight budget cycle, a downtown revival led by Project Marvel, and the countdown to major 2028 milestones. The episode argues that culture is not a nice-to-have, but the city's most defensible asset.
 
-Certified Peptides (Certified-PEP), a U.S.-based supplier of peptides and compounds for laboratory research, has introduced a wholesale program designed to expand its business-to-business operations and support qualified research laboratories and approved resellers.
+ Arastu and McKenzie map the terrain listeners can expect to explore, including:
 
- The initiative provides approved organizations with a dedicated wholesale account system, centralized ordering capabilities and access to research compound documentation. The program builds on Certified-PEP's existing operations, which emphasize U.S. manufacturing, independent laboratory testing and product traceability.
+ * Musical Bridges' 278 free concerts last year, inching toward 300, at venues like Stable Hall, San Fernando Cathedral and the Carver Community Cultural Center.
+* The Gurwitz International Piano Competition's sister-city path from the Gwangju Symphony Orchestra and Mexico City Philharmonic to Kaohsiung, Taiwan in 2028.
+* Public art from the River Walk to San Pedro Creek, the Saga on Main Plaza by Xavier de Richemont, and the UNESCO World Heritage Missions corridor around the Roosevelt Library.
 
- Supporting Qualified Research Organizations The wholesale program is designed for laboratories, research supply businesses and approved resellers serving the laboratory research market. Participating organizations undergo a business review process before receiving access to the program.
+ The conversation is grounded in Arastu's dual roles as Global Arts Envoy for Sister Cities International and mayoral appointee to the San Antonio Arts Commission. Reflecting on the city's layered heritage, he tells McKenzie:
 
- Approved accounts have access to a dedicated ordering system with purchase order support, account management features, order history and reordering capabilities.
+ You talk to so many people here whose families have been here 5, 7-plus generations. They say, we never crossed the river, I mean the border, the border crossed us. So you've got this from our German heritage to the Czech and the Hill Country, from Fredericksburg and Boerne to Spanish. He also warns that in current budget conversations, "there's talk of consolidating and removing certain things from certain pots of funding," a move he argues would erode the very identity that draws visitors and employers.
 
- The program is intended to support organizations requiring a structured procurement process for laboratory research materials.
+ The episode digs into the mechanics behind that identity. Arastu credits former County Judge Nelson Wolff for the San Pedro Creek transformation, notes Leland Stone's 2013 acquisition of the Roosevelt Library one year before the Missions' UNESCO designation, and points to the Gwangju Pavilion at Denman Estate Park as a tangible sister-city gift. He and McKenzie connect these threads to economic development wins like JCB and Toyota, to the return of the Alameda Theater in 2028, and to Title I school and senior outreach that carries Grammy-level, Van Cliburn and Tchaikovsky-rated artists into neighborhoods across Bexar County. Musical Bridges' new season opens October 11 across three downtown venues.
 
- Emphasis on Independent Testing and Documentation Independent analytical testing and batch-specific documentation remain central to Certified-PEP's research supply operations.
-
- The company works with independent testing laboratories, including Vanguard Laboratory, to evaluate research compounds and provide Certificates of Analysis (COAs) documenting analytical test results.
-
- Certified-PEP incorporates QR codes on product vials to connect researchers with available batch-specific testing documentation. This approach supports product traceability and provides research organizations with access to analytical information associated with the materials they receive.
-
- Certificates of Analysis document the results of specified laboratory tests and do not establish that research compounds are safe or effective for human use.
-
- Building on U.S. Research Supply Operations The wholesale initiative represents an expansion of Certified-PEP's business services while maintaining its focus on research-only materials, analytical documentation and supplier transparency.
-
- By combining dedicated business accounts with existing manufacturing and testing practices, Certified-PEP aims to support the procurement and documentation needs of qualified organizations operating in the laboratory research sector.
-
- Additional information about the initiative is available through the company's wholesale program page.
-
- About [Certified-PEP](https://certified-pep.com/) Certified-PEP is a U.S.-based supplier of peptides and compounds for qualified laboratory research. The company emphasizes U.S. manufacturing, batch-specific analytical testing through Vanguard Laboratory, product labeling with COA information, transparent research documentation and top-tier customer service. Certified-PEP products are intended solely for in-vitro laboratory research and are not intended for human or veterinary use or clinical applications.
-
- Research Use Only: Certified-PEP products are intended solely for in-vitro laboratory research and are not intended for human or veterinary use, consumption, clinical use, diagnosis, treatment or prevention of disease.
-
- Media Contact:Certified-PEP Media InquiriesEmail Contact 
+ About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the people, institutions and ideas shaping Texas' fastest-growing communities. Through candid conversations with civic leaders, entrepreneurs and cultural figures, the podcast connects local storytelling to statewide impact for listeners who care about how Texas gets built. The episode is available now wherever podcasts are heard. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611093153/certified-pep-expands-b2b-research-supply-with-wholesale-program)
+[Original/Source Press Release](https://newsworthy.ai/news/202611092991/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/certified-pep-launches-wholesale-program-for-research-labs/e60d7e6c51a872001835a40c9ccd04d6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/san-antonio-culture-as-economic-engine-building-texas-show/588e610a241ca52692e7e71e2ef3a545) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+
+Pickup - [https://advos.io/en](https://advos.io/en/san-antonios-cultural-assets-called-most-defensible-economic-driver-as-budget-pressures-mount)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/san-antonios-cultural-assets-face-budget-threat-arts-leader-warns)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/san-antonios-culture-positioned-as-economic-anchor-amid-budget-pressures)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/san-antonios-cultural-assets-called-key-to-economic-competitiveness)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/los-activos-culturales-de-san-antonio-son-clave-para-la-competitividad-economica)
+
+Pickup - [https://burstable.news](https://burstable.news/news/san-antonio-culture-emerges-as-economic-pillar-amid-budget-and-downtown-revival-talks)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/san-antonios-kultur-entwickelt-sich-angesichts-von-haushalts-und-innenstadtbelebungsdebatten-zur-wirtschaftlichen-saule)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-cultura-de-san-antonio-emerge-como-pilar-economico-en-medio-de-conversaciones-sobre-el-presupuesto-y-la-revitalizacion-del-centro)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-culture-de-san-antonio-simpose-comme-pilier-economique-au-coeur-des-debats-budgetaires-et-de-la-revitalisation-du-centre-ville)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/cultura-de-san-antonio-emerge-como-pilar-economico-em-meio-a-debates-sobre-orcamento-e-revitalizacao-do-centro)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/san-antonios-cultural-assets-at-risk-in-budget-talks-arts-leader-warns)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/san-antonio-culture-the-citys-most-defensible-asset)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/9/veilOjcf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/9/isle_6HR.webp)
