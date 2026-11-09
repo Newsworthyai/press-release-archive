@@ -1,82 +1,64 @@
-# Suhail Arastu: San Antonio Culture Is the City's Irreplaceable Asset
+# Jenna Zwagil's Divine Earth Theory Debuts on November 11th
 
-The September 28, 2026 episode of The Building Texas Show, titled San Antonio Culture: Why It Matters More Than You Think, hosted by Justin McKenzie, brings listeners inside a timely conversation about why arts, heritage and sister-city diplomacy belong at the center of San Antonio's economic story. Guest Suhail Arastu of Musical Bridges Around the World joins as the city works through a tight budget cycle, a downtown revival led by Project Marvel, and the countdown to major 2028 milestones. The episode argues that culture is not a nice-to-have, but the city's most defensible asset.
+Divine Earth Theory will enter the hemp wellness market on November 11, 2026, launching Regenerate, its inaugural broad-spectrum hemp extract. The launch marks founder and CEO Jenna Zwagil’s return to the hemp industry and introduces The Canopy, an online community where people can learn about hemp and connect with others who share their interest.
 
- Arastu and McKenzie map the terrain listeners can expect to explore, including:
+ Jenna Zwagil leveraged her HempWorx experience to shape Divine Earth Theory. She saw people come to learn about hemp and build a community around what they discovered together. With Divine Earth Theory, she wanted to give that community a place to reconnect and give people who are new to hemp a place to start.
 
- * Musical Bridges' 278 free concerts last year, inching toward 300, at venues like Stable Hall, San Fernando Cathedral and the Carver Community Cultural Center.
-* The Gurwitz International Piano Competition's sister-city path from the Gwangju Symphony Orchestra and Mexico City Philharmonic to Kaohsiung, Taiwan in 2028.
-* Public art from the River Walk to San Pedro Creek, the Saga on Main Plaza by Xavier de Richemont, and the UNESCO World Heritage Missions corridor around the Roosevelt Library.
+ “I founded Divine Earth Theory to bring the highest-quality hemp products we can make to market. Regenerate is the first product we’re putting our name on,” said Jenna Zwagil, founder and CEO of Divine Earth Theory.
 
- The conversation is grounded in Arastu's dual roles as Global Arts Envoy for Sister Cities International and mayoral appointee to the San Antonio Arts Commission. Reflecting on the city's layered heritage, he tells McKenzie:
+ Regenerate, a broad-spectrum, THC-free hemp extract, is crafted for anytime use. Each 30 mL bottle contains 2,500 mg of total cannabinoids. Divine Earth Theory uses hemp grown in a controlled aeroponic environment and its Full Cryosonic Extract process, FCE™, which is designed to preserve naturally occurring hemp compounds. Regenerate is formulated using Axiom delivery technology for optimal effectiveness.
 
- You talk to so many people here whose families have been here 5, 7-plus generations. They say, we never crossed the river, I mean the border, the border crossed us. So you've got this from our German heritage to the Czech and the Hill Country, from Fredericksburg and Boerne to Spanish. He also warns that in current budget conversations, "there's talk of consolidating and removing certain things from certain pots of funding," a move he argues would erode the very identity that draws visitors and employers.
+ Regenerate will be available in Natural, Peppermint, and Cinnamon for $69.99 per bottle. Subscription options offer savings of up to 20%, with the applicable discount applied automatically in the cart. The two-tier affiliate program offers up to 30% combined commissions on qualifying sales, enhancing potential earnings.
 
- The episode digs into the mechanics behind that identity. Arastu credits former County Judge Nelson Wolff for the San Pedro Creek transformation, notes Leland Stone's 2013 acquisition of the Roosevelt Library one year before the Missions' UNESCO designation, and points to the Gwangju Pavilion at Denman Estate Park as a tangible sister-city gift. He and McKenzie connect these threads to economic development wins like JCB and Toyota, to the return of the Alameda Theater in 2028, and to Title I school and senior outreach that carries Grammy-level, Van Cliburn and Tchaikovsky-rated artists into neighborhoods across Bexar County. Musical Bridges' new season opens October 11 across three downtown venues.
+ Through The Canopy, members can explore educational content about hemp and the endocannabinoid system. The online community will also host The Theory Games, a seasonal team competition.
 
- About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, spotlights the people, institutions and ideas shaping Texas' fastest-growing communities. Through candid conversations with civic leaders, entrepreneurs and cultural figures, the podcast connects local storytelling to statewide impact for listeners who care about how Texas gets built. The episode is available now wherever podcasts are heard. 
+ Regenerate will be available beginning November 11 at DivineEarthTheory.com. The company plans to follow with Restore, a Lavender-Mint evening formula.
+
+ About [Divine Earth Theory](https://divineeartheory.com/) Divine Earth Theory is a hemp wellness company founded by Jenna Zwagil. The company develops hemp extracts and provides hemp education through The Canopy, its online community. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611092991/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+[Original/Source Press Release](https://newsworthy.ai/news/202611093155/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/san-antonio-culture-as-economic-engine-building-texas-show/588e610a241ca52692e7e71e2ef3a545) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/divine-earth-theory-launches-regenerate-hemp-extract-and-the-canopy-community/78f9033cea38a7a86fd48241d759995d) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://cannabis.in-focus.news](https://cannabis.in-focus.news/divine-earth-theory-enters-hemp-wellness-market-with-regenerate-launch-and-the-canopy-community)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/suhail-arastu-san-antonio-culture-is-the-citys-irreplaceable-asset)
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/jenna-zwagil-launches-divine-earth-theory-and-regenerate-hemp-extract-on-november-11)
 
-Pickup - [https://advos.io/en](https://advos.io/en/san-antonios-cultural-assets-called-most-defensible-economic-driver-as-budget-pressures-mount)
+Pickup - [https://wellness.in-focus.news/wellness-news](https://wellness.in-focus.news/wellness-news/divine-earth-theory-to-launch-regenerate-hemp-extract-and-the-canopy-community-on-november-11)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/san-antonios-cultural-assets-face-budget-threat-arts-leader-warns)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/san-antonios-culture-positioned-as-economic-anchor-amid-budget-pressures)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/san-antonios-cultural-assets-called-key-to-economic-competitiveness)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/los-activos-culturales-de-san-antonio-son-clave-para-la-competitividad-economica)
-
-Pickup - [https://burstable.news](https://burstable.news/news/san-antonio-culture-emerges-as-economic-pillar-amid-budget-and-downtown-revival-talks)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/san-antonios-kultur-entwickelt-sich-angesichts-von-haushalts-und-innenstadtbelebungsdebatten-zur-wirtschaftlichen-saule)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-cultura-de-san-antonio-emerge-como-pilar-economico-en-medio-de-conversaciones-sobre-el-presupuesto-y-la-revitalizacion-del-centro)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-culture-de-san-antonio-simpose-comme-pilier-economique-au-coeur-des-debats-budgetaires-et-de-la-revitalisation-du-centre-ville)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/cultura-de-san-antonio-emerge-como-pilar-economico-em-meio-a-debates-sobre-orcamento-e-revitalizacao-do-centro)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/san-antonios-cultural-assets-at-risk-in-budget-talks-arts-leader-warns)
-
-Pickup - [https://podcastpr.news](https://podcastpr.news/news/san-antonio-culture-the-citys-most-defensible-asset)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/jenna-zwagils-divine-earth-theory-debuts-on-november-11th)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/9/isle_6HR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/9/vibeZ7tI.webp)
