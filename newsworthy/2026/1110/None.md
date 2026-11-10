@@ -1,32 +1,43 @@
-# Survale Joins SAP PartnerEdge® Program to Deliver Advanced SmartRecruiters Integration on SAP® Store
+# City of Huntsville Selects VIP and Accela to Modernize Permitting and Support Continued Growth
 
-Survale today announced that it has joined the SAP PartnerEdge® program in the Build track to deliver its innovative integrated talent intelligence solution for  SmartRecruiters on SAP® Store.
+The City of Huntsville, one of the nation's fastest-growing metropolitan areas, has selected Visionary Integration Professionals (VIP) to lead the modernization of its planning and development operations, with VIP serving as the implementer and the Accela® Civic Platform providing the technology foundation. The initiative will improve coordination across city departments, streamline processes, and enhance the delivery of services to residents and businesses.
 
- The Survale talent feedback solution automates the process of gathering feedback and generating insights by leveraging SmartRecruiters data and workflows. By directly integrating with the SmartRecruiters hiring platform, it provides businesses with real-time candidate experience data and insights for optimizing their hiring process for candidate satisfaction and process improvement.
+ As development activity continues to accelerate, Huntsville is taking a proactive approach to modernizing the technology and processes supporting planning, permitting, inspections, and code enforcement. By combining Accela's Civic Platform with VIP's public-sector implementation expertise, the city will create a unified, scalable technology foundation that increases transparency, reduces administrative effort, and supports more efficient, coordinated service delivery.
 
- "Joining the SAP PartnerEdge program allows us to bring a specialized, ready-to-use solution directly to SmartRecruiters users looking to optimize the people, processes and technologies they use to hire," said Jason Moreau, CEO at Survale. "With SAP’s strategic focus on scaling SmartRecruiters and embedding Business AI into hiring, our integration helps enterprise customers get unprecedented views of their hiring through the eyes of their candidates, hiring managers and recruiters."
+ “Huntsville's continued growth brings tremendous opportunity, but it also requires us to think differently about how we deliver services to our community,” said Dr. Larry Lowe, Chief Innovation Officer, City of Huntsville. “Our goal is to stay ahead of that growth by investing in technology that makes government more efficient, accessible, and responsive. By partnering with VIP and Accela, we're building a modern, integrated foundation that will improve how our departments work together, streamline processes for residents and businesses, and position Huntsville to continue innovating well into the future.”
 
- Through this integration, enterprises using SmartRecruiters alongside SAP software can benefit from:
+ Accela's Civic Platform will serve as Huntsville's scalable digital foundation for planning and development, connecting workflows, data, and departments across the permitting lifecycle. The cloud-based platform will help the city respond to continued growth, improve visibility into development activity, and adopt new capabilities, including artificial intelligence, as they become available and as community needs evolve.
 
- * Real-Time Feedback: SmartRecruiters status changes trigger pulse surveys at each stage of the hiring process.
-* Actionable Insights: All feedback is tied to SmartRecruiters operational data so feedback can be localized to location, job, source, hiring manager and more.
-* Purpose-Built Platform: Survale was designed from the ground up for talent acquisition, allowing organizations to create multiple dashboards to segment and track key metrics for all hiring stakeholders.
-* AI Analysis and Headless Design: SurvaleAI acts as a built-in analyst to interpret volumes of data and comments to surface insights with a simple question. Headless design allows experience data to be automatically pulled into any BI system or included in any agentic process.
+ “Huntsville is showing how rapidly growing communities can modernize today while building the flexibility to meet tomorrow's needs,” said Noam Reininger, CEO of Accela. “By bringing planning, permitting, inspections, and code enforcement together on Accela's Civic Platform, the city is creating a connected foundation for faster service, stronger collaboration, and continued innovation. We look forward to supporting Huntsville and VIP as the city translates that vision into meaningful value for residents and businesses.”
 
- The SAP PartnerEdge program helps partners rapidly design, develop, and integrate applications with SAP software. Through its participation, Survale receives access to specialized tools, resources, and technical support to continuously advance its integration architecture in alignment with SAP’s product roadmap.
+ VIP will lead implementation of the new platform, drawing on 30 years of experience modernizing mission-critical government systems. Through its VIPManage project governance framework and VIPDeliver implementation methodology, VIP will work closely with Huntsville stakeholders to align technology with operational priorities, engage employees throughout the implementation process, and support adoption and long-term operational success.
 
- The Survale integration for SmartRecruiters is now available for evaluation and purchase on SAP Store.
+ “Modernization is about much more than implementing new technology. It's about helping organizations operate more effectively and deliver better outcomes for the communities they serve,” said Jonna Ward, Founder and CEO of Visionary Integration Professionals. “Huntsville is demonstrating tremendous foresight by investing in the capabilities needed to support its continued growth. We're proud to partner with the city and Accela to turn that vision into meaningful operational improvements and a foundation for continued innovation.”
 
- About Survale Survale's award-winning Talent Feedback Platform provides employers with an "Always On" solution for automatically gathering, analyzing and acting upon experiential data from candidates, recruiters, hiring managers and employees at each stage of the hiring process and throughout the talent lifecycle. Survale's data provides recruiting leadership with unprecedented insights into their recruitment operations and quality of hire, allowing them to optimize and align their people and processes around common metrics. Survale is also the home of the CandE Benchmark Research Program, the industry's leading candidate experience research and awards program. For more information, visit: survale.com.
+ About Visionary Integration Professionals (VIP) Visionary Integration Professionals (VIP) is a digital transformation and technology consulting firm helping government and commercial organizations navigate change, embrace emerging technologies, and accelerate innovation. Combining 30 years of experience with forward-looking capabilities in artificial intelligence, advanced technology solutions, and strategic consulting, VIP helps organizations reimagine how they operate, serve their customers, and achieve their missions.
 
- SAP and other SAP products and services mentioned herein as well as their respective logos are trademarks or registered trademarks of SAP SE in Germany and other countries. Please see sap.com for additional trademark information and notices. All other product and service names mentioned are the trademarks of their respective companies. 
+ Having served more than 1,300 clients nationwide, VIP brings the capabilities of an enterprise systems integrator with the agility and responsiveness of a specialized consultancy. Through a combination of technology innovation, deep industry expertise, and proven delivery methodologies, VIP turns complex challenges into opportunities for transformation and lasting business value.
+
+ Learn more at trustvip.com.
+
+ About Accela Accela gives state and local agencies an AI-powered, end-to-end platform to meet rising resident expectations. For over 20 years, we've helped more than 900 agencies modernize operations, reduce manual work, and accelerate approvals by delivering faster, more transparent service for residents and staff alike.
+
+ Learn more at accela.com.
+
+ Media Contacts Visionary Integration Professionals (VIP)
+
+ Trish ValladaresEmail: Email ContactPhone: 619-214-9447
+
+ Accela
+
+ Angela HoldenEmail: Email ContactPhone: 925.487.2141 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611103152/survale-joins-sap-partneredger-program-to-deliver-advanced-smartrecruiters-integration-on-sapr-store)
+[Original/Source Press Release](https://newsworthy.ai/news/202611103157/city-of-huntsville-selects-vip-and-accelar-to-modernize-permitting-and-support-continued-growth)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/survale-joins-sap-partneredge-to-bring-talent-intelligence-to-smartrecruiters/38b78663dd6e41e7f883972385e9d4fd) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huntsville-taps-vip-and-accela-to-modernize-planning-and-permitting/ff335c0a20aa265d5799cadb33ef9ef0) 
 
  
 
@@ -34,4 +45,4 @@ Survale today announced that it has joined the SAP PartnerEdge® program in the 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/10/blurL3l_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/10/ella6qnE.webp)

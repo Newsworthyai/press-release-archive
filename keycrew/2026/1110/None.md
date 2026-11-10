@@ -1,36 +1,76 @@
-# What Relli CEO Mor Milo Sees Coming for Private Real Estate in 2027
+# In Pre-Construction Real Estate, the Payment Schedule Often Says More Than the Rendering
 
-As 2026 draws to a close, Mor Milo, co-founder and CEO of the commission-free real estate marketplace Relli, has a clear view of where private real estate is heading, even as he is the first to admit no one holds a crystal ball. From his vantage point watching thousands of investors and operators move through the market, several shifts stand out.
+Pre-construction sales have always asked buyers to pay for something they cannot yet see. That gap is widening. Developers can now produce photorealistic renderings and video that make an unbuilt project look finished and occupied, while the slower sales seen in many markets over the past year have left some projects short of the money needed to complete them.
 
- A more cautious, risk-focused market The era of easy real estate returns is over, Milo says. After more than a decade of cheap debt, rising rates have thinned the margin for error, and operators are responding by underwriting far more conservatively and taking their time choosing deals. “Real estate is not the easy long play that it was,” he said. The result is a market where discipline and long-term thinking matter more than they have in years.
+ The risk is not limited to any one country. It is sharpest, though, for buyers purchasing far from home, who are often relying on marketing materials alone.
 
- A thinning herd, and consolidation ahead Milo expects 2027 to bring real pain for operators who have been, in his words, extending and pretending for too long. As conditions tighten, he believes weaker and mid-sized operators will either exit or merge into larger groups. He frames that consolidation as a net positive for investors: fewer operators, each with more assets and longer track records, makes the market easier to navigate.
+ “In today’s world, a lot of developments use AI to create a beautiful picture,” said Ed Eakin, a Texas broker and Certified International Property Specialist based in Cabo San Lucas. “It looks like the project is done and people are living there. In reality, no dirt has been moved.”
 
- Where the opportunity is Milo points to several sectors in flux. He sees office trading at significant discounts as owners move product, retail continuing to grow as people return to in-person experiences, and multifamily surprisingly underbuilt after two slow years of construction, which he expects to keep it a leading sector.
+ Questions a rendering cannot answer Eakin’s starting point is a set of direct questions for the developer. Has the project broken ground? How many units have closed? What are the expected completion dates for each phase? When will the amenities be started, and when will they be finished?
 
- He is more cautious on data centers, anticipating a slowdown as questions mount around an AI investment bubble and as communities push back on projects in their neighborhoods. Single-family rentals and vacation properties, he adds, look less attractive as higher financing and management costs erode the math that once made them appealing.
+ The amenity question is often where marketing and reality separate. Some projects build their headline feature first, and the rest follows slowly. Eakin points to a development near Spicewood, Texas, where the golf course has been finished for about a year, but no homes have been built. Streets and utilities are still going in, and the clubhouse is a temporary tent.
 
- Transparency becomes table stakes Finally, Milo expects investor expectations around transparency to keep rising. Investors now have more leverage and more information than ever, and they increasingly treat strong digital reporting and communication as a baseline requirement.
+ The most revealing question concerns money. Many developers cannot start construction until they reach a set level of pre-sales. Eakin asks a version of the same thing each time: if no further units sell over the next year, can the project still be finished?
 
- That favors nimble operators who can offer consistent updates and round-the-clock access, and it will pressure larger, legacy players to modernize systems they have long been able to do without.
+ Track record carries similar weight. A developer with decades of operation and dozens of completed projects presents a different risk than a first-time builder, and asking what a developer has already delivered is a fair question at any price point.
 
- About Relli Relli is a commission-free, direct-to-sponsor private real estate marketplace connecting accredited investors with vetted commercial real estate syndication opportunities. Positioned as “The Stock Market of Real Estate,” Relli was co-founded by Mor Milo (CEO) and Ross Iannarelli (COO). Learn more at relli.co.
+ What the payment schedule signals The structure of the deposit schedule offers a less obvious clue. Payment terms vary widely. Some developers ask for around 30 percent at contract, another installment when the foundation is complete, and the balance at delivery. Others take an initial deposit and ask for nothing more until the end.
 
- This article is for informational purposes only and does not constitute investment advice or a recommendation to buy or sell any security. All investments carry risk, including the possible loss of principal. Neither the publication nor the author can be held responsible for decisions made based on this content.
+ In Eakin’s view, the second structure usually points to a stronger developer, one able to fund construction without drawing on buyers’ money along the way. At the other extreme, a developer asking for half the purchase price before breaking ground warrants extra caution.
+
+ How deposits are held matters as well. Eakin advises against wiring funds directly into a developer’s own account. A local third-party escrow service can release money as construction milestones are met: the foundation poured, the walls up, the roof on. Lenders can offer another layer of scrutiny. Eakin notes that mortgage lenders active in Mexico typically vet a developer before agreeing to finance a unit in the project.
+
+ Reading a site None of this replaces seeing the property. The signals on a site are straightforward. Workers, machinery, and noise suggest progress. A fenced, locked site with no crew, or ground where grass is growing over earlier work, suggests a project that has stalled.
+
+ “If nothing has changed in 30 days, let’s figure out what’s happening and why,” Eakin said.
+
+ For buyers who cannot visit often, that monitoring can be delegated. Eakin describes regular site checks on behalf of out-of-town clients, sending photos and video, and walking clients through a unit by live video call so they can ask questions as they see it. The same approach applies before purchase. When a client is weighing several projects, he visits each, collects price lists and construction timelines, and reports which are close to delivery and which are still years out.
+
+ When projects fail The consequences of skipping these steps tend to arrive late. Eakin says he still receives calls from buyers who sent deposits directly to a developer who later disappeared, often after finding an online group of other buyers in the same position. “At that point, it’s really too late,” he said.
+
+ The outlook As pre-construction marketing becomes more polished and financing for new projects tightens, the distance between what a buyer sees online and what exists on the ground is likely to keep growing. The questions that close it remain unchanged: who is building the project, how it is funded, and whether anyone the buyer trusts has stood on the site.
+
+ About the Expert: Ed Eakin is a Texas real estate broker and Certified International Property Specialist who leads Eakin Group in Cabo San Lucas, Mexico. He focuses on luxury and golf-community property in Los Cabos. eakingroup.com
+
+ This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/what-relli-ceo-mor-milo-sees-coming-for-private-real-estate-in-2027/)
+[Original/Source Press Release](https://keycrew.co/journal/in-pre-construction-real-estate-the-payment-schedule-often-says-more-than-the-rendering/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/relli-ceo-mor-milo-real-estate-enters-era-of-discipline-and-consolidation/28e992f2c9196c18a3405d899cf2f567) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-renderings-mask-growing-pre-construction-risk-for-buyers/bafeeb9047525a63ea7ed38186f5a72d) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/pre-construction-buyers-warned-as-ai-renderings-outpace-reality-on-the-ground)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pre-construction-real-estate-payment-schedules-as-a-risk-indicator)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pre-construction-real-estate-payment-schedule-reveals-developer-strength)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/texas-broker-warns-pre-construction-buyers-to-scrutinize-payment-schedules-as-ai-renderings-mask-project-risks)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/un-corredor-de-texas-advierte-a-los-compradores-de-preventa-que-examinen-los-planes-de-pago-mientras-las-imagenes-generadas-por-ia-ocultan-los-riesgos-del-proyecto)
+
+Pickup - [https://burstable.news](https://burstable.news/news/pre-construction-buyers-urged-to-scrutinize-payment-schedules-as-marketing-outpaces-reality)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kaufer-von-neubauprojekten-zur-prufung-der-zahlungsplane-aufgefordert-da-marketing-der-realitat-davonlauft)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/instan-a-compradores-de-preventa-a-examinar-los-calendarios-de-pago-mientras-el-marketing-supera-la-realidad)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-acheteurs-de-biens-en-preconstruction-incites-a-examiner-de-pres-les-echeanciers-de-paiement-alors-que-le-marketing-depasse-la-realite)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/compradores-de-imoveis-na-planta-devem-analisar-cronogramas-de-pagamento-a-medida-que-o-marketing-supera-a-realidade)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pre-construction-real-estate-payment-schedule-signals-developer-strength)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ai-renderings-widen-the-gap-between-pre-construction-promises-and-reality)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/10/ninoU2ia.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/10/isleo9_P.webp)

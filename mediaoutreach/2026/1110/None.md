@@ -1,18 +1,68 @@
-# 2026 Inaugural Sichuan (Emeishan) Whisky Industry Development Conference Held in Emeishan City
+# Christmasland in New Taipei City 2026 Teams Up with "Kanahei’s Small animals" for the Cutest Winter Getaway
 
-EMEISHAN, CHINA – [Media OutReach Newswire](https://www.media-outreach.com/) – 10 November 2026 – The 2026 Inaugural Sichuan (Emeishan) Whisky Industry Development Conference ran from November 4 to 6 in Emeishan City, Sichuan, China. Chinese terroir and international craftsmanship came together to create aromas unique to this land.    Mount Emei is a renowned mountain inscribed as a UNESCO World Cultural and Natural Heritage Site. Emeishan, a city on the southwestern edge of the Sichuan Basin, has a forest coverage rate of 62.5%. Its humid climate and mineral-rich mountain springs provide excellent natural conditions for whisky production.   Here, the story of flavor extends far beyond a glass of whisky. Woodlands, pastures, and clear springs nurture an abundance of local produce and have also given rise to local delicacies passed down through generations. Among the local delicacies that capture the distinctive flavors of Mount Emei are beef hot pot and Emei-style shredded eel.   Following the southwestern foothills of Mount Emei, you reach Longchi Town, nestled among lush forests. As the morning chill lingers, a steaming pot of beef hot pot is already bringing warmth and life to the town. Surrounded by dense forests and abundant pastures, the area offers ideal conditions for raising free-range cattle, which supply ingredients for the local beef hot pot. Clear spring water from mountain streams is added to the pot along with beef bones, and the broth is simmered over a low heat for eight hours. Little seasoning is needed, allowing the natural flavors of the ingredients to develop slowly over time.   As the lid is lifted, a cloud of steam thick with the aroma of meat rises. A spoonful of the broth reveals a full-bodied flavor and a sweet aftertaste. A springy piece of beef, dipped in a locally made sauce featuring finely chopped green and red chillies, is savory yet not greasy. Slowly simmered to perfection, the beef broth captures not only the freshness of its ingredients but also the natural flavors of the mountains. It is best enjoyed around the pot with a few friends, sharing stories and good company.    At the foot of Mount Emei, the lights of Maluqiao Food Street gradually come alive as dusk falls. As a well-known culinary hub welcoming visitors from near and far to the Mount Emei Scenic Area, the street is home to a dish that embodies Sichuan's signature spicy and hot flavors—Emei-style shredded eel. Nourished by the fresh running waters of the mountains, local ponds yield exceptionally fresh ingredients. Strips of eel, uniform in length and size, are tossed in hot oil, releasing an intense aroma almost instantly. Shredded eel, tender and silky with a slight bite, is coated in a glossy, deep-red gravy. The bold flavors of Sichuan pepper, chilli, and savory richness unfold in layers. Locals love to add a handful of noodles to the richly flavored dish. The sauce-soaked noodles are a taste that lingers long after the meal. A favorite choice for welcoming guests from afar, this dish embodies the warmth and hospitality of the people of Emeishan.   Emeishan whisky adds a new dimension to the culinary delights bestowed by this land. The rustic charm of the mountains, the warmth of local life, and the mellow richness of whisky come together to create a distinctive flavor memory for visitors from around the world. As part of the conference, the Emeishan Whisky Carnival was held, featuring a tasting of local delicacies. Guests from home and abroad gathered to savor the new flavors born of this land.   The issuer is solely responsible for the content of this announcement. 
+NEW TAIPEI CITY – [Media OutReach Newswire](https://www.media-outreach.com/) – 10 November 2026 – The Tourism and Travel Department of the New Taipei City Government officially kicked off "Christmasland in New Taipei City 2026" in Taiwan on October 22 with a spectacular launch press conference attended by New Taipei City Mayor Yu-ih Hou. This year, the event embraces the theme of "Travel" and joins forces with the globally beloved IP "Kanahei's Small animals" to create a winter celebration filled with adorable characters, romantic charm, and cutting-edge technology. Running from November 13 (Friday) through December 27 (Sunday), the 45-day celebration will feature fan-favorite characters Piske, Usagi, and Zombie Neko as the perfect travel companions. Hop aboard a magical hot-air balloon and embark on a Christmas adventure filled with surprises and imagination. Get ready for the most adorable winter getaway of the season.    This year, all four main themed lighting zones have been upgraded with imaginative designs and immersive light experiences, transforming the city's plazas into picture-perfect festive destinations! At New Taipei City Plaza, "A Magical Hot-Air Balloon Journey" features a spectacular giant hot-air balloon centerpiece accompanied by dazzling lights and breathtaking music, inviting visitors to embark on a fantastical adventure. At Banqiao Station Square, "The Pink Fantasy Harbor" puts an eight-meter cruise ship in the spotlight, inviting visitors of all ages to set sail for an enchanting ocean of fun. At Wanping Metropolitan Park, "The Enchanted Forest Adventure" welcomes visitors into a mysterious yet soothing fantasy forest. And at Fuzhong Plaza, "The Christmas Travel Wonderland" sees Santa Claus set off from a faraway winter wonderland in his sleigh, journeying through starlit skies, falling snowflakes, and sparkling city lights to bring everyone a breathtaking snowfall show in a magical winter-white setting.   A series of exciting highlights were also announced at the press conference! This year, Christmasland in New Taipei City 2026 takes the celebration to even more corners of the city, connecting seven satellite lighting zones: Sanchong Anxin Center, New Taipei City Art Museum in Yingge, Zhonggang Main Drainage Plaza in Xinzhuang, Wugu Environmental Art Park, Tamsui Old Street Plaza, Yes!Life Mall in Xindian, and Zhonghe No. 4 Park (823 Memorial Park). Through real-time connections and synchronized lighting, the celebration will transcend geographical boundaries and illuminate New Taipei City all at once! Visitors can also pick up their very own Christmasland Passport and collect stamps at designated checkpoints for a chance to take home limited-edition gold jewelry from the character collaboration. Beauty enthusiasts won't want to miss the hugely popular Korean "color analysis and makeup experience," taking place for a limited time from November 13 to 15. Free reservations open on October 29 through ACCUPASS, giving visitors the chance to discover their perfect colors and signature look before posing for photos around Christmasland. Adding another exciting dimension to the concert stage, this year's shows will break new ground with a first-ever collaboration between the virtual and real worlds, featuring surprise appearances by popular VPOP virtual characters for an unprecedented immersive audiovisual experience.   A spectacular lineup of events will bring even more excitement to the celebration. The festivities begin on Friday, November 13, with the "Christmasland Opening Event," featuring a dazzling light show and spectacular live performances. From November 14 (Saturday) to 15 (Sunday), the "Children's Circus Carnival" will delight the whole family with interactive music and dance performances, hilarious acts, and thrilling circus tricks. From December 4 (Friday) to 6 (Sunday), the "German Christmas Market" will transport visitors straight to Europe with an authentic European-style market, international delicacies, and an atmosphere brimming with European charm, bringing the romance and magic of a traditional European Christmas to New Taipei City. The much-anticipated "Superstar Christmas Concert – The Greatest Show" will take center stage on December 12 (Saturday) and 13 (Sunday), bringing a star-studded lineup of top performers together for two nights of spectacular music and festive fun. The Tourism and Travel Department of the New Taipei City Government encourages visitors heading to Christmasland in New Taipei City to make use of public transportation. For the latest event information, please visit the New Taipei City Travel website, the official Christmasland in New Taipei City 2026 website, the NewTaipeiTour Facebook page, or the official NewTaipeiTour Instagram account.   * New Taipei City Travel website: https://newtaipei.travel
+* NewTaipeiTour Facebook: http://www.facebook.com/ntctour
+* Official NewTaipeiTour Instagram: https://www.instagram.com/newtaipeitour/?hl=zh-tw
+
+ Hashtag: #KanaheiSmallAnimals #Winter #Christmasland #NewTaipeiCityThe issuer is solely responsible for the content of this announcement. 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/11/10/500600/)
+[Original/Source Press Release](https://www.media-outreach.com/news/taiwan/2026/11/10/500495/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/emeishan-debuts-whisky-conference-blending-terroir-and-cuisine/f102712362988c5cbbdffa0fe646d450) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-taipei-city-s-christmasland-2026-partners-with-kanahei-s-small-animals/329eb1ea26115a3d4d4b6598d37fcbdd) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/christmasland-in-new-taipei-city-2026-teams-up-with-kanaheis-small-animals-for-the-cutest-winter-getaway)
+
+Pickup - [https://advos.io/en](https://advos.io/en/new-taipei-citys-christmasland-2026-taps-kanahei-characters-to-drive-winter-tourism)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/new-taipei-citys-christmasland-2026-partners-with-kanaheis-small-animals-for-45-day-winter-festival)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/new-taipei-citys-christmasland-2026-partners-with-kanaheis-small-animals-for-45-day-winter-festival)
+
+Pickup - [https://burstable.news](https://burstable.news/news/new-taipei-citys-christmasland-2026-partners-with-kanaheis-small-animals-for-45-day-winter-celebration)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/christkindlmarkt-in-neu-taipeh-2026-kooperiert-mit-kanaheis-kleinen-tieren-fur-45-tagige-winterfeier)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-christmasland-2026-de-la-ciudad-de-nuevo-taipei-se-asocia-con-los-animalitos-de-kanahei-para-una-celebracion-invernal-de-45-dias)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-christmasland-2026-de-la-ville-de-new-taipei-sassocie-aux-petits-animaux-de-kanahei-pour-une-celebration-hivernale-de-45-jours)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/christmasland-de-nova-taipe-2026-faz-parceria-com-kanaheis-small-animals-para-celebracao-de-inverno-de-45-dias)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/new-taipei-citys-christmasland-2026-partners-with-kanaheis-small-animals-to-boost-winter-tourism)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/new-taipei-citys-christmasland-2026-partners-with-kanaheis-small-animals-to-boost-winter-tourism)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/10/hintspkF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/10/warpnAcN.webp)
