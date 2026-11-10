@@ -1,51 +1,31 @@
-# New Flood Disclosure Rules Put Coastal Fairfield County, CT Sellers on the Spot Before They List
+# What Relli CEO Mor Milo Sees Coming for Private Real Estate in 2027
 
-For homeowners along the Fairfield County, Connecticut shoreline, flood risk has always been part of the conversation. What has changed is when that conversation needs to happen. Connecticut has expanded the flood risk section of its residential property condition disclosure under Public Act 25-33, and buyers now expect clear answers about flood zones, flood history, and insurance before they make an offer.
+As 2026 draws to a close, Mor Milo, co-founder and CEO of the commission-free real estate marketplace Relli, has a clear view of where private real estate is heading, even as he is the first to admit no one holds a crystal ball. From his vantage point watching thousands of investors and operators move through the market, several shifts stand out.
 
- Kristin Egmont, a Coldwell Banker Realty agent who has been licensed in Connecticut since 2003, says coastal sellers who wait for a buyer to ask are already behind.
+ A more cautious, risk-focused market The era of easy real estate returns is over, Milo says. After more than a decade of cheap debt, rising rates have thinned the margin for error, and operators are responding by underwriting far more conservatively and taking their time choosing deals. “Real estate is not the easy long play that it was,” he said. The result is a market where discipline and long-term thinking matter more than they have in years.
 
- “Transparency is what really needs to start before the home is listed,” Egmont said. “Not after the buyer has the contract.”
+ A thinning herd, and consolidation ahead Milo expects 2027 to bring real pain for operators who have been, in his words, extending and pretending for too long. As conditions tighten, he believes weaker and mid-sized operators will either exit or merge into larger groups. He frames that consolidation as a net positive for investors: fewer operators, each with more assets and longer track records, makes the market easier to navigate.
 
- A Coastal Market With Coastal Questions Fairfield County includes some of the most sought-after waterfront communities in the state. Egmont points to Westport, Fairfield, Norwalk, including Rowayton, and Darien as markets where living near the water is a large part of the appeal.
+ Where the opportunity is Milo points to several sectors in flux. He sees office trading at significant discounts as owners move product, retail continuing to grow as people return to in-person experiences, and multifamily surprisingly underbuilt after two slow years of construction, which he expects to keep it a leading sector.
 
- That appeal comes with questions buyers are now more prepared to ask. Is the property in a mapped flood zone? Has it flooded before? Has there been water intrusion? What does flood insurance cost, and will the buyer’s lender require it?
+ He is more cautious on data centers, anticipating a slowdown as questions mount around an AI investment bubble and as communities push back on projects in their neighborhoods. Single-family rentals and vacation properties, he adds, look less attractive as higher financing and management costs erode the math that once made them appealing.
 
- Before she lists a coastal property, Egmont works through those questions with the seller. She looks at where the property sits on the flood map, whether there is any history of flooding or water intrusion, and what information is available about past insurance claims and the home’s elevation.
+ Transparency becomes table stakes Finally, Milo expects investor expectations around transparency to keep rising. Investors now have more leverage and more information than ever, and they increasingly treat strong digital reporting and communication as a baseline requirement.
 
- What Buyers Need to Understand Egmont says the disclosure works best when it gives buyers enough information to make a real decision, not just a checked box on a form.
+ That favors nimble operators who can offer consistent updates and round-the-clock access, and it will pressure larger, legacy players to modernize systems they have long been able to do without.
 
- “Buyers also have to think about it,” she said. “They need to understand elevation, drainage, what the insurance premium is going to be, and what kind of financing requirements their lender is going to require if they have financing.”
+ About Relli Relli is a commission-free, direct-to-sponsor private real estate marketplace connecting accredited investors with vetted commercial real estate syndication opportunities. Positioned as “The Stock Market of Real Estate,” Relli was co-founded by Mor Milo (CEO) and Ross Iannarelli (COO). Learn more at relli.co.
 
- For a seller, that can be as simple as stating the facts plainly. “Sellers just need to be transparent to buyers,” she said. “Let them know, this is in a flood zone, you’re going to need flood insurance, my current policy costs me this a year.”
-
- A buyer who learns those numbers early can plan around them. A buyer who learns them halfway through the transaction often comes back to renegotiate, or walks away.
-
- Fewer Surprises at the Negotiating Table For Egmont, flood disclosure fits into a broader principle she applies to every listing: the issues a seller deals with before going to market are the ones that won’t derail the deal later.
-
- “The more we address these items before listing a property, the fewer surprises we’re going to have during the negotiations,” she said.
-
- That same thinking shapes how she prepares any home for sale. She says one of the most common misconceptions among sellers is that listing is a single step. “You decide to sell, take a few photographs, put the home online, and the market will do the rest. That’s a big misconception,” Egmont said.
-
- Instead, she spends time with sellers before listing to walk the property, identify improvements that make financial sense, plan staging, and flag potential inspection issues. For some homes, she says, a pre-inspection is worth considering, so problems can be found and addressed on the seller’s timeline rather than the buyer’s.
-
- Where to Start For coastal sellers thinking about listing in the coming months, Egmont’s advice is to gather information now: flood zone status, any history of flooding or water intrusion, current insurance costs, elevation information if it exists, and records of past claims. Having that in hand before the listing goes live gives buyers confidence and gives sellers more control over the negotiation.
-
- Sellers should also review the current disclosure requirements with a Connecticut real estate attorney, since the rules apply to the condition report they will sign.
-
- Answers to common seller questions are available on Egmont’s seller FAQs page.
-
- About The Expert: Kristin Egmont is a licensed real estate agent with Coldwell Banker Realty, serving buyers and sellers across Fairfield and New Haven Counties, Connecticut. With more than 20 years of local market experience, she is known for her strategic approach, professional marketing, and hands-on client service. Learn more at kristinegmont.com.
-
- This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ This article is for informational purposes only and does not constitute investment advice or a recommendation to buy or sell any security. All investments carry risk, including the possible loss of principal. Neither the publication nor the author can be held responsible for decisions made based on this content.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/new-flood-disclosure-rules-put-coastal-fairfield-county-ct-sellers-on-the-spot-before-they-list/)
+[Original/Source Press Release](https://keycrew.co/journal/what-relli-ceo-mor-milo-sees-coming-for-private-real-estate-in-2027/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/connecticut-flood-disclosure-expansion-what-coastal-sellers-need-to-know/9e311bbbc10ffca0ecd67a39620d36d0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/relli-ceo-mor-milo-real-estate-enters-era-of-discipline-and-consolidation/28e992f2c9196c18a3405d899cf2f567) 
 
  
 
@@ -53,4 +33,4 @@ For homeowners along the Fairfield County, Connecticut shoreline, flood risk has
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/10/raindjIg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/10/ninoU2ia.webp)
