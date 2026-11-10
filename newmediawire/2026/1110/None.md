@@ -1,80 +1,130 @@
-# Golden Cariboo Advances Next Phase of Drilling at the Halo Deposit
+# International Companies Present at the Deutsche Bank ADR Virtual Investor Conference, November 12
 
-VANCOUVER, BC - November 10, 2026 (NEWMEDIAWIRE) - Golden Cariboo Resources Ltd. (the “Company”) (CSE:GCC) (OTC:GCCFF) (WKN:A402CQ) (FSE:3TZ) announces that drilling is actively underway on a strategically positioned step-out hole testing the southern extension of the Halo zone of the Company's recently announced inaugural Mineral Resource Estimate ("MRE") at it’s 100% owned Quesnelle Gold Quartz Mine Property located about 50 km southeast of Prince George, near Hixon in central British Columbia. Drill hole QGQ26-35 is designed to evaluate potential expansion of the Halo mineralized system toward the Main zone, located about 700m to the southeast, while simultaneously delineating the western greenstone-argillite contact.
+Lineup Spans Semiconductors, Insurance, Telecommunications, Energy, Autos, Travel, Biopharma, Silver and Online Marketplaces
 
- ![](http://newmediawire.s3.amazonaws.com/6af30bb9da846f52982a9f14_1)
+ Management Teams From Asia, Europe and Australia Present Live and Take Investor Questions
 
- The drill has now advanced beyond 150 metres (492 feet), with the majority of the hole observed by Company geologists to be within the same sericite altered volcanic tuff package associated with much of the Halo zone mineralization. Narrow mineralized extensional veins have been observed throughout much of the core drilled to date, an orogenic style of mineralization that has been encountered elsewhere within the Halo deposit. Assays have not yet been received, and there can be no assurance that visually identified mineralization will be associated with economically significant gold values.
+ NEW YORK, NY - November 10, 2026 (NEWMEDIAWIRE) - B2i Digital, Inc. invites investors to the Deutsche Bank ADR Virtual Investor Conference, a B2i Digital Featured Conference, taking place on Thursday, November 12, 2026, and hosted by Virtual Investor Conferences in partnership with Deutsche Bank.
 
- The Company has also completed drilling and logging of holes QGQ26-31 through QGQ26-33, and logging of QGQ26-34 is nearly complete. These holes were logged after the cut-off date for inclusion in the Company's inaugural NI 43-101 MRE, dated October 31, 2026, and therefore do not form part of the current resource model.
+ ![](http://newmediawire.s3.amazonaws.com/6af34e56da846f52982a9f1c_1)
 
- Table
+ As the Official Marketing Partner, B2i Digital brings the conference and every presenting company to 1,200+ news, broadcast and trade outlets with a 330 million+ monthly audience, and a community of 1.7 million+ investors and market participants.
 
- The technical information in this news release has been reviewed and approved by Sue Bird, an independent consultant commissioned by the Company. Sue Bird is a Professional Engineer (P.Eng.) registered with the Association of Professional Engineers and Geoscientists of the Province of BC (“APEGBC”) and licensed by Engineers and Geoscientists BC, and is a “Qualified Person” with respect to NI 43-101.
+ Event details and presenting company profiles: https://b2idigital.com/otc-market-nov-12th-deutsche-bank-virtual-investor-conference-b2i-featured-conference
 
- About Golden Cariboo Resources Ltd.
+ Register at https://www.virtualinvestorconferences.com/wcc/experience/OTCMarketsGroupInc/4814904/4935899/deutsche-bank-adr-virtual-investor-conference
 
- Golden Cariboo Resources Ltd. is unlocking the potential of one of British Columbia's most historic gold districts through exploration of its Quesnelle Gold Quartz Mine Property. Encompassing 96,183 hectares (237,673 acres) along a prolific 90km gold trend that has yielded gold from more than 101 placer creeks, the Property occupies a strategic position bordering and partially interwoven with Osisko Gold Group Inc. (NYSE:OGG/TSXV:OGG) Cariboo Gold Project and lies along the highly prospective Spanish and Eureka thrust fault corridor.
+ The conference brings international companies with American and Global Depositary Receipt programs, listed on the NYSE or Nasdaq or quoted on OTC Markets, in front of U.S. and global investors for a full day of live presentations.
 
- Just 4 kilometres northeast of Hixon, the 789 hectare (1,950 acre) permitted portion of the Property hosts the historic Quesnelle Quartz gold-silver deposit, originally discovered in 1865 during the Cariboo Gold Rush. While early mining focused on a relatively small 150m x 150m (less than 6 acre) footprint at the Main zone, Golden Cariboo's ongoing drilling and trenching programs are demonstrating the potential for a much larger mineralized system extending well beyond the limits of the historic workings.
+ Each company presents live for 30 minutes with audience Q&A. Replays will be available on the B2i Digital and OTC Markets YouTube channels.
 
- For further information please contact:
+ “Earlier in my banking career, I worked as a VP at Deutsche Bank, or DB, as we called ourselves internally. It’s nice to revisit those memories and support Virtual Investor Conferences and DB. On November 12, please join us, listen to some interesting companies and ask your questions. You will find all the replays on our YouTube channel,” said David Shapiro, Chief Executive Officer of B2i Digital, Inc.
 
- GOLDEN CARIBOO RESOURCES LTD
+ Presenting Companies as of November 10, 2026 (subject to change):
 
- “J. Frank Callaghan” J. Frank Callaghan, President & CEOTel: 604-669-6463
+ Thursday, November 12
 
- VISIT OUR WEBSITE FOR MORE DETAILSwww.goldencariboo.com
+ 8:00 AM ET: Lotus Technology Inc.
 
- LIKE AND FOLLOWInstagram, Facebook, X (Twitter), LinkedIn
+ 8:30 AM ET: Viomi Technology Co. Ltd.
 
- Neither the “CSE” Canadian Securities Exchange nor its Regulation Service Provider (as that term is defined in the policies of the Canadian Securities Exchange) accepts responsibility for the adequacy or accuracy of this release.
+ 9:00 AM ET: HUTCHMED (China) Limited
 
- Cautionary Statements:
+ 9:30 AM ET: First Pacific Company Ltd.
 
- This news release contains statements which constitute “forward-looking information” within the meaning of applicable securities laws, including statements regarding the Company’s plans, intentions, beliefs and current expectations with respect to future exploration activities, resource expansion and upgrading, and the potential of the Quesnelle Gold Quartz Mine Property. Forward-looking information is often identified by the words “may”, “would”, “could”, “should”, “will”, “intend”, “plan”, “anticipate”, “believe”, “estimate”, “expect” or similar expressions and includes information regarding the Company’s plans to continue exploring multiple trends on the Property, the potential to expand and upgrade the Mineral Resource Estimate, and the Company’s exploration plans with respect to the Quesnelle Gold Quartz Mine Property.
+ 10:00 AM ET: Infineon Technologies AG
 
- Such forward-looking statements are based on a number of assumptions of management, including, without limitation, that the Company will have the resources required to proceed with its exploration plans; that the Company will not encounter significant regulatory, environmental, permitting or other barriers in carrying out
+ 10:30 AM ET: trivago N.V.
 
- its business plans; that the results of further exploration will support resource growth or upgrades; and that current interpretations of geology, mineralization and the Mineral Resource Estimate will remain valid.
+ 11:00 AM ET: Swiss Re Group
 
- Additionally, forward-looking information involves a variety of known and unknown risks, uncertainties and other factors which may cause the actual plans, intentions, activities, results, performance or achievements of the Company to be materially different from any future plans, intentions, activities, results, performance or achievements expressed or implied by such forward-looking statements. Such risks include, without limitation: that the Company may not have the resources required to pursue its exploration plans; that the Company may incur unanticipated costs or delays; that further exploration may not result in resource expansion or upgrades; that geological interpretations or the Mineral Resource Estimate may change; that the Company’s operations could be adversely affected by possible future government legislation, policies and controls or by changes in applicable laws and regulations; and risks inherent in mineral exploration and resource estimation. Such forward-looking information represents management’s best judgment based on information currently available. No forward-looking statement can be guaranteed and actual future results may vary materially. Accordingly, readers are advised not to place undue reliance on forward-looking statements or information. Neither the Company nor any of its representatives make any representation or warranty, express or implied, as to the accuracy, sufficiency or completeness of the information in this news release. Neither the Company nor any of its representatives shall have any liability whatsoever, under contract, tort, trust or otherwise, to you or any person resulting from the use of the information in this news release by you or any of your representatives or for omissions from the information in this news release.
+ 11:30 AM ET: Radiopharm Theranostics Ltd.
 
- The forward-looking statements herein speak only as of the date they were originally made. The Company has no intention and undertakes no obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law.
+ 12:00 PM ET: Continental AG
+
+ 12:30 PM ET: Repsol, S.A.
+
+ 1:00 PM ET: Einride AB
+
+ 1:30 PM ET: Telstra Group Limited
+
+ 2:00 PM ET: Andean Silver Ltd.
+
+ 2:30 PM ET: Freelancer Limited
+
+ Presenting company summaries:
+
+ Lotus Technology Inc. has operations across the UK, the EU and China and is dedicated to delivering luxury lifestyle battery electric vehicles.
+
+ Viomi Technology Co. Ltd. has the mission “AI for Better Water,” using AI technology to provide better drinking water solutions for households worldwide.
+
+ HUTCHMED (China) Limited is an innovative, commercial-stage biopharmaceutical company committed to the discovery and global development and commercialization of targeted therapies and immunotherapies for the treatment of cancer and immunological diseases.
+
+ First Pacific Company Ltd. is a Hong Kong-based investment holding company with investments located in Asia-Pacific.
+
+ Infineon Technologies AG is a global semiconductor leader, shaping high-growth markets with advanced solutions.
+
+ trivago N.V. is a leading global hotel search and price comparison platform, and one of the most recognized travel brands in the world.
+
+ Swiss Re Group is one of the world’s leading providers of reinsurance, insurance, and other forms of insurance-based risk transfer.
+
+ Radiopharm Theranostics Ltd. is a clinical stage radiotherapeutics company developing a platform of innovative radiopharmaceutical products for diagnostic and therapeutic applications.
+
+ Continental AG is among the leading automotive suppliers worldwide, supplying brake systems and systems and components for powertrains and chassis.
+
+ Repsol, S.A. is a global multi-energy company focused on providing energy solutions that support people’s everyday needs and contribute to society’s progress.
+
+ Einride AB is a technology company, founded in 2016, that develops and operates digital, electric and autonomous freight solutions.
+
+ Telstra Group Limited is Australia’s leading telecommunications company, offering a full range of services and competing in all telecommunications markets in Australia.
+
+ Andean Silver Ltd. is an Australian mineral exploration and development company focused on advancing its 100% owned Cerro Bayo project.
+
+ Freelancer Limited operates three core businesses: Freelancer.com, Escrow.com and Loadshift.
+
+ Throughout the year, Virtual Investor Conferences feature public companies from exchanges worldwide, including NYSE, Nasdaq, TSX, TSXV, CSE, ASX, LSE, and the OTC Markets. Virtual Investor Conferences is an OTC Markets Group Inc. property.
+
+ About B2i Digital, Inc.
+
+ B2i Digital, Inc. partners with conferences, public companies, and capital markets advisors through its Featured Conference, Featured Company, and Featured Expert programs. Its B2i Digital Media Network (https://b2idigital.com/media-network) spans 1,200+ news, broadcast, and trade outlets with a 330 million+ combined monthly audience, plus 1.7 million+ followers, 77,000 opt-in email subscribers, and a rolodex of 235,000+ capital markets contacts. That reach gets clients seen; its conferences put them in the room with investors. The Capital Markets Matchmaker℠ takes every story From Marketing to Meetings℠. B2i Digital is headquartered in New York City.
+
+ Discover more Featured Companies, Featured Experts, and upcoming Featured Conferences at b2idigital.com.
+
+ B2i Digital Contact Information
+
+ David ShapiroChief Executive OfficerB2i Digital, Inc.https://b2idigital.com212.579.4844 Officedavid@b2idigital.comhttps://www.linkedin.com/in/davidshapironyc
+
+ B2i Digital Social Media
+
+ https://www.linkedin.com/company/b2i-digitalhttps://x.com/b2idigitalhttps://www.facebook.com/b2idigitalhttps://www.instagram.com/b2i_digital/https://www.youtube.com/@b2idigitalhttps://www.tiktok.com/@b2idigitalhttps://stocktwits.com/B2iDigitalhttps://www.reddit.com/user/b2idigital/https://www.threads.net/@davidshapironychttps://www.pinterest.com/b2idigital
+
+ About Virtual Investor Conferences
+
+ Virtual Investor Conferences is the proprietary investor conference series that provides an interactive forum for publicly traded companies to meet directly with investors online. VIC offers companies efficient access to a broad investor audience through live presentations, Q&A sessions, and one-on-one meetings. Investors benefit from direct access to executive management teams and the ability to view presentations live or on demand.
+
+ Virtual Investor Conferences Contact Information
+
+ OTC Markets Group Inc.Virtual Investor Conferenceswww.virtualinvestorconferences.cominfo@virtualinvestorconferences.com
+
+ Disclosure & Disclaimer
+
+ B2i Digital, Inc. is the Official Marketing Partner of the Deutsche Bank ADR Virtual Investor Conference. B2i Digital, Inc. is not an affiliate of Virtual Investor Conferences and is not authorized to represent or act on behalf of Virtual Investor Conferences, in any capacity. Virtual Investor Conferences has not reviewed and approved the content contained on the b2idigital.com website. Content related to any specific company referenced in this release was provided by that company, approved by that company, or obtained from publicly available sources. B2i Digital, Inc. has not independently verified the accuracy or completeness of such information, and no representation or warranty, express or implied, is made as to its accuracy.
+
+ This content is provided for informational purposes only and does not constitute an offer to sell or a solicitation of an offer to buy any security, nor should it be relied upon as the basis for any investment decision. B2i Digital, Inc. is not a registered broker-dealer, investment adviser, or financial adviser, and nothing herein should be construed as investment, legal, tax, or accounting advice. Readers should consult their own advisers and conduct their own due diligence before making any investment decision.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-cariboo-advances-next-phase-of-drilling-at-the-halo-deposit-7091209)
+[Original/Source Press Release](https://www.newmediawire.com/news/international-companies-present-at-the-deutsche-bank-adr-virtual-investor-conference-november-12-7091225)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-cariboo-drills-step-out-hole-at-halo-zone-eyes-expansion/12e8cfbca9a7eda05c2a2e22d7039bac) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2i-digital-to-host-deutsche-bank-adr-virtual-investor-conference/07925788392bc6a46ea3f5c83509d1e2) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/golden-cariboo-drills-step-out-hole-to-expand-halo-deposit-at-quesnelle-gold-quartz-mine)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/golden-cariboo-drills-step-out-hole-to-expand-halo-deposit-at-quesnelle-gold-quartz-mine)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/golden-cariboo-steps-out-at-halo-to-test-resource-expansion-potential)
-
-Pickup - [https://burstable.news](https://burstable.news/news/golden-cariboo-advances-step-out-drilling-at-halo-deposit-testing-southern-extension)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/golden-cariboo-treibt-step-out-bohrungen-am-halo-vorkommen-voran-und-testet-sudliche-erweiterung)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/golden-cariboo-avanza-con-perforacion-de-extension-en-el-deposito-halo-probando-la-extension-sur)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/golden-cariboo-poursuit-le-forage-dextension-au-gisement-halo-testant-lextension-sud)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/golden-cariboo-avanca-perfuracao-de-extensao-no-deposito-halo-testando-a-extensao-sul)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/golden-cariboo-drills-step-out-hole-to-expand-halo-deposit-at-quesnelle-gold-quartz-mine)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/golden-cariboo-steps-out-at-halo-as-drilling-tests-southern-extension-beyond-inaugural-resource)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/10/dualvHtY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/10/zest1kfg.webp)

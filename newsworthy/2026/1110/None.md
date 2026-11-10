@@ -1,48 +1,82 @@
-# City of Huntsville Selects VIP and Accela to Modernize Permitting and Support Continued Growth
+# Houston's Intercontinental Chamber Ditched Golf Tournaments for Global Deals
 
-The City of Huntsville, one of the nation's fastest-growing metropolitan areas, has selected Visionary Integration Professionals (VIP) to lead the modernization of its planning and development operations, with VIP serving as the implementer and the Accela® Civic Platform providing the technology foundation. The initiative will improve coordination across city departments, streamline processes, and enhance the delivery of services to residents and businesses.
+In an episode of The Building Texas Show, Houston Chamber Stopped Doing Parties. Here's What They Do Instead, host Justin McKenzie sits down in Houston with Reggie Gray, President of the Houston Intercontinental Chamber of Commerce, to talk about why the chamber walked away from parties and golf tournaments to focus on business development for its members. The full conversation is also on YouTube.
 
- As development activity continues to accelerate, Huntsville is taking a proactive approach to modernizing the technology and processes supporting planning, permitting, inspections, and code enforcement. By combining Accela's Civic Platform with VIP's public-sector implementation expertise, the city will create a unified, scalable technology foundation that increases transparency, reduces administrative effort, and supports more efficient, coordinated service delivery.
+ Gray opens with a critique many business owners will recognize. "Because I think the chambers, unfortunately, started trending toward doing parties and events and forgot they were supposed to be generating business and networking and development," he says. His chamber went back to that core: "We used to do all those things, like everybody else, but we don't do golf tournaments anymore. We don't do epicurean evenings or anything like that."
 
- “Huntsville's continued growth brings tremendous opportunity, but it also requires us to think differently about how we deliver services to our community,” said Dr. Larry Lowe, Chief Innovation Officer, City of Huntsville. “Our goal is to stay ahead of that growth by investing in technology that makes government more efficient, accessible, and responsive. By partnering with VIP and Accela, we're building a modern, integrated foundation that will improve how our departments work together, streamline processes for residents and businesses, and position Huntsville to continue innovating well into the future.”
+ The organization was once known as the North Houston Greenspoint Chamber. Gray explains that it took the Intercontinental name after he became president, a nod to its roots near Houston's Intercontinental Airport (IAH) and to a membership that has grown more international over the years. The chamber's board of directors now includes vice chairs for Europe, Asia, Africa, the Middle East, Latin and South America, Australia and North America.
 
- Accela's Civic Platform will serve as Huntsville's scalable digital foundation for planning and development, connecting workflows, data, and departments across the permitting lifecycle. The cloud-based platform will help the city respond to continued growth, improve visibility into development activity, and adopt new capabilities, including artificial intelligence, as they become available and as community needs evolve.
+ McKenzie and Gray dig into how a member-focused chamber actually works:
 
- “Huntsville is showing how rapidly growing communities can modernize today while building the flexibility to meet tomorrow's needs,” said Noam Reininger, CEO of Accela. “By bringing planning, permitting, inspections, and code enforcement together on Accela's Civic Platform, the city is creating a connected foundation for faster service, stronger collaboration, and continued innovation. We look forward to supporting Huntsville and VIP as the city translates that vision into meaningful value for residents and businesses.”
+ * Tailored business development. For Lloyd Engineering, which Gray says works on the Houston Ship Channel and on ports around the world, the chamber looks for port and infrastructure projects abroad, including a recent trip Gray describes to meet with the Prime Minister's office in Belize. For energy members such as Reliant and CenterPoint Energy, the focus shifts to local customers and new development.
+* Member funding, by design. The chamber doesn't ask members for sponsorships, and its board sets policies and projects. "Ours is purely membership driven and purely funded by members," Gray says.
+* Getting out of silos. Gray says the chamber works with management districts such as the North Houston District, the governor's office, the City of Houston and other organizations, including the Better Business Bureau and the Greater Houston Builders Association.
 
- VIP will lead implementation of the new platform, drawing on 30 years of experience modernizing mission-critical government systems. Through its VIPManage project governance framework and VIPDeliver implementation methodology, VIP will work closely with Huntsville stakeholders to align technology with operational priorities, engage employees throughout the implementation process, and support adoption and long-term operational success.
+ Gray also pushes back on businesses that think international work isn't for them. "Do you have a website?" he asks them. "Everybody can buy your stuff and they can see you anywhere all over the world. Everybody's international."
 
- “Modernization is about much more than implementing new technology. It's about helping organizations operate more effectively and deliver better outcomes for the communities they serve,” said Jonna Ward, Founder and CEO of Visionary Integration Professionals. “Huntsville is demonstrating tremendous foresight by investing in the capabilities needed to support its continued growth. We're proud to partner with the city and Accela to turn that vision into meaningful operational improvements and a foundation for continued innovation.”
+ Looking ahead to 2027, Gray says the chamber is looking closely at Venezuela, with an eye to helping members with projects and expansion there, and is planning events in Europe and Saudi Arabia with longtime partner Go-On Group, including stops he names in London, Milan, Düsseldorf and Monaco.
 
- About Visionary Integration Professionals (VIP) Visionary Integration Professionals (VIP) is a digital transformation and technology consulting firm helping government and commercial organizations navigate change, embrace emerging technologies, and accelerate innovation. Combining 30 years of experience with forward-looking capabilities in artificial intelligence, advanced technology solutions, and strategic consulting, VIP helps organizations reimagine how they operate, serve their customers, and achieve their missions.
+ Outside the chamber, Gray is an author and speaker. His memoir, I May Never Come This Way Again, covers what he calls his "spy stories," including his collaboration with the FBI's International Corruption Unit. He tells McKenzie that wherever he travels, he introduces himself as a Texan, and he closes the episode the same way: "It's a great time to live in Texas and I'm very proud to be a Texan."
 
- Having served more than 1,300 clients nationwide, VIP brings the capabilities of an enterprise systems integrator with the agility and responsiveness of a specialized consultancy. Through a combination of technology innovation, deep industry expertise, and proven delivery methodologies, VIP turns complex challenges into opportunities for transformation and lasting business value.
+ Watch and listen: the full episode is on The Building Texas Show episode page and on YouTube.
 
- Learn more at trustvip.com.
-
- About Accela Accela gives state and local agencies an AI-powered, end-to-end platform to meet rising resident expectations. For over 20 years, we've helped more than 900 agencies modernize operations, reduce manual work, and accelerate approvals by delivering faster, more transparent service for residents and staff alike.
-
- Learn more at accela.com.
-
- Media Contacts Visionary Integration Professionals (VIP)
-
- Trish ValladaresEmail: Email ContactPhone: 619-214-9447
-
- Accela
-
- Angela HoldenEmail: Email ContactPhone: 925.487.2141 
+ About The Building Texas Show The Building Texas Show, hosted by Justin McKenzie, tells the stories of the founders, community leaders and projects shaping Texas, from economic development and small business to conservation and education. New episodes publish weekly on YouTube and all major podcast platforms, with highlights on Facebook, Instagram and LinkedIn at @thebuildingtexasshow. Watch, listen and subscribe at www.buildingtexasshow.com and https://www.youtube.com/@thebuildingtexasshow. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611103157/city-of-huntsville-selects-vip-and-accelar-to-modernize-permitting-and-support-continued-growth)
+[Original/Source Press Release](https://newsworthy.ai/news/202611103150/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/huntsville-taps-vip-and-accela-to-modernize-planning-and-permitting/ff335c0a20aa265d5799cadb33ef9ef0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/houston-chamber-ditches-parties-to-focus-on-business-growth/badedcf01c2b91f5119a66072f25b6be) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://advos.io/en](https://advos.io/en/houston-chamber-abandons-golf-tournaments-to-pursue-global-business-deals)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/houston-intercontinental-chamber-abandons-golf-tournaments-to-focus-on-global-business-deals)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/houston-chamber-ditches-golf-tournaments-to-focus-on-global-business-deals)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/houston-intercontinental-chamber-ditches-golf-tournaments-to-focus-on-global-business-development)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/la-camara-intercontinental-de-houston-deja-los-torneos-de-golf-para-enfocarse-en-el-desarrollo-de-negocios-globales)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/la-camara-intercontinental-de-houston-abandona-los-torneos-de-golf-para-centrarse-en-acuerdos-comerciales-globales)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/la-chambre-intercontinentale-de-houston-abandonne-les-tournois-de-golf-pour-se-concentrer-sur-les-accords-commerciaux-mondiaux)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/camara-intercontinental-de-houston-abandona-torneios-de-golfe-para-focar-em-negocios-globais)
+
+Pickup - [https://podcastpr.news](https://podcastpr.news/news/houston-chamber-ditches-golf-tournaments-to-focus-on-business-development)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/houstons-intercontinental-chamber-ditched-golf-tournaments-for-global-deals)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/10/ella6qnE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/10/noraMBWm.webp)
