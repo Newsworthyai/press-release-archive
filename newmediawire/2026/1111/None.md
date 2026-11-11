@@ -1,146 +1,108 @@
-# Fuse Battery Metals Options Foggy Mountain Copper-Gold Project in British Columbia
+# Fewer Than 5% of US Military Veterans may Achieve Optimal Heart Health
 
-MAPLE RIDGE, BC - November 10, 2026 (NEWMEDIAWIRE) - Fuse Battery Metals Inc. (the “Company” or “Fuse”) (TSXV: FUSE, OTC: FSBMF, FRA: 43W3) is pleased to announce that it has entered into an option agreement (the “Option Agreement”) with Cronin Exploration Inc., David Robinson and Kyle Hookie (collectively, the “Optionors”) dated November 9, 2026, to acquire up to an 80% interest in the Foggy Mountain copper-gold-silver project (the “Property”) in north-central British Columbia.
+Statement Highlights:
 
- ![](http://newmediawire.s3.amazonaws.com/6ada417dda846f7778eb0c0b_1)
+ * Fewer than 5% of U.S. military veterans may achieve optimal heart health based on the American Heart Association’s Life’s Essential 8™ metrics, according to new scientific statement from the Association.
+* Veterans experience a high burden of heart disease and stroke risk factors and related conditions, including obesity, high blood pressure, abnormal lipid levels, sleep disorders, mental health conditions and substance use.
+* A coordinated approach that expands access to care and tailors prevention to veterans’ needs may improve their cardiovascular health and longevity.
+* Nearly half of all U.S. veterans are enrolled to receive care through the U.S. Department of Veterans Affairs, the largest integrated healthcare system in the country.
 
- Highlights
+ DALLAS - November 11, 2026 (NEWMEDIAWIRE) - Fewer than 5% of U.S. military veterans may achieve optimal cardiovascular health based on the American Heart Association’s Life’s Essential 8™ metrics, highlighting an urgent opportunity to improve prevention and help veterans live longer, healthier lives, according to a new scientific statement published today in the Association’s flagship journal, Circulation.
 
- - Fuse has entered into an option agreement to earn up to an 80% interest in the 4,210-hectare Foggy Mountain Property in British Columbia’s Toodoggone Mining District.
+ ![](https://iprsoftwaremedia.com/67/files/20179/Heart%20chambers%20illustration.jpg)
 
- - The Property is located approximately 10 kilometres east of Centerra Gold’s Kemess Mine, in an established mineral district with regional road, power and camp infrastructure.
+ The statement, "Cardiovascular Health Promotion for U.S. Veterans: Current State, Gaps, and Strategies," is devoted specifically to promoting cardiovascular health among military veterans. It applies the Life’s Essential 8 framework, and additionally considers mental health and substance use, to evaluate cardiovascular health among U.S. veterans and to identify strategies that clinicians, researchers and policymakers can use to improve health outcomes for this population.
 
- - Historical 2022 rock sampling returned peak values of 3.52% copper (Cu), 11.3 grams per tonne gold (Au) and 90.5 grams per tonne silver (Ag). These are individual surface-sample results and are not necessarily representative of mineralization across the Property.
+ Life’s Essential 8 includes healthy eating, physical activity, avoiding tobacco use, healthy sleep, healthy weight, and healthy levels of blood sugar, cholesterol and blood pressure. According to the American Heart Association, around 20% of the general U.S. adult population may achieve optimal cardiovascular health.
 
- - Coincident geophysical and geochemical anomalies, including anomalous copper in stream-sediment samples and copper-gold values in nearby rock samples, provide targets for follow-up exploration.
+ “Veterans are not simply older adults who happen to have served in the military. They are a diverse population with unique health risks shaped by their military service, chronic conditions, mental health, service-related exposures and barriers to care,” said Neal Yuan, M.D., chair of the scientific statement volunteer writing group, assistant professor of medicine in the division of cardiology at the University of California San Francisco. “Recognizing how these factors interact and influence well-being is essential to providing effective prevention and treatment.”
 
- - To earn an initial 70% interest, Fuse must make a C$50,000 cash payment, issue 2,250,000 common shares and 1,500,000 warrants, and complete a minimum 3,500-metre drilling program within three years of the agreement’s effective date.
+ Cardiovascular health challenges for veterans
 
- - Fuse may earn an additional 10% interest by completing a preliminary economic assessment (PEA) in accordance with NI 43-101 and making a further C$150,000 cash payment.
+ Military veterans represent more than 5% of the U.S. adult population and are increasingly diverse in race, ethnicity, age, gender and military experience. The statement identifies several factors that can affect their cardiovascular health, including:
 
- A New Growth Opportunity for Fuse
+ * Multiple chronic health conditions, including obesity, high cholesterol, high blood pressure, heart disease, Type 2 diabetes, sleep disorders, chronic lung disease and chronic kidney disease.
+* Mental health conditions such as anxiety, depression and posttraumatic stress disorder, each of which can independently double the risk of major cardiovascular disease.
+* Substance use disorder involving tobacco, alcohol or illicit drug use, which is linked to shortening lifespan by 6 to 24 years.
+* Lower-quality diets and physical activity levels below recommendations.
+* Military-related injuries, environmental exposures and psychological stressors.
+* Barriers to care, including rural residence and limited internet connectivity.
 
- The option agreement represents a significant new growth opportunity for Fuse, providing the Company with exposure to copper and gold exploration in a well-established mineral belt in British Columbia. Foggy Mountain is located in the Toodoggone Mining District, a region that hosts porphyry and epithermal mineral systems and is home to active exploration and development companies.
+ Opportunities to improve veterans’ cardiovascular health
 
- The Property comprises three mineral claims totalling approximately 4,210 hectares. The project is described in the supplied technical presentation as an early-stage exploration property with limited historical exploration, offering scope for systematic follow-up work. The nearby Kemess mine and associated regional infrastructure provide important context for the Property’s location, although no infrastructure access or operating arrangements for Foggy Mountain are implied by this announcement.
+ The statement outlines practical opportunities to improve lifestyle behaviors, cardiometabolic health, mental health, substance use and sleep disorders among veterans. Strategies include:
 
- Exploration Potential
+ * Expand access to healthy foods and nutrition and weight-management programs.
+* Tailor physical activity goals to veterans’ abilities and available resources.
+* Improve screening, prevention and treatment for obesity, diabetes, high cholesterol and high blood pressure.
+* Expand screening and support for mental health and substance use disorders, including tobacco use, while reducing stigma associated with seeking care.
+* Increase access to sleep disorder screening and treatment.
+* Use telehealth and home-based tools, such as at-home blood pressure monitoring, to reach veterans who face barriers to in-person care.
 
- Historical rock sampling conducted in 2022 confirmed elevated copper, gold and silver values at multiple locations across the Property. Highlight results included sample F00073673, which returned 3.52% Cu, 0.08 g/t Au and 14.2 g/t Ag; sample F00070107, which returned 0.37% Cu, 11.3 g/t Au and 90.5 g/t Ag; and sample F00070123, which returned 2.33% Cu, 8.32 g/t Au and 43.4 g/t Ag.
+ “Veterans and their families can use Life’s Essential 8 to assess key measures of cardiovascular health and discuss personalized prevention goals with a healthcare professional,” Yuan said.
 
- The Company cautions that these results are from individual rock samples and do not establish the grade, continuity or size of any deposit. No mineral resource or mineral reserve has been defined for Foggy Mountain in the materials provided.
+ Veterans Affairs programs offer promising models
 
- The project presentation identifies several exploration concepts, including alkalic porphyry copper-gold, calc-alkalic porphyry copper-gold-silver-molybdenum, and high- and low-sulphidation epithermal gold-silver systems. The 2025 geophysical interpretation outlined several areas of interest, including interpreted intrusive and linear structural features that coincide with anomalous copper stream-sediment results and nearby rock samples with anomalous copper and gold values.
+ Approximately 9 million veterans, nearly half of the U.S. military veteran population, are enrolled to receive care through the U.S. Department of Veterans Affairs (VA), the nation’s largest integrated healthcare system.
 
- A proposed first phase of exploration includes additional geological mapping and sampling to follow up on the 2025 geophysical work, ground-truth interpreted structures, investigate elevated copper in stream sediments and further characterize altered intrusive rocks and polymetallic veining. Diamond drilling of the highest-priority targets could follow, subject to results, permitting, financing and the Company’s review of the program.
+ “The VA provides no- or low-cost comprehensive medical care, as well as housing and social work resources,” Yuan said. “The health system has invested in and developed innovative programs to improve cardiovascular health in the veteran population that have been successful in delivering high-quality care.”
 
- Key Terms of the Option Agreement
+ The statement notes that VA programs addressing coordinated primary care, nutrition, physical activity, weight management, mental health, sleep, substance use and telehealth may offer models for other health systems.
 
- Under the Option Agreement, Fuse has the exclusive right to earn an initial 70% beneficial interest in the Property by completing the following requirements:
+ * Patient Aligned Care Teams (PACTs) integrate primary care clinicians with pharmacists, dietitians, behavioral health professionals and other specialists.
+* MOVE! and Whole Health programs support healthy eating, physical activity and weight management.
+* Telehealth programs support diabetes management, blood pressure control, sleep health and specialty care for veterans in rural areas.
 
- - Cash payment: C$50,000 in aggregate to the Optionors, payable on the earlier of the date of final TSX Venture Exchange (“TSXV”) acceptance and 30 days after the agreement’s effective date.
+ “Improving cardiovascular health among veterans requires a comprehensive, whole-person approach that goes beyond traditional heart disease prevention,” Yuan said. “Addressing lifestyle factors, metabolic health, mental health, sleep and the social factors that influence health together can help veterans live longer, healthier lives.”
 
- - Share issuance: 2,250,000 common shares of Fuse, issuable on the TSXV approval date and subject to a voluntary pooling arrangement, with one-third released on approval, one-third on the first anniversary and the balance on the second anniversary.
+ “The American Heart Association is committed to supporting the health and well-being of military veterans and active-duty personnel and addressing the unique health challenges they may face. Through our Women Veterans and Heart Health initiative, we provide resources focused on the distinctive health risks of women who have served in the armed forces. Our Military & Veterans Network Employee Resource Group also helps connect the military and veteran community with information and resources that support healthy lifestyles and mental well-being,” said Mariell Jessup, M.D., chief science and medical officer of the American Heart Association. “This scientific statement shines an important light on the disproportionate burden of cardiovascular disease among those who serve or have served our country. By better understanding their unique risks and experiences, we can raise awareness, strengthen prevention and help more service members and veterans live longer, healthier lives.”
 
- - Warrant issuance: 1,500,000 common share purchase warrants (“Warrants”) of Fuse, issuable on TSXV acceptance, each Warrant exercisable to acquire one common share at C$0.15 for three years from issuance.
+ This scientific statement was prepared by the volunteer writing group on behalf of the American Heart Association’s Council on Lifestyle and Cardiometabolic Health; Council on Arteriosclerosis, Thrombosis and Vascular Biology; Council on Cardiovascular and Stroke Nursing; Council on Cardiovascular Radiology and Intervention; Council on Clinical Cardiology; and Council on Quality of Care and Outcomes Research. American Heart Association scientific statements promote greater awareness about cardiovascular diseases and stroke issues and help facilitate informed health care decisions. Scientific statements outline what is currently known about a topic and what areas need additional research. While scientific statements inform the development of guidelines, they do not make treatment recommendations. American Heart Association guidelines provide the Association’s official clinical practice recommendations.
 
- - Drilling commitment: completion of a minimum 3,500 metres of exploration drilling on the Property on or before the third anniversary of the agreement’s effective date.
+ Co-authors are vice chair John M. Gaziano, M.D., M.P.H.; Dina H. Griauzde, M.D., M.Sc.; Elizabeth A. Jackson, M.D., M.P.H., M.B.A., FAHA; Tannaz Moin, M.D., M.B.A., M.S.H.S.; Zaid Almarzooq, M.B.B.Ch.; Jennifer Ballard-Hernandez, D.N.P., FAHA; William C. Cushman, M.D., FAHA; Salomeh Keyhani, M.D., M.P.H.; and Jennifer L. Martin, Ph.D. Authors’ disclosures are listed in the manuscript.
 
- All securities issued in connection with the Option Agreement will be subject to a statutory hold period of four months and one day from the date of issuance, in accordance with applicable Canadian securities laws.
+ The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
 
- Following completion of the initial earn-in requirements, Fuse may earn an additional 10% beneficial interest, for a total 80% interest, by completing and delivering a PEA prepared in accordance with National Instrument 43-101 – Standards of Disclosure for Mineral Projects and paying an additional C$150,000 in aggregate to the Optionors upon completion of the PEA.
+ Additional Resources:
 
- Upon earning the additional 10% interest, the parties are to enter into a joint venture under which Fuse would hold an 80% interest and the Optionors would collectively hold a 20% interest. Following formation of the joint venture, the parties will fund their respective shares of approved programs and budgets in proportion to their participating interests. A party that elects not to contribute will be subject to dilution, and if either party's participating interest is diluted to less than 10%, that interest will automatically convert into a 2% net smelter returns royalty, in accordance with the Option Agreement. The Property is subject to a 2% net smelter returns royalty in favour of Cronin Exploration Inc. Under the agreement, Fuse has the right to purchase 50% of that royalty (reducing it to 1%) for C$1,500,000 within 30 days following commencement of commercial production.
+ * Available multimedia is on right column of release link.
+* Spanish news release
+* After November 11, 2026, view the manuscript online.
+* American Heart Association News: Veterans’ unique heart-health risks call for personalized care
+* American Heart Association/ACC scientific statement news release: New Guidance Introduces Framework for Assessing Cardiovascular Risk and Fitness for Duty in Tactical Athletes (Sept. 2026)
+* American Heart Association news release: New program for veterans with high cholesterol, associated cardiovascular disease (March 2023)
+* American Heart Association health information: Women Veterans and Heart Health
+* Access stories about people, science and health from American Heart Association News
+* Follow American Heart Association/American Stroke Association news on X @HeartNews
+* Follow news from the American Heart Association’s Circulation journal @CircAHA
 
- The earn-in requirements are optional under the Option Agreement. The agreement is subject to the terms and conditions set out therein, including final acceptance by the TSXV. All amounts are in Canadian dollars.
+ About the American Heart Association
 
- CEO Commentary
+ The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
 
- “Foggy Mountain is an exciting new opportunity for Fuse as we broaden our exploration focus to include a copper-gold project in one of British Columbia’s established mineral districts,” said Tim Fernback, President and CEO of Fuse Battery Metals. “The historical sampling results and the combination of geophysical and geochemical targets give us a compelling starting point for a disciplined exploration program. Our immediate focus will be on evaluating the existing data and determining the most effective next steps to test the Property’s potential.”
+ For Media Inquiries: 214-706-1173
 
- About the British Columbia Foggy Mountain Property
+ Cathy Lewis; cathy.lewis@heart.org
 
- The Foggy Mountain Property (the “Property” or the “Project”) is an exploration stage project in the Omineca Mining Region of central British Columbia, approximately 195 km northeast of Meziadin Junction and 250 km north of Smithers. The Property is located within NTS Mapsheet 094E02 and 094D15.
+ For Public Inquiries: 1-800-AHA-U.SA1 (242-8721)
 
- The Property consists of three mineral claims within one contiguous claim group, totalling approximately 4,210 hectares. Cronin Exploration Inc. holds a 100% legal interest and a 75% beneficial interest in the Property, with David Robinson and Kyle Hookey each holding a 12.5% beneficial interest The Historic work dates back to 1972. The current main target commodities on the property are gold, copper, and silver.
-
- Exploration on the Foggy Mountain Property dates back to 1972; however, most of the exploration has been conducted from 2003 and onwards. The claims were actively explored in the 1980s by several operators when the district was explored for its epithermal gold and silver potential following production decisions on three small gold mines in the Toodoggone District (Baker, Lawyers, and Shasta). More regional activity was triggered by the exploration of the large-scale Kemess South copper-gold porphyry deposit in the early 1990s.
-
- Between 2003 to 2006, Stealth Mineral Ltd. conducted geochemical and geological surveys, along with prospecting on the Fog-Mess Property. Some of the highlights included the discovery of MESS 8, FOG-MESS SOUTH and MESS 5 mineral showings characterized by quartz vein-controlled polymetallic Ag-Cu-Zn+/-Au.
-
- The Foggy Mountain property is situated in the northern portion of the Quesnel Terrane (Figure 1), an island arc which formed along the western North American continental margin during the Late Paleozoic to mid-Mesozoic. The area surrounding the Foggy Mountain property is bounded to the east by the Cassiar Terrane comprised of Proterozoic and Paleozoic carbonate and siliciclastic rocks that once formed part of the ancestral North American continental margin. These two terranes are divided by a large, structurally complex Early Jurassic system of northwest trending thrust faults, including the Swannell Fault, which structurally juxtaposed the Quesnel Terrane over the Cassiar Terrane.
-
- Figure 1- Foggy Mountain Property Location – Geologic Zones
-
- Figure 2 – Foggy Mountain Property Claims
-
- There are no mineral resources or reserves on the Foggy Mountain Property. Rock sampling on the property confirmed the presence of elevated copper-gold and silver mineralization at the MESS 5, FOG-MESS SOUTH and MAY showings. Encouraging results including at the MAY showing returned up to 11.3 g/t gold, 90.5 g/t silver, 0.370 % copper and 8.32 g/t gold, 43.4 g/t silver, 2.33 % copper from MESS 5 showing. As well as newly described and unsampled zones to the southeast of the MAY showing which returned up to 0.1025 % Cu in a K-Spar altered granodiorite. FOG-MESS SOUTH mineralization is skarn related at the contact between mudstone and limestone units, rock samples containing up to 2.63 % Cu with 34.7 g/t Ag were collected. Sediment sampling identified three anomalous areas of elevated Au, Ag-Mo-Pb and Cu-Zn on the property.
-
- In 2025, an airborne magnetic and radiometric survey was conducted over the property. The results of this survey show several areas of interest that coincide with rock and stream sampling results. The primary target is what is theorized to be a large intrusive body, with a strong magnetic response and high magnetic susceptibility. Two other secondary targets include areas of apparent linear features such as shear zones or faults, which correspond with elevated gold and copper in stream sampling results.
-
- Our geological team recommends additional rock sampling, mapping, and prospecting surrounding the MESS 5 showing, where recent sampling has yielded high Ag/Cu/Au results relative to other sampling on the Property. In addition, sampling of outcrop above high-Cu stream sediment samples in the northern section of the claims is recommended to locate a source of copper entering the watershed. The Foggy Mountain Property is a property of merit with potential to host gold, copper, and silver mineralization.
-
- Qualified Person
-
- Jeremy Hanson, P.Geo., an independent qualified person as defined under National Instrument 43-101 has reviewed and approved the technical contents of this news release.
-
- About Fuse Battery Metals Inc.
-
- Fuse Battery Metals Inc. is a Canadian-based exploration company that trades under the symbol FUSE on the TSX Venture Exchange. The Company’s focus is on exploration for high-value metals required for the manufacturing of batteries.
-
- Ontario Cobalt Properties
-
- Fuse owns a 100% interest in its Glencore Bucke Property, situated in Bucke Township, approximately 6 kilometres east-northeast of Cobalt, Ontario, subject to a back-in provision, production royalty and off-take agreement. The Glencore Bucke Property consists of 16.2 hectares and lies along the western boundary of Fuse’s Teledyne Cobalt Project. The Company also owns a 100% interest, subject to a royalty, in the Teledyne Project near Cobalt, Ontario.
-
- On Behalf of the Board of Directors
-
- “Tim Fernback”Tim Fernback, President & CEO
-
- Contact Information:Email: info@fusebatterymetals.comPhone: 236-521-0207
-
- Forward-Looking Statements
-
- This news release contains forward-looking statements within the meaning of applicable securities laws. Forward-looking statements include statements regarding Fuse’s ability to earn an interest in the Property, the completion of the First Earn-In Requirements and Second Earn-In Requirements, the issuance of securities, the completion of required exploration expenditures and drilling programs, the preparation of a preliminary economic assessment, the potential formation of a joint venture, anticipated exploration activities, the proposed exploration strategy, potential mineralization, and the timing, scope and results of future work. Forward-looking statements are based on assumptions and are subject to risks and uncertainties that could cause actual results to differ materially, including the receipt of TSXV acceptance and other approvals, the availability of financing, permitting, exploration results, commodity prices, the Company’s ability to satisfy the applicable earn-in requirements and general market and business conditions. Forward-looking statements are not guarantees of future performance. Except as required by applicable securities laws, the Company undertakes no obligation to update forward-looking statements.
-
- Neither the TSX Venture Exchange nor its Regulation Services Provider (as that term is defined in the policies of the TSX Venture Exchange) accepts responsibility for the adequacy or accuracy of this release.
-
- 
+ heart.org and stroke.org
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fuse-battery-metals-options-foggy-mountain-copper-gold-project-in-british-columbia-7091241)
+[Original/Source Press Release](https://www.newmediawire.com/news/fewer-than-5-of-us-military-veterans-may-achieve-optimal-heart-health-7091244)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fuse-battery-metals-options-foggy-mountain-copper-gold-project-in-bc/3e512e3f1b68bbfb69d36a7c6bb89b4f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fewer-than-5-of-u-s-veterans-achieve-optimal-heart-health/66fc22c182d46297e464f22c36c29eb2) 
 
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/10/fuse-battery-metals-options-foggy-mountain-copper-gold-project-in-british-columbia/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/fuse-battery-metals-secures-option-on-80-interest-in-foggy-mountain-copper-gold-project-in-british-columbia)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fuse-battery-metals-secures-option-on-80-interest-in-foggy-mountain-copper-gold-project)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fuse-battery-metals-expands-into-copper-gold-with-foggy-mountain-option)
-
-Pickup - [https://burstable.news](https://burstable.news/news/fuse-battery-metals-options-80-stake-in-foggy-mountain-copper-gold-project)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fuse-battery-metals-sichert-sich-option-auf-80-beteiligung-am-kupfer-gold-projekt-foggy-mountain)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fuse-battery-metals-opciona-una-participacion-del-80-en-el-proyecto-de-cobre-y-oro-foggy-mountain)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fuse-battery-metals-obtient-une-option-sur-une-participation-de-80-dans-le-projet-cuivre-or-foggy-mountain)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fuse-battery-metals-garante-opcao-por-80-de-participacao-no-projeto-de-cobre-ouro-foggy-mountain)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fuse-battery-metals-expands-into-copper-gold-with-foggy-mountain-option)
-
-Pickup - [https://mining.in-focus.news/mining-news](https://mining.in-focus.news/mining-news/fuse-battery-metals-options-80-interest-in-foggy-mountain-copper-gold-project)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/11/fewer-than-5-of-us-veterans-may-achieve-optimal-heart-health-american-heart-association-scientific-statement-finds/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/dualPZcq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/tilepIYd.webp)
