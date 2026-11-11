@@ -1,108 +1,49 @@
-# Fewer Than 5% of US Military Veterans may Achieve Optimal Heart Health
+# Velocity Summit Announces Full Speaker Program: NC Governor Josh Stein, Commerce Secretary Lee Lilley, Senior Defense and Industry Leaders to Appear
 
-Statement Highlights:
+The Nov. 17 Summit, Co-Presented by NCMBC and The Protocase Companies, Will Unite Military and Manufacturing Leaders to Tackle Delays in U.S. Defense Production
 
- * Fewer than 5% of U.S. military veterans may achieve optimal heart health based on the American Heart Association’s Life’s Essential 8™ metrics, according to new scientific statement from the Association.
-* Veterans experience a high burden of heart disease and stroke risk factors and related conditions, including obesity, high blood pressure, abnormal lipid levels, sleep disorders, mental health conditions and substance use.
-* A coordinated approach that expands access to care and tailors prevention to veterans’ needs may improve their cardiovascular health and longevity.
-* Nearly half of all U.S. veterans are enrolled to receive care through the U.S. Department of Veterans Affairs, the largest integrated healthcare system in the country.
+ WILMINGTON, NC - November 11, 2026 (NEWMEDIAWIRE) - The Protocase Companies and the North Carolina Military Business Center (NCMBC) today announced the final program for the inaugural Velocity Summit on November 17 in Wilmington. The lineup includes video remarks from Governor Josh Stein, an in-person address by North Carolina Secretary of Commerce Lee Lilley, a keynote by Lieutenant General (Ret.) Christopher O. Mohan, former Commanding General of U.S. Army Materiel Command, military readiness officials and executives from aerospace, advanced manufacturing and open infrastructure.
 
- DALLAS - November 11, 2026 (NEWMEDIAWIRE) - Fewer than 5% of U.S. military veterans may achieve optimal cardiovascular health based on the American Heart Association’s Life’s Essential 8™ metrics, highlighting an urgent opportunity to improve prevention and help veterans live longer, healthier lives, according to a new scientific statement published today in the Association’s flagship journal, Circulation.
+ The program moves from operational requirements and readiness to the manufacturers responsible for delivery, concluding with a working roundtable on barriers North Carolina can address. Its focus is examining how North Carolina stakeholders can lead the nation in shortening the time needed to build and sustain ships, aircraft, ground systems and critical components.
 
- ![](https://iprsoftwaremedia.com/67/files/20179/Heart%20chambers%20illustration.jpg)
+ “America has the engineering talent and manufacturing expertise to meet extraordinary defense needs. The problem is how long it takes to turn a requirement into a delivered capability,” said Dr. Doug Milburn, Chairman of The Protocase Companies. “North Carolina has the industrial depth and talent to help change that in a big way. Velocity Summit puts military leaders, key suppliers and policymakers at the same table to identify the barriers and start removing them.”
 
- The statement, "Cardiovascular Health Promotion for U.S. Veterans: Current State, Gaps, and Strategies," is devoted specifically to promoting cardiovascular health among military veterans. It applies the Life’s Essential 8 framework, and additionally considers mental health and substance use, to evaluate cardiovascular health among U.S. veterans and to identify strategies that clinicians, researchers and policymakers can use to improve health outcomes for this population.
+ Final Program - November 17, 2026
 
- Life’s Essential 8 includes healthy eating, physical activity, avoiding tobacco use, healthy sleep, healthy weight, and healthy levels of blood sugar, cholesterol and blood pressure. According to the American Heart Association, around 20% of the general U.S. adult population may achieve optimal cardiovascular health.
+ * 9:00 AM | Welcome and Opening Remarks: Martin J. “Jimmy” Hendrix III, Executive Director, NCMBC; Governor Josh Stein (video remarks); Jim Morton, President, Cape Fear Community College; and Wilmington Mayor Bill Saffo.
+* 9:15 AM | Why Velocity Matters: Opening keynote by Dr. Doug Milburn, Chairman, The Protocase Companies.
+* 9:45 AM | Keynote Remarks: Lieutenant General (Ret.) Christopher O. Mohan, former Commanding General, U.S. Army Materiel Command.
+* 10:05 AM | The Military Perspective - What Readiness Requires: Carolyn Farmer, Principal Technical Advisor, U.S. Army Materiel Command; Colonel Christopher McDonald II, Commanding Officer, Fleet Readiness Center East; Colonel Jeremiah O’Connor, Chief of Staff, U.S. Army Tank-Automotive and Armament Command (TACOM); Commander Garin Kirkpatrick, Operations Officer, U.S. Coast Guard Aviation Logistics Center; and James Pettway Jr., Small Business Professional, PAE Maritime, Norfolk Naval Shipyard.
+* 12:30 PM | North Carolina’s Role in America’s Industrial Readiness: Address by North Carolina Secretary of Commerce Lee Lilley.
+* 12:45 PM | Main Event - The Industry Velocity Panel: Building at the Speed the Mission Requires, moderated by Jon Phillips, CEO, PhillComm Global. Featuring Chelsea Lloyd, Director, Supplier Quality Engineering, Archer Aviation; Scott Lampe, President, Hendrick Technical Solutions; Robert Macqueen, Chief Operating Officer, 45Drives; and Bradley Garris, Business Manager, Phillips Corporation–Markforged.
+* 2:00 PM | Velocity Roundtable - From Problems to Action: Working discussion on production bottlenecks, practical interventions for North Carolina and building a sustained Velocity coalition.
+* 3:30 PM | Closing Remarks and Next Steps
 
- “Veterans are not simply older adults who happen to have served in the military. They are a diverse population with unique health risks shaped by their military service, chronic conditions, mental health, service-related exposures and barriers to care,” said Neal Yuan, M.D., chair of the scientific statement volunteer writing group, assistant professor of medicine in the division of cardiology at the University of California San Francisco. “Recognizing how these factors interact and influence well-being is essential to providing effective prevention and treatment.”
+ Event details: 9:00 AM-3:45 PM EST, Cape Fear Community College, Union Station Conference Center, Room 508, 502 N. Front Street, Wilmington, NC 28401. Agenda and registration: Velocity Summit.
 
- Cardiovascular health challenges for veterans
+ About The Protocase Companies
 
- Military veterans represent more than 5% of the U.S. adult population and are increasingly diverse in race, ethnicity, age, gender and military experience. The statement identifies several factors that can affect their cardiovascular health, including:
+ The Protocase Companies - Protocase, ProtoSpace Mfg and 45Drives - operate across advanced manufacturing, aerospace and defense, and open-source infrastructure. Their engineering, prototyping, fabrication and technology solutions help teams move quickly from design to production.
 
- * Multiple chronic health conditions, including obesity, high cholesterol, high blood pressure, heart disease, Type 2 diabetes, sleep disorders, chronic lung disease and chronic kidney disease.
-* Mental health conditions such as anxiety, depression and posttraumatic stress disorder, each of which can independently double the risk of major cardiovascular disease.
-* Substance use disorder involving tobacco, alcohol or illicit drug use, which is linked to shortening lifespan by 6 to 24 years.
-* Lower-quality diets and physical activity levels below recommendations.
-* Military-related injuries, environmental exposures and psychological stressors.
-* Barriers to care, including rural residence and limited internet connectivity.
+ About the North Carolina Military Business Center
 
- Opportunities to improve veterans’ cardiovascular health
+ NCMBC is a statewide business development and technology transition entity embedded in North Carolina’s community college system. It expands military and other federal business opportunities for North Carolina companies, supporting job creation and economic development.
 
- The statement outlines practical opportunities to improve lifestyle behaviors, cardiometabolic health, mental health, substance use and sleep disorders among veterans. Strategies include:
-
- * Expand access to healthy foods and nutrition and weight-management programs.
-* Tailor physical activity goals to veterans’ abilities and available resources.
-* Improve screening, prevention and treatment for obesity, diabetes, high cholesterol and high blood pressure.
-* Expand screening and support for mental health and substance use disorders, including tobacco use, while reducing stigma associated with seeking care.
-* Increase access to sleep disorder screening and treatment.
-* Use telehealth and home-based tools, such as at-home blood pressure monitoring, to reach veterans who face barriers to in-person care.
-
- “Veterans and their families can use Life’s Essential 8 to assess key measures of cardiovascular health and discuss personalized prevention goals with a healthcare professional,” Yuan said.
-
- Veterans Affairs programs offer promising models
-
- Approximately 9 million veterans, nearly half of the U.S. military veteran population, are enrolled to receive care through the U.S. Department of Veterans Affairs (VA), the nation’s largest integrated healthcare system.
-
- “The VA provides no- or low-cost comprehensive medical care, as well as housing and social work resources,” Yuan said. “The health system has invested in and developed innovative programs to improve cardiovascular health in the veteran population that have been successful in delivering high-quality care.”
-
- The statement notes that VA programs addressing coordinated primary care, nutrition, physical activity, weight management, mental health, sleep, substance use and telehealth may offer models for other health systems.
-
- * Patient Aligned Care Teams (PACTs) integrate primary care clinicians with pharmacists, dietitians, behavioral health professionals and other specialists.
-* MOVE! and Whole Health programs support healthy eating, physical activity and weight management.
-* Telehealth programs support diabetes management, blood pressure control, sleep health and specialty care for veterans in rural areas.
-
- “Improving cardiovascular health among veterans requires a comprehensive, whole-person approach that goes beyond traditional heart disease prevention,” Yuan said. “Addressing lifestyle factors, metabolic health, mental health, sleep and the social factors that influence health together can help veterans live longer, healthier lives.”
-
- “The American Heart Association is committed to supporting the health and well-being of military veterans and active-duty personnel and addressing the unique health challenges they may face. Through our Women Veterans and Heart Health initiative, we provide resources focused on the distinctive health risks of women who have served in the armed forces. Our Military & Veterans Network Employee Resource Group also helps connect the military and veteran community with information and resources that support healthy lifestyles and mental well-being,” said Mariell Jessup, M.D., chief science and medical officer of the American Heart Association. “This scientific statement shines an important light on the disproportionate burden of cardiovascular disease among those who serve or have served our country. By better understanding their unique risks and experiences, we can raise awareness, strengthen prevention and help more service members and veterans live longer, healthier lives.”
-
- This scientific statement was prepared by the volunteer writing group on behalf of the American Heart Association’s Council on Lifestyle and Cardiometabolic Health; Council on Arteriosclerosis, Thrombosis and Vascular Biology; Council on Cardiovascular and Stroke Nursing; Council on Cardiovascular Radiology and Intervention; Council on Clinical Cardiology; and Council on Quality of Care and Outcomes Research. American Heart Association scientific statements promote greater awareness about cardiovascular diseases and stroke issues and help facilitate informed health care decisions. Scientific statements outline what is currently known about a topic and what areas need additional research. While scientific statements inform the development of guidelines, they do not make treatment recommendations. American Heart Association guidelines provide the Association’s official clinical practice recommendations.
-
- Co-authors are vice chair John M. Gaziano, M.D., M.P.H.; Dina H. Griauzde, M.D., M.Sc.; Elizabeth A. Jackson, M.D., M.P.H., M.B.A., FAHA; Tannaz Moin, M.D., M.B.A., M.S.H.S.; Zaid Almarzooq, M.B.B.Ch.; Jennifer Ballard-Hernandez, D.N.P., FAHA; William C. Cushman, M.D., FAHA; Salomeh Keyhani, M.D., M.P.H.; and Jennifer L. Martin, Ph.D. Authors’ disclosures are listed in the manuscript.
-
- The Association receives more than 85% of its revenue from sources other than corporations. These sources include contributions from individuals, foundations and estates, as well as investment earnings and revenue from the sale of our educational materials. Corporations (including pharmaceutical, device manufacturers and other companies) also make donations to the Association. The Association has strict policies to prevent any donations from influencing its science content and policy positions. Overall financial information is available here.
-
- Additional Resources:
-
- * Available multimedia is on right column of release link.
-* Spanish news release
-* After November 11, 2026, view the manuscript online.
-* American Heart Association News: Veterans’ unique heart-health risks call for personalized care
-* American Heart Association/ACC scientific statement news release: New Guidance Introduces Framework for Assessing Cardiovascular Risk and Fitness for Duty in Tactical Athletes (Sept. 2026)
-* American Heart Association news release: New program for veterans with high cholesterol, associated cardiovascular disease (March 2023)
-* American Heart Association health information: Women Veterans and Heart Health
-* Access stories about people, science and health from American Heart Association News
-* Follow American Heart Association/American Stroke Association news on X @HeartNews
-* Follow news from the American Heart Association’s Circulation journal @CircAHA
-
- About the American Heart Association
-
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, Facebook, X or by calling 1-800-AHA-USA1.
-
- For Media Inquiries: 214-706-1173
-
- Cathy Lewis; cathy.lewis@heart.org
-
- For Public Inquiries: 1-800-AHA-U.SA1 (242-8721)
-
- heart.org and stroke.org
+ Contact:Jonathan PhillipsProtocase@PhillComm.Global
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fewer-than-5-of-us-military-veterans-may-achieve-optimal-heart-health-7091244)
+[Original/Source Press Release](https://www.newmediawire.com/news/velocity-summit-announces-full-speaker-program-nc-governor-josh-stein-commerce-secretary-lee-lilley-senior-defense-and-industry-leaders-to-appear-7091258)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fewer-than-5-of-u-s-veterans-achieve-optimal-heart-health/66fc22c182d46297e464f22c36c29eb2) 
-
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/11/fewer-than-5-of-us-veterans-may-achieve-optimal-heart-health-american-heart-association-scientific-statement-finds/)
- 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/velocity-summit-unites-military-and-manufacturing-leaders-to-speed-defense-production/2875e8b26b716c502a016ffe94d38cd7) 
 
  
 
+ 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/tilepIYd.webp)
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/apexkGNr.webp)
