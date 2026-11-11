@@ -1,76 +1,60 @@
-# In Pre-Construction Real Estate, the Payment Schedule Often Says More Than the Rendering
+# Why More Lenders Are Selling Their Defaulted Loans Instead Of Foreclosing
 
-Pre-construction sales have always asked buyers to pay for something they cannot yet see. That gap is widening. Developers can now produce photorealistic renderings and video that make an unbuilt project look finished and occupied, while the slower sales seen in many markets over the past year have left some projects short of the money needed to complete them.
+When a borrower stops paying, the lender holding that loan has a decision to make. It can spend the next year or more working through collections and foreclosure, or it can sell the loan to a buyer that specializes in distressed debt. A growing number of banks and private lenders are choosing to sell.
 
- The risk is not limited to any one country. It is sharpest, though, for buyers purchasing far from home, who are often relying on marketing materials alone.
+ H. Jack Miller, founder and president of Gelt Financial, says his firm is now buying several defaulted loans every week. “We just literally closed one today. We’re closing one tomorrow,” he said. He explained why lenders are letting go, what it costs to keep a defaulted loan, and what a sale means for the borrower.
 
- “In today’s world, a lot of developments use AI to create a beautiful picture,” said Ed Eakin, a Texas broker and Certified International Property Specialist based in Cabo San Lucas. “It looks like the project is done and people are living there. In reality, no dirt has been moved.”
+ Why Lenders Are Selling Now According to Miller, most sellers fall into one of two groups. Some are not set up to handle distressed loans and the legal process that comes with them. Others need their capital back to keep lending.
 
- Questions a rendering cannot answer Eakin’s starting point is a set of direct questions for the developer. Has the project broken ground? How many units have closed? What are the expected completion dates for each phase? When will the amenities be started, and when will they be finished?
+ Many of these lenders have had little reason to build that capability. “The economy was so good for so long. A lot of people just didn’t deal with it. They didn’t have to deal with it,” Miller said. Now delinquencies are rising, and lenders that once handled an occasional default are seeing them far more often.
 
- The amenity question is often where marketing and reality separate. Some projects build their headline feature first, and the rest follows slowly. Eakin points to a development near Spicewood, Texas, where the golf course has been finished for about a year, but no homes have been built. Streets and utilities are still going in, and the clubhouse is a temporary tent.
+ There is a human side, too. “It’s not fun to foreclose on someone. It’s not fun to be adversarial,” he said. For a lender whose business is making loans, managing a default can feel like a different job entirely.
 
- The most revealing question concerns money. Many developers cannot start construction until they reach a set level of pre-sales. Eakin asks a version of the same thing each time: if no further units sell over the next year, can the project still be finished?
+ What a Defaulted Loan Actually Costs To show why selling can make financial sense, Miller walked through a hypothetical $500,000 first mortgage at 12%, with the borrower paying $5,000 a month. He stressed that the figures are illustrative and vary by deal.
 
- Track record carries similar weight. A developer with decades of operation and dozens of completed projects presents a different risk than a first-time builder, and asking what a developer has already delivered is a fair question at any price point.
+ When the borrower stops paying, the lender loses that $5,000 in monthly income. If the lender borrowed the money it lent out, it still owes its own lenders. “So not only don’t they have $5,000 in, they have $5,000 out,” Miller said, describing it as a $10,000 monthly swing.
 
- What the payment schedule signals The structure of the deposit schedule offers a less obvious clue. Payment terms vary widely. Some developers ask for around 30 percent at contract, another installment when the foundation is complete, and the balance at delivery. Others take an initial deposit and ask for nothing more until the end.
+ Expenses then begin to pile up. Borrowers in default often stop paying property insurance, which forces the lender to buy force-placed coverage. Miller estimated that could run around $500 a month. Attorney fees can add another $3,000 to $4,000 a month.
 
- In Eakin’s view, the second structure usually points to a stronger developer, one able to fund construction without drawing on buyers’ money along the way. At the other extreme, a developer asking for half the purchase price before breaking ground warrants extra caution.
+ “One day, they have $5,000 coming in when the loan’s performing. The next day, when the loan doesn’t perform, they can have $7,000, $8,000, $9,000 in expenses every month for a year, year and a half,” Miller said.
 
- How deposits are held matters as well. Eakin advises against wiring funds directly into a developer’s own account. A local third-party escrow service can release money as construction milestones are met: the foundation poured, the walls up, the roof on. Lenders can offer another layer of scrutiny. Eakin notes that mortgage lenders active in Mexico typically vet a developer before agreeing to finance a unit in the project.
+ A defaulted loan also cannot simply be handed to an attorney and forgotten. Someone has to manage the workout and the asset itself, and Miller said that position alone can cost a lender around $150,000 a year.
 
- Reading a site None of this replaces seeing the property. The signals on a site are straightforward. Workers, machinery, and noise suggest progress. A fenced, locked site with no crew, or ground where grass is growing over earlier work, suggests a project that has stalled.
+ “So some lenders just say, look, I don’t want to deal with it. It’s not my business. I’m moving on,” he said.
 
- “If nothing has changed in 30 days, let’s figure out what’s happening and why,” Eakin said.
+ What Changes for the Borrower When a Loan Is Sold For a borrower, learning that a loan has been sold can be unsettling. Miller says it is usually good news.
 
- For buyers who cannot visit often, that monitoring can be delegated. Eakin describes regular site checks on behalf of out-of-town clients, sending photos and video, and walking clients through a unit by live video call so they can ask questions as they see it. The same approach applies before purchase. When a client is weighing several projects, he visits each, collects price lists and construction timelines, and reports which are close to delivery and which are still years out.
+ The loan terms do not change. “The new lender can’t change anything. We just have to live with it,” he said. What changes is the relationship. When Gelt buys a loan, it contacts the borrower, introduces itself as the new owner, and asks whether the two sides can reach an agreement.
 
- When projects fail The consequences of skipping these steps tend to arrive late. Eakin says he still receives calls from buyers who sent deposits directly to a developer who later disappeared, often after finding an online group of other buyers in the same position. “At that point, it’s really too late,” he said.
+ Miller summed up the message this way: “Forget what happened in the past. Let’s talk the future.” If a borrower is six months behind, the first question is whether they can start making monthly payments again.
 
- The outlook As pre-construction marketing becomes more polished and financing for new projects tightens, the distance between what a buyer sees online and what exists on the ground is likely to keep growing. The questions that close it remain unchanged: who is building the project, how it is funded, and whether anyone the buyer trusts has stood on the site.
+ He describes it as a second chance for borrowers to re-engage. Borrowers who could not reach a deal with their original lender often reach one with the new owner, sometimes because hard feelings had built up on both sides. “Sometimes you just need a fresh face,” he said.
 
- About the Expert: Ed Eakin is a Texas real estate broker and Certified International Property Specialist who leads Eakin Group in Cabo San Lucas, Mexico. He focuses on luxury and golf-community property in Los Cabos. eakingroup.com
+ What Lenders and Borrowers Can Expect in 2027 “Look, I don’t know what’s going to be tomorrow,” Miller said. But based on the deals crossing his desk today, he says the volume of troubled loans for sale is increasing.
 
- This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ The distress is not limited to one corner of the market. “It’s across the board,” Miller said, pointing to rising delinquencies in commercial and residential loans alike.
+
+ Buying non-performing debt from banks and non-bank lenders has been part of Gelt’s business since its early years. For lenders deciding whether to hold a troubled loan or sell it, Miller’s example offers a practical starting point: add up the lost income, insurance, legal fees, and staff time, knowing those costs may run for 12 to 18 months.
+
+ About Gelt Financial
+
+ Gelt Financial LLC is a national private lender and distressed debt buyer with over 37 years of experience across commercial and investment real estate. Operating in 37 states, the company provides bridge financing, foreclosure bailout loans, and non-performing loan acquisitions for real estate investors, operators, and institutions.
+
+ Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/in-pre-construction-real-estate-the-payment-schedule-often-says-more-than-the-rendering/)
+[Original/Source Press Release](https://keycrew.co/journal/why-more-lenders-are-selling-their-defaulted-loans-instead-of-foreclosing/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-renderings-mask-growing-pre-construction-risk-for-buyers/bafeeb9047525a63ea7ed38186f5a72d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gelt-financial-buys-defaulted-loans-as-lenders-offload-distressed-debt/45944b335818201bb48c7759b8ca13eb) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/pre-construction-buyers-warned-as-ai-renderings-outpace-reality-on-the-ground)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/pre-construction-real-estate-payment-schedules-as-a-risk-indicator)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/pre-construction-real-estate-payment-schedule-reveals-developer-strength)
-
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/texas-broker-warns-pre-construction-buyers-to-scrutinize-payment-schedules-as-ai-renderings-mask-project-risks)
-
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/un-corredor-de-texas-advierte-a-los-compradores-de-preventa-que-examinen-los-planes-de-pago-mientras-las-imagenes-generadas-por-ia-ocultan-los-riesgos-del-proyecto)
-
-Pickup - [https://burstable.news](https://burstable.news/news/pre-construction-buyers-urged-to-scrutinize-payment-schedules-as-marketing-outpaces-reality)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kaufer-von-neubauprojekten-zur-prufung-der-zahlungsplane-aufgefordert-da-marketing-der-realitat-davonlauft)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/instan-a-compradores-de-preventa-a-examinar-los-calendarios-de-pago-mientras-el-marketing-supera-la-realidad)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-acheteurs-de-biens-en-preconstruction-incites-a-examiner-de-pres-les-echeanciers-de-paiement-alors-que-le-marketing-depasse-la-realite)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/compradores-de-imoveis-na-planta-devem-analisar-cronogramas-de-pagamento-a-medida-que-o-marketing-supera-a-realidade)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/pre-construction-real-estate-payment-schedule-signals-developer-strength)
-
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/ai-renderings-widen-the-gap-between-pre-construction-promises-and-reality)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/10/isleo9_P.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/11/loftOdF7.webp)
