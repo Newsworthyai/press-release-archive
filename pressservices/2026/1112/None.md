@@ -1,50 +1,80 @@
-# Brown &amp; Crouppen Settles Manchester Road Crash Case for $1.6M
+# Why Athletes in Braces Need Mouthguards at Every Practice
 
-How Medical Causation Evidence Drove a $1.6 Million Settlement in a Spine Injury Case
+Premiere Orthodontics Explains Mouthguard Rules for Teen Athletes Wearing Braces in Winter Springs
 
- St. Louis, United States - November 12, 2026 / Brown & Crouppen /
+ Winter Springs, United States - November 12, 2026 / Premiere Orthodontics /
 
- Brown & Crouppen Secures $1.6 Million Settlement for Client with Pre-Existing Back InjuryThe St. Louis County case turned on medical evidence linking a Des Peres collision to a three-level spine surgery, after the defense argued the client's earlier back problems were to blame.
+ Premiere Orthodontics in Winter Springs has issued guidance for parents of student athletes in Seminole County, clarifying why teen patients wearing braces require orthodontic mouthguards at every practice session - not only during scheduled games. Dr. Jason Battle, who leads the practice, outlined the specific risks that standard boil-and-bite guards pose to bracket hardware and explained the protective steps families should take before the next sports season gets underway.
 
-ST. LOUIS, Mo., November 2, 2026 - Brown & Crouppen has secured a $1.6 million settlement in St. Louis County on behalf of a client injured in a motor vehicle collision in Des Peres, Missouri. Attorney Rich Zalasky led the case, which reached resolution on August 31, 2026.
+Why Practice Sessions Carry the Same Risk as Game DayMany parents assume a mouthguard is only necessary when a referee is present, but physical contact and stray equipment do not follow a game schedule. Scrimmages, drills, and conditioning workouts all carry the same collision risk as a formal match. For a teen in braces in Winter Springs, a single unprotected impact during Tuesday afternoon practice can dislodge a bracket just as easily as one during Friday night's game.
 
-The crash occurred on Manchester Road east of Interstate 270, where the defendant turned left out of the center turn lane and directly into the client's path, leaving her no opportunity to avoid the impact. The collision resulted in severe lower-back injuries that required a three-level spine surgery, encompassing two disc replacements and a spinal fusion.
+The timing matters for another reason as well. Bracket damage that occurs late in a practice week may go several days before it can be addressed, potentially shifting tooth position or creating sharp wire ends that irritate soft tissue. Consistent mouthguard use at every session reduces that exposure window.
 
-Because the client had a documented history of lower-back problems prior to the crash, the defense centered its strategy on that history, contending the collision was not responsible for the surgical intervention she ultimately required.
+The Problem with Boil-and-Bite Guards and Bracket HardwareStandard boil-and-bite guards, widely sold at sporting goods retailers, are designed to conform tightly to teeth and existing dental work. That close fit is precisely what makes them problematic for orthodontic patients. When the thermoplastic material cools around brackets and wires, it can grip the hardware. Removing the guard after practice then risks pulling a bracket loose or bending a wire out of alignment.
 
-When a Prior Injury Is Part of the CaseZalasky and his team focused their argument on medical causation. The central question was not whether the client had experienced back trouble before the collision, but whether the collision transformed a manageable condition into a disabling one. The medical evidence supported the latter conclusion. As the case moved toward trial, the parties entered mediation, and a settlement was reached the following week.
+Orthodontic mouthguards are constructed differently. They are designed to cover both the upper and lower teeth without adhering to brackets. The material allows some clearance around hardware so the guard can be inserted and removed without placing stress on the attachment points. This design difference is the main reason the type of guard matters as much as whether a guard is worn at all.
 
-Insurance companies frequently cite a plaintiff's prior medical history to reduce the perceived value of a claim. A documented medical connection between the collision and the resulting injury is what counters that position.
+What to Do When a Bracket Is Knocked LooseEven with proper protection in place, contact sports carry inherent risk. Parents and student athletes in the Orlando and Seminole County area should know the steps to take if an impact results in a loose or displaced bracket during practice.
 
-"Insurance companies look for a reason to pay less, and a prior injury is one of the easiest ones to reach for," said Andy Crouppen, Managing Partner of Brown & Crouppen. "Someone who has had back trouble before still deserves to be made whole when a crash makes it worse. Rich and his team proved that connection with medical evidence, and they were ready to take it to trial. That is what moved this one."
+The first priority is to keep the bracket and any detached wire segment, since the treating orthodontist will assess whether the original hardware can be rebonded or needs to be replaced. If a wire is poking soft tissue, orthodontic wax can be pressed over the sharp end as a temporary measure. The athlete should not attempt to pull a wire free or reattach a bracket independently.
 
-This settlement contributes to the more than $2 billion Brown & Crouppen has recovered for clients since the firm was founded in 1979.
+Families looking for orthodontic mouthguards in Winter Springs and the Orlando area should ask their orthodontist specifically about guards built for use with braces, rather than purchasing a standard model off a retail shelf. For patients of Premiere Orthodontics, the practice can be reached at (407) 381-3335 to discuss the appropriate guard type for a particular sport or activity level.
 
-Past results afford no guarantee of future results. Every case is different and must be judged on its own merits.
+Coordinating with Schools and CoachesAn often-overlooked step is communicating directly with the student's coach and athletic trainer. Coaches may not know the difference between orthodontic and standard guards. Parents can let coaches and trainers know their athlete needs an orthodontic guard, and an orthodontist in Winter Springs FL can help choose the right type at the next appointment. That keeps a teen from feeling pressured to use a standard team-issued guard instead.
 
-About Brown & CrouppenBrown & Crouppen is a personal injury law firm founded in St. Louis in 1979 by Ron Brown and Terry Crouppen. Following Ron Brown's passing in 2022, the firm continues to carry forward the commitment to advocacy and client service established by its founders. Today, Brown & Crouppen's 40 attorneys and 220 legal professionals serve injured individuals and families across Missouri, Kansas, and Illinois from nine offices, handling cases involving motor vehicle collisions, workplace injuries, slip and fall claims, premises liability, nursing home neglect, and wrongful death. Beyond its legal work, Brown & Crouppen actively supports organizations focused on housing, food security, youth services, and access to justice throughout the communities it serves. For more information, visit www.brownandcrouppen.com.
+The practice's guidance comes down to a simple premise: braces represent a months-long investment in dental alignment, and that investment deserves the same consistent protection parents expect from other safety equipment - worn at every practice, in every sport, without exception.
 
- [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/je1egF5LTJHw76dZtMespAsOk7bKeTVxq17ESC4i.jpg) [](https://www.brownandcrouppen.com) Contact Information:
+About Premiere OrthodonticsPremiere Orthodontics is an orthodontic practice with offices in Winter Springs (5733 Canton Cv) and Orlando's Waterford Lakes area (448 S Alafaya Trl, Ste 10), serving Seminole County and the greater Orlando area. The practice is led by board-certified orthodontist Dr. Jason Battle and provides braces, clear aligners and early treatment for children, teens and adults. Winter Springs office: (407) 699-1200. Waterford Lakes office: (407) 381-3335.
 
- Brown & Crouppen
+Learn more at Premiere Orthodontics
+
+ [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/Qh9G4sZkwGTyFbdHelMcit6rM76im8QR4WnPzukp.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/f5tPLj5yF0AmEbGsPuJ4D16D6fNhQ5jtruEted6n.jpg) [](https://storage.googleapis.com/signal-genesys-press-releases-prod/images/zbBtvnXo6arcTLkHzJBK065ekLGasyf4odizZRL9.jpg) [](https://battleortho.com) Contact Information:
+
+ Premiere Orthodontics
 
  
 
-4900 Daggett Ave.  St. Louis, MO 63110United States
+5733 Canton Cove  Winter Springs, FL 32708United States
 
- Carrie Nielsen 13146681727 https://www.brownandcrouppen.com 
+ Dr. Jason Battle +1-407-381-3335 https://battleortho.com 
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/brown-crouppen-settles-manchester-road-crash-case-for-16m-455022)
+[Original/Source Press Release](https://mediawiretoday.com/why-athletes-in-braces-need-mouthguards-at-every-practice-455083)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brown-crouppen-wins-1-6m-for-spine-injury-despite-prior-back-issues/59c31953c866bab69c885ace591cb0a3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orthodontist-teen-athletes-in-braces-need-mouthguards-at-every-practice/ffdf24dfc5b5e5417d38fe59c63e558a) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/orthodontist-warns-parents-braces-wearing-athletes-need-mouthguards-at-every-practice)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/orthodontist-warns-teen-athletes-in-braces-need-mouthguards-at-every-practice-not-just-games)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/orthodontist-warns-teen-athletes-in-braces-need-mouthguards-at-every-practice-not-just-games)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/orthodontist-warns-braces-wearing-athletes-need-mouthguards-at-every-practice-not-just-games)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/ortodoncista-advierte-los-atletas-que-usan-brackets-necesitan-protectores-bucales-en-cada-entrenamiento-no-solo-en-los-partidos)
+
+Pickup - [https://burstable.news](https://burstable.news/news/orthodontist-warns-teen-athletes-in-braces-need-mouthguards-at-every-practice-not-just-games)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/kieferorthopade-warnt-jugendliche-sportler-mit-zahnspange-brauchen-bei-jedem-training-einen-mundschutz-nicht-nur-bei-spielen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ortodoncista-advierte-los-atletas-adolescentes-con-brackets-necesitan-protectores-bucales-en-cada-entrenamiento-no-solo-en-los-partidos)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/orthodontiste-avertit-les-adolescents-sportifs-portant-un-appareil-dentaire-ont-besoin-dun-protege-dents-a-chaque-entrainement-pas-seulement-en-match)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ortodontista-alerta-atletas-adolescentes-com-aparelho-precisam-de-protetor-bucal-em-todos-os-treinos-nao-apenas-nos-jogos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/premiere-orthodontics-warns-practice-sessions-pose-same-bracket-risks-as-games-for-teen-athletes-in-braces)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/orthodontist-warns-braces-wearing-athletes-need-mouthguards-at-every-practice-not-just-games)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/premiere-orthodontics-issues-guidance-on-mouthguard-use-for-teen-athletes-in-braces)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/12/jinxiAiO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2611/12/archjIy6.webp)

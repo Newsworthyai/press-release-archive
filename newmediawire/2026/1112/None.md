@@ -1,113 +1,108 @@
-# Centenario Gold Reports Copper Oxide Intercepts and Extends Vertical Mineralization Below Jibosa &amp; Tueda Zone on the Los Reyes Copper-Gold Skarn Project in Chihuahua State, Mexico
+# Ladybug Resource Group Enters Non-Binding Letter of Intent With New Jersey Private Fund for Proposed Equity Offering of Up to $8 Million
 
-VANCOUVER, B.C - November 12, 2026 (NEWMEDIAWIRE) - Centenario Gold Corp. (CSE: CTG) ("Centenario” or the “Company”) is pleased to announce an update on the initial drill program on the Company’s Los Reyes Project (the “Project”) in Chihuahua, Mexico. To date, there have been 5 holes completed for a total of 1140 meters with a total of 344 core samples taken. All samples are being sent to ALS Labs in Chihuahua, Mexico.
+Fund Indicates Intent to Purchase Common Stock Over Time Following SEC Qualification; Management Believes Raising Capital in Stages may Help Manage Dilution
 
- ![](http://newmediawire.s3.amazonaws.com/6af4e09eda846f52982a9f3f_1)
+ TULSA, OK - November 12, 2026 (NEWMEDIAWIRE) - Ladybug Resource Group, Inc. (OTC: LBRG) ("Ladybug" or the "Company") today announced that it has entered into a non-binding letter of intent, dated November 6, 2026 and countersigned by the Company on November 9, 2026, with a New Jersey-based private fund and accredited investor (the "Investor"). Under the letter, the Investor indicated its intent to purchase shares of the Company's common stock over time in the Company's proposed offering of up to $8 million (the "Offering"), in amounts and at times the Investor determines, subject to the terms described below.
 
- Location and Access
+ The Offering would be made under an offering statement that the Company is preparing and intends to file with the U.S. Securities and Exchange Commission (the "SEC"). The offering statement has not yet been filed, and no shares may be sold until the SEC has qualified it.
 
- The Los Reyes Project is located approximately 170 km south of Chihuahua City, along Highway 49, a main artery connecting the city of Chihuahua to the major cities of Torreon and Monterrey further south. The project’s El Rey mineral claim, where most of the old mine workings are located, sits just off Highway 49, some 14 km south of the mid-size town of Jimenez and can be easily accessed driving up a secondary dirt road for a few kilometers. The project has power and rail nearby and the landowner, a local rancher, supports the exploration work.
+ KEY TERMS OF THE LETTER
 
- Geology
+ * Non-binding letter. The letter is non-binding as to the Investor, which is not obligated to purchase any shares. After the SEC qualifies the offering statement, the Investor states that it intends to purchase shares in the Offering on an ongoing basis until the earlier of the Offering's expiration or termination and the sale of all qualified shares, in such amounts and at such times as it determines and subject to applicable investment limits.
+* Purchases only when the Offering is "in the money." The Offering is in the money on a trading day if the per-share offering price is below the closing bid price of the Company's common stock on OTC Markets on the preceding trading day. The Investor may suspend and resume purchases at its discretion.
+* Right of first refusal. The Company has granted the Investor a right of first refusal on all shares offered during the Offering period. Before accepting a subscription from anyone else, the Company will notify the Investor of the number of shares and the price. The Investor then has three business days to elect to purchase them on the same terms. The right expires at the end of the Offering period. These provisions are binding on the Company and the Investor.
+* Definitive terms. The letter does not state an offering size or price. The Company currently expects the Offering to be for up to $8 million; the final size and price will be set out in the offering circular, and any purchase would be made under a subscription agreement the Company accepts after qualification.
 
- Los Reyes is a highly prospective copper-moly-gold skarn system, possibly a carbonate-replacement deposit (CRD), that lies along the eastern contact between a granodiorite intrusive (about 1.5 × 2 km) and Lower Cretaceous limestones and shales. The deposit sits in a regional northwest-trending mineralized belt that hosts important old mines such as Santa Eulalia, Naica, La Ojuela and San Martín. Although Penoles, a major Mexican mining company, holds the rest of the intrusive contact, the Los Reyes concession is the only part with significant historical workings.
+ WHY THE COMPANY IS TAKING THIS STEP
 
- Centenario Gold Exploration Program Highlights
+ In its September 23, 2026 update, the Company reported preliminary discussions with several private investment firms about potential long-term financing and noted that it had not entered into any term sheets, definitive agreements or financing commitments. The letter is a further step in that process. It is non-binding as to the Investor and is not a financing commitment, and it does not change that statement.
 
- * Surface mapping and sampling in May 2026 confirmed Cu-Mo-Zn mineralization at the Tueda and Jibosa zones.
-* Underground mapping and sampling in July 2026 confirmed the lateral and vertical extensions of Cu-Mo-Zn mineralization below the Tueda and Jibosa zones. (See News Release on July 13th 2026)
+ A public offering qualified by the SEC comes with an offering circular that describes the Company, the securities offered and the risks of investing. Management believes that partnering with an investor in this way could be beneficial to executing the long-term vision outlined in the roadmap, and that raising capital over time, rather than in a single issuance, may help the Company manage dilution.
 
- Click here to see the Location and Description of Drill Holes
+ INTENDED USE OF PROCEEDS
 
- Click to see Figure 1. Location Map of Drill Holes and Sections at the Los Reyes Project
+ If the Offering is qualified and completed, the Company currently intends to use the net proceeds to fund the roadmap it announced on September 30, 2026. Landmark items include:
 
- Current Core Logging Notes
+ * Completing the Board-guided feasibility study, supported by an independent advisor, into expansion into AI infrastructure and robotics components, with findings expected from October 2026 through March 2027.
+* Technical qualification work and customer discussions for precision parts, including AI data center components and industrial robotics parts, planned for fiscal Q4 2026 and Q1 2027.
+* Advancing the acquisition program targeting AI-powered software, enterprise SaaS and digital supply chain businesses, including diligence and advisory costs on prospective targets.
+* Building on Jingdiao's proprietary Manufacturing Execution System and Smart Supply Chain Hub to bring digital capabilities to new customers and markets.
 
- * RYS26-01 hit copper oxides about 75 m below surface, & skarn y hornfels between 125 -175 m.
-* RYS26-02 hit copper oxides about 75 m below Jibosa.
-* RYS26-03 intersected more than 120 m of pyrite-dominant sulphides with chalcopyrite, plus quartz-pyrite-molybdenite veinlets in hornfels.
-* RYS26-04 hit an iron-magnetite skarn (171–187 m).
-* RYS26-05 is testing a northeast-trending extension of the Tueda zone.
+ The Company's actual use of proceeds may differ and will be described in the offering circular. Each of these items remains subject to the Board's review and decisions, and nothing in this release is a commitment to build, acquire or lease any facility or complete any transaction.
 
- Drill Hole RYS26-01
+ WHAT THIS MEANS FOR SHAREHOLDERS
 
- Hole RYS26-01 was drilled in the middle between the Jibosa and Tueda Shaft zones. The drill hole location was designed to evaluate the mineralization intrusive-sediment contact zone at 120 meters depth and also to test a deeper, very strong geophysical IP anomaly (greater than 25 ms) that IMMSA obtained from their geophysical work completed in the late 1950s.
+ Supporting the long-term vision. The Company believes that partnering in this way could be beneficial to executing the long-term vision outlined in its roadmap.
 
- At about 105 meters of depth (see Photo below), the drill got stuck in the clay-rich granodiorite-sediment contact zone so drilling was put on hold. The problem was resolved and drilling of RYS26-01 resumed and was completed at a depth of 304 meters on the 10th of November 2026.
+ Managing dilution. Management believes that raising capital in stages, rather than in a single issuance, and subject to the Company's acceptance of each subscription, may help the Company manage dilution. This is management's belief, not an assurance.
 
- Click to see Figure 2. Cross-Section, Location and selected Drill Core on hole RYS26-01 at the Los Reyes Project
+ A possible source of capital, if the Offering proceeds. A willing participant is an early positive signal, but it is a signal only. The Investor has no obligation to buy, and the Offering cannot begin until the SEC qualifies the offering statement.
 
- The zone of contact in Hole RYS26-01 was intersected between at 78.5 m. The rocks at the contact gradually change from granodiorite to diorite dike, to skarn, and finally to dolomitic limestones, The granodiorite and diorite dike rock contains quartz-pyrite veinlets, with abundant sericite. The skarn portion of the intersection, between 98.5 m to 103.7 m, contains strongly oxidized quartz-calcite veinlets, with the sporadic Cu oxides.
+ A defined, public process. The terms, risks and use of proceeds will be set out in an offering circular reviewed by the SEC. The Company intends to report material developments through its official channels as they occur.
 
- Drill Hole RYS26-02
+ Details to come. The offering size, price and the full set of risks will be set out in the offering circular once the Company files its offering statement. Shareholders should read it when it is available.
 
- Click here to see Figure 3. Cross-Section, Location and selected Drill Core on hole RYS26-02 at the Los Reyes Project
+ Limits on flexibility. The right of first refusal gives the Investor first call on shares offered during the Offering period, which could affect how the Company approaches other investors during that time.
 
- Examples of different alteration styles observed in RYS26-02: Marble, Limestone, Hornfels
+ “We are encouraged that a qualified investor has expressed interest in the Offering, and we are treating it exactly as what it is: a non-binding first step that depends on SEC qualification,” said Neal P. Pflum, President and CEO of Ladybug Resource Group. “We built our roadmap around clear decision points, and our approach to funding it will follow the same discipline. We will keep our shareholders informed as the process moves forward.”
 
- Hole RYS26-02 was drilled just below the Jibosa Shaft zone. The hole reached the granodiorite-limestone contact zone at 75 m, testing the continuity of the Cu-oxide mineralization at the Jibosa zone. One of the best intervals was encountered between 95.7 m and 104.2 m in strongly Cu oxidized zones with abundant hematite, breccia textures with quartz veinlets. Another quartz-oxide zone was intersected between 109.40 m and 111.0 m. At depth, a sequence of hornfels was intersected containing sporadic quartz veinlets, piryte, and traces of chalcopyrite y molybdenite.
+ LOOKING AHEAD
 
- Drill Hole RYS26-03
+ The Company will provide updates on the Offering, including the filing and qualification of the offering statement, as material developments occur. Any investor considering the Offering should read the offering circular once it is available.
 
- Click here to see Figure 4. Cross-Section, Location and selected Drill Core on hole RYS26-03 at the Los Reyes Project
+ Related announcements are available through NewMediaWire, and the Company's current disclosure is available at www.otcmarkets.com/stock/LBRG/overview:
 
- Drill hole RYS26-03 tested the extension of the old mine workings below the Tueda zone to the North. About 100m down, strated to enter the contact zone which contained more sulfides, mainly pyrite, than Jibosa to the South. Zones of breccia textures were intersected at intervals 123.0–126.0 m and 129.30-143.0 m show evidence of Cu minerals. At depth, between 228.0 and 239.2 m, the hole intersected a zone intercalated hornfels and skarn with pyrite veintes containing traces of calchopirita y molibdenite.
+ * September 9, 2026: Ladybug Resource Group Initiates Strategic M&A Program Targeting AI-Powered Software Platforms; Identifies Target Shortlist and Commences Due Diligence
+* September 23, 2026: Ladybug Resource Group Provides Update on Strategic M&A Program
+* September 30, 2026: Ladybug Resource Group Outlines Strategic Roadmap and Key Milestones for Fiscal Q4 2026 Through Q4 2027
+* October 12, 2026: Ladybug Resource Group Provides Details on Feasibility Study Evaluating Expansion Into AI Infrastructure and Robotics Manufacturing
+* November 3, 2026: Ladybug Resource Group Connects Precision Manufacturing, Industrial AI and Robotics in Strategy to Diversify Beyond Automotive
 
- Drill hole RYS26-03 intersected granodiorite, including intervals of very fine-grained intrusive material. Alteration is characterized by varying degrees of strong potassic alteration. Particularly noteworthy are the sulfides and breccias intervals between 129.3 m and 144.4 m, 151.5 m -163.7 m, 168.2 m - 176.7 m, and 185.1 m - 204.7 m, intervals containing abundant pyrite with trace chalcopyrite. Another mineralized interval occurs from 168 m to 204 m, while quartz-pyrite-molybdenite veinlets were observed within hornfels between 229 m and 239 m.
+ ABOUT LADYBUG RESOURCE GROUP, INC.
 
- Drill Hole RYS26-04
+ Ladybug Resource Group, Inc. (OTC: LBRG) is a company focused on advanced manufacturing and industrial AI. Through its operating subsidiary, Guangzhou Jingdiao Automotive Equipment Manufacturing Co., Ltd., it provides precision manufacturing and digitally managed supply chain solutions to the global automotive and precision engineering industries. The Company's strategy includes evaluating expansion into AI infrastructure and robotics components and pursuing acquisitions in AI-enabled software, enterprise SaaS and digital supply chain technologies.
 
- Click here to see Figure 5. Cross-Section, Location and selected Drill Core on hole RYS26-04 at the Los Reyes Project
+ Stay connected:
 
- Hole RYS26.04 tested the lateral continuity of mineralization 170 meters south of the Jibosa zone, The granodiorite-dolomitic limestones contact zone was prominent between 171.0 m a 190.6 m, where a pyrite-magnetite skarn with traces of calchopyrite was intersected at deeper depths the rock alteration changes to chlorite -sericite dominant with fluorite veinlets.
+ * Website: Ladybug Resource Group Inc.
+* OTC Markets: LBRG Stock Quote
+* X (formerly Twitter)
+* LinkedIn
+* Instagram
 
- Drill Hole RYS26-05
-
- Click here to see Figure 6. Cross-Section, Location and selected Drill Core on hole RYS26-05 at the Los Reyes Project
-
- Drill hole RYS26-05 is located 200m north of the Tueda zone. As expected, the hole intersected the contact zone at shallow depths, between 47.0m to 61.0. Core logging on this hole is still ongoing.
-
- Conclusion
-
- No assays have been received at this time and will be released once received. A total of 344 samples have been taken from holes 1 – 5 and have been shipped to ALS Lab in Chihuahua, Mexico. The drilling so far points to a large intrusion-related Cu-Mo system, with skarn mineralization along the contact. Grade and economic potential won’t be known until the drilling assays come back.
-
- Qualified Person
-
- Derrick Strickland is an independent Qualified Person as defined by National Instrument 43-101 and has reviewed and approved the technical disclosure contained in this release. The mineralization on adjacent Projects may not be indicative of the mineralization on the Los Reyes Project
-
- Reader Caution: The qualified person has not verified the information on the adjacent properties nor mineralization found on adjacent and/or geologically similar properties which is not necessarily indicative of mineralization found on the Property.
-
- About Centenario Gold Corp.
-
- Centenario Gold Corp.is a mineral exploration company incorporated in British Columbia and headquartered in Vancouver, Canada. The Company is focused on the acquisition, exploration, and development of high-potential mineral projects in the Americas, with a primary emphasis on gold, copper and silver.
-
- The Company is committed to responsible exploration and development, working closely with local communities and stakeholders. Centenario’s management team brings extensive experience in mineral exploration, project development, and capital markets.
-
- CentenarioGoldCorp. (CTG) is listed on the Canadian Securities Exchange (“CSE”) andcontinuestoevaluatenewopportunitiesto expand its portfolio in both Mexico and Canada and deliver value to shareholders.
-
- Further information on the Centenario Gold or their Properties can be found on our website at www.centenariogold.com. or email info@centenariogold.com or by telephone 604-803-5901.
-
- On behalf of the Board of Directors,“Doug Fulcher”President, CEO, Director
-
- Neither the CSE nor the Market Regulator (as that term is defined in the policies of the CSE) accepts responsibility for the adequacy or accuracy of this news release.
-
- Caution Regarding Forward Looking Statements:
-
- Certain information included in this press release constitute “forward-looking statements”. Such forward-looking statements include, without limitation, statements regarding the Offering and the anticipated use of proceeds thereof. Although the Company believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are not guarantees of future performance, are subject to risks and uncertainties, and actual results or realities may differ materially from those in the forward-looking statements. Such material risks and uncertainties include, but are not limited to: the timing and the capability of the ongoing drilling program; competition within the industry; actual results of current exploration activities; environmental risks; changes in project parameters as plans continue to be refined; future price of commodities; failure of equipment or processes to operate as anticipated; accidents, and other risks of the mining industry; delays in obtaining approvals or financing; risks related to indebtedness and the service of such indebtedness; as well as those factors, risks and uncertainties identified and reported in the Company's public filings under its SEDAR+ profile at www.sedarplus.ca. Although the Company has attempted to identify important factors that could cause actual actions, events or results to differ materially from those described in forward-looking information, there may be other factors that cause actions, events or results not to be as anticipated, estimated or intended. Accordingly, readers should not place undue reliance on forward-looking statements. There can be no assurance that such information will prove to be accurate as actual results and future events could differ materially from those anticipated in such statements. The forward-looking statements contained herein are made as at the date hereof and the Company does not undertake any obligation to update publicly or revise any such forward-looking statements or any forward-looking statements contained in any other documents whether as a result of new information, future events or otherwise, except as required under applicable law.
-
-View the original release on www.newmediawire.com 
+ MEDIA AND INVESTOR RELATIONSWarren BoothLadybug Resource Group, Inc.1408 S. Denver Avenue, Tulsa, OK 74119Phone: +1 918-727-7137 | Email: info@ladybuglbrg.comWebsite: www.ladybuglbrg.com | OTC Trading Symbol: LBRG 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/centenario-gold-reports-copper-oxide-intercepts-and-extends-vertical-mineralization-below-jibosa-tueda-zone-on-the-los-reyes-copper-gold-skarn-project-in-chihuahua-state-mexico-7091288)
+[Original/Source Press Release](https://www.newmediawire.com/news/ladybug-resource-group-enters-non-binding-letter-of-intent-with-new-jersey-private-fund-for-proposed-equity-offering-of-up-to-8-million-7091292)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/centenario-gold-hits-copper-oxides-in-first-five-holes-at-los-reyes/3c1c9ab6bfe0ac8c5a184826d1e6d610) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-inks-non-binding-loi-for-up-to-8m-stock-offering/7ddbbe66e487187baa741510643d32f8) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ladybug-resource-group-signs-non-binding-loi-for-up-to-8-million-equity-offering)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-up-to-8-million-equity-offering)
+
+Pickup - [https://burstable.news](https://burstable.news/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ladybug-resource-group-unterzeichnet-unverbindliche-absichtserklarung-mit-new-jersey-fonds-fur-geplante-eigenkapitalemission-von-8-millionen-us-dollar)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ladybug-resource-group-firma-una-carta-de-intencion-no-vinculante-con-un-fondo-de-nueva-jersey-para-una-propuesta-de-oferta-de-acciones-de-8-millones-de-dolares)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ladybug-resource-group-signe-une-lettre-dintention-non-contraignante-avec-un-fonds-du-new-jersey-pour-une-proposition-doffre-dactions-de-8-millions-de-dollars)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ladybug-resource-group-assina-loi-nao-vinculativo-com-fundo-de-nova-jersey-para-proposta-de-oferta-de-acoes-de-us-8-milhoes)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-private-fund-for-proposed-8-million-equity-offering)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/camc903T.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/mildAiaL.webp)
