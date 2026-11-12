@@ -1,108 +1,88 @@
-# Ladybug Resource Group Enters Non-Binding Letter of Intent With New Jersey Private Fund for Proposed Equity Offering of Up to $8 Million
+# HKTDC Chairman Leads High-Level Delegation to Technology Powerhouse Anhui to Unlock Collaboration Opportunities
 
-Fund Indicates Intent to Purchase Common Stock Over Time Following SEC Qualification; Management Believes Raising Capital in Stages may Help Manage Dilution
+HONG KONG - November 12, 2026 (NEWMEDIAWIRE) - The Hong Kong Trade Development Council (HKTDC)'s Chairman, Professor Frederick Ma, just completed a high-level Hong Kong business delegation to the technology powerhouse of the Chinese Mainland, Hefei in Anhui Province, to explore collaboration in innovation and technology, covering research and development, marketisation and industry development opportunities. Comprising over 30 members from the Hong Kong SAR Government, science and technology parks, major chambers of commerce, universities and research institutions, the delegation received a warm official reception from Anhui Acting Governor Wang Dongwei, Anhui Vice Governor Sun Yong and Hefei Mayor Zhang Quan.
 
- TULSA, OK - November 12, 2026 (NEWMEDIAWIRE) - Ladybug Resource Group, Inc. (OTC: LBRG) ("Ladybug" or the "Company") today announced that it has entered into a non-binding letter of intent, dated November 6, 2026 and countersigned by the Company on November 9, 2026, with a New Jersey-based private fund and accredited investor (the "Investor"). Under the letter, the Investor indicated its intent to purchase shares of the Company's common stock over time in the Company's proposed offering of up to $8 million (the "Offering"), in amounts and at times the Investor determines, subject to the terms described below.
+ ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_1)
 
- The Offering would be made under an offering statement that the Company is preparing and intends to file with the U.S. Securities and Exchange Commission (the "SEC"). The offering statement has not yet been filed, and no shares may be sold until the SEC has qualified it.
+ Known for its landscapes and regional culture, the Chinese province of Anhui has in recent years also been forging ahead in advanced technology including new energy, AI, quantum technology and low-altitude economy.
 
- KEY TERMS OF THE LETTER
+ With the aim of discussing collaboration opportunities, Prof Ma said Anhui-Hong Kong cooperation has expanded from traditional industries to emerging sectors centred on innovation and technology.
 
- * Non-binding letter. The letter is non-binding as to the Investor, which is not obligated to purchase any shares. After the SEC qualifies the offering statement, the Investor states that it intends to purchase shares in the Offering on an ongoing basis until the earlier of the Offering's expiration or termination and the sale of all qualified shares, in such amounts and at such times as it determines and subject to applicable investment limits.
-* Purchases only when the Offering is "in the money." The Offering is in the money on a trading day if the per-share offering price is below the closing bid price of the Company's common stock on OTC Markets on the preceding trading day. The Investor may suspend and resume purchases at its discretion.
-* Right of first refusal. The Company has granted the Investor a right of first refusal on all shares offered during the Offering period. Before accepting a subscription from anyone else, the Company will notify the Investor of the number of shares and the price. The Investor then has three business days to elect to purchase them on the same terms. The right expires at the end of the Offering period. These provisions are binding on the Company and the Investor.
-* Definitive terms. The letter does not state an offering size or price. The Company currently expects the Offering to be for up to $8 million; the final size and price will be set out in the offering circular, and any purchase would be made under a subscription agreement the Company accepts after qualification.
+ With Hong Kong’s unique advantages in connecting the Mainland with the rest of the world, a partnership between Anhui and Hong Kong would support enterprises in going global, with a particular focus on new energy vehicles, AI and life and health, so as to explore greater scope for collaboration.
 
- WHY THE COMPANY IS TAKING THIS STEP
+ ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_2)
 
- In its September 23, 2026 update, the Company reported preliminary discussions with several private investment firms about potential long-term financing and noted that it had not entered into any term sheets, definitive agreements or financing commitments. The letter is a further step in that process. It is non-binding as to the Investor and is not a financing commitment, and it does not change that statement.
+ He looked forward to the two sides joining strengths to jointly build an interconnected innovation and technology ecosystem.
 
- A public offering qualified by the SEC comes with an offering circular that describes the Company, the securities offered and the risks of investing. Management believes that partnering with an investor in this way could be beneficial to executing the long-term vision outlined in the roadmap, and that raising capital over time, rather than in a single issuance, may help the Company manage dilution.
+ During the meeting, both sides also agreed to bring the Hong Kong Trade Development Council’s GoGlobal Connect programme to Anhui and to establish a fast-track service to support Anhui enterprises in expanding overseas in an orderly, well-managed and secure manner.
 
- INTENDED USE OF PROCEEDS
+ The delegation visited the Anhui Innovation Centre, the University of Science and Technology of China and the Hefei Institutes of Physical Science of the Chinese Academy of Sciences. Members also toured leading local innovation and technology enterprises, including Gotion High-tech and Huawei’s Zunjie Super Factory, as well as the Luogang Central Park Smart Centre, to gain first-hand understanding of Anhui and Hefei’s research and industrial strengths.
 
- If the Offering is qualified and completed, the Company currently intends to use the net proceeds to fund the roadmap it announced on September 30, 2026. Landmark items include:
+ ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_3)
 
- * Completing the Board-guided feasibility study, supported by an independent advisor, into expansion into AI infrastructure and robotics components, with findings expected from October 2026 through March 2027.
-* Technical qualification work and customer discussions for precision parts, including AI data center components and industrial robotics parts, planned for fiscal Q4 2026 and Q1 2027.
-* Advancing the acquisition program targeting AI-powered software, enterprise SaaS and digital supply chain businesses, including diligence and advisory costs on prospective targets.
-* Building on Jingdiao's proprietary Manufacturing Execution System and Smart Supply Chain Hub to bring digital capabilities to new customers and markets.
+ Prof Ma recalled that he last visited Hefei 15 years ago, when the city still leaned towards a traditional profile, with few five-star hotels and very few foreign businesspeople on the streets. At that time, the city’s permanent population stood at about 5.7 million and its economic scale was just over 300 billion yuan. Returning now, he was impressed with the economic scale had grown nearly fourfold in 15 years, the permanent population had exceeded 10 million, and the city had been completely revitalised with a highly modernised urban appearance. Five-star hotels now line the streets, and hotel restaurants are frequented by foreign businesspeople.
 
- The Company's actual use of proceeds may differ and will be described in the offering circular. Each of these items remains subject to the Board's review and decisions, and nothing in this release is a commitment to build, acquire or lease any facility or complete any transaction.
+ Participants on this mission included Permanent Secretary for Innovation, Technology and Industry of the HKSAR government Kevin Choi, Chief Executive Officer of Hong Kong Science and Technology Parks Corporation Terry Wong, Chief Executive Officer of Hong Kong Applied Science and Technology Research Institute (ASTRI) Ir Dr Ted Suen, Ecosystem Development Director of Hong Kong-Shenzhen Innovation and Technology Park Company Limited Anita Chau, and Chief Executive Officer of Hong Kong Exchanges and Clearing Limited Bonnie Chan, among others.
 
- WHAT THIS MEANS FOR SHAREHOLDERS
+ Permanent Secretary for Innovation, Technology and Industry and Chairperson of Hong Kong-Shenzhen Innovation and Technology Park Company Limited Kevin Choi called on Anhui and Hefei enterprises to seize the opportunities arising from Hong Kong’s Northern Metropolis and to visit the Loop Hong Kong Park in person.
 
- Supporting the long-term vision. The Company believes that partnering in this way could be beneficial to executing the long-term vision outlined in its roadmap.
+ He stressed that Hong Kong, and the Loop Hong Kong Park in particular, could in one go address the challenges enterprises face when going global in the areas of capital, talent, technology and international rules, thereby helping Anhui enterprises expand into global markets. The complementary strengths of Anhui and Hong Kong would create a win-win outcome for both sides.
 
- Managing dilution. Management believes that raising capital in stages, rather than in a single issuance, and subject to the Company's acceptance of each subscription, may help the Company manage dilution. This is management's belief, not an assurance.
+ Photo Download: https://bit.ly/4ApeNsH
 
- A possible source of capital, if the Offering proceeds. A willing participant is an early positive signal, but it is a signal only. The Investor has no obligation to buy, and the Offering cannot begin until the SEC qualifies the offering statement.
+ The HKTDC’s Media Room: http://mediaroom.hktdc.com/en
 
- A defined, public process. The terms, risks and use of proceeds will be set out in an offering circular reviewed by the SEC. The Company intends to report material developments through its official channels as they occur.
+ Media enquiries:
 
- Details to come. The offering size, price and the full set of risks will be set out in the offering circular once the Company files its offering statement. Shareholders should read it when it is available.
+ For enquiries, please contact:
 
- Limits on flexibility. The right of first refusal gives the Investor first call on shares offered during the Offering period, which could affect how the Company approaches other investors during that time.
+ HKTDC Communications and Public Affairs Department:
 
- “We are encouraged that a qualified investor has expressed interest in the Offering, and we are treating it exactly as what it is: a non-binding first step that depends on SEC qualification,” said Neal P. Pflum, President and CEO of Ladybug Resource Group. “We built our roadmap around clear decision points, and our approach to funding it will follow the same discipline. We will keep our shareholders informed as the process moves forward.”
+ Navin Law
 
- LOOKING AHEAD
+Tel: (852) 2584 4525
 
- The Company will provide updates on the Offering, including the filing and qualification of the offering statement, as material developments occur. Any investor considering the Offering should read the offering circular once it is available.
+Email: navin.cm.law@hktdc.org
 
- Related announcements are available through NewMediaWire, and the Company's current disclosure is available at www.otcmarkets.com/stock/LBRG/overview:
+ About HKTDC
 
- * September 9, 2026: Ladybug Resource Group Initiates Strategic M&A Program Targeting AI-Powered Software Platforms; Identifies Target Shortlist and Commences Due Diligence
-* September 23, 2026: Ladybug Resource Group Provides Update on Strategic M&A Program
-* September 30, 2026: Ladybug Resource Group Outlines Strategic Roadmap and Key Milestones for Fiscal Q4 2026 Through Q4 2027
-* October 12, 2026: Ladybug Resource Group Provides Details on Feasibility Study Evaluating Expansion Into AI Infrastructure and Robotics Manufacturing
-* November 3, 2026: Ladybug Resource Group Connects Precision Manufacturing, Industrial AI and Robotics in Strategy to Diversify Beyond Automotive
+ The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
 
- ABOUT LADYBUG RESOURCE GROUP, INC.
-
- Ladybug Resource Group, Inc. (OTC: LBRG) is a company focused on advanced manufacturing and industrial AI. Through its operating subsidiary, Guangzhou Jingdiao Automotive Equipment Manufacturing Co., Ltd., it provides precision manufacturing and digitally managed supply chain solutions to the global automotive and precision engineering industries. The Company's strategy includes evaluating expansion into AI infrastructure and robotics components and pursuing acquisitions in AI-enabled software, enterprise SaaS and digital supply chain technologies.
-
- Stay connected:
-
- * Website: Ladybug Resource Group Inc.
-* OTC Markets: LBRG Stock Quote
-* X (formerly Twitter)
-* LinkedIn
-* Instagram
-
- MEDIA AND INVESTOR RELATIONSWarren BoothLadybug Resource Group, Inc.1408 S. Denver Avenue, Tulsa, OK 74119Phone: +1 918-727-7137 | Email: info@ladybuglbrg.comWebsite: www.ladybuglbrg.com | OTC Trading Symbol: LBRG 
+View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/ladybug-resource-group-enters-non-binding-letter-of-intent-with-new-jersey-private-fund-for-proposed-equity-offering-of-up-to-8-million-7091292)
+[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-chairman-leads-high-level-delegation-to-technology-powerhouse-anhui-to-unlock-collaboration-opportunities-7091296)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-inks-non-binding-loi-for-up-to-8m-stock-offering/7ddbbe66e487187baa741510643d32f8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hktdc-delegation-explores-tech-collaboration-in-anhui/e002242c51c5d884e66b417298678a92) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+Pickup - [https://advos.io/en](https://advos.io/en/hktdc-chairman-leads-high-level-delegation-to-anhui-to-unlock-innovation-collaboration-opportunities)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/ladybug-resource-group-signs-non-binding-loi-for-up-to-8-million-equity-offering)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-up-to-8-million-equity-offering)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
 
-Pickup - [https://burstable.news](https://burstable.news/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+Pickup - [https://burstable.news](https://burstable.news/news/hktdc-chairman-leads-high-level-delegation-to-anhui-to-unlock-innovation-and-technology-collaboration)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/ladybug-resource-group-unterzeichnet-unverbindliche-absichtserklarung-mit-new-jersey-fonds-fur-geplante-eigenkapitalemission-von-8-millionen-us-dollar)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hktdc-vorsitzender-leitet-hochrangige-delegation-nach-anhui-um-innovation-und-technologische-zusammenarbeit-zu-erschliessen)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/ladybug-resource-group-firma-una-carta-de-intencion-no-vinculante-con-un-fondo-de-nueva-jersey-para-una-propuesta-de-oferta-de-acciones-de-8-millones-de-dolares)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-presidente-del-hktdc-encabeza-una-delegacion-de-alto-nivel-a-anhui-para-impulsar-la-colaboracion-en-innovacion-y-tecnologia)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/ladybug-resource-group-signe-une-lettre-dintention-non-contraignante-avec-un-fonds-du-new-jersey-pour-une-proposition-doffre-dactions-de-8-millions-de-dollars)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-president-du-hktdc-dirige-une-delegation-de-haut-niveau-en-anhui-pour-stimuler-la-collaboration-en-matiere-dinnovation-et-de-technologie)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/ladybug-resource-group-assina-loi-nao-vinculativo-com-fundo-de-nova-jersey-para-proposta-de-oferta-de-acoes-de-us-8-milhoes)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/presidente-do-hktdc-lidera-delegacao-de-alto-nivel-a-anhui-para-desbloquear-colaboracao-em-inovacao-e-tecnologia)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-fund-for-proposed-8-million-equity-offering)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/ladybug-resource-group-signs-non-binding-loi-with-new-jersey-private-fund-for-proposed-8-million-equity-offering)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/hktdc-chairman-leads-delegation-to-anhui-unlocking-cross-border-tech-collaboration)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/12/hktdc-delegation-to-anhui-aims-to-link-hong-kong-and-mainland-tech-ecosystems/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/mildAiaL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/pineZCCx.webp)

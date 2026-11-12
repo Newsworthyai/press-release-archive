@@ -1,46 +1,90 @@
-# Why Rent Growth Is No Longer Covering Operating Costs for Apartment Owners
+# Co-Owned Vacation Homes Are Heading to Auction: What Buyers Own, What They Pay and How They Sell
 
-For much of the past five years, apartment owners could count on rent growth to absorb rising expenses. That math no longer holds. Rent increases have slowed, insurance and utility costs have kept climbing, and the difference is coming straight out of net operating income.
+Second-home buying is picking up again, slowly. Redfin reported in July that buyers took out 4.1% more second-home mortgages in 2025 than a year earlier, the first annual increase since the pandemic-era boom. Even so, second homes made up just 2.7% of all mortgage originations last year, a reminder of how few households can justify carrying a property they use only part of the year.
 
- Bill Douglas, CEO of OpticWise and co-author of Peak Property Performance®, says it was the number one conversation at the industry trade shows he attended this year. He sums up what he heard from owners in a few words: “My expenses went up, I can’t increase the price. So therefore, I have a margin squeeze.”
+ Co-ownership is one answer the industry has been developing for that gap, and it has now reached the auction block. DeCaro Auctions, a luxury real estate auction house founded in 1983, began offering co-ownership auctions in September 2026 and says it is the first auction company to sell co-ownership this way. Here is how the model works and what buyers should weigh before bidding.
 
- What Changed After the Pandemic Coming out of the pandemic, interest rates were still low and demand for apartments was strong. Owners underwrote deals expecting rent to rise 3% to 6% a year, and for a while the market supported it. “You were banking on the appreciation of rent,” Douglas says. “Basically, it’s a supply demand equation.”
+ Is Fractional Ownership a Timeshare? No, though it is usually the first question buyers ask. A timeshare typically sells the right to use a property for a set period. Co-ownership, often called fractional ownership, is ownership of the property itself.
 
- That equation has shifted. More apartments have come online, and demand has softened. Tenants still want quality, Douglas says, but the market is only tolerating rent increases of 1% to 2% this year.
+ “This is not a timeshare. It’s co-ownership,” says Mario Vargas, partner and CEO of DeCaro Auctions. “Everyone owns the whole home.”
 
- Expenses Did Not Slow Down Operating costs have moved on a different track. Douglas says owners have seen insurance costs rise about 55% per unit between 2021 and 2024.
+ A home is typically divided into eight fractions, though some are offered in six or four. Depending on how the sale is structured, owners hold either a deeded fraction of the property or a fraction of a company, usually an LLC, formed to own it. No one owns the primary suite or a particular wing. Every owner has use of the entire house during their stays.
 
- When insurance and utilities grow by double digits and rent grows by 1% or 2%, the difference shows up in NOI. Because property values are tied to NOI, a narrower margin also affects what a building is worth at sale or refinance. Douglas calls it “an operating conundrum.” Owners have limited control over what the market will pay in rent. What they can influence is how efficiently the property runs.
+ The category has been gaining formal footing for several years. The Real Estate Standards Organization added co-ownership as a property subtype in its 2022 data dictionary, giving listing systems a standard way to classify it. Matthew Rollins, partner and chief marketing officer at DeCaro, notes that many high-net-worth buyers already hold real estate through LLCs, so the structure tends to feel familiar.
 
- Why PropTech and AI Have Not Closed the Gap Many owners expected technology to solve this. “Everybody thought PropTech would do it five years ago, and it didn’t. Everybody thought AI would do it,” Douglas says. Interest in AI is high, but owners are starting to ask for results. “It’s fun and it’s interesting and everybody’s talking about it, but show me the money, and I’m not seeing the money yet.”
+ How Is Time Divided, and Who Pays for Upkeep? After the sale, DeCaro coordinates professional management for the home. Calendars often rotate each year so holidays and peak seasons are divided fairly over time. The house is cleaned and prepared before each arrival and reset after each departure.
 
- The reason, in his view, is where the AI sits. Owners are often paying for AI features inside each vendor’s software, but they are not applying AI across their own data, because they do not have their own data to work with. “They can’t really solve a problem that they don’t know they have yet,” he says. “They’re only looking at results, and the results are increased expenses.”
+ Owners split the carrying costs, including maintenance, repairs, taxes, and insurance. Vargas argues this is where co-ownership differs from renting a second home out to strangers. “Everyone using it is an owner, so they treat it with much more respect,” he says.
 
- Where to Start Without a Large Capital Outlay Douglas recommends starting with three areas that tie directly to NOI: utilities, insurance, and occupancy. OpticWise’s property intelligence work benchmarks a property against those three areas and gives the asset manager specific plays, or actions, to improve each one. For insurance, that means reviewing coverage and preparing the property before renewal.
+ An operating agreement sets the rules, much like the covenants of a homeowners association. Typical terms include a minimum holding period of one year, a right of first refusal for the other owners when someone sells, and a ban on renting out a fraction.
 
- The order matters. Improvements that return income can fund the next round, which keeps the strategy from depending on a large capital outlay. “You don’t have to go spend a bunch of capital. You don’t have to buy a bunch of new software for this,” Douglas says. “But you do have to have your own data over time. And that will not happen overnight. That is a strategy.”
+ Why Buyers Are Considering It The most obvious draw is a lower entry point. On a Lake Minnetonka estate DeCaro is currently auctioning, bidding on each fraction, one-eighth of the home, opens at $1.55 million, against a whole-home value of about $15 million.
 
- He is direct about the timeline. It is a long-term strategy, he says, “and it does not have to be that expensive.”
+ Vargas says price is not the only factor. Even buyers who could afford the whole house may question carrying 100% of a property they use a few weeks a year. “It’s a smarter way to own,” he says.
 
- Rent growth may pick up again, but owners who wait for it are leaving NOI to the market. The expense side is where they have room to act, and the first step is understanding what is driving those costs at each property.
+ The model can also help sellers. A family that is not ready to let go of a vacation home can sell part of it and keep part. Heirs who disagree about an inherited property have a way to divide along those lines, with some keeping a stake and others cashing out.
 
- Bill Douglas is CEO of OpticWise and co-author of Peak Property Performance®. For over three decades, he has used technology to solve complex business problems, and he also coaches executives and entrepreneurs, men over 45, on body, business, and being as ResilienceGuy.
+ Co-ownership is not for everyone. Owners give up full control of the calendar, agree to rules set by the operating agreement, and rely on the other owners and the management company to keep the arrangement running smoothly. Buyers should read the agreement closely before bidding, particularly the terms on scheduling, cost-sharing, and resale.
 
- Disclaimer: This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+ How the Auction Works, and How Owners Sell Later In a standard auction, bidding opens and climbs. A co-ownership auction instead publishes a starting bid for each fraction. Buyers register, qualify, and lock in a place at that opening bid. If more bidders want in than there are fractions available, competition sets the final price.
+
+ Registration follows the same steps as any DeCaro auction: review the property’s due diligence documents, agree to the auction terms, and submit proof of funds. The full sequence is laid out on DeCaro’s process page.
+
+ Whole-home buyers remain part of the opportunity. While DeCaro conducts the fractional auction, buyers interested in acquiring the entire property may submit a whole-home offer at any time. This provides an additional path to sale, allowing the seller to evaluate both fractional bidding and whole-home offers to determine which delivers the greatest overall value.
+
+ To exit later, an owner sells their fraction under the terms of the operating agreement. DeCaro recommends putting it back up for auction, drawing on its growing network of buyers looking for co-ownership in specific markets. “We can simply put that fraction back up for auction and let the market dictate what it’s worth,” Rollins says.
+
+ For buyers who have wanted a place in a resort market but could never justify owning all of it, the question is shifting from whether they can afford the house to whether co-ownership fits how they would actually use it.
+
+ About DeCaro Auctions: DeCaro Auctions is a boutique luxury real estate auction house founded by Daniel DeCaro in 1983, with more than 40 years in luxury auctions. The firm runs date-certain auctions for whole homes and co-ownership, and partners with the listing agent on every sale; learn more at decaroauctions.com.
+
+ This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any purchase decision.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/why-rent-growth-is-no-longer-covering-operating-costs-for-apartment-owners/)
+[Original/Source Press Release](https://keycrew.co/journal/co-owned-vacation-homes-are-heading-to-auction-what-buyers-own-what-they-pay-and-how-they-sell-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/apartment-owners-face-margin-squeeze-as-rent-growth-slows-and-expenses-soar/14c8ba68b7d1b71b9ba637414c873a17) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/decaro-auctions-launches-first-co-ownership-real-estate-auctions/6938a0d146b874e9c1eee64a43e26b30) 
 
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/12/co-ownership-vacation-homes-reach-the-auction-block-as-decaro-auctions-launches-fractional-bidding/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/co-ownership-vacation-homes-hit-the-auction-block-as-second-home-demand-inches-back)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/co-ownership-vacation-homes-reach-the-auction-block-offering-lower-entry-and-shared-costs)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/co-owned-vacation-homes-hit-the-auction-block-a-new-path-to-luxury-real-estate)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/co-ownership-vacation-homes-reach-the-auction-block-offering-a-new-path-to-luxury-property)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/las-casas-vacacionales-de-copropiedad-llegan-a-la-subasta-ofreciendo-un-nuevo-camino-hacia-la-propiedad-de-lujo)
+
+Pickup - [https://burstable.news](https://burstable.news/news/decaro-auctions-brings-co-owned-vacation-homes-to-the-auction-block)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/decaro-auctions-bringt-gemeinschaftlich-genutzte-ferienhauser-unter-den-hammer)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/decaro-auctions-lleva-las-casas-vacacionales-en-copropiedad-al-bloque-de-subastas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/decaro-auctions-met-en-vente-des-residences-de-vacances-en-copropriete)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/decaro-auctions-leva-casas-de-ferias-em-copropriedade-ao-leilao)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/co-ownership-vacation-homes-reach-the-auction-block-lowering-the-barrier-to-luxury-second-home-ownership)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/co-ownership-vacation-homes-reach-the-auction-block-a-new-way-to-buy-luxury-real-estate)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/co-ownership-auctions-bring-fractional-vacation-homes-to-the-block)
+
+Pickup - [https://fishervista.com/en](https://fishervista.com/en/co-ownership-vacation-homes-reach-auction-block-as-decaro-auctions-pioneers-fractional-sales)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/decaro-auctions-brings-co-ownership-vacation-homes-to-the-auction-block)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/12/ninaKX9o.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/12/iris2Olc.webp)
