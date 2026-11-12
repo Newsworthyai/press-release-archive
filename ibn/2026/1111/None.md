@@ -1,4 +1,4 @@
-# RockBreaks – Singapore Unveils Gold Vault Services Targeting Central Banks
+# Singapore Unveils Gold Vault Services Targeting Central Banks
 
 In a bid to tap the growing demand for diversified gold storage services, Singapore has launched a bullion storage service. With a capacity of 500 tons, and a possibility to expand as demand rises, the national currency vault of the city-state is now accepting customers.
 
@@ -24,15 +24,41 @@ In a bid to tap the growing demand for diversified gold storage services, Singap
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-singapore-unveils-gold-vault-services-targeting-central-banks/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/singapore-unveils-gold-vault-services-targeting-central-banks/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/singapore-launches-500-ton-gold-vault-for-central-banks/3b02d0ba0edf86bdd94ed0c3deaf990f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/singapore-launches-500-ton-gold-vault-for-central-banks/1330cec58d1c13926f0d9b131e820f96) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/singapore-unveils-gold-vault-services-targeting-central-banks)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/11/plump2vu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/11/lilyzKNo.webp)

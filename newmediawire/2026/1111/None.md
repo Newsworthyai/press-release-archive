@@ -1,24 +1,20 @@
-# AZIO AI Holdings (AZIO) Confirms Atlas One Data Center Designed to Operate Independently of Texas Power Grid
+# Quantum BioPharma (QNTM) Reports Shareholder Meeting Results, Closes Private Placement Increasing Insider Voting Control
 
-LOS ANGELES, CA - November 11, 2026 (NEWMEDIAWIRE) - AZIO AI Holdings (NASDAQ: AZIO) confirmed that Atlas One, the first campus under its Project Atlas initiative in Live Oak County, Texas, is designed to operate independently of the Electric Reliability Council of Texas (“ERCOT”) power grid, with no pending large-load interconnection request. The planned facility will generate electricity on-site using natural gas, eliminating the need to draw capacity from the ERCOT grid. The announcement comes amid tightening Texas regulations governing large electricity consumers, including data centers, as ERCOT evaluates approximately 474 gigawatts of interconnection requests. AZIO said its self-supplied power strategy is intended to reduce exposure to grid interconnection delays, infrastructure costs and evolving regulatory requirements.
+LOS ANGELES, CA - November 11, 2026 (NEWMEDIAWIRE) - Quantum BioPharma (NASDAQ: QNTM) announced the results of its Nov. 10, 2026, annual general and special meeting of shareholders and the closing of a non-brokered private placement of 26 Class A multiple voting shares on Nov. 9. Shareholders elected all five director nominees, reappointed MNP LLP as auditor and approved several resolutions, including authorization to issue additional Class A multiple voting shares to maintain up to 70% aggregate voting power, a 2026 omnibus equity incentive plan, a potential share consolidation at a ratio of up to 10-for-1 and a potential corporate name change. The board retains discretion over implementing the authorized measures.
 
- ![](http://newmediawire.s3.amazonaws.com/6af49260da846f52952a9f1b_1)
+ ![](http://newmediawire.s3.amazonaws.com/6af4bb32da846f52952a9f20_1)
 
- Atlas One is anchored by a signed 10-megawatt infrastructure hosting agreement with Power Champion at $150 per kilowatt per month, although that capacity has not yet been energized. The company is advancing toward its planned 11-megawatt first phase through a staged development process, with each phase requiring separate equipment, connectivity, site preparations and air authorization for power generation. AZIO said the phased approach is designed to align infrastructure development with contracted capacity while maintaining independence from the ERCOT grid.
+ The company also issued 26 Class A multiple voting shares at C$3.11 per share, generating gross proceeds of C$80.86. Xorax Family Trust, associated with CEO Zeeshan Saeed, and Fortius Research and Trading Corp., controlled by director Anthony Durkacz, each acquired 13 shares. Following the placement, the aggregate voting power of Class A multiple voting shares increased from approximately 57.01% to 68.22%. The transaction was completed under shareholder authorization granted in 2025, with proceeds designated for general working capital purposes.
 
- To view the full press release, visit https://ibn.fm/23lFv
+ To view the full press release, visit https://ibn.fm/UagXR
 
- About AZIO AI Holdings Inc.
+ About Quantum BioPharma Ltd.
 
- AZIO AI Holdings is a technology infrastructure company focused on developing, owning, and operating artificial intelligence data centers, enterprise GPU compute infrastructure, digital power solutions and digital asset mining operations.
-
- The company operates an integrated AI infrastructure business encompassing AI data center development, the sale and distribution of enterprise GPU systems and server infrastructure, high-performance computing solutions, power hosting, and strategic technology investments, serving enterprise and institutional customers across domestic and international markets.
-
- Through this diversified AI infrastructure strategy, the company is positioned to capitalize on the rapidly expanding global demand for AI infrastructure, compute capacity, digital power and next-generation AI technologies.
+ Quantum is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum invented UNBUZZD(TM) and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“Unbuzzd”) (formerly, Celly Nutrition Corp.), led by industry veterans. Quantum retains ownership of 19.84% (as of March 31, 2026) of Unbuzzd at www.unbuzzd.com. The agreement with Unbuzzd also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum retains 100% of the rights to develop similar products or alternative formulations specifically for pharmaceutical and medical uses.
 
  Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- The latest news and updates relating to AZIO are available in the company’s newsroom at https://ibn.fm/AZIO
+ The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
 
  Forward Looking Statements
 
@@ -28,41 +24,43 @@ View the original release on www.newmediawire.com
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/azio-ai-holdings-azio-confirms-atlas-one-data-center-designed-to-operate-independently-of-texas-power-grid-7091260)
+[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-reports-shareholder-meeting-results-closes-private-placement-increasing-insider-voting-control-7091263)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/azio-s-atlas-one-data-center-to-bypass-ercot-grid-with-on-site-gas-power/fa937926224cae76367a13d60233c5fe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-elects-directors-closes-private-placement/0f4a6a034792f0e4aaa8fc9fb75e6d78) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/azio-ai-holdings-atlas-one-data-center-to-operate-independently-of-texas-power-grid-2)
+Pickup - [https://advos.io/en](https://advos.io/en/quantum-biopharma-insider-voting-power-jumps-to-6822-after-private-placement)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/azio-ai-holdings-atlas-one-data-center-to-operate-independently-of-texas-power-grid)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/quantum-biopharma-insider-voting-power-jumps-to-6822-after-private-placement)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/azio-ai-holdings-atlas-one-data-center-to-operate-independently-of-texas-power-grid-2)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/quantum-biopharma-boosts-insider-voting-power-to-68-after-private-placement)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/azio-ai-holdings-atlas-one-data-center-in-live-oak-county-to-operate-independently-of-ercot-grid-2)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/quantum-biopharma-shareholders-approve-governance-changes-as-insider-voting-control-rises-to-6822)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-centro-de-datos-atlas-one-de-azio-ai-holdings-en-el-condado-de-live-oak-operara-de-forma-independiente-de-la-red-de-ercot-2)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/los-accionistas-de-quantum-biopharma-aprueban-cambios-de-gobernanza-mientras-el-control-de-voto-de-los-iniciados-aumenta-al-6822)
 
-Pickup - [https://burstable.news](https://burstable.news/news/azio-ai-holdings-atlas-one-data-center-to-operate-independently-of-texas-power-grid-2)
+Pickup - [https://burstable.news](https://burstable.news/news/quantum-biopharma-shareholders-approve-governance-changes-as-insider-voting-control-rises-to-6822)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/atlas-one-rechenzentrum-von-azio-ai-holdings-soll-unabhangig-vom-texanischen-stromnetz-betrieben-werden)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/quantum-biopharma-aktionare-genehmigen-governance-anderungen-wahrend-insider-stimmrechtskontrolle-auf-6822-steigt)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-centro-de-datos-atlas-one-de-azio-ai-holdings-operara-independientemente-de-la-red-electrica-de-texas)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/los-accionistas-de-quantum-biopharma-aprueban-cambios-de-gobernanza-mientras-el-control-de-voto-interno-asciende-al-6822)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-centre-de-donnees-atlas-one-dazio-ai-holdings-fonctionnera-independamment-du-reseau-electrique-texan-2)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-actionnaires-de-quantum-biopharma-approuvent-des-changements-de-gouvernance-alors-que-le-controle-de-vote-des-inities-atteint-6822-)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/data-center-atlas-one-da-azio-ai-holdings-operara-independentemente-da-rede-eletrica-do-texas)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/acionistas-da-quantum-biopharma-aprovam-mudancas-de-governanca-enquanto-o-controle-de-voto-de-insiders-sobe-para-6822)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/azio-ai-holdings-atlas-one-data-center-to-operate-independently-of-texas-power-grid-2)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/quantum-biopharma-insider-voting-control-rises-to-6822-after-private-placement)
 
-Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/azio-ai-holdings-atlas-one-data-center-to-operate-off-ercot-grid-sidestepping-interconnection-backlog)
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/quantum-biopharma-shareholders-back-board-broader-voting-structure-and-potential-consolidation)
 
-Pickup - [https://news.tsigcommandsphere.com](https://news.tsigcommandsphere.com/news/azio-ai-holdings-atlas-one-data-center-to-bypass-ercot-grid-sidestepping-texas-power-bottlenecks)
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/quantum-biopharma-tightens-insider-control-with-private-placement-and-sweeping-shareholder-approvals)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/11/quantum-biopharma-shareholders-back-broad-governance-measures-as-insider-voting-power-rises-to-6822/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/lambj_Ed.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/11/camcM7Dj.webp)
