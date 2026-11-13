@@ -1,42 +1,80 @@
-# CryptoNewsBreaks – Forward Industries, Inc. (NASDAQ: FWDI) Announces Strategic Partnership with Groma, Plans Up to $30 Million Investment in Tokenized Real Estate
+# Nasdaq Private Market COO Andrew Krochulick on Getting In Before the Story Is Public
 
-Forward Industries (NASDAQ: FWDI), a Solana treasury company, announced a strategic partnership with Groma, issuer of the tokenized real estate asset GromaCoin (“GRO”), under which Forward expects to allocate up to $30 million to GRO in connection with its anticipated launch on the Solana blockchain in the first quarter of 2027. Each GRO token represents a share in the Groma Real Estate Trust, a U.S.-regulated real estate investment trust holding income-producing residential properties. Groma is pursuing a Regulation A+ offering that, subject to U.S. Securities and Exchange Commission qualification, would expand access beyond accredited investors and make up to $75 million available in the first year following launch.
+Private markets were a featured topic at Stocktoberfest presented by Tradr ETFs, held in New York City from October 5 to 7. In the fireside chat “Private Markets: Getting In Before the Story Is Public,” Andrew Krochulick, COO of Nasdaq Private Market, joined Stocktwits Founder and CEO Howard Lindzon on stage at City Winery on October 7.
 
- According to Groma, GRO currently represents more than $95 million in tokenized real estate value, with nearly $50 million in capital inflows year to date. The partnership aims to expand GRO availability throughout the Solana ecosystem, including planned integration with Kamino’s decentralized lending protocol, which would allow token holders to borrow against their assets. The initiative builds on Forward’s broader strategy of supporting tokenized real-world assets on Solana, including its previous launch of tokenized FWDI shares through Superstate’s Opening Bell platform.
+ The conversation focused on the rise of private markets and where they fit in modern portfolios, a topic that resonates with an audience of traders, registered investment advisors, and retail analysts who influence how millions of retail investors allocate…
 
- To view the full press release, visit https://ccw.fm/gR70D
+ Read More>>
 
- About Forward Industries
+ To learn more about Stocktoberfest and stay tuned for next year’s event, visit stocktoberfest.stocktwits.com
 
- Forward Industries, Inc. (NASDAQ: FWDI) is a Solana focused digital asset treasury company, with the strategy to buy, hold, stake, trade, invest in, and grow SOL and SOL related digital assets, protocols and businesses. Forward’s mission is to expand and strengthen the Solana ecosystem by acquiring and staking SOL and engaging with, providing tools to and investing in the Solana network, Solana developers and Solana related projects in order to increase shareholder value. In connection with a private placement transaction in September 2025, Forward launched a digital asset treasury strategy supported by industry leading investors and operating partners including Galaxy Digital and Jump Crypto. For more information on the Company’s Solana treasury strategy, visit www.forwardindustries.com.
+ About InvestorWire
 
- NOTE TO INVESTORS: The latest news and updates relating to FWDI are available in the company’s newsroom at https://cnw.fm/FWDI
+ InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
 
- About CryptoCurrencyWire
+ For more information, please visit https://www.InvestorWire.com
 
- CryptoCurrencyWire (“CCW”) is a specialized communications platform with a focus on blockchain and the cryptocurrency sector. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, CCW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, CCW brings its clients unparalleled recognition and brand awareness. CCW is where breaking news, insightful content and actionable information converge.
+ Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
 
- To receive SMS alerts from CryptoCurrencyWire, text “CRYPTO” to 888-902-4192 (U.S. Mobile Phones Only)
+ InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
 
- For more information, please visit https://www.CryptoCurrencyWire.com
-
- Please see full terms of use and disclaimers on the CryptoCurrencyWire website applicable to all content provided by CCW, wherever published or re-published: https://www.CryptoCurrencyWire.com/Disclaimer
-
- CryptoCurrencyWireAustin, Texaswww.CryptoCurrencyWire.com512.354.7000 OfficeEditor@CryptoCurrencyWire.com
-
- CryptoCurrencyWire is powered by IBN 
+ InvestorWire is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/cryptonewsbreaks-forward-industries-inc-nasdaq-fwdi-announces-strategic-partnership-with-groma-plans-up-to-30-million-investment-in-tokenized-real-estate/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/forward-industries-partners-with-groma-to-tokenize-real-estate-on-solana/b8894b88aad53bb6266ec1701fbffbbc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nasdaq-private-market-coo-talks-private-markets-at-stocktoberfest/26373ba0450b9bcba5b0abf10f5bcbab) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://advos.io/en](https://advos.io/en/nasdaq-private-market-coo-highlights-private-markets-at-stocktoberfest)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/nasdaq-private-market-coo-highlights-private-markets-at-stocktoberfest)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/nasdaq-private-market-coo-highlights-retail-access-to-private-companies-at-stocktoberfest)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://burstable.news](https://burstable.news/news/nasdaq-private-market-coo-highlights-private-markets-at-stocktoberfest)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/nasdaq-private-market-coo-beleuchtet-privatmarkte-beim-stocktoberfest)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-coo-de-nasdaq-private-market-destaca-los-mercados-privados-en-stocktoberfest)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-coo-de-nasdaq-private-market-met-en-lumiere-les-marches-prives-a-stocktoberfest)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/coo-da-nasdaq-private-market-destaca-mercados-privados-no-stocktoberfest)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/nasdaq-private-market-coo-highlights-private-markets-at-stocktoberfest-signaling-shift-in-retail-investment-access)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/ibn/nasdaq-private-market-coo-andrew-krochulick-on-getting-in-before-the-story-is-public)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/13/isleD8d3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/13/noraibU0.webp)
