@@ -1,88 +1,57 @@
-# HKTDC Chairman Leads High-Level Delegation to Technology Powerhouse Anhui to Unlock Collaboration Opportunities
+# Novogenia to Contribute DNA Analytics and Personalized Dietary Supplements to Planned Clinical Study as Part of the 10XREVIV Initiative
 
-HONG KONG - November 12, 2026 (NEWMEDIAWIRE) - The Hong Kong Trade Development Council (HKTDC)'s Chairman, Professor Frederick Ma, just completed a high-level Hong Kong business delegation to the technology powerhouse of the Chinese Mainland, Hefei in Anhui Province, to explore collaboration in innovation and technology, covering research and development, marketisation and industry development opportunities. Comprising over 30 members from the Hong Kong SAR Government, science and technology parks, major chambers of commerce, universities and research institutions, the delegation received a warm official reception from Anhui Acting Governor Wang Dongwei, Anhui Vice Governor Sun Yong and Hefei Mayor Zhang Quan.
+* Planned study in Abu Dhabi combines genetic analysis with personalized nutrient supplementation for GLP-1 therapies
+* As part of the planned study, Novogenia will conduct DNA analyses, evaluate the results, and develop and produce personalized dietary supplements
+* The study design initially calls for 500 participants in Abu Dhabi
+* The 10XREVIV initiative is part of Novogenia’s international growth strategy
 
- ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_1)
+ MUNICH, GERMANY - November 12, 2026 (NEWMEDIAWIRE) - Novogenia AG (ticker symbol: 7V0), an international healthcare company focused on human genetics and the development of personalized products based on genetic insights, announces its exclusive participation as a technology and manufacturing partner in a planned clinical study as part of the 10XREVIV initiative in Abu Dhabi, United Arab Emirates.
 
- Known for its landscapes and regional culture, the Chinese province of Anhui has in recent years also been forging ahead in advanced technology including new energy, AI, quantum technology and low-altitude economy.
+ For the study, Novogenia will conduct and evaluate DNA analyses and develop and manufacture personalized dietary supplements for study participants derived from the results. The planned study is part of the previously announced initiative involving healthcare partners M42, 10X Health, and REVIV Global.
 
- With the aim of discussing collaboration opportunities, Prof Ma said Anhui-Hong Kong cooperation has expanded from traditional industries to emerging sectors centred on innovation and technology.
+ “The 10XREVIV initiative is a key component of our international growth strategy. Through our participation in the planned study, we are contributing our core competencies in genetic analysis and the manufacture of personalized dietary supplements to a scientific study. The study aims to provide insights into the additional benefits that individually tailored nutritional support can offer to people receiving GLP-1 therapy. We see this as an important avenue for applying our technologies in the international healthcare market,” explained Dr. Daniel Wallerstorfer, CEO of Novogenia AG.
 
- With Hong Kong’s unique advantages in connecting the Mainland with the rest of the world, a partnership between Anhui and Hong Kong would support enterprises in going global, with a particular focus on new energy vehicles, AI and life and health, so as to explore greater scope for collaboration.
+ Personalized Nutrition as a Complementary Approach to GLP-1 Therapies
 
- ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_2)
+ As part of the 10XREVIV initiative, Insights Research Organization and Solutions (IROS), a contract research organization (CRO) belonging to M42, and 10XREVIV have announced a clinical trial to investigate the potential benefits of personalized dietary supplements for patients receiving GLP-1 therapy. GLP-1-based medications are becoming increasingly important, particularly in weight management. The study design initially calls for the enrollment of 500 participants in Abu Dhabi. The focus is on determining the extent to which individually tailored nutritional support, alongside standard care, can positively influence the participants’ nutritional status, muscle and fat percentages, and well-being - particularly their quality of life and fatigue levels - as well as their consistent adherence to treatment.
 
- He looked forward to the two sides joining strengths to jointly build an interconnected innovation and technology ecosystem.
+ As part of the planned study, Novogenia will conduct the participants’ DNA analyses and evaluate the results. Based on this, the company will develop and produce individually tailored dietary supplements for study participants. In doing so, Novogenia will make a significant contribution to the study’s technical implementation and production activities, leveraging its extensive expertise in human genetics and the development of personalized health products.
 
- During the meeting, both sides also agreed to bring the Hong Kong Trade Development Council’s GoGlobal Connect programme to Anhui and to establish a fast-track service to support Anhui enterprises in expanding overseas in an orderly, well-managed and secure manner.
+ International Growth and New Market Potential
 
- The delegation visited the Anhui Innovation Centre, the University of Science and Technology of China and the Hefei Institutes of Physical Science of the Chinese Academy of Sciences. Members also toured leading local innovation and technology enterprises, including Gotion High-tech and Huawei’s Zunjie Super Factory, as well as the Luogang Central Park Smart Centre, to gain first-hand understanding of Anhui and Hefei’s research and industrial strengths.
+ The 10XREVIV initiative in Abu Dhabi is part of the previously announced international growth strategy for Novogenia’s core business. The company aims to expand the use of its genetic analysis technologies and personalized health products in international markets. Preparations already undertaken for the Middle East include adapting its products to regional requirements and successfully obtaining Halal certification.
 
- ![](http://newmediawire.s3.amazonaws.com/6af5d624da846f52982a9f4b_3)
+ The operational launch of the 10XREVIV initiative coincides with a period of strong growth in the global market for GLP-1-based therapies. According to market forecasts, the market is expected to rise from approximately $66 billion in 2025 to more than $185 billion by 2033[1]. As these therapies become more widely used, ensuring adequate nutrient intake is also gaining importance. A U.S. study published in 2025 involving more than 460,000 adults prescribed GLP-1 therapy documented that 22.4% experienced a nutrient deficiency or a related complication for the first time within one year. These findings highlight the importance of adequate nutrient intake during GLP-1 therapy, although other factors may also contribute to the development of nutrient deficiencies.
 
- Prof Ma recalled that he last visited Hefei 15 years ago, when the city still leaned towards a traditional profile, with few five-star hotels and very few foreign businesspeople on the streets. At that time, the city’s permanent population stood at about 5.7 million and its economic scale was just over 300 billion yuan. Returning now, he was impressed with the economic scale had grown nearly fourfold in 15 years, the permanent population had exceeded 10 million, and the city had been completely revitalised with a highly modernised urban appearance. Five-star hotels now line the streets, and hotel restaurants are frequented by foreign businesspeople.
+ This creates new opportunities for Novogenia to apply its expertise in genetic analysis and the manufacturing of personalized dietary supplements to innovative care models and further expand its presence in the international healthcare market. Through its involvement in the planned study, Novogenia builds on the previously communicated strategic direction of the 10XREVIV initiative and strengthens its position as a technology and manufacturing partner in personalized healthcare.
 
- Participants on this mission included Permanent Secretary for Innovation, Technology and Industry of the HKSAR government Kevin Choi, Chief Executive Officer of Hong Kong Science and Technology Parks Corporation Terry Wong, Chief Executive Officer of Hong Kong Applied Science and Technology Research Institute (ASTRI) Ir Dr Ted Suen, Ecosystem Development Director of Hong Kong-Shenzhen Innovation and Technology Park Company Limited Anita Chau, and Chief Executive Officer of Hong Kong Exchanges and Clearing Limited Bonnie Chan, among others.
+ About Novogenia AG
 
- Permanent Secretary for Innovation, Technology and Industry and Chairperson of Hong Kong-Shenzhen Innovation and Technology Park Company Limited Kevin Choi called on Anhui and Hefei enterprises to seize the opportunities arising from Hong Kong’s Northern Metropolis and to visit the Loop Hong Kong Park in person.
+ The “Novogenia Group” (i.e., Novogenia AG, including its subsidiaries and sub-subsidiaries), headquartered in Munich, Germany, is a European healthcare company, particularly active in the field of human genetics and the development of personalized products based on genetic analysis. The genetic analyses conducted in the company’s own laboratory are used in the diagnosis, treatment, and prevention of diseases, as well as in the production of individually tailored nutritional supplements and cosmetics. Novogenia also acts as a partner to physicians, therapists, pharmacists, nutritionists, and fitness trainers, helping to ensure treatment or support that is as optimal as possible for the patient’s or client’s needs by analyzing their respective genetic predispositions. In addition, Novogenia holds investments in innovative companies in the biotech, healthcare, and life sciences sectors. For more information, visit https://novogenia.com/novogenia-ag
 
- He stressed that Hong Kong, and the Loop Hong Kong Park in particular, could in one go address the challenges enterprises face when going global in the areas of capital, talent, technology and international rules, thereby helping Anhui enterprises expand into global markets. The complementary strengths of Anhui and Hong Kong would create a win-win outcome for both sides.
+ ContactNovogenia AGBrienner Str. 780333 MunichTel: +49 89 - 20 500 450investor.relations@novogenia.com
 
- Photo Download: https://bit.ly/4ApeNsH
+ Media ContactMC Services AGKatja Arnold, Dr. Fotini VogiatziPhone: +49 89 - 210 228-0novogenia@mc-services.eu
 
- The HKTDC’s Media Room: http://mediaroom.hktdc.com/en
+ [1] https://www.grandviewresearch.com/industry-analysis/glp-1-receptor-agonist-market
 
- Media enquiries:
+ 
 
- For enquiries, please contact:
-
- HKTDC Communications and Public Affairs Department:
-
- Navin Law
-
-Tel: (852) 2584 4525
-
-Email: navin.cm.law@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/hktdc-chairman-leads-high-level-delegation-to-technology-powerhouse-anhui-to-unlock-collaboration-opportunities-7091296)
+[Original/Source Press Release](https://www.newmediawire.com/news/novogenia-to-contribute-dna-analytics-and-personalized-dietary-supplements-to-planned-clinical-study-as-part-of-the-10xreviv-initiative-7091318)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/hktdc-delegation-explores-tech-collaboration-in-anhui/e002242c51c5d884e66b417298678a92) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novogenia-to-lead-dna-analysis-and-personalized-supplements-in-abu-dhabi-glp-1-study/078a66683e4ee828258f4457983a1a55) 
 
-
-Pickup - [https://advos.io/en](https://advos.io/en/hktdc-chairman-leads-high-level-delegation-to-anhui-to-unlock-innovation-collaboration-opportunities)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
-
-Pickup - [https://burstable.news](https://burstable.news/news/hktdc-chairman-leads-high-level-delegation-to-anhui-to-unlock-innovation-and-technology-collaboration)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hktdc-vorsitzender-leitet-hochrangige-delegation-nach-anhui-um-innovation-und-technologische-zusammenarbeit-zu-erschliessen)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/el-presidente-del-hktdc-encabeza-una-delegacion-de-alto-nivel-a-anhui-para-impulsar-la-colaboracion-en-innovacion-y-tecnologia)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/le-president-du-hktdc-dirige-une-delegation-de-haut-niveau-en-anhui-pour-stimuler-la-collaboration-en-matiere-dinnovation-et-de-technologie)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/presidente-do-hktdc-lidera-delegacao-de-alto-nivel-a-anhui-para-desbloquear-colaboracao-em-inovacao-e-tecnologia)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hktdc-delegation-to-anhui-signals-hong-kongs-push-for-tech-collaboration)
-
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/hktdc-chairman-leads-delegation-to-anhui-unlocking-cross-border-tech-collaboration)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/12/hktdc-delegation-to-anhui-aims-to-link-hong-kong-and-mainland-tech-ecosystems/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/pineZCCx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/12/kiwil0FX.webp)
