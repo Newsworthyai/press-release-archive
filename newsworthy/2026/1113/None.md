@@ -1,84 +1,58 @@
-# Mad Gab's Expands Lip Butters Into 702 Publix Stores Across Eight Southeastern States
+# Buda, Texas, Reveals “Beaūty” as Name of Giant Wiener Dog Statue
 
-Mad Gab's, a woman-owned lip and body balm company headquartered in Yarmouth, Maine, has expanded into 702 Publix supermarket locations across eight Southeastern states. The October 2026 rollout brings three of the company's lip care products to shoppers in Florida, Georgia, Alabama, South Carolina, North Carolina, Tennessee, Virginia and Kentucky as Mad Gab's celebrates its 35th anniversary.
+The Buda Economic Development Corporation (Buda EDC) officially introduced “Beaūty” to the community today, revealing the name of the city's larger-than-life wiener dog sculpture during a special ceremony at Buda City Park in Historic Downtown Buda.
 
- The expansion introduces more Southeast shoppers to Mad Gab's, a brand founded in 1991 by Gabrielle Melchionda. What began with a batch of lip balm made in her mother's Massachusetts kitchen using beeswax from a neighbor grew into a business selling products to natural food stores from the trunk of her car, and eventually to major grocery and specialty retailers.
+ The announcement followed a community naming initiative that generated more than 1,700 votes and name submissions through social media and an Election Day voting poll. The most popular names were presented to the Buda EDC Board of Directors, which approved the winning selection.
 
- “Joining the assortment at Publix is an incredible milestone as we celebrate our 35th anniversary,” said Melchionda. “When I made that first batch with beeswax from a neighbor, I never imagined we'd someday be selling our products in Publix. As a Maine brand, we're excited to meet a whole new crowd of chapped lips, and maybe reconnect with a few snowbirds who already know us.”
+ The name was unveiled during a noon ceremony featuring giant letters spelling “BEAUTY” and celebratory party poppers, officially welcoming the sculpture's new identity.
 
- The Publix assortment includes three products available on in-store Lip Care Power Panels:
+ “Beaūty is more than a name for our newest landmark. It reflects the personality, creativity, and community spirit that make Buda such a special place,” said John M. Costilla, Director of Marketing & Communications for the Buda Economic Development Corporation. “We wanted our residents to be part of this story, and the tremendous participation in the naming process shows just how much pride people take in our community.”
 
- * USDA Certified Organic Lip Butter in Peach Mango
-* USDA Certified Organic Lip Butter in Watermelon Sorbet
-* SPF 15 Lip Balm in Minty Mint
+ A Texas-Sized Tribute to Buda's Heritage The sculpture was originally unveiled on October 10, 2026, as part of the Buda EDC's 25th anniversary celebration, recognizing a quarter-century of economic development and investment in the community.
 
- Mad Gab's Organic Lip Butters combine organic olive oil and beeswax with nourishing shea butter, cocoa butter and other moisturizing ingredients for a smooth, creamy feel without the greasy or waxy finish. The Minty Mint SPF 15 Lip Balm combines moisturizing ingredients with sun protection.
+ Measuring 19 feet long, 10 feet tall, and 5 feet wide, Beaūty was created in partnership with the Buda EDC Board of Directors, Buda City Council, and Austin-based public art studio Art Seen Alliance.
 
- Some Southeastern shoppers may already be familiar with Mad Gab's from retailers such as Whole Foods Market, Wegmans, Ingles Markets and independent shops. The addition of 702 Publix locations significantly expands the brand's retail presence throughout the Southeast, introducing its lip care products to shoppers in communities across eight states.
+ Constructed from more than 400 individual pieces of Cor-Ten weathering steel, the sculpture features a distinctive rust-toned finish and provides a permanent tribute to the city's affection for dachshunds.
 
- Products are available at participating Publix stores on Lip Care Power Panels, with placement varying by location. Shoppers can use the Mad Gab's store locator to find nearby retailers and are encouraged to check with individual stores for product availability.
+ The landmark also celebrates Buda's long-standing reputation as the “Wiener Dog Capital of Texas.”
 
- Beyond its products, Mad Gab's supports young entrepreneurs through Incubating Innovators, a program that works with local schools and a farmers market to help teens develop business ideas, create products, learn marketing and experience selling to customers. 
+ What began in 1997 as a fundraiser for the Buda Lions Club has grown into one of the community's most beloved annual traditions. In April 2027, the Buda Wiener Dog Races will celebrate their 30th anniversary, bringing together families, visitors, and dachshund enthusiasts.
+
+ Beaūty now gives that tradition a year-round presence in the heart of Buda.
+
+ Turning Community Identity Into Economic Opportunity While Beaūty celebrates Buda's history and personality, the sculpture also represents a creative approach to economic development.
+
+ Located in Buda City Park, just minutes from Interstate 35, the landmark offers residents and visitors a free photo opportunity and another reason to explore the community.
+
+ The Buda EDC hopes Beaūty will encourage travelers along the I-35 corridor to stop in Buda, visit locally owned shops and restaurants, and experience the city's historic downtown, parks, live music, and community events.
+
+ “Economic development is also about creating memorable experiences that bring people together and encourage visitors to discover what our community has to offer,” Costilla added. “Beaūty gives us another opportunity to showcase Buda, support our local businesses, and invite people to spend time exploring our city.”
+
+ The sculpture joins other community attractions that celebrate Buda's unique identity while supporting the Buda EDC's broader efforts to strengthen the local economy through tourism, arts, entertainment, and business development.
+
+ Come Meet Beaūty Residents and visitors are encouraged to visit Beaūty at Buda City Park, take photographs, share their experiences on social media, and explore the surrounding community.
+
+ The Buda EDC is promoting the landmark with a playful message that captures the spirit of the campaign:
+
+ “Life is short. Beaūty's long.”
+
+ Visitors can find Beaūty at Buda City Park in Buda, Texas. Admission is free, and the sculpture is available as a photo destination for families, friends, and four-legged companions.
+
+ For more information about Buda's economic development initiatives and community attractions, visit www.budaedc.com.
+
+ About the [Buda Economic Development Corporation (Buda EDC)](https://www.budaedc.com/) The Buda Economic Development Corporation (Buda EDC) champions commerce and community by fostering a business-friendly culture that advances bold ideas, drives innovation, and honors Buda’s rich heritage. Dedicated to sustainable economic growth and enhanced quality of life, Buda EDC works through strategic partnerships, targeted industry development, and comprehensive business support services to attract new investment and retain and expand local businesses. With a focus on advanced manufacturing, knowledge-intensive business services, entrepreneurism, and arts and entertainment, the organization empowers businesses at every stage to thrive while preserving the character that makes Buda unique. With a commitment to collaboration, community engagement, and preserving Buda’s unique culture, Buda EDC serves as a catalyst for opportunity, ensuring a thriving economy for residents, businesses, and future generations. Learn more at www.budaedc.com. 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611133173/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
+[Original/Source Press Release](https://newsworthy.ai/news/202611133179/buda-texas-reveals-beauty-as-name-of-giant-wiener-dog-statue)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mad-gab-s-lip-balm-hits-702-publix-stores-across-the-southeast/d5b212df000f06b69086aafa6657425c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/buda-unveils-beauty-a-19-foot-wiener-dog-sculpture/25332d241d4654ec2957053980b185ac) 
 
-
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/13/mad-gabs-lip-butters-expand-into-702-publix-stores-across-eight-southeastern-states/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/mad-gabs-lip-butters-land-in-702-publix-stores-across-the-southeast)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/mad-gabs-lip-butters-land-in-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/mad-gabs-lip-butters-land-in-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://burstable.news](https://burstable.news/news/mad-gabs-lip-butters-roll-into-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/mad-gabs-lippenbutter-rollt-in-702-publix-filialen-in-acht-sudoststaaten)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/los-balsamos-labiales-de-mad-gabs-llegan-a-702-tiendas-publix-en-ocho-estados-del-sureste)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-beurres-a-levres-de-mad-gabs-debarquent-dans-702-magasins-publix-a-travers-huit-etats-du-sud-est)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/lip-butters-da-mad-gabs-chegam-a-702-lojas-publix-em-oito-estados-do-sudeste)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/mad-gabs-lip-butters-expand-to-702-publix-stores-across-eight-southeastern-states)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/mad-gabs-expands-lip-butters-into-702-publix-stores-across-eight-southeastern-states)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/13/mendLs68.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/13/roam7Mno.webp)
