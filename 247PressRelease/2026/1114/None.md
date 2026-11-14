@@ -1,0 +1,18 @@
+# Scura, Wigfield, Heyer, Cammarota Gonzalez, LLP Welcomes Timothy Kane as Bankruptcy Attorney
+
+WAYNE, NJ, November 14, 2026 /24-7PressRelease/ -- Scura, Wigfield, Heyer, Cammarota & Gonzalez, LLP is pleased to announce the addition of Timothy Kane, who joined the firm on November 9, 2026, as a Bankruptcy Attorney. With decades of legal experience and a broad background spanning multiple practice areas, Tim brings valuable knowledge and experience to the firm's growing legal team.  Throughout his distinguished career, Tim has established a reputation for delivering client-centered, results-driven legal representation. His professional experience includes a notable partnership at the Law Offices of Abdy & Kane, P.C., where he developed extensive experience handling a wide range of legal matters.  At Scura, Wigfield, Heyer, Cammarota & Gonzalez, Tim will primarily focus on expanding and strengthening the firm's Bankruptcy & Debt Counseling practice. His practice will encompass Chapter 7 and Chapter 13 bankruptcy, debt relief, and financial restructuring, helping individuals navigate challenging financial circumstances and understand their available legal options.  In addition to his bankruptcy experience, Tim brings a diverse legal background that will support the firm's work across several practice areas, including personal and bodily injury litigation, general litigation and appeals, real estate closings, mortgage loan modifications, and estate planning and administration.  Tim is admitted to practice in New Jersey, New York, and the District of Columbia. His admissions also include the U.S. District Court for the Southern District of New York (SDNY) and the Supreme Court of the United States, providing the firm with additional multi-jurisdictional experience.  His addition represents an important expansion of the firm's debtor-creditor and litigation capabilities, broadening the legal resources available to both existing and new clients. Tim's extensive experience and established professional relationships will also create opportunities to strengthen referral partnerships and expand the firm's ability to serve individuals and families facing complex legal and financial challenges.  Scura, Wigfield, Heyer, Cammarota & Gonzalez, LLP has more than 50 years of experience representing clients throughout New Jersey. The firm provides a broad range of legal services, including personal injury, bankruptcy, employment law, business and civil litigation, estate planning, elder law, and real estate.  The firm welcomes Tim to the team and looks forward to the experience, perspective, and additional capabilities he brings to its clients and practice.  About Scura, Wigfield, Heyer, Cammarota & Gonzalez, LLP  Scura, Wigfield, Heyer, Cammarota & Gonzalez, LLP is a New Jersey-based law firm with more than 50 years of experience providing legal representation to individuals, families, and businesses. With five office locations throughout New Jersey, the firm handles matters involving personal injury, bankruptcy, employment law, business and civil litigation, estate planning, elder law, and real estate. The firm's attorneys are committed to providing knowledgeable counsel and dedicated advocacy tailored to each client's needs. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/540498/scura-wigfield-heyer-cammarota-gonzalez-llp-welcomes-timothy-kane-as-bankruptcy-attorney)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scura-wigfield-welcomes-bankruptcy-attorney-timothy-kane/fdcc1a064a45a2690c42d13d4b98fb8f) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2611/14/yarn7N31.webp)
