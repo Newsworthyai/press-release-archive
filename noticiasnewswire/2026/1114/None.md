@@ -1,52 +1,72 @@
-# 360WE Music Launches ‘Sounds of the Multiverse Vol. 2,’ a Musical Project Connecting Five Multiverses Before the Big Bang and 25 Virtual DJs With Audiences in 163 Countries
+# HITN MEDIA Honors Puerto Rican Trailblazers at Centro
 
-MIAMI, FL — November 14, 2026 — (NOTICIAS NEWSWIRE) — 360WE Music opens the door to the possibility of traveling to places that do not yet exist in our universe with the release of “Sounds of the Multiverse Vol. 2,” an ambitious international production that challenges the conventional boundaries of music and turns each song into a gateway to another dimension. Featuring 25 tracks, five multiverses, and 25 virtual DJ identities, the project is already connecting with audiences in more than 163 countries across the Americas, Europe, Asia, Africa, and Oceania.
+BROOKLYN, NY — November 14, 2026 — (NOTICIAS NEWSWIRE) — HITN MEDIA, the leading Spanish-language public media network in the U.S., continued its Emmy-winning Puerto Rican Heritage series with a ceremony at Hunter College in Manhattan, honoring five influential Puerto Rican figures whose contributions to education, journalism, diplomacy, entertainment and civil rights have helped shape American society.
 
- “Sounds of the Multiverse Vol. 2” is now available on all digital platforms, with international distribution through ADA, a company belonging to Warner Music Group. The album blends multiverse music, science fiction, and audiovisual storytelling into a sonic experience that invites listeners to explore new universes and discover different ways of connecting with music beyond borders and cultures. The release is also accompanied by a music video produced by Edward Benítez, Audiovisual Creative Director and VFX Supervisor.
+ The event, held Friday, November 13, at the Center for Puerto Rican Studies (Centro), brought together community leaders, elected officials and members of the Puerto Rican and broader Hispanic communities to recognize this year’s honorees: Rita Moreno, Juan González, Mari Carmen Aponte, Jacobo Morales and Antonia Pantoja, who was honored posthumously.
 
- “With Sounds of the Multiverse, we want to go beyond what we traditionally understand as a music project. We are creating a fusion of sounds that brings a new dimension to life by connecting with Generation Ser-Ser. Our vision is to connect music, imagination, and technology to offer audiences an experience that transcends the boundaries of conventional entertainment,” explains Lucas Piña, Founder, CEO, and CCO of 360WE Music.
+ “Puerto Ricans have helped shape this nation through their contributions across virtually every field,” said Michael D. Nieves, president and CEO of HITN MEDIA. “This year, we recognize individuals whose vision and determination opened doors in cinema, journalism, theater, diplomacy, and education. Their pursuit of social justice reflects the perseverance and strength of the Puerto Rican community, allowing future generations to pay it forward.”
 
- The project is built around five multiverses — Jamska (Fascination), Alpha Ceti (Fantasy), Sanhanna (Trance), 25C (Disconnection), and Gamma Lyrae (Freedom and Art) — whose characters, represented by 25 DJ identities, take center stage in a musical journey where each song brings its own story and personality. The album alternates between these five worlds across five cycles, inviting listeners to experience different emotions within each multiverse.
+ The five honorees represent different generations and fields of achievement:
 
- The central figure of this release is DJ Lucernast, representing the Alpha Ceti universe, whose track “White Beneath the Clouds” has been selected as the campaign’s global focus track. Produced by David Esteban Castañeda, the song introduces a character who transforms clouds into allies to protect his community.
+ Rita Moreno, born in Humacao, Puerto Rico, and raised in New York, has built a career spanning more than eight decades. She is among the few artists to have received an Oscar, a Tony, two Emmy Awards and a Grammy. A Kennedy Center Honoree, Moreno remains one of the most prominent figures in American entertainment.
 
- “The challenge of Sounds of the Multiverse is bringing such an ambitious creative concept to a truly global audience. Music is a universal language, and we want to demonstrate that it can also open the door to new ways of discovering, experiencing, and consuming music content,” says Diego Benitez, VP of Music at 360WE Music.
+ Juan González has spent more than five decades reporting on social and political issues, exposing corruption and advocating for accountability as a journalist, activist and author. A co-host of Democracy Now! since 1996, he has received two George Polk Awards and authored Harvest of Empire. He was the first Latino inducted into New York’s Journalism Hall of Fame.
 
- To learn more about the project, discover its music, explore its characters, and uncover the stories behind the five universes, visit www.soundsofthemultiverse.com.
+ Antonia Pantoja, honored posthumously, was an educator and civil rights advocate who founded ASPIRA in 1961 to develop leadership among Latino young people. Her legal efforts helped secure bilingual education in New York City public schools through a landmark 1972 lawsuit. She later became the first Puerto Rican woman to receive the Presidential Medal of Freedom.
 
- Contact: Nancy Clara Nancymclara@gmail.com 
+ Mari Carmen Aponte, a native of Santurce, Puerto Rico, practiced law for more than 25 years before serving as U.S. ambassador to El Salvador and Panama. She was the first woman to lead the Hispanic National Bar Association and has received honorary degrees in recognition of her public service.
+
+ Jacobo Morales, an actor, filmmaker, poet and playwright, has played a central role in the development of Puerto Rican cinema over a career spanning seven decades. His film Lo que le pasó a Santiago became the first Puerto Rican production nominated for an Academy Award for Best Foreign Language Film, bringing international attention to Puerto Rican filmmaking.
+
+ The ceremony also featured the premiere of five short films documenting the lives and achievements of the honorees. Following the screenings, commemorative plaques were presented in recognition of their contributions.
+
+ Now in its fifth year, HITN MEDIA‘s Puerto Rican Heritage series has become a central part of the network’s programming during Puerto Rican Heritage Month. The Emmy-winning initiative documents the achievements and lasting influence of Puerto Ricans in American history, preserving stories of leadership, perseverance and innovation for future generations.
+
+ The films and the complete series are available through HITN MEDIA‘s digital platforms, including HITN GO and the Puerto Rican Heritage website.
+
+ About HITN MEDIA HITN MEDIA is the leading Spanish-language media company that offers educational and cultural programming for the whole family. It reaches more than 35 million homes in the United States and Puerto Rico through DIRECTV, DIRECTV NOW, AT&T U-verse, AT&T TV, AT&T TV Now, DISH Network, Verizon FiOS TV, Comcast Xfinity, Charter Spectrum, Mediacom, CenturyLink Prism, and Altice, Liberty Cable and Claro (Puerto Rico). Download the HITN GO app available on Apple, Android, Apple TV, and Roku® with a subscription.
+
+ For more information:
+
+ Corporate Webpage: HITN.org TV Webpage: hitn.tv Linkedin: @HITN Facebook: @HITNtv X: @hitn Instagram: @HITNtv YouTube: @HITNTelevision Streaming app: HITN GO
+
+ Link to images
+
+ CONTACT: Fernando Cárdenas fcardenas@htin.org 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/360we-music-launches-sounds-of-the-multiverse-vol-2/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/hitn-media-honors-puerto-rican-trailblazers/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/360we-music-launches-multiverse-album-vol-2/43ac3eeb015f6b7084a50133b21606c2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hitn-media-honors-five-puerto-rican-icons-at-hunter-college/264ffd692d6869e0011573a9e9ed7427) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/360we-musics-sounds-of-the-multiverse-vol-2-connects-25-virtual-djs-with-listeners-in-163-countries)
+Pickup - [https://advos.io/en](https://advos.io/en/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/360we-musics-sounds-of-the-multiverse-vol-2-connects-five-fictional-universes-and-25-virtual-djs-with-listeners-in-163-countries)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/360we-musics-sounds-of-the-multiverse-vol-2-connects-five-fictional-universes-and-25-virtual-djs-across-163-countries)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony-premiering-documentary-shorts)
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/360we-musics-sounds-of-the-multiverse-vol-2-connects-25-virtual-djs-with-listeners-in-163-countries)
+Pickup - [https://burstable.news](https://burstable.news/news/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/el-proyecto-sounds-of-the-multiverse-vol-2-de-360we-music-conecta-a-25-djs-virtuales-con-oyentes-de-163-paises)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/hitn-media-ehrt-funf-puerto-ricanische-wegbereiter-bei-zeremonie-im-centro)
 
-Pickup - [https://burstable.news](https://burstable.news/news/360we-music-releases-sounds-of-the-multiverse-vol-2-connecting-25-virtual-djs-with-listeners-in-163-countries)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/hitn-media-honra-a-cinco-pioneros-puertorriquenos-en-ceremonia-en-el-centro)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/360we-music-veroffentlicht-sounds-of-the-multiverse-vol-2-und-verbindet-25-virtuelle-djs-mit-horern-in-163-landern)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/hitn-media-rend-hommage-a-cinq-pionniers-portoricains-lors-dune-ceremonie-au-centro)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/360we-music-lanza-sounds-of-the-multiverse-vol-2-conectando-a-25-djs-virtuales-con-oyentes-en-163-paises)
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/hitn-media-homenageia-cinco-pioneiros-porto-riquenhos-em-cerimonia-no-centro)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/360we-music-sort-sounds-of-the-multiverse-vol-2-connectant-25-dj-virtuels-avec-des-auditeurs-dans-163-pays)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/360we-music-lanca-sounds-of-the-multiverse-vol-2-conectando-25-djs-virtuais-com-ouvintes-em-163-paises)
+Pickup - [https://news.rochesternewsdaily.com/curated](https://news.rochesternewsdaily.com/curated/hitn-media-honors-five-puerto-rican-trailblazers-at-hunter-college-ceremony)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/14/hitn-media-honors-five-puerto-rican-trailblazers-at-centro-ceremony/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/14/pendOw62.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/14/jadeQ31J.webp)
