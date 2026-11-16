@@ -1,64 +1,105 @@
-# Reztart Expands U.S. Availability Amid Growing Protein Demand
+# Why Students Need DormWay's AI Use Label for Syllabus Clarity
 
-Reztart, the Swedish metabolic nutrition brand developed by Indevex AB, announced that its protein- and fiber-rich powder shakes are now available to U.S. consumers through OneLavi.com, expanding access to the company's science-backed approach to everyday metabolic wellness.
+In one course, a college student might be allowed to use AI on an exam; in another, it could be prohibited for brainstorming. DormWay, a student planner that brings syllabus deadlines, class schedules and course policies into one place, has examined the rules students face when using the same tools across different classes.
 
- The launch comes as American consumers place greater emphasis on protein, fiber, and nutrition that supports their daily wellness goals. According to the International Food Information Council's 2026 Food & Health Survey, 70% of Americans actively try to include protein in their diets, while high-protein eating remains the most commonly followed dietary pattern.
+ Those boundaries matter as employers increasingly seek AI skills. According to LinkedIn's 2026 report, US jobs requiring AI literacy grew 70% year over year. Students still have to check whether a specific use of AI is authorized for the assignment in front of them.
 
- For Reztart, the trend reflects growing interest in nutritional products that go beyond traditional protein shakes by combining multiple ingredients in convenient formulations designed for everyday use.
+ "Students are preparing for workplaces where using AI responsibly is becoming part of the job. They also have to meet the expectations of each instructor. We built DormWay to help students organize their semester, and understanding what each course requires is part of that work," said Riley Crimmins, CEO and co-founder of DormWay.
 
- "Consumers are becoming more interested in what their food does for them beyond simply providing calories or protein," said Daniel KK Hahn, CEO of Indevex AB. "Reztart brings together protein, fiber, and our patented NGC platform in a convenient format designed to support everyday metabolic wellness."
+ DormWay now shows a Course AI Use Label in its app: a short, consistent summary of whether AI is permitted for studying, brainstorming, editing, submitted work and exams, along with approval and disclosure requirements. When a student adds a syllabus, DormWay reads its AI rules and shows them on the course page, linked to the syllabus they came from. The label is an automated summary; the instructor's instructions remain authoritative. A free downloadable template lets faculty and students fill in the same label by hand, and instructors choose the rules that fit their courses.
 
- Three Reztart Flavors Now Available on OneLavi.com The U.S. lineup includes three powder shake varieties, each packaged in 14 single-serving pouches:
+ DormWay's analysis of 12,920 candidate Fall 2026 syllabus transcripts, checked against a random source-review sample, estimates that 75.3% of eligible, policy-evaluable documents contain an operative AI-use policy. An estimated 33.9% use default prohibitions with exceptions or limit permission to specific tasks or assessments, while 11.7% contain mixed or unclear permission rules.
 
- * Reztart Chocolate Powder Shake - A rich chocolate-flavored protein and fiber shake designed as a balanced snack option for busy lifestyles.
-* Reztart Vanilla Powder Shake - A smooth vanilla-flavored functional shake formulated to provide convenient nutrition on the go.
-* Reztart Strawberry Powder Shake - A strawberry-flavored shake combining protein, fiber, and convenient everyday nutrition.
+ Official public Fall 2026 syllabi illustrate the decisions:
 
- All three products are manufactured in Sweden and formulated with a low glycemic load. They are gluten-free and nut-free and can be prepared by mixing the powder with water or milk.
+ * Brainstorming and editing: Texas A&M International University's ENGL 3307 prohibits AI throughout its creative-writing process, including brainstorming and editing. COMM 3332 encourages AI-assisted ideas, draft copy and imagery under attribution and verification rules, while prohibiting quiz use and direct pasting of AI-generated body copy.
+* Programming and exams: UT Austin's CS 380I permits programming assistance while requiring students to understand and explain submissions. Its exams permit AI with disclosure of tools and affected questions. CS 439 treats generated code or text solutions as unauthorized unless explicitly permitted in writing.
 
- The shakes incorporate Indevex's patented NGC (Natural Glycemic Control) platform, a proprietary nutrient blend containing concentrated ingredients derived from apples, rose hips, sugar beet fiber, peas, omega-rich eggs, and whey protein.
+ Even within a syllabus, students may need to reconcile an allowance with a broader warning. UT Austin's introductory CS 109 describes instructor-authorized AI use alongside general integrity restrictions on AI-generated assignments. Specific permission can be an exception, but students must work out how the instructions apply together.
 
- Protein, Fiber, and the Growing Functional Nutrition Market The growing popularity of protein-rich foods is part of a broader change in how Americans approach nutrition. Consumers are increasingly looking for products that fit into busy schedules while helping them maintain balanced eating habits.
+ Acknowledging a tool does not override a prohibition or replace advance approval. The stated consequences can be substantial: TAMIU's ACC 4370 specifies a course F and Honor Council referral for breaching its assessed-work AI restrictions.
 
- Fiber is also attracting greater attention. Research from the International Food Information Council's 2025 Food & Health Survey found that 28% of Americans identified a good source of fiber as a characteristic of healthy food, up from 24% the previous year.
+ "Students should be able to find the rules before they start an assignment. A consistent label makes those expectations easier to check and helps students understand where responsible AI practice fits into their education. Instructors would continue to decide which uses support their teaching," said Crimmins.
 
- For Indevex, the combination of protein, fiber, and its NGC platform reflects more than two decades of research into metabolic nutrition.
+ The label uses task-level entries for studying, brainstorming, editing, generated submissions and exams, with conditions for approval and disclosure, permitted tools, and a dated source. Missing information remains "not specified"; a label does not create permission. A companion seven-question checklist helps students check the instructions.
 
- Reztart products are designed to support satiety, blood sugar balance, sustained energy, and reduced cravings as part of a balanced diet and healthy lifestyle.
+ These findings reflect DormWay's filtered transcript collection, not national college policy or student outcomes. The overview, research note, label template and student checklist provide confidence intervals, validation details, limitations and links to the official course examples.
 
- "Protein has become a major focus for consumers, but we believe the conversation should also include fiber, satiety, and the broader role of nutrition in metabolic health," Hahn said. "Our approach is to make that combination practical and accessible for everyday use."
+ About DormWayDormWay helps students organize course information, including syllabus deadlines, schedules and policies. Its core organization tools are free. Learn more at dormway.app.
 
- Building Reztart's U.S. Market Presence The OneLavi.com launch represents another step in Indevex's strategy to establish Reztart in the United States.
-
- The company has been introducing its metabolic nutrition platform to the American retail market, including participation in ECRM retail meetings, while building awareness of its research-driven approach to functional nutrition.
-
- Reztart's U.S. expansion reflects the company's belief that metabolic wellness will remain an important area of consumer interest as more Americans seek convenient nutritional options that support their long-term wellness goals.
-
- "Expanding our availability through OneLavi.com is an important milestone for Reztart," Hahn said. "It gives American consumers greater access to our products and supports our long-term goal of introducing Indevex's nutritional research to the U.S. market."
-
- About [Reztart®](https://www.reztart.com/en/) Reztart® by Indevex AB, Sweden, is a European science-backed metabolic nutrition brand focused on blood sugar support, energy stability, and sustainable weight management. Built on the patented NGC® (Natural Glycemic Control) platform, Reztart® products are designed to support metabolic function through clinically informed, nutrition-first formulations.
-
- Indevex AB has more than 25 years of experience in metabolic health research, ingredient development, and commercialization. The company’s mission is to provide practical, science-driven tools that help individuals take control of their metabolic health before more intensive interventions become necessary.
-
- For more information, visit https://www.reztart.com/en/
-
- About [Indevex AB](https://indevex.com/) Indevex AB is a Swedish science-driven nutrition company focused on metabolic health and blood sugar support. With more than 20 years of research, the company developed NGC® (Natural Glycemic Control), a patented ingredient platform designed to support glycemic balance, reduce cravings, and promote sustained energy.
-
- Backed by clinical research and developed in collaboration with international experts, Indevex translates metabolic science into practical, nutrition-based solutions. Through its consumer brand Reztart®, the company brings its science directly to market with accessible products designed for everyday metabolic support.
-
- For more information, visit: https://indevex.com/ 
+ Media contact Riley Crimmins · Email Contact 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611163184/reztart-expands-us-availability-amid-growing-protein-demand)
+[Original/Source Press Release](https://newsworthy.ai/news/202611163182/why-students-need-dormways-ai-use-label-for-syllabus-clarity)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/reztart-s-metabolic-shakes-launch-on-onelavi-com-in-the-u-s/b22220f381108bb808a425ac71ec151c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dormway-adds-ai-use-labels-to-syllabi-as-ai-job-skills-surge/575dcb68a4695da6c1d42d1ab4450738) 
 
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/dormway-launches-ai-use-label-to-clarify-course-specific-ai-rules)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/16/dormway-introduces-ai-use-label-to-clarify-course-policies-for-students/)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/why-students-need-dormways-ai-use-label-for-syllabus-clarity-2)
+
+Pickup - [https://advos.io/en](https://advos.io/en/dormway-introduces-ai-use-label-to-clarify-course-policies-as-ai-skills-demand-grows)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/dormway-launches-ai-use-label-to-clarify-confusing-course-policies)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/dormways-ai-use-label-aims-to-clarify-confusing-course-policies-as-ai-skills-grow-in-demand)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/dormway-tackles-ai-confusion-in-college-courses-with-new-syllabus-label)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/dormway-aborda-la-confusion-sobre-la-ia-en-cursos-universitarios-con-una-nueva-etiqueta-de-uso-de-ia-en-el-programa)
+
+Pickup - [https://burstable.news](https://burstable.news/news/dormway-introduces-ai-use-label-to-clarify-course-policies-for-students)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/dormway-fuhrt-ki-nutzungskennzeichnung-ein-um-kursrichtlinien-fur-studierende-zu-klaren)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/dormway-introduce-una-etiqueta-de-uso-de-ia-para-aclarar-las-politicas-de-los-cursos-a-los-estudiantes)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/dormway-lance-un-label-dutilisation-de-lia-pour-clarifier-les-politiques-de-cours-des-etudiants)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/dormway-introduz-rotulo-de-uso-de-ia-para-esclarecer-politicas-de-curso-para-estudantes)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/dormway-launches-course-ai-use-label-to-clarify-confusing-syllabus-policies)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/dormways-ai-use-label-aims-to-clarify-confusing-course-policies-as-ai-skills-demand-grows)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/dormway-launches-ai-use-label-to-clarify-confusing-course-policies-as-ai-skills-demand-grows)
+
+Pickup - [https://hrvendornews.com/hr-news](https://hrvendornews.com/hr-news/course-level-ai-labels-aim-to-clarify-conflicting-classroom-rules-as-employer-demand-for-ai-literacy-climbs)
+
+Pickup - [https://newscrafters.com](https://newscrafters.com/article/david-mcinnis/navigating-ai-in-academia-dormway-s-innovative-solution-for-students)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/16/envy376m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/16/moon5a7O.webp)
