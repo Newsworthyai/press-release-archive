@@ -1,90 +1,38 @@
-# Thorium Atomics Submits Regulatory Engagement Plan for the Tesseract TGR to the U.S. Nuclear Regulatory Commission
+# Quantum BioPharma (QNTM) Reports $12.22M in Cash and Digital Assets, Advances Lucid-MS Phase 2 Trial
 
-The Submitted Plan Sets out the Company's Proposed Pre-application Engagement Activities With NRC Staff in Support of a Future Construction Permit Application Under 10 CFR Part 53
+LOS ANGELES, CA - November 16, 2026 (NEWMEDIAWIRE) - Quantum BioPharma (NASDAQ: QNTM) reported unaudited financial and operational results for the third quarter ended Sept. 30, 2026, highlighting improved liquidity, reduced operating expenses and progress in its clinical development program. Cash and cash equivalents totaled approximately $3.56 million, while digital assets reached $8.66 million, representing combined holdings of $12.22 million, compared with $4.12 million at year-end 2025, excluding restricted digital assets. Shareholders’ equity increased 91% to $9.77 million, while working capital rose to $5.47 million from $420,000. Third-quarter operating expenses declined 24% year over year to $3.56 million, and the nine-month net loss narrowed 26% to $17.32 million from $23.25 million.
 
- TORONTO, ONTARIO and OAK RIDGE, TN - November 16, 2026 (NEWMEDIAWIRE) - Thorium Atomics Inc. today announced that it has submitted Revision 0 of its Pre-Application Regulatory Engagement Plan for the Tesseract TGR to the U.S. Nuclear Regulatory Commission (NRC). The Tesseract TGR is a high-temperature gas-cooled pebble-bed reactor that is being developed to supply industrial heat and electricity, along with the potential for medical isotopes. It is fuelled with LEU+ (uranium enriched below 10 percent) and augmented with thorium. The design targets a thermal output of 250 MWth and an electrical output of 100 MWe.
+ ![](http://newmediawire.s3.amazonaws.com/6afb50b5da846f52982a9f62_1)
 
- ![](http://newmediawire.s3.amazonaws.com/6af5b58bda846f52932a9f10_1)
+ Following quarter-end, Quantum entered into a study start-up agreement with the clinical research business of Thermo Fisher Scientific to implement its Phase 2 clinical trial of Lucid-MS for progressive multiple sclerosis. The agreement follows U.S. Food and Drug Administration (“FDA”) clearance of the company’s Investigational New Drug application in August 2026. Quantum also reported a 21% reduction in operating cash use for the first nine months of 2026 and a decrease in notes payable to $300,000 following repayment of $1 million in debt. Management stated that its cash and digital asset holdings are sufficient to support planned operations over the next 12 months.
 
- The company submitted the plan on October 27, 2026, under NRC Project No. 99902174. The NRC has acknowledged receipt of the plan, which is publicly available in the NRC's Agencywide Documents Access and Management System (ADAMS) under Accession No. ML26308A231. Direct link: https://www.nrc.gov/docs/ML2630/ML26308A231.pdf
+ To view the full press release, visit https://ibn.fm/GJ1ER
 
- The plan's purpose is to facilitate effective communications and guide pre-application interactions between Thorium Atomics and NRC staff in support of a future construction permit application under 10 CFR Part 53, the NRC's risk-informed, technology-inclusive framework for commercial nuclear plants. It gives an overview of the company, the conceptual design of the Tesseract TGR and its licensing approach. It is a living document that the company will update as the design develops, as business initiatives evolve and as NRC staff provide feedback.
+ About Quantum BioPharma Ltd.
 
- The plan lists more than two dozen technical submissions for future NRC staff review. Topics include:
+ Quantum is a biopharmaceutical company dedicated to building a portfolio of innovative assets and biotech solutions for the treatment of challenging neurodegenerative and metabolic disorders and alcohol misuse disorders with drug candidates in different stages of development. Through its wholly owned subsidiary, Lucid Psycheceuticals Inc. (“Lucid”), Quantum is focused on the research and development of its lead compound, Lucid-MS. Lucid-MS is a patented new chemical entity shown to prevent and reverse myelin degradation, the underlying mechanism of multiple sclerosis, in preclinical models. Quantum invented UNBUZZD(TM) and spun out its OTC version to a company, Unbuzzd Wellness Inc. (“Unbuzzd”) (formerly, Celly Nutrition Corp.), led by industry veterans. Quantum retains ownership of 19.84% (as of March 31, 2026) of Unbuzzd at www.unbuzzd.com. The agreement with Unbuzzd also includes royalty payments of 7% of sales from unbuzzd(TM) until payments to Quantum total $250 million. Once $250 million is reached, the royalty drops to 3% in perpetuity. Quantum retains 100% of the rights to develop similar products or alternative formulations specifically for pharmaceutical and medical uses.
 
- * - reactor physics analyses; - fuel qualification for the uranium and thorium tristructural isotropic (TRISO) fuels; - supporting design information for the reactor cooling, control, and containment systems; - principal design criteria; - probabilistic and deterministic safety analysis methods; - licensing basis events and accident source term; - emergency planning zone sizing; - safeguards; and - graphite qualification.
+ Please see full terms of use and disclaimers on the InvestorBrandNetwork website applicable to all content provided by IBN, wherever published or re-published: https://IBN.ai/Disclaimer
 
- As a first step, Thorium Atomics plans to hold a technology familiarization meeting with NRC staff to introduce the Tesseract TGR design concept and discuss the regulatory engagement plan. The plan targets that meeting for December 2026 or January 2027.
+ The latest news and updates relating to QNTM are available in the company’s newsroom at https://ibn.fm/QNTM
 
- “Early and continued regulatory engagement is a valuable and important effort towards confirming that the Tesseract TGR design has no fundamental barriers to licensing. Our submitted plan outlines how we propose to work collaboratively with NRC staff through the pre-application engagement process, including the topics we will bring forward, the order in which we expect to present them, and how we will brief and discuss each submittal with the staff. Structured engagement now lets us identify any regulatory issues in a timely manner, while the design can still be adjusted,” said Dr. Jack Vecchiarelli, Chief Scientific and Regulatory Officer of Thorium Atomics.
+ Forward Looking Statements
 
- “Industrial plants that buy steam from a reactor will plan around it for decades, so they need a licensing path they can follow from the start. Putting our engagement plan with the NRC early, and on the public record, is part of earning that confidence,” said Young Hwang, Co-Founder and CEO of Thorium Atomics.
-
- About the Tesseract TGR
-
- The Tesseract TGR is a pebble-bed high-temperature gas-cooled reactor under development to supply industrial heat and electricity, with the potential for medical isotopes. Helium leaves the reactor at 750 °C and generates steam at up to about 565 °C for industrial processes; electricity is available for hosts that want both. Each reactor unit targets a thermal output of 250 MWth. The reactor is fuelled with LEU+ uranium in TRISO coated-particle fuel enriched below 10 percent U-235. Its fuel cycle is thorium-augmented: thorium-bearing fuel converts thorium-232 into fissile uranium-233 during operation, and most of that uranium-233 is burned in place, with no reprocessing. Significantly reducing the mined uranium required per unit of electrical energy generated, compared with a large light-water reactor, is a design target, still to be validated. Thorium Atomics does not plan to separate U-233; any future isotope work would be a separate activity requiring its own authorizations. The design is in development and has not yet been built, licensed or independently verified.
-
- About Thorium Atomics
-
- Thorium Atomics Inc. is an advanced nuclear reactor developer headquartered in Toronto, Ontario, with U.S. operations in Oak Ridge, Tennessee. The company is developing the Tesseract TGR and Mjolnir, its reactor design platform. Thorium Atomics is conducting pre-application activities with the U.S. Nuclear Regulatory Commission under NRC Project No. 99902174. Further information is available at thoriumatomics.com.
-
- A correction to the company's August 7, 2026 release is posted at thoriumatomics.com/news/nrc-pre-application-engagement#correction.
-
- Forward-Looking Statements
-
- This release contains forward-looking information within the meaning of applicable securities laws. Forward-looking information includes statements that are not statements of historical fact and may be identified by words such as “expects,” “anticipates,” “plans,” “estimates,” “believes,” “intends,” “may,” “could,” “would,” “might” or “will,” and similar expressions.
-
- Forward-looking information in this release includes statements concerning:
-
- * - the company's planned pre-application engagement with the NRC, including the planned technology familiarization meeting and its timing, and the content, sequence and timing of planned technical submissions; - updates to the Regulatory Engagement Plan; - a future construction permit application; - the design and development of the Tesseract TGR, its target performance and fuel cycle, and any future medical isotope opportunity; - the timing or outcome of engineering, verification and regulatory work.
-
- Forward-looking information is based on assumptions that management considers reasonable in light of the information presently available. It is subject to known and unknown risks, uncertainties and other factors that may cause actual events, results or performance to differ materially from those expressed or implied. These include the results of further engineering, testing and independent verification; the timing and outcome of regulatory reviews; the availability of capital on acceptable terms; future legislative and regulatory developments; the availability of nuclear fuel, qualified suppliers and specialized personnel; intellectual-property risks; competition; general economic and market conditions; and other risks affecting the advanced nuclear industry.
-
- Forward-looking statements are made as of the date of this release. Thorium Atomics and its directors, officers and employees undertake no obligation to update forward-looking information as a result of new information, future events or otherwise, except as required by applicable law. There can be no assurance that forward-looking statements will prove accurate, and readers should not place undue reliance on them.
-
- This release does not constitute an offer to sell or the solicitation of an offer to purchase any securities and does not form part of any securities offering. No securities commission or other regulatory authority in Canada, the United States or any other jurisdiction has passed upon the information contained in this release.
-
- Media ContactMichael ChoThorium Atomics Inc.media@thoriumatomics.com
-
- 
+ Certain statements in this article are forward-looking, as defined in the Private Securities Litigation Reform Act of 1995. These statements involve risks, uncertainties, and other factors that may cause actual results to differ materially from the information expressed or implied by these forward-looking statements and may not be indicative of future results. These forward-looking statements are subject to a number of risks and uncertainties, including, among others, various factors beyond management's control, including the risks set forth under the heading "Risk Factors" discussed under the caption "Item 1A. Risk Factors" in Part I of the Company's most recent Annual Report on Form 10-K or any updates discussed under the caption "Item 1A. Risk Factors" in Part II of the Company's Quarterly Reports on Form 10-Q and in the Company's other filings with the SEC. Undue reliance should not be placed on the forward-looking statements in this article in making an investment decision, which are based on information available to us on the date hereof. All parties undertake no duty to update this information unless required by law.
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/thorium-atomics-submits-regulatory-engagement-plan-for-the-tesseract-tgr-to-the-u-s-nuclear-regulatory-commission-7091342)
+[Original/Source Press Release](https://www.newmediawire.com/news/quantum-biopharma-qntm-reports-12-22m-in-cash-and-digital-assets-advances-lucid-ms-phase-2-trial-7091346)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thorium-atomics-submits-nrc-pre-application-plan-for-tesseract-tgr/8dcf2afa0a5e8c2a9dc56b8293d78705) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-boosts-liquidity-to-12-22m-advances-lucid-ms-phase-2-trial/b5f0fead659dac0431910df414ba9e27) 
 
-
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/16/thorium-atomics-files-pre-application-plan-with-nrc-for-tesseract-tgr/)
-
-Pickup - [https://advos.io/en](https://advos.io/en/thorium-atomics-files-nrc-engagement-plan-for-tesseract-tgr)
-
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/thorium-atomics-submits-regulatory-engagement-plan-to-nrc-for-tesseract-tgr)
-
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/thorium-atomics-formalizes-nrc-pre-application-plan-for-tesseract-tgr)
-
-Pickup - [https://burstable.news](https://burstable.news/news/thorium-atomics-files-pre-application-plan-with-nrc-for-tesseract-tgr)
-
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/thorium-atomics-reicht-vorantragsplan-bei-der-nrc-fur-den-tesseract-tgr-ein)
-
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/thorium-atomics-presenta-su-plan-de-preaplicacion-ante-la-nrc-para-el-tesseract-tgr)
-
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/thorium-atomics-depose-un-plan-de-pre-requete-aupres-de-la-nrc-pour-le-tgr-tesseract)
-
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/thorium-atomics-apresenta-plano-de-pre-requerimento-a-nrc-para-o-tesseract-tgr)
-
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/thorium-atomics-files-nrc-engagement-plan-for-tesseract-tgr-reactor)
-
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/thorium-atomics-files-regulatory-engagement-plan-with-nrc-for-tesseract-tgr)
-
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/news/thorium-atomics-files-regulatory-engagement-plan-with-nrc-for-tesseract-tgr)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/16/golde5rL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/16/blurRU7N.webp)
