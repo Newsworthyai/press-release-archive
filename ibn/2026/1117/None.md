@@ -1,41 +1,31 @@
-# InvestorNewsBreaks – Nightfood Holdings Inc. (OTCQB: NGTFD) Reports 159% Fiscal Q1 Revenue Growth, Advances Semiconductor Automation Expansion
+# IEA Forecasts Nearly 85% Jump in Global Clean Energy Capacity
 
-Nightfood Holdings (OTCQB: NGTFD), doing business as TechForce Robotics, announced unaudited financial results for its fiscal first quarter ended Sept. 30, 2026, reporting a 159% increase in consolidated net revenue, driven by a full quarter of operations at both of its hotels. The company also issued revenue guidance for its fiscal second quarter ending Dec. 31, 2026, although specific projections were not included in the announcement provided. During the quarter, Nightfood established TechForce Advanced Manufacturing to develop semiconductor automation and inspection systems. The company subsequently acquired automated optical inspection technology for advanced semiconductor packaging and announced plans to fulfill approximately 80 wafer inspection systems by the end of the first calendar quarter of 2027, representing a potential $9 million revenue opportunity, subject to purchase orders, fulfillment and revenue recognition requirements.
+The International Energy Agency (IEA) has predicted that global renewable energy capacity will increase by almost 85% between 2025 and 2031. According to the agency’s Renewables 2026 annual report, wind and solar will make up a whopping 95% of all growth in renewable energy capacity during this window.
 
- Nightfood also advanced its service robotics business through the launch of its Robotic Connective Network, a nonbinding letter of intent with NBR Intelligence to evaluate deployment of up to 5,000 robotic systems and a 60-day autonomous robotics pilot at Fairmont Austin. Additional developments included plans for a Taiwan manufacturing facility, board and management appointments and a 1-for-150 reverse stock split supporting a proposed Nasdaq uplisting. CEO Jimmy Chan said the company is prioritizing semiconductor equipment deliveries and expanding its pipeline of commercial opportunities.
+ All things considered, the IEA predicts that global green energy capacity will grow by close to 4,800 GW from 2026 to 2031 as countries ramp up renewable energy investments and production. Renewable energy firms like Turbo Energy S.A. (NASDAQ: TURB) hope to benefit from this surging interest in…
 
- To view the full press release, visit https://ibn.fm/lqbah
+ Read More>>
 
- About Nightfood Holdings, Inc. (d/b/a TechForce Robotics)
+ About GreenEnergyStocks
 
- Nightfood Holdings, Inc., doing business as TechForce Robotics, is an advanced robotics and automation company focused on delivering intelligent, scalable solutions for industrial and commercial applications. The Company integrates robotics, artificial intelligence and software-driven systems to optimize operations, improve efficiency and enable next-generation automation.
+ GreenEnergyStocks (“GES”) is a specialized communications platform with a focus on companies working to shape the future of the green economy. GreenEnergyStocks is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, GES is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, GES brings its clients unparalleled recognition and brand awareness. GES is where breaking news, insightful content and actionable information converge.
 
- TechForce Robotics partners with organizations to design and deploy customized robotic solutions that address evolving operational requirements.
+ To receive SMS alerts from GreenEnergyStocks, text “Green” to 888-902-4192 (U.S. Mobile Phones Only)
 
- About TechForce Advanced Manufacturing
+ For more information, please visit https://www.GreenEnergyStocks.com
 
- TechForce Advanced Manufacturing, Inc, a wholly owned subsidiary of Nightfood Holdings, Inc.. is a Nevada corporation formed to develop, manufacture, commercialize, install and support semiconductor automation and inspection systems. Its initial focus is expanding Wafer Sorter and AOI production for wafer-based semiconductor and CoWoS-related advanced-packaging applications, while pursuing future applications supporting emerging Chip-on-Panel-on-Substrate (“CoPoS”) manufacturing processes.
+ Please see full terms of use and disclaimers on the GreenEnergyStocks website applicable to all content provided by GES, wherever published or re-published: https://www.greennrgstocks.com/Disclaimer
 
- NOTE TO INVESTORS: The latest news and updates relating to NGTFD are available in the company’s newsroom at http://ibn.fm/NGTFD
+ GreenEnergyStocksLos Angeles, CAwww.GreenEnergyStocks.com310.299.1717 OfficeEditor@GreenEnergyStocks.com
 
- About InvestorWire
-
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 75+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
-
- For more information, please visit https://www.InvestorWire.com
-
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
-
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
-
- InvestorWire is powered by IBN 
+ GreenEnergyStocks is powered by IBN 
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-nightfood-holdings-inc-otcqb-ngtfd-reports-159-fiscal-q1-revenue-growth-advances-semiconductor-automation-expansion/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/iea-forecasts-nearly-85-jump-in-global-clean-energy-capacity/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nightfood-d-b-a-techforce-robotics-posts-159-revenue-jump-in-q1/a8d659177893040127a0713663a1fad9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iea-global-renewable-capacity-to-jump-85-by-2031/829e11dc64bda58295a7ef624da6acfd) 
 
  
 
@@ -43,4 +33,4 @@ Nightfood Holdings (OTCQB: NGTFD), doing business as TechForce Robotics, announc
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/17/keepLDAA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2611/17/knob3nk1.webp)

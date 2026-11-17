@@ -1,62 +1,87 @@
-# María Fernández de Córdoba Martos, CEO of Grupo EULEN in USA, Featured on the Cover of Ejecutiva Magazine
+# Real-World Weight Journeys: Exploring Health Experiences to Improve Care
 
-MIAMI, FL — November 17, 2026 — (NOTICIAS NEWSWIRE) — María Fernández de Córdoba Martos, CEO of Grupo EULEN in the United States, is featured on the cover of Ejecutiva Magazine, a publication specializing in business leadership, innovation, and entrepreneurship, which dedicates an exclusive interview to her career, her strategic vision, and the challenges of leading an international organization in a highly competitive market.
+NEW YORK, NY — November 17, 2026 — (NOTICIAS NEWSWIRE) — A number on a scale tells only part of the story. Living well is also about having energy, feeling your best and enjoying a good quality of life. Yet each person’s path is different, and lifestyle changes, medicines and other approaches to managing weight can affect health in different ways.
 
- In the interview, the executive analyzes how technological transformation, operational efficiency, and human talent management are redefining the future of business services in the United States.
+ No two weight-management journeys look the same. Some people are taking their first steps toward healthier habits. Others are balancing health conditions, caring for family members, coping with stress or exploring new treatment options. Along the way, they may find support that helps them succeed or encounter obstacles that make progress more difficult.
 
- Fernández de Córdoba Martos emphasizes that the outsourcing of services has evolved significantly and that companies are currently seeking strategic partners capable of guaranteeing operational continuity, quality, and responsiveness.
+ These stories provide valuable insights into what it takes to improve health in everyday life.
 
- “We are moving from being a service provider to being a strategic partner, capable of adapting every day to our clients’ needs with flexibility and a high degree of specialization,” she stated.
+ That’s the idea behind the American Heart Association’s Healthy Living BEYOND Weight Study. By learning directly from adults across the country, researchers aim to better understand the challenges, motivations and factors that shape weight and health outcomes over time. The goal is to generate insights that can help improve support, inform care and empower more people to live healthier lives.
 
- Technology and human talent
+ What Factors Influence Weight
 
- One of the main pillars of her management is the incorporation of advanced technology, automation, collaborative robotics, and data analysis to improve the efficiency and quality of services.
+ Nearly 1 in 3 U.S. adults are overweight and 2 in 5 are obese, according to the National Institutes of Health. Weight is shaped by many factors, including:
 
- As she explained, these tools make it possible to anticipate needs, optimize resources, and offer solutions adapted to the characteristics of each operation.
+ * Genetics and hormones
+* Access to healthy food, safe places to exercise and healthcare
+* Chronic stress and mental health
+* Medications and metabolism
+* Community conditions, as where you live can influence your ability to live a healthy life
 
- “Technology is our co-pilot,” said the executive, who believes that innovation should complement workers’ capabilities rather than replace the value of the human factor.
+ How Joining a Study Can Make a Difference
 
- Under this philosophy, Grupo EULEN seeks to strengthen its position as a strategic partner for companies that need to guarantee operational continuity, safety, and quality standards.
+ Led by the American Heart Association, the Healthy Living BEYOND Weight Study is open to U.S. adults with a BMI of 25 or higher, including those who have tried lifestyle changes, weight-management medicines or weight-loss surgery. By sharing information about their health and daily lives, participants can help researchers better understand how to improve care.
 
- The future of airport services
+ Interest in newer weight-loss medicines, such as GLP-1s, has grown rapidly. While these treatments are helping many people, researchers are still learning about their long-term effects and how they fit into everyday life. People who currently use or previously used a GLP-1 may be eligible to participate and help generate insights that could improve care for others.
 
- The aviation industry occupies a prominent place among Grupo EULEN’s activities in the United States.
+ Reasons to Join This Study
 
- Fernández de Córdoba Martos explained that airport services require high levels of training, supervision, and precision, especially in a context where passenger expectations and operational demands continue to evolve.
+ By joining this study, participants can help researchers better understand the long-term impact of treatments, identify what helps people succeed and uncover the challenges they face along the way. The information they share can help fill important gaps in research, shape better and more compassionate care and guide future health recommendations.
 
- “In aviation, excellence is not a goal; it is the standard,” she stated.
+ According to the Pew Research Center, 31% of U.S. adults report they’re online “almost constantly.” The study is conducted entirely online, making participation convenient and easy. It can be completed from home on a schedule that works best for each participant.
 
- The company is committed to integrating people, processes, and technology to improve the traveler experience, while maintaining safety and efficiency as fundamental priorities.
+ Consider these reasons to participate:
 
- You can read the full interview with María Fernández de Córdoba Martos at the following link:
+ * Your story matters. By participating, you may help build knowledge that can improve care, guide health recommendations and help people live healthier lives.
+* It’s easy. The study is conducted entirely online, making it simple to join and stay involved at your own pace.
+* It’s safe and respectful. All data is collected with your informed consent, protected by privacy safeguards and handled according to rigorous ethical and scientific standards.
+* You won’t be alone. Millions of people are navigating weight and health challenges. By sharing your journey, you can help researchers better understand what works, what support is needed and how to shape better and more compassionate care for others.
 
- MARÍA FERNÁNDEZ DE CÓRDOBA MARTOS: A NEW VISION OF LEADERSHIP | Ejecutiva Magazine
+ Learn more and consider signing up at Heart.org/GoBeyond.
 
- About Ejecutiva Magazine Journalist Eduardo Hapke partnered with attorney Karen Blanco, and together they created Ejecutiva Magazine in 2013, the only Spanish-language business magazine in South Florida focused on businesswomen. The magazine is published monthly and distributed throughout South Florida. The magazine also has its website, www.ejecutivamagazine.com, which features daily news updates and extensive content distribution across social media.
+ Photo courtesy of Shutterstock Feature Impact Source: American Heart Association
 
- Ejecutiva Magazine is also distributed through PressReader, a digital platform that features 7,000 publications worldwide. Hotels and companies have access to this news platform.
-
- Ejecutiva Magazine is also published on the platform www.heyzine.com, where the complete publication can be viewed online.
-
- Ejecutiva Magazine is part of the media group Acta Diurna Urbis Group Corp., based in Miami, Florida, which also publishes Negocios Magazine, Welcome to America, Salud & Buen Vivir Florida, Hispanic Time, and Hispanic Time: Electric Cars Plus.
-
- You can follow the interviews and news published in Ejecutiva Magazine through its social media channels on Facebook, Instagram, and LinkedIn.
-
- Instagram: @ejecutivamagazine Facebook: https://www.facebook.com/ejecutivamagazine X: @EjecutivaMa LinkedIn: Eduardo Hapke
-
- CONTACT: Karen Blanco 786-607-9355 karen@ejecutiva.us 
+ CONTACTO: Sarah Fowler 913-647-0938 sarah.fowler@featureimpact.com 
 
 ---
 
-[Original/Source Press Release](https://www.noticiasnewswire.com/maria-fernandez-de-cordoba-martos-featured-on-ejecutiva-magazine/)
+[Original/Source Press Release](https://www.noticiasnewswire.com/real-world-weight-journeys/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/grupo-eulen-ceo-maria-fernandez-de-cordoba-martos-graces-ejecutiva-magazine-cover/742d0fb10ba7109f179f2b6bc807b83d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-launches-online-study-on-weight-management/0ca34b37081f8e99e8056a19512b1aea) 
 
+
+Pickup - [https://advos.io/en](https://advos.io/en/american-heart-association-study-seeks-real-world-weight-journeys-to-improve-care)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/american-heart-association-study-seeks-real-world-weight-journeys-to-improve-care)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/american-heart-association-study-seeks-real-world-weight-journeys-to-improve-care)
+
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/american-heart-association-study-seeks-real-world-insights-from-texans-on-weight-and-health)
+
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/un-estudio-de-la-american-heart-association-busca-perspectivas-del-mundo-real-de-los-tejanos-sobre-el-peso-y-la-salud)
+
+Pickup - [https://burstable.news](https://burstable.news/news/american-heart-association-study-seeks-real-world-insights-on-weight-management)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/studie-der-american-heart-association-sucht-erkenntnisse-aus-der-praxis-zum-gewichtsmanagement)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/un-estudio-de-la-american-heart-association-busca-perspectivas-del-mundo-real-sobre-el-manejo-del-peso)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/une-etude-de-lamerican-heart-association-cherche-a-obtenir-des-informations-concretes-sur-la-gestion-du-poids)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/estudo-da-american-heart-association-busca-insights-do-mundo-real-sobre-controle-de-peso)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/american-heart-association-study-seeks-real-world-weight-journeys-to-improve-care)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/news/american-heart-association-study-seeks-real-world-weight-journeys-to-improve-care)
+
+Pickup - [https://health.in-focus.news/health-news](https://health.in-focus.news/health-news/american-heart-association-launches-online-study-to-capture-real-world-weight-journeys)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/17/american-heart-association-study-seeks-real-world-weight-journeys-to-reshape-care/)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/17/hintqJ_T.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/2611/17/renduFL4.webp)
