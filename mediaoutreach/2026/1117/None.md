@@ -1,44 +1,66 @@
-# From Thai Flavors to Global Markets: DITP Brings Thai SELECT Festival to Los Angeles
+# A decade of changing cameras and personal perspectives at the 2026 XMAGE Awards in Paris
 
-LOS ANGELES, US - [Media OutReach Newswire](https://www.media-outreach.com/) - 17 November 2026 - The Department of International Trade Promotion (DITP), Ministry of Commerce, will host Thai SELECT Festival Los Angeles 2026 on November 22 at The Pavilion, Century Park, as part of its ongoing efforts to promote authentic Thai cuisine and strengthen the presence of Thai restaurant businesses in international markets. The initiative aims to raise awareness of Thai SELECT-certified restaurants, encourage greater interest in Thai food, and support opportunities for Thailand's food industry in the United States.    Her Royal Highness Princess Ubolratana Rajakanya Sirivadhana Barnavadi will preside over the opening ceremony, underscoring the significance of the event in promoting Thai cuisine and the Thai SELECT certification on the international stage. The United States remains a key market for Thailand's food industry, both in terms of food exports and Thai restaurant businesses overseas. The festival provides an opportunity to strengthen consumer awareness of authentic Thai cuisine while supporting the visibility of Thai food businesses in the U.S. market.   This year's festival, held under the theme "A Full Moon of Thai Tastes," draws inspiration from Loy Krathong, one of Thailand's most celebrated traditional festivals. The concept highlights the close connection between Thai cuisine and cultural heritage, reflecting how food plays an essential role in Thai celebrations, traditions, and everyday life.   The festival will feature 14 Thai SELECT-certified restaurants from Southern California, showcasing the diversity of Thai cuisine through traditional dishes, regional specialties, and contemporary interpretations. While internationally recognized favorites such as pad Thai, green curry, and tom yum remain popular, the event also aims to introduce audiences to the wider variety of flavors, ingredients, and culinary traditions found across Thailand's four regions.   Thai SELECT is an official certification mark awarded by Thailand's Ministry of Commerce to recognize authentic Thai restaurants and qualifying Thai food products. Through its continued promotion of Thai SELECT, DITP supports Thai restaurants overseas, strengthens consumer confidence in Thai cuisine, and encourages greater recognition of Thai food products and ingredients in international markets.   Beyond their role as food businesses, Thai SELECT restaurants also serve as cultural ambassadors, introducing international consumers to Thailand's culinary heritage and traditions. By promoting these establishments, DITP aims to increase their visibility in the U.S. market while supporting broader opportunities for Thai food businesses and related industries.   The festival will also feature Thai cultural activities and performances by Thai actors Keng Harit and Namping Napatsakorn, bringing together food, culture, and entertainment to engage a wider audience.   Through Thai SELECT Festival Los Angeles 2026, DITP continues its commitment to promoting Thai cuisine as part of Thailand's international trade promotion efforts, strengthening the recognition of Thai SELECT, and supporting the long-term growth of Thai food businesses in overseas markets.   Hashtag: #DITP #ThaiSELECTThe issuer is solely responsible for the content of this announcement. 
+PARIS, FRANCE – [Media OutReach Newswire](https://www.media-outreach.com/) – 17 November 2026 - Ali Al Arbash's "Light & Shadow Across France" is among the works featured in "A Heartwarming World," an exhibition that opened Nov. 11 at the Grand Palais alongside the 2026 Huawei XMAGE Awards. Presented in collaboration with Paris Photo, it explores relationships between people, nature and their surroundings and includes a decade-long mobile photography retrospective.    Huawei said the competition received 820,000 entries, with judges selecting 100 works and naming three grand prize winners: Ali Al Arbash, Chinese photographer Wanyouyinli, and DGMai.    Speaking at the awards ceremony, Alex Huang, CMO of Huawei Consumer Business Group, highlighted the competition's milestone. "Over the past decade, we have grown alongside global creators, building an open, diverse, and heartwarming global community where people and stories connect through images".   Awards final jury Liu Heung Shing singled out Ali Al Arbash's knowledge of Paris and his use of light. The photograph of the girl amid bubbles and families, Liu noted, showed the trained eye needed to catch a passing moment.   The exhibition's retrospective pairs photographs with camera components from the past decade. Liu pointed to the freedom of carrying less equipment, noting a phone-and-lens setup reduces the need for multiple cameras. But the photographer still needs an idea: "Technology enables the user to be more creative if you have the vision".   For Wanyouyinli, experience has changed what he wants to photograph. "As I've grown older and gained more life experience, I've shifted my focus toward humanistic and documentary-style photography."   In his winning work, "Gaze Across Time and Space," ancient stone figures stand beneath a thin contrail. Wanyouyinli described waiting for the object crossing the sky to reach the right position before taking the picture, bringing the traces of two different eras into one black-and-white frame. Looking ahead, he wants to make photographs rooted in daily life that resonate with audiences.   "I hope that by engaging with my work, viewers are prompted to reflect and perhaps form their own associations," Wanyouyinli said.   As camera technology continues to evolve, those associations, much like the everyday moments captured by this year's winners, will give the next generation entirely new ways to capture and share their world.   Hashtag: #HuaweiThe issuer is solely responsible for the content of this announcement. 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/thailand/2026/11/17/501987/)
+[Original/Source Press Release](https://www.media-outreach.com/news/china/2026/11/17/501769/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thai-select-festival-la-2026-a-full-moon-of-thai-tastes/ca60fcedf129fffe0fe94b04225c3ac0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huawei-xmage-awards-showcases-mobile-photography-at-grand-palais/3b1022ee32ab391fc99f16dc2590be2c) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/from-thai-flavors-to-global-markets-ditp-brings-thai-select-festival-to-los-angeles)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/a-decade-of-changing-cameras-and-personal-perspectives-at-the-2026-xmage-awards-in-paris)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/17/huawei-xmage-awards-mark-a-decade-of-mobile-photography-with-paris-exhibition/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/huawei-xmage-awards-mark-decade-of-mobile-photography-with-paris-exhibition)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/huawei-xmage-awards-mark-a-decade-of-mobile-photography-evolution)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/huawei-xmage-awards-mark-decade-of-mobile-photography-with-paris-exhibition)
+
+Pickup - [https://burstable.news](https://burstable.news/news/huawei-xmage-awards-mark-decade-of-mobile-photography-with-paris-exhibition)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/huawei-xmage-awards-feiern-ein-jahrzehnt-der-mobilfotografie-mit-pariser-ausstellung)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/los-premios-xmage-de-huawei-celebran-una-decada-de-fotografia-movil-con-una-exposicion-en-paris)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/les-huawei-xmage-awards-celebrent-une-decennie-de-photographie-mobile-avec-une-exposition-a-paris)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/premios-huawei-xmage-marcam-uma-decada-de-fotografia-movel-com-exposicao-em-paris)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/huawei-xmage-awards-mark-a-decade-of-mobile-photography-at-paris-photo)
+
+Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/huawei-xmage-awards-highlight-decade-of-mobile-photography-evolution)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/17/quayFWvj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/17/beanx95D.webp)

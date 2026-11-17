@@ -1,71 +1,109 @@
-# ORGANA Looks Ahead to 30 Years of Natural Wellness
+# Featured Adds 18,580 Ghost Publications So PR Professionals Can Find and Pitch Them by Topic
 
+Featured, the AI co-pilot for PR, has added 18,580 Ghost publications to Find Independent Writers, the search inside Featured's chat that lets PR professionals and subject-matter experts find newsletter writers by topic in plain language, see who they are and how to reach them, and draft a pitch from the same screen. A user types a request such as "find Ghost newsletters that cover cybersecurity," reviews the matching publications with their authors, topics, contact routes, and linked social accounts, then clicks Draft Pitch to get a starting draft to edit before sending. Results download as a CSV.
 
-As ORGANA International approaches the 30th anniversary of its founding in 2027, the Utah-based natural wellness company is reflecting on how its business has evolved from an original focus on plant-derived minerals into a broader portfolio of natural wellness products.
+ Ghost is the open-source publishing platform run by the nonprofit Ghost Foundation, and it hosts independent newsrooms such as 404 Media, Platformer, The Lever, and Tangle alongside thousands of solo newsletters. Ghost said in its 6.0 release in August 2025 that publisher earnings on the platform had passed $100 million. Muck Rack's State of Journalism 2026 survey found that 37% of journalists now publish independently under their own name or brand. Unlike a Substack, a Ghost publication usually looks like a small newsroom: its own domain, a masthead, and a contact page. Finding the right one for a story has still meant checking sites one at a time. Find Independent Writers is built for that one task.
 
- Founded in 1997, ORGANA began with a vision of developing mineral products using naturally derived ingredients and manufacturing processes intended to preserve their original characteristics.
+ "Ghost publications are the closest thing the independent web has to a newsroom, and they should be pitched like one," said Brett Farmiloe, founder and CEO of Featured. "Most of them publish a contact page, nearly half publish an email address, and a third have more than one writer on the masthead. That means the old rules apply: find the three publications that already cover your subject, read what they wrote last week, and write to the person whose name is on it. Relevance over volume is the whole product."
 
- Nearly three decades later, the company has expanded its product offerings, invested in in-house manufacturing, and established an online retail presence through Amazon and OneLavi.
+ What the data shows about 18,580 Ghost publications
 
- "Thirty years is an important milestone for any company, but what matters most is what you've learned and how you've continued to evolve," said Larry Mills, CEO of ORGANA International. "Our products and the wellness marketplace have changed over the years, but our commitment to natural ingredients, quality, and our customers remains central to who we are."
+ Featured analyzed the Ghost publications in its Find Independent Writers database as of October 2026. The full method and tables are published at press.featured.com/research/the-state-of-ghost-for-pr.
 
- From Plant-Derived Minerals to a Broader Wellness Portfolio ORGANA's origins trace to founder Sam Curtis, whose early work focused on developing a mineral drink using naturally occurring mineral sources and processing methods that avoided harsh chemical treatments.
+ * 87.4% publish on their own custom domain, and 83.3% publish a contact page.
+* 45.4% publish a contact email address, compared with 6.4% of beehiiv newsletters and 1.5% of Substack publications in the same database.
+* 64.1% publish a social web handle, a Ghost feature that lets readers follow the publication from Mastodon, Bluesky, and other federated networks.
+* 95.4% published in the last 90 days, and 33.5% published 12 or more times in the last 90 days, roughly weekly or more.
+* 65.4% of the 18,409 publications with a dated first post published it in 2024 or later, and 40.8% published it within the last 12 months.
+* 24.7% offer paid subscriptions, and among the 3,290 that list a monthly price, the median is $5.
+* 22.5% publish in a language other than English, led by German, French, and Spanish.
+* Among the 18,108 publications with a category tag, the largest categories are technology (14.1%), personal (13.8%), business (10.4%), news (8.8%), programming (4.8%), and finance (4.5%). A publication can carry more than one category, so category shares add to more than 100%.
 
- That original emphasis on mineral sourcing and product preparation helped establish the company's approach to natural wellness.
+ "Two thirds of these publications are less than three years old," Farmiloe added. "A newsroom that launched in 2025 is still building its source list, and it publishes the address to send to. The pitch that wins is the one that reads their last three posts and offers something those posts were missing."
 
- Over time, ORGANA expanded beyond its original mineral formulations.
+ At featured.com, a user types a request such as "find Ghost publications that cover climate policy." Featured returns a card for each matching publication with its author, description, topic tags, website, contact route where the publication publishes one, and linked social accounts. Clicking Draft Pitch produces a starting draft that the user edits before sending, and results download as a CSV. Find Independent Writers also covers Substack, beehiiv, and Medium, and a user can search all four platforms at once by leaving the platform name out of the request. Independent writer discovery is included in every Featured plan, including the free plan, and no login or setup is required to run a first search.
 
- Today, the company's portfolio includes Fulvic Acid Trace Mineral Drink, Liquid Oxygen, Essiac Tea, magnesium creams, and its newer Mineral Shots, packaged in a colorful point-of-purchase display for retail merchandising.
+ About Featured
 
- The expansion reflects ORGANA's efforts to offer consumers different product formats while maintaining its longstanding interest in natural ingredients.
+ Featured is the AI co-pilot for PR, a platform that helps PR professionals and subject-matter experts land media placements, build brand authority, and grow AI visibility. The company owns and operates HARO (Help a Reporter Out) and Connectively as standalone products within its portfolio. Learn more at featured.com.
 
- "Our original mineral products helped establish ORGANA, but we've never believed that a company should stop evolving," Mills said. "We've continued developing our portfolio while staying connected to the principles that helped build the business."
+ Press Inquiries
 
- A Changing Natural Wellness Marketplace Since 1997, the way consumers discover, research, and purchase wellness products has changed dramatically.
+ Brett Farmiloe
 
- Online marketplaces, digital product information, and growing access to ingredient research have created new opportunities for consumers to evaluate products and compare brands.
+ Email Contact
 
- For established companies such as ORGANA, those changes have also increased the importance of communicating a clear brand identity.
+ https://featured.com
 
- ORGANA has emphasized consumer education through discussions of soil health, nutrient density, plant-derived minerals, and the role of everyday habits in maintaining a balanced lifestyle.
+ 
 
- The company sees these educational efforts as an important part of introducing its history and philosophy to consumers who may be discovering ORGANA for the first time.
+ Terkel, Inc. (dba Featured)
 
- "Consumers have access to more information and more product choices than ever before," Mills said. "We believe it's important to explain who we are, where our products come from, and what goes into making them. Building trust requires more than introducing another product."
+ 7014 E Camelback Rd, Suite B100A
 
- Maintaining Quality as the Company Evolves Another part of ORGANA's development has been its commitment to in-house manufacturing.
-
- The company manufactures its products internally and follows Good Manufacturing Practice (GMP) procedures as part of its approach to production oversight and consistency.
-
- For ORGANA, maintaining control over manufacturing is one way to preserve continuity as its portfolio and distribution opportunities expand.
-
- The company recently highlighted its in-house manufacturing operations as part of its broader effort to communicate the practices behind the ORGANA brand.
-
- "Growth is important, but so is maintaining the standards that have guided the company," Mills said. "As we look toward our next chapter, we want to continue building ORGANA in a way that reflects our history and our commitment to quality."
-
- Looking Toward the Next Chapter ORGANA's approaching 30th anniversary comes as the company continues expanding awareness of its products in the United States.
-
- Its products are available through Amazon and OneLavi, and the company recently participated in the ECRM Vitamin, Weight Management & Sports Nutrition Session as part of its efforts to develop additional retail relationships.
-
- As 2027 approaches, ORGANA plans to continue emphasizing its history, manufacturing practices, natural ingredients, and consumer education while exploring opportunities to reach new customers.
-
- "For us, the next chapter is about building on the foundation that has been established over nearly 30 years," Mills said. "We want more people to understand the ORGANA story, discover our products, and recognize the principles that have guided this company since the beginning."
-
- About [ORGANA International](https://organa.net/) Founded in 1997, ORGANA International is a wellness company committed to delivering natural, bioavailable products that help people live healthier lives. From trace minerals and liquid oxygen to magnesium creams and detoxification teas, ORGANA’s product line is designed to restore vital elements often missing in modern lifestyles. Headquartered in Springville, Utah, ORGANA is a customer-first company with a 5-star BBB rating and nearly three decades of dedication to natural wellness.
-
- FDA DisclaimerThese statements have not been evaluated by the Food and Drug Administration. This product is not intended to diagnose, treat, cure, or prevent any disease. 
+ Scottsdale, AZ 
 
 ---
 
-[Original/Source Press Release](https://newsworthy.ai/news/202611173191/organa-looks-ahead-to-30-years-of-natural-wellness)
+[Original/Source Press Release](https://newsworthy.ai/news/202611173190/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/organa-international-nears-30-years-of-natural-wellness-innovation/265268966eb794def82435bce0ad2bfc) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/featured-adds-18580-ghost-publications-to-find-independent-writers/e1c700ac686e149b7d29d2692751a13c) 
 
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/newsworthy/featured-adds-18580-ghost-publications-so-pr-professionals-can-find-and-pitch-them-by-topic)
+
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/17/featured-adds-18580-ghost-publications-to-pr-search-tool-revealing-contact-data-gap/)
+
+Pickup - [https://advos.io/en](https://advos.io/en/featured-adds-18580-ghost-publications-to-pr-pitch-database)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/featured-adds-18580-ghost-publications-to-its-pr-search-tool-targeting-independent-newsrooms)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/featured-adds-18580-ghost-publications-to-its-pr-search-tool-making-independent-newsrooms-pitchable-by-topic)
+
+Pickup - [https://burstable.news](https://burstable.news/news/featured-adds-18580-ghost-publications-to-its-pr-search-tool-enabling-topic-based-pitching)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/featured-fugt-18580-ghost-publikationen-zu-seinem-pr-suchtool-hinzu-und-ermoglicht-themenbasiertes-pitchen)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/featured-anade-18580-publicaciones-de-ghost-a-su-herramienta-de-busqueda-de-pr-lo-que-permite-pitches-basados-en-temas)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/featured-ajoute-18-580-publications-ghost-a-son-outil-de-recherche-pr-permettant-des-pitchs-par-thematique)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/featured-adiciona-18580-publicacoes-ghost-a-sua-ferramenta-de-busca-de-rp-permitindo-pitch-baseado-em-topicos)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/featured-adds-18580-ghost-publications-to-its-pr-discovery-tool)
+
+Pickup - [https://news.trinzik.ai/frontier-tech-news](https://news.trinzik.ai/frontier-tech-news/featured-adds-18580-ghost-publications-to-its-ai-powered-pr-search-tool)
+
+Pickup - [https://newscrafters.com](https://newscrafters.com/article/david-mcinnis/revolutionizing-pr-strategy-with-featured-s-ghost-publication-database)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/17/fern9TKB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2611/17/poem15zI.webp)

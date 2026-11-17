@@ -1,78 +1,88 @@
-# FWD and Junior Achievement Inspires Over 60,000 Students in Asia to Dream big With Financial Literacy
+# NAVRA and tZERO Partner to Bring Real-Time Collateral Mobility to Qualified Custody
 
-JA SparktheDream Social Challenge 2026 Champions Announced as Young People From Seven Asian Markets put Financial Education Into Practice for Community Needs
+tZERO’s Qualified Custody Technology Will Support Regulated Assets Held by Institutional Investors Using NAVRA, With Compliance Rules Governing the Approval and Release of Every Transfer in Near Real Time
 
- HONG KONG - November 16, 2026 (NEWMEDIAWIRE) - FWD Group Holdings Limited (“FWD Group” or “FWD”) named the winners of the JA SparktheDream Social Challenge 2026 Asia Pacific Finals on Friday, as its financial literacy programme, JA SparktheDream, operated by Junior Achievement (“JA”) reached the milestone of bringing financial education to 60,000 students across Asia.
+ NEW YORK, NY and LAS VEGAS, NV - November 17, 2026 (NEWMEDIAWIRE) - NAVRA, the platform connecting traditional finance to blockchain markets, and tZERO Group, Inc., a leading regulated digital asset infrastructure platform, together with its SEC-registered broker-dealer, which serves as a qualified custodian, today announced a partnership under which tZERO will provide qualified custody services for regulated digital asset securities held by institutional investors using NAVRA's multi-party computation (MPC) wallet, starting with securities issued on Provenance Blockchain.
 
- ![](http://newmediawire.s3.amazonaws.com/6afbaf90da846f52982a9f74_1)
+ NAVRA's wallet splits signing authority across independent policy nodes that enforce approval rules at the key layer: who can transact, at what size and with which counterparties, all with a supporting audit trail. tZERO’s qualified custodian will assume possession of digital assets for participating users and serve as the independent release gate for all assets in its custody. Once a transaction carries the approvals required by the asset owner, tZERO’s policy-based authorization feature enables its institutional clients to verify the exact transaction, destination, and amount, and releases it. No asset leaves the wallet without meeting an investor’s policy requirement and, then, the approval of tZERO’s qualified custodian.
 
- The JA SparktheDream Social Challenge is an annual showcase that gives students a chance to put what they have learned into practice. The finals brought together 14 teams from seven markets: Hong Kong SAR, Indonesia, Japan, Malaysia, the Philippines, Singapore and Thailand. Judges assessed the projects on social relevance, innovation and creativity, solution feasibility, and passion and persuasion.
+ "As more registered securities move onchain, holders need qualified custody solutions that support near real-time collateral mobility,” said Mike Cagney, CEO of NAVRA. “With tZERO, qualified custody stops being the reason collateral can’t move.”
 
- Team EcoSpark from Manito Central School, Albay in the Philippines took first place with “Ecocycle Saving Hub”, an initiative that transforms waste into resources while promoting sustainability and supporting the local community. Second place went to Team Colsafearn from SMK Pantai Sepang Putra, Selangor in Malaysia, with Team Finshield from SMP Nation Star Academy, Surabaya in Indonesia awarded third place.
+ With NAVRA’s solution, tZERO's qualified custodian can operate in near real time, with appropriate check points, so custody no longer immobilizes collateral. A fund can pledge a digital bond, draw financing against it, meet a margin call, or settle delivery-versus-payment within minutes.
 
- Cathy Knezevic, Group Chief Corporate Affairs Officer, FWD Group, said, “Congratulations to all the finalists. These students remind us that when a young person cares about something and has the knowledge and encouragement to act, they can help their communities grow. Financial literacy gives young people the confidence to make informed choices, plan ahead and dream big. Together with our partners at JA, we’re proud to help more young people across Asia build the skills and self-belief to shape their futures and celebrate living.”
+ “Institutional onchain custody is a critical gating item for at-scale development of tokenized securities,” said Alan Konevsky, CEO of tZERO. “As part of our infrastructure offering, we are thrilled to partner with Mike and the NAVRA team to bring together distributed key management, policy-based authorization and qualified custodian know-how for a more practical approach to institutional self-custody.”
 
- ![](http://newmediawire.s3.amazonaws.com/6afbaf90da846f52982a9f74_2)
+ The service will be available to NAVRA's institutional and white label clients.
 
- Now in its fifth year, JA SparktheDream combines financial education with social and life skills. Through interactive games, digital activities and classroom sessions supported by FWD volunteers, students learn about money while building skills they can use beyond the classroom.
+ Media ContactsNAVRARichard BagshawHead of Marketingpress@navra.com
 
- Dr Vivek Kumar, President and Chief Executive Officer of JA Asia Pacific, said, “One of the greatest investments we can make is in the potential of young people. At JA, we see every day how financial capability, entrepreneurial thinking and real world learning empower learners to become changemakers in their communities. Together with FWD, the JA SparktheDream Social Challenge provides a platform where learners across Asia Pacific can turn purpose into action, demonstrating that one idea, backed by knowledge, confidence and collaboration, can make a meaningful difference.”
+ tZEROJulie RosSVP, Head of Marketing & Communicationsmarketing@tzero.com
 
- Since 2022, JA SparktheDream has reached over 60,000 students in 370 schools, involved more than 1,500 FWD volunteers, and expanded beyond financial literacy to include broader themes of financial inclusion, social responsibility, wellbeing and community engagement, preparing students to meet the future with confidence. Among surveyed participants, an average of 88 per cent gained an understanding of money's role in daily life, while 81 per cent developed a greater awareness of community needs.
+ About NAVRA
 
- ![](http://newmediawire.s3.amazonaws.com/6afbaf90da846f52982a9f74_3)
+ NAVRA is the bridge between traditional finance and blockchain. Its mobile and desktop app gives individuals and institutions a single intuitive interface to curated onchain venues, with access to DeFi yield, new trading markets, an embedded AI agent and keyless self-custody. Institutions have enterprise wallet management with role-based controls, qualified custody, full audit trails and data-integration with administration and accounting. The same platform powers white label offerings for partners as modules or as a standalone app. NAVRA was started by Mike Cagney, co-founder of SoFi and Figure, and is headquartered in Las Vegas. For more information, visit navra.com.
 
- FWD and JA first piloted JA SparktheDream in Hong Kong SAR and Singapore in 2022. The programme has since been recognised with a Silver Award in the 2023 Investor and Financial Education Awards from the Investor and Financial Education Council in Hong Kong SAR; a Bronze Stevie Award at the Asia-Pacific Stevie Awards 2024 for Innovative Achievement in Corporate Social Responsibility in the Philippines; and a Special Mention in the 2024 Bisnis Indonesia Corporate Social Responsibility Awards in Indonesia.
+ About tZERO Group, Inc.
 
- About FWD Group
+ tZERO Group, Inc. (tZERO) and its broker-dealer subsidiaries provide an innovative liquidity platform for private companies and assets. We offer institutional-grade solutions for issuers looking to digitize their capital table through blockchain technology, and make such equity available for trading on an alternative trading system. tZERO, through its broker-dealer subsidiaries, democratizes access to private assets by providing a simple, automated, and efficient trading venue to broker-dealers, institutions, and investors. All technology services are offered through tZERO Technologies, LLC. For more information, please visit our website.
 
- FWD Group (1828.HK) is a pan-Asian life and health insurance business that serves over 40 million customers across 10 markets, including BRI Life in Indonesia. FWD’s customer-led and tech-enabled approach aims to deliver innovative propositions, easy-to-understand products and a simpler insurance experience. Established in 2013, the company operates in some of the fastest-growing insurance markets in the world with a vision of changing the way people feel about insurance. FWD Group is listed on the Hong Kong Stock Exchange under the stock code 1828.
+ About tZERO Digital Asset Securities, LLC
 
- For more information, please visit www.fwd.com
+ tZERO Digital Asset Securities, LLC is a broker-dealer registered with the SEC and a member of FINRA and SIPC. It is the broker-dealer custodian of all digital asset securities custody solutions offered by tZERO. Digital asset securities may not be “securities” as defined under the Securities Investor Protection Act (SIPA)-and in particular, digital asset securities that are “investment contracts” under the Howey test but are not registered with the Securities and Exchange Commission are excluded from SIPA’s definition of “securities”-and thus the protections afforded to securities customers under SIPA may not apply. More information about tZERO Digital Asset Securities may be found on FINRA’s BrokerCheck.
 
- For media inquiries, please contact: groupcommunications@fwd.com
+ tZERO Investor Notice
 
- About JA Asia Pacific
+ Digital asset securities, derivatives, as well as any particular investment, may not be suitable or appropriate for everyone. Investors should note that investing or trading in securities, futures, options, swaps, and event contracts could involve substantial risks, including no guarantee of returns, costs associated with selling and purchasing, and holding positions, and no assurance of liquidity which could impact their price and investor’s ability to sell, enter or exit a position, and possible loss of principal invested, including the possibility of losing more than your initial investment where leverage or margin is involved. There are also unique risks specific to digital assets, including, without limitation, fraud, manipulation, theft, and loss.
 
- Junior Achievement (JA) was founded in 1919 to help bridge the gap between classrooms and workplaces. JA delivers hands-on learning in work readiness, financial health, entrepreneurship, STEM, sustainability and related areas. JA Worldwide delivers more than 23 million learning experiences each year in over 100 countries and has been nominated for the Nobel Peace Prize every year since 2022.
+ Futures, options, swaps, and event contracts carry additional risks specific to derivatives, including, without limitation, the potential for rapid and substantial losses due to leverage, the risk that a position cannot be closed at a favorable price or at all, and, with respect to event contracts specifically, the risk that a contract's terms, settlement, or continued listing may be affected by evolving regulatory requirements, including determinations by the Commodity Futures Trading Commission as to whether an event contract may be listed or must be delisted.
 
- In 2026, JA Asia Pacific reached more than seven million youth across 14 markets and engaged more than 90,000 teachers and volunteers in the region.
+ This notice is a general summary and does not describe every risk associated with these products. Before trading futures, options, swaps, or event contracts, you should review the applicable CFTC risk disclosure statement furnished to you at account opening, which is a distinct, regulation-required document and is not superseded or replaced by this notice.
 
- Learn more about us here: www.jaasiapacific.org
+ tZERO No Offer, Solicitation, Investment Advice or Recommendations
 
-View the original release on www.newmediawire.com 
+ This release is for informational purposes only and does not constitute an offer to sell, a solicitation to buy, or a recommendation for any security, future, option, swap, or event contract, nor does it constitute an offer to provide investment advisory or other services by tZERO or any of its affiliates, subsidiaries, officers, directors or employees or an opinion as to the suitability of any such product for any particular person. In preparing the information contained in this release, we have not taken into account the investment needs, objectives, risk tolerance and financial circumstances of any particular investor and the products discussed may not be suitable for all investors or market participants. This release is not directed at, and is not intended for distribution to or use by, any person in any jurisdiction where such distribution or use would be contrary to applicable law or regulation. Any views expressed in this release by us were prepared based upon the information available to us at the time such views were written. Changed or additional information could cause such views to change. All information is subject to possible corrections. Information may quickly become unreliable for various reasons, including changes in market conditions, regulatory developments or economic circumstances.
+
+ Forward-Looking Statements by tZERO
+
+ This release contains forward-looking statements. In addition, from time to time, tZERO, its subsidiaries, or its representatives may make forward-looking statements orally or in writing. These forward-looking statements are based on expectations and projections about future events, which is derived from currently available information. Such forward-looking statements relate to future events or future performance, including financial performance and projections; growth in revenue and earnings; and business prospects and opportunities. You can identify forward-looking statements by those that are not historical in nature, particularly those that use terminology such as “may,” “should,” “expects,” “anticipates,” “contemplates,” “estimates,” “believes,” “plans,” “projected,” “predicts,” “potential,” or “hopes” or the negative of these or similar terms. In evaluating these forward-looking statements, you should consider various factors, including, without limitation: the ability of tZERO and its subsidiaries to change the direction; tZERO’s ability to keep pace with new technology and changing market needs; performance of individual transactions; regulatory developments and matters; and competition. These and other factors may cause actual results to differ materially from any forward-looking statement. Forward-looking statements are only predictions. The forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or their respective representatives, may not occur, and actual events and results may differ materially and are subject to risks, uncertainties and assumptions. tZERO, its subsidiaries, and its representatives are not obligated to publicly update or revise any forward-looking statement, whether as a result of uncertainties and assumptions, the forward-looking events discussed in this release and other statements made from time to time by tZERO, its subsidiaries or its representatives might not occur. 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/fwd-and-junior-achievement-inspires-over-60-000-students-in-asia-to-dream-big-with-financial-literacy-7091362)
+[Original/Source Press Release](https://www.newmediawire.com/news/navra-and-tzero-partner-to-bring-real-time-collateral-mobility-to-qualified-custody-7091365)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fwd-and-ja-announce-ja-sparkthedream-social-challenge-2026-winners/7486b1ceacbd4001bacdb162593a364d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navra-and-tzero-partner-for-institutional-digital-asset-custody/38100a3da73848981a522266c7e9a182) 
 
 
-Pickup - [https://advos.io/en](https://advos.io/en/fwd-and-junior-achievement-reach-60000-students-in-asia-with-financial-literacy-programme)
+Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/17/navra-and-tzero-partner-to-unlock-real-time-collateral-mobility-for-tokenized-securities/)
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/fwd-and-jas-financial-literacy-programme-reaches-60000-students-across-asia)
+Pickup - [https://advos.io/en](https://advos.io/en/navra-and-tzero-partner-to-enable-real-time-collateral-mobility-for-tokenized-securities)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/fwd-and-jas-financial-literacy-programme-reaches-60000-students-winners-of-social-challenge-announced)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/navra-and-tzero-partner-to-enable-real-time-collateral-mobility-for-institutional-digital-assets)
 
-Pickup - [https://burstable.news](https://burstable.news/news/fwd-and-ja-reach-60000-students-in-asia-with-financial-literacy-as-ja-sparkthedream-social-challenge-2026-winners-announced)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/navra-and-tzero-partner-to-unlock-real-time-collateral-mobility-for-tokenized-securities)
 
-Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/fwd-und-ja-erreichen-60000-schuler-in-asien-mit-finanzbildung-gewinner-der-ja-sparkthedream-social-challenge-2026-bekannt-gegeben)
+Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/navra-and-tzero-partner-to-bring-real-time-collateral-mobility-to-qualified-custody)
 
-Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/fwd-y-ja-llegan-a-60000-estudiantes-en-asia-con-educacion-financiera-mientras-se-anuncian-los-ganadores-del-desafio-social-ja-sparkthedream-2026)
+Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/navra-y-tzero-se-asocian-para-llevar-la-movilidad-de-garantias-en-tiempo-real-a-la-custodia-calificada)
 
-Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/fwd-et-ja-atteignent-60-000-etudiants-en-asie-grace-a-leducation-financiere-et-annoncent-les-gagnants-du-ja-sparkthedream-social-challenge-2026)
+Pickup - [https://burstable.news](https://burstable.news/news/navra-and-tzero-partner-to-enable-near-real-time-collateral-mobility-for-tokenized-securities)
 
-Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/fwd-e-ja-alcancam-60000-estudantes-na-asia-com-educacao-financeira-enquanto-sao-anunciados-os-vencedores-do-ja-sparkthedream-social-challenge-2026)
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/navra-und-tzero-gehen-partnerschaft-ein-um-nahezu-echtzeit-sicherheitenmobilitat-fur-tokenisierte-wertpapiere-zu-ermoglichen)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/fwd-and-jas-sparkthedream-reaches-60000-students-winners-announced)
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/navra-y-tzero-se-asocian-para-permitir-la-movilidad-de-garantias-casi-en-tiempo-real-para-valores-tokenizados)
 
-Pickup - [https://news.longbeachdailynews.com/curated](https://news.longbeachdailynews.com/curated/fwd-and-junior-achievement-reach-60000-students-in-asia-with-financial-literacy-program)
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/navra-et-tzero-sassocient-pour-permettre-une-mobilite-de-collateral-quasi-en-temps-reel-pour-les-titres-tokenises)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/navra-e-tzero-firmam-parceria-para-permitir-mobilidade-de-garantias-quase-em-tempo-real-para-titulos-tokenizados)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/navra-and-tzero-partner-to-enable-near-real-time-collateral-mobility-for-tokenized-securities)
+
+Pickup - [https://news.yonkersdailynews.com/curated](https://news.yonkersdailynews.com/curated/navra-and-tzero-partner-to-unlock-collateral-mobility-for-tokenized-securities)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/17/losslp55.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/17/moonNr41.webp)

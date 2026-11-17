@@ -1,60 +1,55 @@
-# Buying a Waterfront Home on Lake Conroe, Texas? Check the Bulkhead and Boathouse First
+# Keller Williams Türkiye Opens Its Network To Global Partners At International MLS Forum In Istanbul
 
-Before you fall for a waterfront house on Lake Conroe, Texas, walk the shoreline. The bulkhead and the boathouse are the costliest parts of a lakefront property to fix, and replacing both can run hundreds of thousands of dollars. The other thing to settle first is what you want from the water, because lots around the lake differ widely in view, access and price.
+Ahmet Rauf Saatci, Regional Director of Keller Williams Türkiye, is attending the 4th International MLS Forum, November 16-17, 2026, at Raffles Istanbul in his home market of Istanbul, Türkiye. His goal is to put KW Türkiye’s agents in front of international buyers through the Global Data Exchange (GDX) and to open the firm to partners beyond the Keller Williams network.
 
- That is the advice of Wendy Welsh, a Lake Conroe area Realtor with Coldwell Banker Realty in Willis, Texas, who lives on the lake and has sold homes around it since 1992.
+ “Real estate is very local, and buyers are very global,” Saatci says. “So you need to have reliable data.”
 
- What should you decide before buying a waterfront home on Lake Conroe? Which matters more to you: the view, the water access or the house. “There’s a wide difference between a view and a location on a canal,” Welsh said. Buyers need to decide whether they want a big view or a canal location, more house or more water (a bigger view, a larger lot), and easy access to the water or a bigger home.
+ Saatci has worked in the industry, on and off, since 2005. At KW Türkiye, the Turkish arm of the global Keller Williams franchise, he runs most of the company’s growth and financial operations.
 
- “There’s a huge difference,” she said, which is why she starts every waterfront search with that conversation instead of a stack of listings.
+ He describes himself as “a number person,” and he leads with the size of the cross-border opportunity. In the past six months, he says, international buyers purchased about $1.3 billion worth of property in Türkiye. Last year, Turkish buyers spent about $2.7 billion on property abroad.
 
- The answer can widen the search. Buyers who care more about lake life than frontage can also consider homes in lake communities with shared amenities, golf course homes in communities such as Walden and April Sound, and larger home sites around Willis and Montgomery. Welsh’s guide to Lake Conroe communities compares them.
+ “The Turkish clients are our customers, and the international buyers want reliable, verifiable, comparable data that’s supported by a reliable real estate agent,” Saatci says. “This is where we can come in.”
 
- How do open water, cove and canal lots compare? Each frontage type trades view against price. Lake Conroe is a reservoir on the San Jacinto River, managed by the San Jacinto River Authority, and Texas Parks and Wildlife lists it at 20,118 acres. On a lake that size, two homes a few streets apart can have very different views.
+ How GDX Helps Buyers Trust A Market They Can’t See GDX is a federated network, built on data standards from RESO, the Real Estate Standards Organization, that lets MLSs (multiple listing services), associations, brokerages and technology providers share public listing data across borders. It is not a central database or a portal: each partner keeps ownership of its own listings and decides which partners can display them.
 
- * Open water. “Open water is by far the most desirable just because of the views,” Welsh said. Orientation matters too, since buyers often choose based on whether a home gets morning or evening sun.
-* Cove. A cove lot gives a nice view, though not as big as open water, along with good access to the main lake.
-* Canal. “The canal is a great way to afford to be on the water at a more affordable price,” she said.
+ For a buyer purchasing from abroad, Saatci says, four questions matter: is the price right, does the property exist, can I exit, and is my money safe. “You need to be confident that this data is right, because at the end of the day you’re not going to rent a car and drive by your property every now and then,” he says.
 
- Waterfront homes around the lake run from about $400,000 to several million dollars, according to Welsh, with the neighborhood, the view, the amenities and the square footage all shaping the price.
+ Shared standards are what make that confidence possible across languages and markets. “RESO has generated a good dictionary to translate everything. It’s a kind of conversion from Fahrenheit to Celsius,” Saatci says. “When a buyer looks at a property, they would understand in their terms what they’re buying, regardless of where they’re buying. GDX helps that person talk to an agent who is reliable, somebody they can be confident in.”
 
- What should you check on the shoreline first? The bulkhead and the boathouse, before the kitchen or the floor plan. Even at a first showing, look for soil washing out behind the bulkhead, which can point to a problem with the wall, and check how sturdy the boathouse is.
+ KW Türkiye already has a version of this inside its own franchise. “We have our closed network within the Keller Williams system, so we can access agents in Milan and Toronto and anywhere in the world that we have an agent, and we can see their background,” Saatci says. “But why limit ourselves to only the Keller Williams network? We want to expand that and also welcome people from other networks that want to do business with us.”
 
- “Those are big-ticket items,” Welsh said. Replacing a bulkhead and a boathouse can cost hundreds of thousands of dollars, and a problem found after closing becomes the new owner’s expense. “You just want to make sure you don’t have a big bill.”
+ What Türkiye’s Market Has In Place, And What It Still Needs Saatci sees two key pieces already in place. The first is the Tapu, Türkiye’s title deed system, which he calls one of the oldest and most reliable ever built. Each property now carries its own number, and a deal can close within 24 hours. The second is a new certification for real estate agents from the Ministry of Trade. “So now we have an agent certified and a property certified,” he says.
 
- What do buyers most often overlook in a waterfront inspection? The same two structures, because the parts that fail are often out of sight. A bulkhead is held in place by deadmen, anchors buried in the ground behind the wall, and no buyer can judge them by eye.
+ What buyers still need is confidence that the price is fair, which takes an independent appraiser and an agent who can explain the real market. Saatci also wants buyers to get more from representation they already pay for. “So far, buyers in Türkiye have been paying 2% for buyer representation that they never fully leveraged,” he says. “Our job is to make them leverage it, and to be somebody who will protect their rights.”
 
- “There are so many things that can be wrong,” Welsh said. Buyers often don’t realize the bulkhead and boathouse need their own inspection, especially if no one has told them. On her most recent purchase, the buyer ordered a separate bulkhead inspection alongside the general inspection. Look as closely as you can on your own, she said, then get the inspection.
+ The last question is the exit. Demand is deep: Türkiye recorded a record 1.69 million home sales in 2025, according to the Turkish Statistical Institute (TÜIK). But Saatci is clear about the time horizon. “Real estate in Türkiye is not a three, four, five-month investment. It’s a six, seven-year investment,” he says. “It’s good for patient investors.”
 
- What should you know about water, sewer and taxes? Most homes on the water around Lake Conroe sit in a MUD, a municipal utility district that supplies public water and sewer, Welsh said. Only a limited number of properties still rely on a well or a septic system.
+ In his view, rental income alone yields about 3% to 4%, and the larger return comes from appreciation. Over six or seven years, with ups and downs, he puts the historical average at about 7% to 8% a year in real terms, after inflation.
 
- The trade-off is the tax bill. A MUD sets its own tax rate on top of other property taxes, so buyers should find out the rate before they commit to a home and build it into the monthly cost of owning it.
+ Why Saatci is Attending the 4th Annual MLS Forum in Istanbul Saatci came to the Forum at a friend’s invitation, to take part in a fireside chat. The research he did beforehand settled the question of whether KW Türkiye belonged there. “Until recently, I wasn’t very aware of the organization,” he says. “When he asked me to do a fireside chat, I did my research, and I said, why are we not here?”
 
- How much upkeep does a Lake Conroe waterfront home take? More than a typical home, and most of it sits at the water’s edge. A home on the lake comes with views and amenities most homes can’t offer, Welsh said, but the boathouse needs regular care and the shoreline needs watching. Buyers should plan for that time and cost from the start rather than discover it after the first season.
+ The first day delivered. “Today I had a lot of inspiration on how we can connect our digital network, and how we can have our agents talking to more international buyers,” Saatci says.
 
- “There’s always something interesting and fun about every house on the water, because they’re all just a little different,” Welsh said. That is also why each one deserves its own careful look before you buy.
+ KW Türkiye’s priorities are the same four it has followed for 13 years: growth, productivity, profitability and culture. In practice, that means more agents, more transactions and more people doing business with the firm. “We’re trying to exploit every area possible where we can help our agents be better business people,” Saatci says. “Technology is one part. Having international buyers is the second part. This is where we want to grow.”
 
- What should you check before making an offer on a Lake Conroe waterfront home? 1. Your priorities. Rank the view, water access, lot size and house size before you tour.
-2. Frontage and orientation. Know whether the lot is open water, cove or canal, and whether the home gets morning or evening sun.
-3. The bulkhead. Look for soil washing out behind the wall.
-4. The boathouse. Check how sturdy it is, since replacement is costly.
-5. Separate inspections. Order a bulkhead inspection on top of the general inspection, with enough time in the option period to finish them.
-6. Utilities and taxes. Confirm whether the home is on MUD water and sewer or septic, and get the MUD tax rate.
+ Saatci is in Istanbul for the Forum, November 16-17. The Forum brings together MLS executives, brokers and technology providers from a few dozen countries. Tickets are available at mlsforum.org.
 
- Welsh’s waterfront properties guide covers docks, bulkheads and San Jacinto River Authority requirements in more detail.
+ About The International MLS Forum
 
- About the Expert: Wendy Welsh is a Realtor and Broker Associate with Coldwell Banker Realty in Willis, Texas, licensed since 1992. For more than 30 years, she has helped families buy and sell homes across the Lake Conroe area. She holds the GUILD Elite designation from The Institute for Luxury Home Marketing, and in 2025 her team ranked No. 1 among large Coldwell Banker teams at Lake Conroe. Learn more at myagentwendy.com.
+ The International MLS Forum brings together MLS leaders, real estate organizations and technology providers from around the world to build more connected, transparent property marketplaces. The 4th edition, organized by RESO, ADRES and RealtyFeed, takes place November 16-17, 2026, at Raffles Istanbul.
 
- This article is intended for informational purposes only and does not constitute legal, financial, or investment advice. The views and opinions expressed herein reflect those of the individuals quoted and do not represent an endorsement of any company, product, or service mentioned. Readers should conduct their own due diligence and consult qualified professionals before making any investment decisions.
+ This article is based on information provided by the expert source cited above. It is intended for general informational purposes only and does not constitute legal, financial, or real estate advice. Readers should conduct their own research and consult qualified professionals before making any real estate or financial decisions.
+
+ Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew.
 
  Disclosure: Individuals or companies mentioned may have a commercial relationship with KeyCrew. 
 
 ---
 
-[Original/Source Press Release](https://keycrew.co/journal/buying-a-waterfront-home-on-lake-conroe-texas-check-the-bulkhead-and-boathouse-first/)
+[Original/Source Press Release](https://keycrew.co/journal/keller-williams-turkiye-opens-its-network-to-global-partners-at-international-mls-forum-in-istanbul/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lake-conroe-waterfront-homes-inspect-bulkhead-and-boathouse-first/043a3bb649a69def94809d7b6897703c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kw-turkiye-eyes-global-buyers-via-gdx-at-mls-forum/c4d5a7c7b6b60d36be7feb0a384ecd9b) 
 
  
 
@@ -62,4 +57,4 @@ Before you fall for a waterfront house on Lake Conroe, Texas, walk the shoreline
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/17/rice8WuZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/keycrew/qrcode/2611/17/jokesj1E.webp)
