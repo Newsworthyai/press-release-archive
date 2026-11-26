@@ -1,63 +1,64 @@
-# Petrolimex XCR Sprint Cup Vietnam 2026 - TRUONG SON RALLY: An International Rally Makes Its Historic Debut In Vietnam
+# SeABank officially appoints CEO and Standing Deputy CEO
 
-QUANG TRI, VIETNAM – [Media OutReach Newswire](https://www.media-outreach.com) – 26 November 2026 - The international Rally Sprint event, Petrolimex XCR Sprint Cup Vietnam 2026 – TRUONG SON RALLY, will take place over five days, from December 2 to 6, 2026, in Quang Tri Province. This landmark event marks a historic milestone for Vietnamese motorsport, as an internationally recognized Rally Sprint event, part of the XCR series established in Japan, makes its debut in Vietnam for the first time.    As the first international-standard Rally event to put Vietnam on the Asian Rally map, Petrolimex XCR Sprint Cup Vietnam 2026 – TRUONG SON RALLY is organized by Lien Minh Production and Media Investment Joint Stock Company (LienminhLME), with the support of Vietnam National Petroleum Group (Petrolimex), alongside domestic and international media organizations.   Unlike conventional circuit racing, Petrolimex XCR Sprint Cup Vietnam 2026 – TRUONG SON RALLY will challenge competitors to tackle demanding off-road terrain across a series of timed competitive sections known as Special Stages (SS). Success will depend on not only speed, but also navigation skills and seamless coordination between the driver and co-driver. The rally routes have been carefully surveyed and approved in accordance with the stringent safety and technical standards set by the Fédération Internationale de l'Automobile (FIA) and the Japan Automobile Federation (JAF).   The tournament is divided into two primary competition categories:   * Car Category (Rally Sprint): Teams compete in a format based on cumulative stage times. Each team consists of one Driver and one Co-driver collaborating on navigation. Open to 4x4 SUVs and pickup trucks, this category is divided into two classes: XC1 (Open) and XC2 (Production). Teams will compete across nine Special Stages (SS), covering a total competitive distance of nearly 60 km. These stages will be divided into three sections and held over the two official race days (December 5-6, 2026).
-* Motorcycle Category: The motorcycle competition will follow a Rally Sprint format, featuring two classes: Big Adv (900cc and above) and Mid Adv (450cc-800cc), with a maximum of 25 entries per class. Competitors will tackle off-road stages in a Rally Sprint format adapted to Vietnam's local conditions, without the use of a Route Book. Motorcycles will start at intervals of 2 to 5 minutes, with results determined by cumulative completion times and ranked in the Overall Rankings to identify the top competitors in each class.
-
-  To ensure the highest level of professionalism and safety, all participating athletes and vehicles must strictly comply with FIA standards:   * For Competitors: All Drivers and Co-drivers must hold a valid FIA competition licence with a minimum grade of D-R. All personal protective equipment, including helmets, racing suits, gloves and racing footwear, must carry valid FIA homologation labels.
-* For Competition Vehicles: Key safety components, including roll cages, racing seats and six-point safety harnesses, must carry valid FIA certification labels and remain within their applicable validity periods.
-
-   Event Schedule:    * Day 1 (December 2): Arrival of international racing teams and completion of customs clearance procedures at border checkpoints.
-* Day 2 (December 3): Arrival and assembly of race vehicles, logistics teams and specialized equipment at the designated accommodation venue.
-* Day 3 (December 4): Administrative checks and vehicle scrutineering; route reconnaissance (Recce); a briefing on regulations and safety procedures; and the Ceremonial Start.
-* Day 4 (December 5): First official race day, featuring Special Stages SS1–SS6 in the BT Wind Power Project Cluster – Le Thuy Flood Bypass area.
-* Day 5 (December 6): Second official race day, featuring Special Stages SS7–SS9, followed by the Gala Dinner and Awards Ceremony.
-
-  The official stages will be broadcast live on television and across social media platforms. For spectators attending the event in person, the Organizing Committee will provide designated grandstand seating, LED screens displaying real-time race timings, a professional technical service area, and opportunities to interact directly with drivers and racing teams.   Detailed information regarding regulations, participating teams, and the latest updates will be announced on the official Facebook page and the Organizing Committee's website.   MEDIA CONTACT:   Lien Minh Production and Media Investment Joint Stock Company   * Contact Person: Ms. Phuong Anh Khuat
-* Phone: (+84) 967056238
-* Email: account@luminor.media
-* Website: lienminhevents.com | lienminhtruck.com
-
-  Hashtag: #Petrolimex #TRUONGSONRALLYThe issuer is solely responsible for the content of this announcement. 
+HANOI, VIETNAM – [Media OutReach Newswire](https://www.media-outreach.com/) – 26 November 2026 – The Board of Directors (BOD) of Southeast Asia Commercial Joint Stock Bank (SeABank, HOSE: SSB) has elected Mr. Le Van Tan as Vice Chairman for the 2023-2028 term, effective 23 November 2026. Following approval from the State Bank of Vietnam (SBV), he has been appointed CEO, effective 25 November 2026, succeeding Mr. Le Quoc Long, who has completed his term and retired.    The BOD has also appointed Mr. Nguyen Hong Quang as Standing Deputy CEO, effective 25 November 2026. Both appointments were completed in accordance with applicable legal requirements and approved by the SBV under Official Letter No. 10722/NHNN-QLGS.   These appointments strengthen SeABank's executive leadership, ensure continuity in governance and management, and support the Bank's strategic priorities.   Mr. Le Van Tan, born in 1970, holds an MBA from Columbia Southern University (USA) and has 32 years of experience in governance, business management, retail and banking-finance, including 18 years with SeABank.   Prior to his appointment as CEO, he held several senior positions at SeABank, including Deputy CEO, Acting Deputy CEO, BOD member, Vice Chairman and, most recently, Chairman of the BOD. With extensive leadership experience and a deep understanding of the Bank's operations, he is expected to lead the Executive Board in pursuing strategic objectives, accelerating digital transformation, enhancing business efficiency and strengthening risk management.   Commenting on his appointment, Mr. Le Van Tan said: "I am deeply honored and proud that the BOD has entrusted me with the role of CEO. My 18 years with SeABank have been a proud journey. This responsibility is both an honor and a strong commitment, which I undertake together with the Executive Board and all employees. We will build on our strengths, solidarity and aspiration for innovation to take SeABank further, creating sustainable value for our customers, shareholders and the community."   Mr. Nguyen Hong Quang holds a Master's degree in Finance and Banking from the University of Wales (UK) and has 19 years of experience in banking-finance at major financial institutions including TPBank, MSB and SeABank. Over more than a decade at SeABank, he has held key leadership positions in treasury, retail banking, investment and human resources, developing broad management expertise and an in-depth understanding of the Bank's business.   Following these appointments, SeABank's 10-member Executive Board brings diverse expertise to drive digital transformation, international integration and sustainable growth. Hashtag: #SeABank #CEO #Leadership[https://seabank.com.vn/](https://seabank.com.vn/)The issuer is solely responsible for the content of this announcement. 
 
 ---
 
-[Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/11/26/504457/)
+[Original/Source Press Release](https://www.media-outreach.com/news/vietnam/2026/11/26/504485/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vietnam-to-host-first-international-rally-sprint-event-in-quang-tri/0ce78fb3b85d622298434b74788e86ee) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seabank-appoints-le-van-tan-as-ceo-strengthens-leadership-team/8c31553c8e130a97969012165c1c6c3a) 
 
 
-Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://dallasmetrowire.com](https://dallasmetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://dcmetrowire.com](https://dcmetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://houstonmetrowire.com](https://houstonmetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://lametrowire.com](https://lametrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://miamimetrowire.com](https://miamimetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://nymetrowire.com](https://nymetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://phillymetrowire.com](https://phillymetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://phoenixmetrowire.com](https://phoenixmetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://sametrowire.com](https://sametrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/petrolimex-xcr-sprint-cup-vietnam-2026-truong-son-rally-an-international-rally-makes-its-historic-debut-in-vietnam)
+Pickup - [https://sdmetrowire.com](https://sdmetrowire.com/pr/mediaoutreach/seabank-officially-appoints-ceo-and-standing-deputy-ceo)
 
-Pickup - [https://citybuzz.co](https://www.citybuzz.co/2026/11/26/vietnam-to-host-first-international-rally-sprint-event-in-quang-tri/)
+Pickup - [https://advos.io/en](https://advos.io/en/seabank-appoints-le-van-tan-as-ceo-strengthening-leadership-for-strategic-growth)
+
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/seabank-appoints-new-ceo-and-standing-deputy-ceo-to-drive-digital-transformation)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/seabank-names-le-van-tan-as-ceo-strengthening-leadership-for-digital-and-sustainable-growth)
+
+Pickup - [https://burstable.news](https://burstable.news/news/seabank-appoints-le-van-tan-as-ceo-nguyen-hong-quang-as-standing-deputy-ceo)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/seabank-ernennt-le-van-tan-zum-ceo-und-nguyen-hong-quang-zum-stellvertretenden-vorstandsvorsitzenden)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/seabank-nombra-a-le-van-tan-como-ceo-y-a-nguyen-hong-quang-como-subdirector-ejecutivo-permanente)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/seabank-nomme-le-van-tan-au-poste-de-directeur-general-et-nguyen-hong-quang-au-poste-de-directeur-general-adjoint-permanent)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/seabank-nomeia-le-van-tan-como-ceo-e-nguyen-hong-quang-como-vice-ceo-permanente)
+
+Pickup - [https://ecs.burstable.news/business-news](https://ecs.burstable.news/business-news/seabank-appoints-le-van-tan-as-ceo-and-nguyen-hong-quang-as-standing-deputy-ceo)
+
+Pickup - [https://news.thespiritualantidote.com](https://news.thespiritualantidote.com/news/seabank-appoints-le-van-tan-as-ceo-strengthening-leadership-for-digital-transformation)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/26/riftEdAF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/mediaoutreach/qrcode/2611/26/roamXjjG.webp)
