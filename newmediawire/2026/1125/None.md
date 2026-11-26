@@ -1,52 +1,70 @@
-# Limited-edition Trading Cards Support the Fight Against Heart Disease
+# MPH Health Care AG Publishes Financial Results for the First Nine Months of 2026
 
-DALLAS - November 25, 2026 (NEWMEDIAWIRE) - National Football League (NFL) Hall of Fame Detroit Lions running back and heart attack survivor Barry Sanders is joining Leaf Trading Cards in the fight against heart disease and stroke by supporting the American Heart Association, a relentless force changing the future of health for everyone everywhere. Approximately 6 in 10 U.S. adults will develop some type of cardiovascular disease within the next 30 years, according to research from the American Heart Association.
+Profit for the period of EUR 34.9 million after nine months
 
- ![](https://iprsoftwaremedia.com/67/files/202610/a7886aae8840816bbcd5c4fd445825bf/Barry%20Sanders%20with%20Leaf%20Trading%20Card.png)
+ * Profit for the period: EUR 34.9 million (prior-year period: EUR -78.5 million)
+* Income from investments: EUR 14.9 million (prior-year period: EUR 7.6 million)
+* Equity ratio: 90.7% (31 December 2025: 94.3%)
 
- Beginning Nov. 25, Leaf Trading Cards will offer limited-edition Barry Sanders trading cards benefiting the American Heart Association. For every custom card sold through Dec. 12, 2026, Leaf Trading Cards will donate 100% of the purchase price to the Association. The campaign includes a $20 standard card, limited to 5,000 cards, with rare numbered cards and 500 cards autographed by Sanders randomly inserted. In addition, 1,000 CGC Graded Edition cards, including 50 randomly inserted autographed cards featuring Sanders and his sons, are available for $39.99 each.
+ BERLIN, GERMANY - November 25, 2026 (NEWMEDIAWIRE) - MPH Health Care AG (ISIN: DE000A289V03) today announces its preliminary IFRS consolidated results for the first nine months of 2026.
 
- For Sanders, the campaign has a personal connection. Sanders had heart attack on Father’s Day weekend in 2024 while on a college recruiting trip with one of his sons. Since then, he’s made it a priority to raise awareness about heart disease and encourage people to know their numbers.
+ The result for the period improved to EUR 34.9 million (prior-year period: EUR -78.5 million). This includes income from investments of EUR 14.9 million (prior-year period: EUR 7.6 million), essentially the dividend from M1 Kliniken AG. The non-cash fair value measurement of the investments resulted in a gain of EUR 21.8 million, following a loss of EUR 85.4 million in the prior-year period.
 
- “Barry Sanders’ story is a powerful reminder that protecting your heart health is something everyone needs to mindful of - even a Hall of Fame running back and NFL MVP - and that understanding risk factors and taking steps to manage them early can help people live longer, healthier lives,” said Nancy Brown, chief executive officer of the American Heart Association. “We are grateful that Barry continues to share his experience to help others, and that Leaf Trading Cards is joining him to give fans a unique way to support our lifesaving mission.”
+ Equity (net asset value) amounted to EUR 256.9 million or EUR 60.01 per share as at 30 September 2026 (31 December 2025: EUR 243.4 million or EUR 56.85 per share). The equity ratio stood at 90.7%. In July, the Company paid a dividend of EUR 5.00 per share (previous year: EUR 1.20).
 
- Since signing on as the National Heart Walk Head Coach earlier this year, Sanders has continued to work with the Association to spread awareness and save lives.
+ Investment in M1 Kliniken AG
 
- ![](https://iprsoftwaremedia.com/67/files/20187/AHA_LOGO-RGB_rk_LG.jpg)
+ In the first nine months of 2026, M1 Kliniken AG increased revenue in its Beauty segment by 11.3% to EUR 86.6 million and segment EBIT by 35.5% to EUR 28.6 million. Group EBIT rose by 4.6% to EUR 25.6 million. Group revenue of EUR 106.3 million (prior-year period: EUR 274.3 million) is comparable with the previous year only to a limited extent owing to the sale of the Trade segment in January 2026.
 
- “My heart attack changed the way I think about my health and the time I have with the people I love. I learned firsthand that heart disease can affect anyone, even when you think you’re doing everything right,” Sanders said. “That’s why I’m proud to work with Leaf Trading Cards to support the American Heart Association, and I hope these cards give people a fun way to join me in supporting work that can help more families have more time together.”
+ On 19 November 2026, MPH Health Care AG placed 927,755 shares in M1 Kliniken AG, around 5% of the share capital, with institutional investors at EUR 17.50 per share. Gross proceeds amounted to around EUR 16 million. Since then, MPH has held around 61% of the shares.
 
- To learn more about the campaign, visit https://www.heart.org/lifeiswhy.
+ Outlook
 
- About the American Heart Association
+ As an investment company, MPH Health Care AG measures its listed investments at the share price on the respective reporting date. The IFRS result may therefore fluctuate significantly from quarter to quarter without any change in the operating performance of the investments.
 
- The American Heart Association is a relentless force for a world of longer, healthier lives. Dedicated to ensuring equitable health in all communities, the organization has been a leading source of health information for more than one hundred years. Supported by more than 35 million volunteers globally, we fund groundbreaking research, advocate for the public’s health, and provide critical resources to save and improve lives affected by cardiovascular disease and stroke. By driving breakthroughs and implementing proven solutions in science, policy, and care, we work tirelessly to advance health and transform lives every day. Connect with us on heart.org, on Facebook, X or by calling 1-800-AHA-USA1.
+ According to its own statements, M1 Kliniken AG is targeting annual revenue of EUR 200 to 300 million in the Beauty segment by 2029 with a sustainable EBIT margin of at least 25% (previously: at least 20%). It also plans to move from the Open Market to the Prime Standard of the Frankfurt Stock Exchange in 2027. As majority shareholder, MPH Health Care AG is also likely to benefit from this in the long term.
 
- For Media Inquiries: 214-706-1173
+ About MPH Health Care AG:
 
- Jeff Schaefer: jeff.schaefer@heart.org
+ MPH Health Care AG is an investment company with a strategic focus on the acquisition, development and sale of companies and company shares, particularly in growth segments of the healthcare market. This includes both insurance-financed and privately financed segments. MPH also intends to take advantage of opportunities arising in high-growth, high-earning sectors outside the healthcare market.
 
- For Public Inquiries: 1-800-AHA-USA1 (242-8721)
+ Contact:Patrick Brenske, Management BoardCorporate CommunicationsE-Mail: [ir@mph-ag.de](mailto:ir@mph-ag.de) 
 
- heart.org and stroke.org
+ 
+
+ 
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/limited-edition-trading-cards-support-the-fight-against-heart-disease-7091569)
+[Original/Source Press Release](https://www.newmediawire.com/news/mph-health-care-ag-publishes-financial-results-for-the-first-nine-months-of-2026-7091580)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/barry-sanders-teams-with-leaf-cards-to-tackle-heart-disease/9b55f24de0826ed590b5ec5bf614b3ac) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mph-health-care-swings-to-eur-34-9m-profit-boosts-dividend/0b2f5d4034f0abe26d0a7a32c16331d5) 
 
 
-Pickup - [https://buildingtexasshow.com](https://buildingtexasshow.com/news/barry-sanders-and-leaf-trading-cards-team-up-to-tackle-heart-disease-with-limited-edition-card-campaign)
+Pickup - [https://advos.io/en](https://advos.io/en/mph-health-care-swings-to-eur-349-million-profit-as-m1-kliniken-beauty-segment-surges)
 
-Pickup - [https://news.buildingtexasshow.com/noticias](https://news.buildingtexasshow.com/noticias/barry-sanders-y-leaf-trading-cards-se-unen-para-combatir-las-enfermedades-cardiacas-con-una-campana-de-tarjetas-de-edicion-limitada)
+Pickup - [https://ai-industrynews.com](https://ai-industrynews.com/news/mph-health-care-swings-to-eur-349-million-profit-as-m1-kliniken-drives-value)
+
+Pickup - [https://bayareametrowire.com](https://bayareametrowire.com/news/mph-health-care-ag-reports-eur-349-million-profit-for-first-nine-months-of-2026-a-sharp-reversal)
+
+Pickup - [https://burstable.news](https://burstable.news/news/mph-health-care-ag-swings-to-eur-349-million-profit-in-first-nine-months-of-2026)
+
+Pickup - [https://platzennachrichten.de/nachrichten](https://platzennachrichten.de/nachrichten/mph-health-care-ag-erzielt-im-ersten-halbjahr-2026-einen-gewinn-von-349-mio-eur)
+
+Pickup - [https://estallarnoticias.com/noticias](https://estallarnoticias.com/noticias/mph-health-care-ag-registra-un-beneficio-de-349-millones-de-euros-en-los-primeros-nueve-meses-de-2026)
+
+Pickup - [https://actueclair.com/actualites](https://actueclair.com/actualites/mph-health-care-ag-affiche-un-benefice-de-349-millions-deuros-au-cours-des-neuf-premiers-mois-de-2026)
+
+Pickup - [https://oestouro.com/noticias](https://oestouro.com/noticias/mph-health-care-ag-registra-lucro-de-eur-349-milhoes-nos-primeiros-nove-meses-de-2026)
+
+Pickup - [https://chicagometrowire.com](https://chicagometrowire.com/news/mph-health-care-swings-to-eur-349-million-profit-as-m1-kliniken-drives-growth)
  
 
  
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/25/clubsCLz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/25/noonBmaK.webp)
