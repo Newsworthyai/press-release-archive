@@ -1,49 +1,39 @@
-# 40th HK Dinner Strengthens Hong Kong-UK Business Ties
+# GSMA and Axonect Sign MOU to Support Small Businesses Digitally
 
-- Over 360 Government and Business Leaders Gather in London to Explore Opportunities in Trade, Investment and Innovation
+DOHA, QATAR - November 27, 2026 (NEWMEDIAWIRE) - Axonect and GSMA have signed a Memorandum of Understanding (MOU) to collaborate on expanding access to digital services for small businesses through mobile operator-led digital marketplaces.
 
- HONG KONG - November 27, 2026 (NEWMEDIAWIRE) - The Hong Kong Dinner in London, one of the longest-standing and most important business networking events connecting Hong Kong and the United Kingdom was held at The Peninsula London on 24 November. Organised by the Hong Kong Trade Development Council (HKTDC), the Hong Kong Dinner serves as the premier forum for fostering dialogue, expanding networks and strengthening economic and trade cooperation. This year, the event marks its 40th edition and attracted over 360 political and business leaders from Hong Kong and the UK who gathered to explore collaboration opportunities and future development prospects.
+ ![](http://newmediawire.s3.amazonaws.com/6b09d267da846f0bfdc8263c_1)
 
- ![](http://newmediawire.s3.amazonaws.com/6b091dffda846f0bfdc82635_1)
+ The MOU was signed at MWC26 Doha, an event that brings together leaders and innovators from the global mobile industry. Sianne Ryder, CEO, Industry Services & Events, GSMA Ltd., and Anthony Rodrigo, Chief Executive Officer, Axonect Sdn Bhd, formalized the agreement during the conference, marking a new step in efforts to address the digital divide faced by small businesses. The purpose of the MOU is to explore how mobile operators can play a greater role in making digital services more accessible to small businesses within their customer ecosystems, particularly those that may not have had easy access to such tools in the past.
 
- Hong Kong is actively implementing its first Five-Year Plan, further strengthening its strategic positioning as the “four centres and one hub” by reinforcing its roles as an international financial, trade, maritime, and innovation and technology (I&T) centre, as well as an international hub for high-calibre talent. As the Hong Kong SAR Government accelerates the development of the Northern Metropolis and deepens Hong Kong’s integration with the
+ This collaboration is set to leverage GSMA Industry Services’ expertise in enabling digital platforms and Axonect’s experience with its Enterprise Marketplace solution. Through this partnership, mobile operators will be able to offer a wider range of digital solutions and services to small businesses, helping them to operate more efficiently in an increasingly digital economy. Axonect brings proven experience from live deployments across multiple markets, providing a strong foundation that can be adapted to the needs of operators and small businesses in different markets.
 
- Guangdong-Hong Kong-Macao Greater Bay Area, the city will create even more opportunities for UK businesses to expand into the Greater Bay Area, the Chinese Mainland and wider Asian markets.
+ Small businesses, including micro enterprises, often face challenges in adopting digital technologies due to limited resources or lack of access to suitable platforms. By working together, GSMA and Axonect aim to help these businesses improve productivity, strengthen their competitiveness, and accelerate their digital adoption. The initiative intends to use the extensive reach and trusted relationships that mobile operators have with their customers to connect small businesses with relevant digital services, such as e-commerce tools, payment solutions, and other online resources that can support business growth.
 
- Prof Frederick Ma, HKTDC Chairman, said this year marks the 60th anniversary of the HKTDC and the 40th Hong Kong Dinner in London. “These milestones reflect not only Hong Kong's remarkable development over the past decades, but also the long-standing friendship and close partnership between Hong Kong and the UK. Over the years, our ties have deepened across trade, finance, investment and professional services, while continuing to evolve and strengthen alongside changes in the global economy. Leveraging Hong Kong’s unique advantages under the ‘One Country, Two Systems’ principle, the city will continue to serve as a bridge connecting China and the world, including the UK.”
+ The collaboration is being led through the GSMA Services Partnerships Programme, which brings together capabilities from across the mobile ecosystem. This programme is designed to help operators create greater value for their customers and the communities they serve by providing access to innovative digital solutions.
 
- ![](http://newmediawire.s3.amazonaws.com/6b091dffda846f0bfdc82635_2)
+ GSMA, known for its role in representing the interests of mobile operators worldwide, brings its industry knowledge and network to the partnership. Axonect, with its background in deploying digital marketplace solutions, offers technical expertise and practical experience in connecting businesses with digital services. Together, the two organizations will explore ways to adapt and expand digital marketplace offerings so that more small businesses can benefit from the digital economy, regardless of their location or size.
 
- In his welcome remarks, he noted: “60 years of the TDC; 40 Hong Kong Dinners in London; almost 30 years of the Special Administrative Region. The numbers change. The friendship does not. TDC’s journey is Hong Kong’s journey. Tonight, we look back on how far we have come; but we also look forward, to see how far we will go.”
+ The announcement of this MOU reflects a shared recognition of the importance of digital transformation for small businesses. As more commerce and services move online, having access to digital tools is increasingly essential for businesses to remain competitive. By focusing on operator-led digital marketplaces, the partnership aims to lower barriers to entry and make it easier for small businesses to discover, access, and use digital services that can help them grow and thrive.
 
- The Guest of Honour at the dinner was Paul Chan, Financial Secretary of the Hong Kong SAR Government. In his keynote speech, he said that Britain has long been part of the Hong Kong story and that new investment continues to renew the ties between the two places. He told guests, “I hope you will be part of our next chapter - as investors, as partners in business, as collaborators in technology and innovation, and as friends.”
+ Further details about the collaboration, including specific markets and services to be offered, will be developed as the partnership progresses. Both organizations will continue to work closely with mobile operators and other stakeholders to ensure that the solutions provided are relevant and effective for small businesses in diverse environments.
 
- This year's event received strong support from organisations and corporations in both Hong Kong and the United Kingdom. MTR Corporation served as the Performance Sponsor, while SBP Group was the Diamond Sponsor. HSBC and Standard Chartered were the event's Platinum Sponsors.
+ Read GSMA’s announcement here
 
- The dinner was also attended by several distinguished guests, including Zheng Zeguang, Ambassador Extraordinary and Plenipotentiary of the People's Republic of China to the United Kingdom; The Honourable Lydia Dunn, former Chairman of HKTDC; The Lord Wilson of Tillyorn, KT, GCMG, the 27th Governor of Hong Kong; Sir Douglas Flint, Chairman of Prudential; Brendan Nelson, Group Chairman of HSBC Holdings; Maria Ramos, Group Chair of Standard Chartered; and Barnaby Swire, Chairman of the Swire Group, among others.
+ About Axonect
 
- ![](http://newmediawire.s3.amazonaws.com/6b091dffda846f0bfdc82635_3)
+ Axonect, an Axiata Company, is a globally recognized platform company redefining how telecommunications operators and enterprises achieve AI-native platformization at scale. Through its Gartner-, TM Forum-, and GSMA-recognized suite of platforms, Axonect enables agentic AI-driven operations, sovereign data, and governed AI ecosystems that are secure, compliant, and designed for enterprise scale. Serving telecommunications operators, the banking, financial services and insurance (BFSI) sector, and digital ecosystems worldwide, Axonect acts as a disruptive co-engineering partner, delivering measurable business impact.
 
- In addition to bringing together prominent business leaders from Hong Kong and the United Kingdom, this year’s dinner also featured a performance by renowned violinist Prof Yao Jue and the Hong Kong String Orchestra, showcasing Hong Kong’s rich cultural diversity to the UK business community.
-
- Photo download: https://bit.ly/48E8Xbc
-
- Media enquiries
-
- Please contact the HKTDC’s Communications and Public Affairs Department:Johnny TsuiTel: (852) 2584 4395Email: johnny.cy.tsui@hktdc.org
-
- About HKTDC
-
- The Hong Kong Trade Development Council (HKTDC) celebrates its 60th anniversary this year. The HKTDC is a statutory body established in 1966 to promote, assist and develop Hong Kong's trade. With over 50 offices globally, including 13 in the Chinese Mainland, the HKTDC promotes Hong Kong as a two-way global investment and business hub. The HKTDC organises international exhibitions, conferences and business missions to create business opportunities for companies, particularly small and medium-sized enterprises (SMEs), in the mainland and international markets. The HKTDC also provides up-to-date market insights and product information via research reports and digital news channels. For more information, please visit: www.hktdc.com/aboutus.
+ Media ContactAxonectSathi JayawardeneEmail: sathi.jayawardene@axiatadigitallabs.comhttps://axonect.com/
 
 View the original release on www.newmediawire.com 
 
 ---
 
-[Original/Source Press Release](https://www.newmediawire.com/news/40th-hk-dinner-strengthens-hong-kong-uk-business-ties-7091608)
+[Original/Source Press Release](https://www.newmediawire.com/news/gsma-and-axonect-sign-mou-to-support-small-businesses-digitally-7091610)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/40th-hong-kong-dinner-in-london-strengthens-uk-hk-business-ties/237df08c914378ff02fb86b772e1194c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gsma-and-axonect-partner-to-empower-small-businesses-digitally/3b0103027bcad2f8aa04208c37d837b2) 
 
  
 
@@ -51,4 +41,4 @@ View the original release on www.newmediawire.com
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/27/tilewB22.webp)
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2611/27/fastVyAY.webp)
